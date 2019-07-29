@@ -1,6 +1,6 @@
 ![alt text](https://kentangtranslationhome.files.wordpress.com/2019/03/untitled-1-copy-1.png)
 
-[![Total Downloads](https://poser.pugx.org/buonzz/laravel-4-freegeoip/downloads.svg)](https://packagist.org/packages/buonzz/laravel-4-freegeoip)
+[![PPDDTP](https://poser.pugx.org/buonzz/laravel-4-freegeoip/downloads.svg)]
 
 
 Laravel 4 Library for calling http://freegeoip.net/ API.
