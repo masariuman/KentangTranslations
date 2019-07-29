@@ -1,54 +1,59 @@
 ![alt text](https://kentangtranslationhome.files.wordpress.com/2019/03/untitled-1-copy-1.png)
 
-[![PPDDTP](https://poser.pugx.org/buonzz/laravel-4-freegeoip/downloads.svg)](https://packagist.org/packages/buonzz/laravel-4-freegeoip)
+
+Kentang Translation
+====================
+
+Selamat datang pada repository dari `KENTANG TRANSLATION`. Repository ini berisikan tentang update terjemahan novel baik WN ataupun LN. Untuk lebih lanjut silahkan kunjungi [Kentang Translation](https://kentangtranslations.home.blog/).
+
+Table Of Content
+================
+
+Berikut adalah daftar isi dari Novel yang Di Garap.
+
+![alt text](lo.png) [Pembunuh Dewa dan Tujuh Perjanjian](https://kentangtranslations.home.blog/pahlawan_pembunuh_dewa_dan_tujuh_perjanjian/) ![alt text](ol.png)
+
+![alt text](lo.png) [Hidup Santai di Perbatasan](https://kentangtranslations.home.blog/hidup_santai_di_perbatasan/) ![alt text](ol.png)
 
 
-Laravel 4 Library for calling http://freegeoip.net/ API.
-
-In contrary to all other packages wherein it requires that you have the geoip database in your filesystem, this library calls a free service
-So you dont really have to worry about downloading and maintaining geoip data from Maxmind in your own server.
-
-Just install the package, add the config and it is ready to use!
 
 
-Requirements
-============
 
-* PHP >= 5.3.7
-* cURL Extension
-
-Installation
-============
-
-    composer require buonzz/laravel-4-freegeoip:dev-master
-
-Add the service provider and facade in your config/app.php
-
-Service Provider
-
-    Buonzz\GeoIP\Laravel4\ServiceProviders\GeoIPServiceProvider
-
-Facade
-
-    'GeoIP'            => 'Buonzz\GeoIP\Laravel4\Facades\GeoIP',
-
-
-Usage
+DONATION
 =====
 
-Get country of the visitor
+Berikut adalah cara melakukan donasi untuk mendukung/mensupport proses dari terjemahan ini.
 
-    GeoIP::getCountry();  // returns "United States"
+**INDONESIA**
+
+DONASI
+> Cukup lakukan donasi dengan cara :
+1. Doakan saya tetap sehat
+2. Doakan rezeki saya lancar
+3. Doakan saya agar banyak waktu luang untuk menerjemahkan
+> Terima kasih atas doanya, Semoga doa kalian dikabulkan dan kalian juga mendapatkan hal serupa dari doa kalian. AMIIIN
     
-Get country code of the visitor
+**ENGLISH**
 
-    GeoIP::getCountryCode();  // returns "US"
+DONATION
+> Simply donate by:
+1. Pray for me to stay healthy
+2. Pray for my good fortune
+3. Pray for me so much free time to do translation
+> Thank you for your prayer, May your prayer be granted and you will also get the same effect from your prayer. AMEN
 
-Get region of the visitor
+**日本**
+
+寄付
+> 単に寄付する： 
+1. 健康を保つために祈ってください。
+2. 幸運を祈ります。
+3. 翻訳のためにとても自由な時間をかけてください。
+> あなたの祈りありがとう アーメン
 
 
-Credits
+Last Message
 =======
 
-* Alexandre Fiori for the awesome http://freegeoip.net web api
-* MaxMind for the data
+* Selamat Menikmati Terjemahan Ini
+* Happy Reading
