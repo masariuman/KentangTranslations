@@ -1,5 +1,3 @@
-Bab 18 The GodSlayers (2)
-
 Suasana sebelum pertempuran. Ketegangan yang menusuk tubuh dengan berat karena lebih dekat dengan kematian.
 
 Sementara diterangi oleh cahaya api unggun yang dinyalakan untuk kehangatan yang dikelilingi oleh para adventurer, Aku menarik bernapas dalam-dalam. Suasana seperti itu menyelimuti tubuhku.
@@ -192,27 +190,27 @@ Sehingga anak-anak itu tidak perlu bertempur terlalu banyak.
 
 .
 
-Saat pertempuran dimulai, hasilnya ditetapkan.
+Saat pertempuran dimulai, hasilnya telah ditetapkan.
 
-Pengeboman oleh para penyihir. Bola api yang bisa menenggelamkan banyak manusia, panah es yang bisa menembus bahkan para Orc, menekan peluru udara yang sepertinya memuntir ruang itu sendiri. Semua ini ditembakkan bersama pada para goblin. Ledakan diikuti dan percikan darah disemprotkan di udara. Teriakan mereka yang melengking mencapai telinga Aku.
+Pengeboman oleh para magician. Bola api yang bisa menenggelamkan banyak manusia, panah es yang bisa menembus bahkan para Orc, peluru udara yang sepertinya memutar ruang itu sendiri. Semua ini ditembakkan bersama pada para goblin. Ledakan diikuti dan percikan darah disemprotkan di udara. Teriakan mereka yang melengking mencapai telingaku.
 
-Itu adalah sinyal yang menKaui dimulainya pertempuran. Beberapa lusin Goblin mati karena serangan pembukaan itu dan sisanya datang pada kami.
+Itu adalah sinyal yang menandai dimulainya pertempuran. Beberapa lusin Goblin mati karena serangan pembukaan itu dan sisanya datang pada kami.
 
 Mengangkat perang mereka, mereka berlari ke arah kami. Kemudian, gelombang kedua datang. Kali ini, hujan panah oleh para pemanah. Sekali lagi, puluhan Goblin terbunuh dan berlumuran darah.
 
-Gelombang ketiga sekali lagi merupakan serangan oleh para penyihir — atau begitulah seharusnya.
+Gelombang ketiga sekali lagi merupakan serangan oleh para magician — atau begitulah seharusnya.
 
 Masih ada jarak antara para goblin dan kami. Namun gelombang ketiga tidak pernah datang.
 
 "Apa sekarang?"
 
-Petualang lain juga melihat ke arah para penyihir untuk melihat apa yang terjadi.
+Adventurer lain juga melihat ke arah para penyihir untuk melihat apa yang terjadi.
 
-Tapi, ada terlalu banyak orang untuk dilihat dengan jelas.
+Tapi, ada terlalu banyak orang jadi tidak dapat melihat dengan jelas.
 
-Sementara itu, para Goblin melanjutkan pendekatan mereka. Mereka masih jauh lebih banyak daripada pejuang jarak dekat kita. Mungkin sekitar 200 masih tersisa.
+Sementara itu, para Goblin melanjutkan pendekatan mereka. Mereka masih jauh lebih banyak daripada pejuang jarak dekat kami. Mungkin sekitar 200 masih tersisa.
 
-Mereka terus semakin dekat. Segera, suara-suara tidak sabar mulai datang dari lingkungan.
+Mereka terus semakin dekat. Segera, suara-suara tidak sabar mulai datang dari sekitar.
 
 [Sepertinya sesuatu terjadi.]
 
@@ -220,57 +218,57 @@ Mereka terus semakin dekat. Segera, suara-suara tidak sabar mulai datang dari li
 
 Apakah Souichi dan Aya baik-baik saja?
 
-Aku mempertanyakan tetapi Aku tidak punya jawaban. Untuk saat ini Aku hanya bisa berharap bahwa tidak ada yang terjadi - bahwa itu hanya cacat dalam strategi.
+Aku mempertanyakannya tetapi Aku tidak punya jawaban. Untuk saat ini Aku hanya bisa berharap bahwa tidak ada yang terjadi - bahwa itu hanya cacat dalam strategi.
 
 [Mereka datang. Sekarang, dukungan dari panah atau sihir sama sekali tidak berguna.]
 
 "Aku tahu."
 
-Menggambar pisau besiku, aku memutarnya di jari-jariku.
+Mengambil pisau besiku, aku memutarnya di jari-jariku.
 
-Aku bermaksud menggunakan senjata GodSlaying Ermenhilde jika itu berubah menjadi huru-hara jadi ini baik-baik saja. Ini tidak seperti Aku mengalami masalah uang tetapi - seperti yang Kau harapkan, dalam pertempuran besar seperti ini, Aku ingin menggunakan mitra terpercaya Aku saja.
+Aku bermaksud menggunakan senjata GodSlaying Ermenhilde jika itu berubah menjadi rusuh jadi ini baik-baik saja. Ini tidak seperti Aku mengalami masalah uang tetapi - seperti yang Kau harapkan, dalam pertempuran besar seperti ini, Aku ingin menggunakan partner terpercayaku saja.
 
-Sementara aku memikirkan itu, para Goblin sudah cukup dekat sehingga aku bisa melihat ekspresi mereka. Turunkan pinggangku sedikit, aku menaruh kekuatan di tangan memegang pisau.
+Sementara aku memikirkan itu, para Goblin sudah cukup dekat sehingga aku bisa melihat ekspresi mereka. Membungkuk sedikit, aku menaruh kekuatan di tangan memegang pisau.
 
-Pada saat yang sama di barat —— ke kiri dari sudut pKaungku, sebuah ledakan terjadi.
+Pada saat yang sama di barat —— ke kiri dari sudut pandanganku, sebuah ledakan terjadi.
 
-Itu mungkin sihir api. Melihat ke arah sana, Aku bisa melihat asap naik.Karena serangan dari arah yang tidak terduga, aku buru-buru melihat ke arah Ofan. Sinyal yang seharusnya datang jika ada keadaan luar biasa adalah ........ tidak ada.
+Itu mungkin sihir api. Melihat ke arah sana, Aku bisa melihat asap naik. Karena serangan dari arah yang tidak terduga, aku buru-buru melihat ke arah Ofan. Sinyal yang seharusnya datang jika ada keadaan luar biasa adalah ........ tidak ada.
 
 "Cih."
 
 [Mereka datang.]
 
-Menghadap ke depan lagi karena suara Ermenhilde, aku menghindari serangan pertama yang dilakukan oleh seorang goblin dan memotong lehernya dengan pisau. Kemudian, Aku memblokir pedang panjang goblin yang menyerang menggunakan goblin sebelumnya sebagai perisai. Darah disemprotkan ke wajahku. Dan karena tekanan dari goblin yang masuk, aku akhirnya didorong mundur dan sekarang sepenuhnya tenggelam dalam huru-hara habis-habisan ini.
+Menghadap ke depan lagi karena suara Ermenhilde, aku menghindari serangan pertama yang dilakukan oleh seorang goblin dan memotong lehernya dengan pisau. Kemudian, Aku memblokir pedang panjang goblin yang menyerang menggunakan goblin sebelumnya sebagai perisai. Darah disemprotkan ke wajahku. Dan karena tekanan dari goblin yang masuk, aku akhirnya didorong mundur dan sekarang sepenuhnya tenggelam dalam kerusuhan habis-habisan ini.
 
-Sosok petualang muda tidak lagi di sampingku. Apakah dia juga tertelan dalam huru-hara ini atau dia dihancurkan oleh gelombang goblin? Tapi Aku tidak punya ketenangan untuk khawatir tentang itu.
+Sosok adventurer muda tidak lagi di sampingku. Apakah dia juga tertelan dalam kerusuhan ini atau dia dihancurkan oleh gelombang goblin? Tapi Aku tidak punya ketenangan untuk khawatir tentang itu.
 
-Aku meraih salah satu goblin yang mencoba untuk mengabaikan dan melewati aku dan merobek lehernya.
+Aku meraih salah satu goblin yang mencoba untuk mengabaikan dan melewatiku dan merobek lehernya.
 
 Sekitar 200 goblin. Mereka benar-benar 4 kali lebih banyak jumlahnya daripada kita. Meskipun mereka hanya goblin, menghadapi begitu banyak orang bahkan tidak bisa disebut pertarungan yang layak.
 
 "Ermenhilde!"
 
-Aku memanggil namanya tetapi energi magis berwujud giok sangat lemah.
+Aku memanggil namanya tetapi energi magisnya sangat lemah.
 
-Aku akhirnya mengklik lidah Aku dan mencengkeram pedang panjang yang diciptakan dari energi magis. Bilahnya berwarna perak sama sekali berbeda dari bilah berwarna giok. Itu tidak lebih baik dari pedang besi normal. Ringan, kokoh, dan tajam. Itu hanya senjata biasa. Sambil menyarungkan pisau besi, aku memegang pedang panjang dengan kedua tangan.
+Aku akhirnya mengklik lidahku dan mencengkeram pedang panjang yang diciptakan dari energi magis. Bilahnya berwarna perak sama sekali berbeda dari bilah berwarna giok. Itu tidak lebih baik dari pedang besi normal. Ringan, kokoh, dan tajam. Itu hanya senjata biasa. Sambil menyarungkan pisau besi, aku memegang pedang panjang dengan kedua tangan.
 
-Memukul pedang, aku merobek tubuh goblin yang datang dari depan. Kakinya berhenti dan nyali keluar. Tapi itu juga dihancurkan oleh goblin lain di saat berikutnya. Jangankan mengklik lidahku, sambil mengumpat dalam pikiranku, aku mengayunkan pedang lagi.
+menebas pedang, aku merobek tubuh goblin yang datang dari depan. Kakinya berhenti. Tapi itu juga dihancurkan oleh goblin lain berikutnya. Jangankan mengklik lidahku, sambil mengumpat dalam pikiranku, aku mengayunkan pedang lagi.
 
-Bahkan badan dari berbagai dunia transfer kompensasi lemah. Hanya satu dari 7 perjanjian yang telah dihapus.
+Bahkan kompensasi badan dari dunia lain lemah. Hanya satu dari 7 perjanjian yang telah dihapus.
 
 "Apakah Aya dan yang lainnya baik-baik saja !?"
 
 [Sebelum itu, khawatirkan dirimu terlebih dahulu.]
 
-Momentum serangan mereka berkurang, dan mereka benar-benar mengelilingi Aku.
+Momentum serangan mereka berkurang, dan mereka benar-benar mengelilingiku.
 
-……… BercKau, tidak ada seorangpun di sampingku. Dalam kondisi seperti itu, Aku bisa merasakan keringat dingin mengalir di tulang belakang Aku.
+……… Kesampingkan Bercanda, tidak ada seorangpun di sampingku. Dalam kondisi seperti itu, Aku bisa merasakan keringat dingin mengalir di tulang belakangku.
 
 Dari suara pedang yang berbenturan, aku bisa tahu bahwa ada orang lain yang bertarung. Setidaknya kita belum dimusnahkan.
 
 "Sialan!"
 
-Aku mengutuk.
+Aku kesal.
 
 Aku tidak tahu ada berapa banyak di belakangku tapi ada 3 goblin di depanku.Tapi sebelum mereka bisa melompat ke arahku, suara ledakan datang. Dan kemudian lolongan.
 
@@ -278,7 +276,7 @@ Itu bukan suara melengking seperti para goblin. Itu adalah lolongan yang lebih d
 
 "——–"
 
-[An Ogre?]
+[Sebuah Ogre?]
 
 Pada saat yang sama, aku menebas Goblin yang melompat ke arahku dengan battleaxe.
 
@@ -286,19 +284,19 @@ Aku tidak punya waktu untuk bersantai.
 
 Namun dalam satu momen itu, aku melihat ke arah sumber lolongan itu - Ogre setinggi 5m.
 
-Itu karakteristik satu kepala bertanduk tidak terlihat dan jatuh berlutut.
+Kehilangan satu tanduknya dan jatuh berlutut.
 
-[Mencatat Ogre dalam dua tembakan. Tidak buruk Aya.]
+[Mengalahkan Ogre dalam dua tembakan. Tidak buruk Aya.]
 
-"Seperti biasa, dia konyol."
+"Seperti biasa, dia kuat."
 
 Sambil menahan goblin, aku berbicara dengan Ermennhilde.
 
-Melawan monster kelas Ogre, aku harus memiliki setidaknya 5 perjanjian yang dibersihkan untuk menghadapinya dengan benar, namun dia bisa mengalahkannya hanya dengan 2 serangan. Ini benar-benar tidak menggelikan.
+Melawan monster kelas Ogre, aku harus memiliki setidaknya 5 perjanjian yang dilepaskan untuk menghadapinya dengan benar, namun dia bisa mengalahkannya hanya dengan 2 serangan. Ini benar-benar tidak lucu.
 
 Aku benar-benar berpikir aku seharusnya berharap pada dewi untuk membiarkan aku juga menggunakan sihir. Lagipula, ini adalah dunia yang berbeda.
 
-Untuk saat ini, Aku santai memastikan bahwa Aya baik-baik saja. Untuk dapat membunuh Ogre dengan mudah, Aya harus menjadi satu-satunya yang dapat melakukan hal seperti itu di antara semua yang hadir di sini. Yah, mungkin ada siswa berbakat di Akademi dengan tingkat bakat yang sama dengan Aya tapi aku ragu akan ada banyak dengan tingkat cheat yang sama dari energi magis yang diberikan oleh sang dewi.
+Untuk saat ini, Aku memastikan bahwa Aya baik-baik saja. Untuk dapat membunuh Ogre dengan mudah, Aya harus menjadi satu-satunya yang dapat melakukan hal seperti itu di antara semua yang hadir di sini. Yah, mungkin ada siswa berbakat di Akademi dengan tingkat bakat yang sama dengan Aya tapi aku ragu akan ada banyak dengan tingkat cheat yang sama dari energi magis yang diberikan oleh sang dewi.
 
 "Mungkin aku seharusnya juga bisa menggunakan sihir atau sesuatu."
 
@@ -306,11 +304,11 @@ Untuk saat ini, Aku santai memastikan bahwa Aya baik-baik saja. Untuk dapat memb
 
 Mengunci pedangku dengan pedang pendek goblin, aku mengambil pisauku dengan tangan kiri dan membuka perutnya.
 
-Si goblin berhenti bergerak dari sana dan aku menggunakan pedang panjangku untuk memblokir serangan yang datang dari belakang untuk mengejutkanku.Mengambil beberapa langkah ke belakang, Aku akhirnya tersandung karena sesuatu yang sedikit kehilangan postur Aku. Menggunakan sesuatu itu sebagai bantal, aku berguling dan kemudian menikam dengan pedang panjang seperti senjata tiang.
+goblin berhenti bergerak dan aku menggunakan pedang panjangku untuk memblokir serangan yang datang dari belakangku. Mengambil beberapa langkah ke belakang, Aku akhirnya tersandung karena sesuatu dan aku sedikit goyah. Menggunakan sesuatu itu sebagai bantal, aku berguling dan kemudian menikam dengan pedang panjang seperti senjata tongkat.
 
-Berapa banyak yang sudah kukalahkan? Sambil memikirkan itu, aku merasakan sesuatu yang suam-suam kuku di lengan kiriku. Pertama Aku pikir itu adalah darah Goblin tetapi bukan itu.
+Berapa banyak yang sudah kukalahkan? Sambil memikirkan itu, aku merasakan sesuatu yang hanga-hangat kuku di lengan kiriku. Pertama Aku pikir itu adalah darah Goblin tetapi bukan itu.
 
-Melihat ke sampingku, sesosok mayat manusia terbaring di tanah. Pasti orang ini yang membuatku tersandung. Wajahnya terlihat akrab. Yang Aku ajak bicara — itu, Rob.
+Melihat ke sampingku, sesosok mayat manusia terbaring di tanah. Pasti orang ini yang membuatku tersandung. Wajahnya terlihat tidak asing. Yang Aku ajak bicara — itu, Rob.
 
 [Renji.]
 
@@ -318,45 +316,45 @@ Melihat ke sampingku, sesosok mayat manusia terbaring di tanah. Pasti orang ini 
 
 Aku menebas Goblin yang membidikku saat aku bangkit dan membelah tubuhnya menjadi dua.
 
-Transfer dunia yang berbeda Cheat kini semakin meningkat pengaruhnya.Ketajaman Ermenhilde meningkat. Bilah perak sekarang menunjukkan desain berwarna giok juga.
+Cheat dari transfer ke dunia lain kini semakin meningkat pengaruhnya. Ketajaman Ermenhilde meningkat. Bilah perak sekarang menunjukkan desain berwarna giok juga.
 
-"Itu membuat dua. Persetan! "
+"Itu membuat dua. F*CK ! "
 
-Sialan! Sekali lagi kutukan dalam benakku.
+Sialan! Sekali lagi kukatakan dalam benakku.
 
 Sampai seseorang mendapat bahaya, sampai seseorang tidak dikorbankan ........ aku tidak bisa bertarung.
 
-Realitas dari fakta itu sangat berat. [Kematian seorang teman] telah dibersihkan.
+Realitas dari fakta itu sangat berat. [Kematian seorang teman] telah dilepaskan.
 
-Aku melihat para goblin di sekitarnya. Mungkin mereka berhati-hati terhadap Aku, mereka tidak mencoba menggunakan angka hanya untuk mengalahkan Aku ... setidaknya belum.
+Aku melihat para goblin di sekitar. Mungkin mereka berhati-hati terhadapku, mereka tidak mencoba menggunakan jumlah hanya untuk mengalahkanku ... setidaknya belum.
 
 [Ini benar-benar aneh.]
 
 "Ahn?"
 
-[Ogre dikalahkan, begitu banyak dari sesama goblin mereka terbunuh. Tetap saja mereka tidak menunjukkan tKau-tKau ketakutan.]
+[Ogre dikalahkan, begitu banyak dari sesama goblin mereka terbunuh. Tetap saja mereka tidak menunjukkan tanda-tanda ketakutan.]
 
-Memukul pedang perak, aku memenggal goblin lain. Tidak seperti sebelumnya, ia memotong sampai tulangnya tanpa perlawanan sama sekali dan bahkan memotong baju besi kulit.
+Mengayunkan pedang perak, aku memenggal goblin lain. Tidak seperti sebelumnya, ia memotong sampai tulangnya tanpa perlawanan sama sekali dan bahkan memotong baju kulit.
 
-Jika Aku bisa bertarung seperti ini sejak awal - tidak, jika semua perjanjian Aku dibebaskan dari awal, apakah anak itu masih hidup?
+Jika Aku bisa bertarung seperti ini sejak awal - tidak, jika semua perjanjianku dilepaskan dari awal, apakah anak itu masih hidup?
 
 Memikirkan itu, aku hanya bisa menghela nafas. Aku memikirkan hal-hal yang tidak perlu. Untuk saat ini, aku harus mengayunkan pedangku untuk bertahan hidup. Memikirkan hal lain tidak berguna.
 
-Aku berbalik ke arah para goblin di dekatnya. Untuk beberapa alasan, para goblin yang tidak mundur bahkan setelah Ogre terbunuh, mundur selangkah.
+Aku berbalik ke arah para goblin sekitar. Untuk beberapa alasan, para goblin yang tidak mundur bahkan setelah Ogre terbunuh, mundur selangkah.
 
 "—–Ruuah !!!"
 
 Tanpa bentuk apa pun, itu adalah serangan kasar yang sederhana. Pedang panjangnya patah dan terpisah dari bahu.
 
-Goblin yang menyerang punggungku yang tak berdaya, aku hanya menggunakan intution untuk memukulnya dengan gagang pedangku. Aku bisa merasakan tulangnya patah. Kehangatan dagingnya dan denyut nadinya dari jeroan. Semua itu terasa melalui lenganku, yang menjijikkan.
+Goblin yang menyerang punggungku yang tak berdaya, aku hanya menggunakan intuisi untuk memukulnya dengan gagang pedangku. Aku bisa merasakan tulangnya patah. Kehangatan dagingnya dan denyut nadinya. Semua itu terasa melalui lenganku, yang menjijikkan.
 
 Berbalik, aku menusukkan pisau besiku ke dahinya. Lebih banyak goblin melompat dari belakangku. Berbalik lagi - sebelum aku bisa mengayunkan pedangku, mereka tertusuk panah.
 
-"Apakah Kau baik-baik saja!?"
+"Apakah Kau baik-baik saja!?" (elf)
 
 "Ya, entah bagaimana."
 
-Orang Peri yang mendukungku.
+Itu adalah Elf yang mendukungku.
 
 Meskipun penembak jitu harus berada di arah yang berbeda ....
 
@@ -364,19 +362,19 @@ Yah, itu berubah menjadi pertempuran seperti itu, strateginya sudah benar-benar 
 
 "Mengapa gelombang dukungan ketiga tidak datang?" (Renji)
 
-“Orc dan Ogre dipanggil entah dari mana. The Brave saat ini menghadapi Demon. "
+“Orc dan Ogre dipanggil entah dari mana. Para Brave saat ini menghadapi Iblis. "
 
-[Setan? Kenapa iblis menjadi ……]
+[Iblis? Kenapa iblis ada ……]
 
-"Apakah itu juga iblis yang mengumpulkan monster-monster itu?"
+"Apakah itu juga iblis yang mengumpulkan monster-monster itu?" (renji)
 
 "Begitulah katanya. Untuk memancing keluar para Pahlawan rupanya. ”
 
 Strategi yang cukup kasar.
 
-Jika itu bisa memanggil monster, itu pasti iblis kelas menengah atau tinggi.Tapi, ternyata kekurangan di departemen otak rupanya.
+Jika itu bisa memanggil monster, itu pasti iblis kelas menengah atau tinggi. Tapi, ternyata kekurangan pada bagian otak rupanya.
 
-Jika ingin mengalahkan Brave, goblin dan Ogres tidak akan membantu.Mereka akan membutuhkan monster yang cukup kuat untuk melawan Souichi.
+Jika ingin mengalahkan Brave, goblin dan Ogres tidak akan membantu. Mereka akan membutuhkan monster yang cukup kuat untuk melawan Souichi.
 
 Misalnya —- Raja Iblis.
 
@@ -384,17 +382,17 @@ Sementara aku memikirkan itu, tiba-tiba lingkaran sihir besar muncul di tanah ya
 
 Aku melihat ke bawah— Energi magis berwarna merah adalah warna Aya. Dan lingkaran sihir yang diciptakan olehnya bersinar terang.
 
-"Apa, Apa!?" (Peri)
+"Apa, Apa!?" (Elf)
 
 “Dia benar-benar tidak tahu bagaimana mengendalikan kekuatannya. Serius. "
 
 "Apa!!?"
 
-Peri di sampingku benar-benar panik sekali.
+Elf di sampingku benar-benar panik sekali.
 
 Kekuatan seorang Pahlawan. Keajaiban Magus Besar. Jika dia menggunakan itu sejak awal, tidak akan ada pengorbanan sama sekali.
 
-Tetapi jika dia melakukan itu, para petualang tidak akan mendapatkan kesempatan untuk menghasilkan banyak. Kurasa, baik guild dan Akademi pasti memberitahunya untuk tidak mengambil bagian secara aktif.
+Tetapi jika dia melakukan itu, para petualang tidak akan mendapatkan kesempatan untuk menghasilkan banyak uang. Kurasa, baik guild dan Akademi pasti memberitahunya untuk tidak mengambil bagian secara aktif.
 
 Tetapi sebagai hasilnya, banyak korban lahir. Bocah itu - Rob juga meninggal.
 
@@ -402,23 +400,23 @@ Tetapi sebagai hasilnya, banyak korban lahir. Bocah itu - Rob juga meninggal.
 
 "Aku tahu."
 
-Saat berikutnya, akar yang tajam keluar dari tanah dan menusuk goblin di mana-mana.
+berikutnya, akar yang tajam keluar dari tanah dan menusuk goblin di mana-mana.
 
 Mereka mati setelah ditusuk oleh akar di lengan, kaki, tubuh, dan kepala.
 
-Gadis itu benar-benar bekerja dengan cepat bahkan oleh begitu banyak goblin.Lawan melawan siapa aku berjuang mati-matian, dia membunuh mereka dalam sekejap.
+Gadis itu benar-benar bekerja dengan cepat bahkan begitu banyak goblin yang kulawan mati matian, dibunuhnya dengan sekejap.
 
-Ini adalah Pembunuh Dewa. Ini adalah kekuatan Pahlawan .—– kekuatan cheat yang diberikan oleh Dewi. Kekuatan yang tak terbayangkan yang membuat semua orang iri karenanya.
+Inilah Pembunuh Dewa. Ini adalah kekuatan Pahlawan .—– kekuatan cheat yang diberikan oleh Dewi. Kekuatan yang tak terbayangkan yang membuat semua orang iri karenanya.
 
-Tetapi Aku tidak memilikinya. Kekuatan untuk melindungi banyak orang, untuk menyelamatkan mereka. Sorak-sorai bangkit dari berbagai tempat.Sepertinya masih banyak yang hidup ........ aku sangat senang untuk itu.
+Tetapi Aku tidak memilikinya. Kekuatan untuk melindungi banyak orang, untuk menyelamatkan mereka. Sorak-sorai bangkit dari berbagai tempat. Sepertinya masih banyak yang hidup ........ aku sangat senang untuk itu.
 
 [Hanya iblis yang tersisa sekarang.]
 
-Yah, bahkan itu seharusnya mudah untuk berurusan dengan SOuichi di sana.
+Yah, bahkan itu seharusnya mudah untuk SOuichi di sana.
 
-Bergerak melalui tubuh para goblin yang tertusuk, aku bergerak menuju tempat para penyihir bertarung.
+Bergerak melalui tubuh para goblin yang tertusuk, aku bergerak menuju tempat para magician bertarung.
 
-Entah kenapa, peri itu mengejarku.
+Entah kenapa, elf itu mengejarku.
 
 “Apa?” (Renji)
 
@@ -430,17 +428,17 @@ Aku ragu ada sesuatu yang harus Aku lakukan.
 
 Tetap saja, Aku ingin menyaksikannya. Akhir dari pertempuran ini. Wajah iblis itu.
 
-Setan. Monster dengan kecerdasan yang hidup di benua Abenelm. Mereka mengerti bahasa manusia dan bahkan dikatakan lebih bijak daripada manusia.
+Iblis. Monster dengan kecerdasan yang hidup di benua Abenelm. Mereka mengerti bahasa manusia dan bahkan dikatakan lebih bijak daripada manusia.
 
 Orang-orang itu, biasanya tidak meninggalkan benua. Terakhir kali mereka datang, Ibukota Kerajaan telah setengah hancur. Segera setelah kami dipanggil. Alasannya adalah untuk menghancurkan harapan baru manusia atau sesuatu.
 
-Tapi kali ini? The Brave —- itu untuk memancing Souichi atau begitulah katanya. Tapi bagaimana setelah memancingnya keluar? Iblis biasa, bisakah itu memanggil Raja Iblis? Itu tidak mungkin.
+Tapi kali ini? Para Brave —- untuk memancing Souichi atau begitulah katanya. Tapi bagaimana setelah memancingnya keluar? Iblis biasa, bisakah itu memanggil Raja Iblis? Itu tidak mungkin.
 
 Kemudian,
 
-"Aku melihat."
+"Ah begitu."
 
-Lebih banyak monster dipanggil. Ruang kosong berfluktuasi, terbentuk, berwarna, dan menjadi tubuh penuh.
+Lebih banyak monster dipanggil. menyatu, terbentuk, berwarna, dan menjadi sebuah kesatuan.
 
 Raksasa. A Black Ogre. Yang bahkan lebih besar dari Ogres normal telah dipanggil.
 
@@ -448,7 +446,7 @@ Aku telah melihat Ogre ini. Atau lebih tepatnya, aku telah bertarung dengan sesu
 
 Tanpa melirik para goblin, aku berlari. Black Ogres mengayunkan tinjunya.
 
-Itu diledakkan oleh sihir tetapi tetap tidak terluka. Apakah kulitnya keras atau tahan terhadap sihir. Jika itu yang pertama, bahkan Aku akan mengalami kesulitan dengan itu. Aku berpikir sambil berlari.
+Orc diledakkan oleh magic tetapi tetap tidak terluka. Apakah kulitnya keras atau tahan terhadap sihir. Jika itu yang pertama, bahkan Aku akan mengalami kesulitan dengan itu. Aku berpikir sambil berlari.
 
 "Ermenhilde."
 
@@ -460,15 +458,15 @@ Itu diledakkan oleh sihir tetapi tetap tidak terluka. Apakah kulitnya keras atau
 
 Sekarang, di mana Kau belajar semua kata-kata ini?
 
-Sambil pipiku mengalami kram karena dipanggil seperti itu, pedang perak itu berubah menjadi energi sihir giok. Dan kemudian —– Aku memegang Pedang Ilahi berwarna Giok di tanganku.
+Sambil pipiku mengalami kram karena dipanggil seperti itu, pedang perak itu berubah menjadi energi sihir giok. Dan kemudian —– Aku memegang divine sword berwarna Giok di tanganku.
 
-Bilah berwarna giok, gagang emas. Peri yang tadi berlari di sisiku melihat pedang ini.
+Bilah berwarna giok, gagang emas. Elf yang tadi berlari di sisiku melihat pedang ini.
 
 "Kau….."
 
-"Apa. Itu hanya dana pedang yang normal di mana saja. ”(Renji)
+"Apa. Itu hanya pedang yang normal yang ada di mana saja. ”(Renji)
 
-[Seolah aku akan membiarkan senjata sepertiku ada di mana-mana.]
+[Tidak mungkin aku akan membiarkan senjata sepertiku ada di mana-mana.]
 
 "Bukan swo — Kau bukan senjata, kau rekanku."
 
@@ -476,16 +474,16 @@ Bilah berwarna giok, gagang emas. Peri yang tadi berlari di sisiku melihat pedan
 
 Aku berlari. Lebih cepat dari sebelumnya.
 
-The Ogre mengayunkan tinjunya. Sebelum itu bisa mengenai tanah, aku melempar Pedang Ilahi dan menusuk ke Akupnya.
+Ogre mengayunkan tinjunya. Sebelum itu bisa mengenai tanah, aku melempar Divine Sword dan menusuk ke Sayapnya.
 
-Karena rasa sakit mungkin, itu meraung keras. The Ogre, Souichi, iblis, Aya yang akan dihancurkan oleh Ogre, dan setiap petualang sekitarnya, semua berbalik untuk fokus padaku yang melemparkan pedang.
+Karena rasa sakit, Ogre meraung keras. Ogre, Souichi, iblis, Aya yang akan dihancurkan oleh Ogre, dan setiap adventurer sekitarnya, semua berbalik untuk fokus padaku yang melemparkan pedang.
 
 "Ini memalukan."
 
-[..... Bagaimana kalau mencoba bertindak sedikit lebih masuk akal untuk sekali? Serius.]
+[..... Bagaimana kalau mencoba bertindak sedikit lebih masuk akal untuk sesekali? Serius.]
 
 Tapi dengan ini——
 
-[Dengan ini, 5 perjanjian telah dihapus.]
+[Dengan ini, 5 perjanjian telah dilepaskan.]
 
 Aku bisa bertarung.
