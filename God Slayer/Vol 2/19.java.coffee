@@ -178,43 +178,43 @@ Itu sebabnya pertama-tama, kita perlu membuat para adventurer untuk pindah dari 
 
 "Cepatlah Jatuh."
 
-Berbicara dengan suara berat yang dipenuhi dengan niat membunuh, saat berikutnya, Iblis itu berhati-hati dengan sihir dari tanah yang jatuh dari langit.
+Berbicara dengan suara berat yang dipenuhi dengan niat membunuh, Iblis itu berhati-hati dengan sihir dari tanah yang jatuh dari langit.
 
 Apa yang dia kendalikan adalah gravitasi. Lingkaran ajaib itu untuk persiapan.
 
-Sejak awal, menggunakan sihir yang bisa dikenali selalu menjadi pilihan terakhir. Itu adalah satu hal jika itu adalah saat ketika kami memulai perjalanan kami ketika dia tidak terbiasa menggunakan sihir tapi sekarang, Aya bisa mengalahkan iblis itu bahkan tanpa menggunakan lingkaran sihir.
+Sejak awal, menggunakan sihir yang bisa dikenali selalu menjadi pilihan terakhir. Lain cerita jika itu saat ketika kami memulai perjalanan ketika dia tidak terbiasa menggunakan sihir tapi sekarang, Aya bisa mengalahkan iblis itu bahkan tanpa menggunakan lingkaran sihir.
 
 Pada saat yang sama, Aku juga berlari ke arah Ogre.
 
-Dengan 5 perjanjian yang jelas, kemampuan fisik Aku sangat ekstrem dan Aku menempuh 20m dalam satu napas.
+Dengan 5 persyaratan tepenuhi, kemampuan fisikku sangat ekstrem dan Aku menempuh 20m dalam satu napas.
 
 Souichi sekali lagi menebas kaki Ogre. Sekali lagi, hanya percikan api yang terbang.
 
-Pada saat yang sama, Aku memotong kaki satunya. Di sini, tidak ada hambatan dan Aku memotong kakinya dari pergelangan kaki.
+Pada saat yang sama, Aku memotong kaki satunya. Tidak ada hambatan dan Aku memotong kakinya dari pergelangan kaki.
 
-Itu mengangkat jeritan dan Ogre jatuh karena kehilangan satu kakinya.
+Ogre berteriak menjerit dan jatuh karena kehilangan satu kakinya.
 
-Ia mencoba menopang dirinya sendiri dengan 2 lengannya tetapi saat lengannya hampir menyentuh tanah, bumi di daerah itu saja menghilang. Aya telah menggali lubang dengan sihir. Kedua lengannya terkubur ke tanah dan dengan suara * zuun * yang berat, ia menghantam permukaan bumi terlebih dahulu.
+Ia mencoba menopang dirinya sendiri dengan 2 lengannya tetapi saat lengannya hampir menyentuh tanah, tanah di daerah itu saja menghilang. Aya telah menggali lubang dengan sihir. Kedua lengannya terkubur ke tanah dan dengan suara * zuun * yang berat, ia menghantam permukaan tanah terlebih dahulu.
 
 "Fuu."
 
-Setan itu terbaring di tanah hancur oleh gravitasi dan Ogre dimakamkan di bumi dengan satu kaki terputus.
+Iblis itu terbaring di tanah hancur oleh gravitasi dan Ogre dimtenggelamkan di tanah dengan satu kaki terputus.
 
 Sekarang karena keduanya sudah tidak bisa bertarung lagi, aku menghela nafas.
 
-Persis seperti itu, Aku pertama kali memotong kepala Ogre. Pedang Ilahi memotong lehernya tanpa perlawanan dan kepala berguling.
+Seperti itu, Aku pertama-tama memotong kepala Ogre. Divine sword memotong lehernya tanpa perlawanan dan kepala berguling.
 
-"Sudah bisakah aku pensiun?"
+"Bolehkan aku berhenti sekarang?"
 
-[Sepertinya akan menjadi lebih merepotkan nanti, bisakah Kau bertindak seolah-olah Kau tidak memperhatikan apa yang terjadi sepanjang waktu?]
+[Sepertinya akan menjadi lebih merepotkan nanti, bisakah Kau bertindak seolah-olah Kau tidak memperhatikan apa yang terjadi sepanjang waktu ?]
 
 “…… .Tch.”
 
 Menjatuhkan bahuku, aku mendecakkan lidahku.
 
-Maaf, Rob. Roberiano. Ini yang paling bisa Aku lakukan.
+Maaf, Rob. Roberiano. Ini yang bisa Aku lakukan.
 
-Aku ingat wajah petualang muda yang mati. Aku tidak benar-benar berjanji bahwa Aku akan melindunginya tetapi kenyataan bahwa ia harus mati pada usia yang begitu muda sedikit menusuk hati Aku. Di medan perang, terbunuh oleh orang-orang seperti goblin. Meskipun dia tidak benar-benar berbeda dari Souichi dan yang lain ...... hidupnya baru saja dimulai.
+Aku ingat wajah adventurer muda yang mati. Aku tidak benar-benar berjanji bahwa Aku akan melindunginya tetapi kenyataan bahwa ia harus mati pada usia yang begitu muda sedikit menusuk hatiku. Di medan perang, terbunuh oleh orang-orang seperti goblin. Meskipun dia tidak benar-benar berbeda dari Souichi dan yang lain ...... hidupnya baru saja dimulai.
 
 Tapi seperti inilah medan perang, itu tidak bisa dihindari. Aku tidak ingin berpikir seperti itu, menggunakan medan perang sebagai alasan, Aku hanya bisa menghela nafas.
 
@@ -224,47 +224,47 @@ Tapi seperti inilah medan perang, itu tidak bisa dihindari. Aku tidak ingin berp
 
 Bisakah kita memanggilnya dalang? Aku benar-benar tidak bisa memikirkannya seperti itu. Sambil mendengar kata-kata Ermenhilde, aku berjalan menuju Iblis yang terperangkap dalam sangkar gravitasi.
 
-Jika Demon itu berpikir bahwa dia bisa mengalahkan Souichi dan yang lainnya hanya dengan Ogre, bahkan jika itu telah menjadi keturunan Dewa Iblis, maka dia hanya idiot.
+Jika Iblis itu berpikir bahwa dia bisa mengalahkan Souichi dan yang lainnya hanya dengan Ogre, bahkan jika itu telah menjadi keturunan Dewa Iblis, maka dia hanya idiot.
 
-Bahkan tanpa aku, mereka berdua akan mengalahkan mereka cepat atau lambat. Aku sangat mempercayai mereka.
+Bahkan tanpaku, mereka berdua akan mengalahkan mereka cepat atau lambat. Aku sangat mempercayai mereka.
 
-Itulah yang dimaksud dengan GodSlayer, Pahlawan. Menerima kepercayaan mutlak dan memenuhi harapan mereka adalah Berani.
+Itulah yang dimaksud dengan GodSlayer, Pahlawan. Menerima kepercayaan mutlak dan memenuhi harapan mereka adalah Brave.
 
 "Renji-niichan !!"
 
 "Ou."
 
-Souichi mengawasi Iblis di tanah tapi dia masih mengangkat satu tangannya untuk melambai padaku. Untuk menjawabnya, Aku juga mengangkat salah satu tangan Aku dan pergi kepadanya.
+Souichi mengawasi Iblis di tanah tapi dia masih mengangkat satu tangannya untuk melambai padaku. Untuk menjawabnya, Aku juga mengangkat salah satu tanganku dan pergi kepadanya.
 
-Dengan * pan * dia tinggi-tinggi padaku. Aku membuka dan menutup telapak tangan Aku berulang kali untuk mengurangi rasa sakit.
+Dengan * pan * dia menepuk tanganku. Aku membuka dan menutup telapak tanganku berulang kali untuk mengurangi rasa sakit.
 
 ........ memukul dengan kekuatan penuh. Itu benar-benar menyakitkan ...
 
 "Sepertinya Kau dalam kondisi sehat."
 
-“Itu kalimat Aku. Juga, semua orang benar-benar khawatir, tahu? ”
+“Itu kalimatku. Juga, semua orang benar-benar khawatir, tahu? ”
 
 “Ugh …….”
 
-Aku mengalihkan pKaunganku saat dia menatapku.
+Aku mengalihkan pandanganku saat dia menatapku.
 
-Tidak, well, kurasa itu adalah kesalahanku yang tiba-tiba menghilang tapi.
+Tidak, yaaa, kurasa itu adalah kesalahanku yang tiba-tiba menghilang tapi.
 
-[Ceritakan lebih banyak padanya, Souichi.]
+[Berbicara lebih banyak lagi padanya, Souichi.]
 
 “Eru-san juga. Lama tidak bertemu."
 
-[Ah, kalian sangat sopan dan sopan.]
+[Ah, kalian sangat sopan dan santun.]
 
-“…… ..Itu rasanya mengatakan bahwa seseorang tidak tetap sopan, tahu?” (Renji)
+“…… ..Itu rasanya mengatakan bahwa seseorang tidak sopan, tahu?” (Renji)
 
-[Itulah tepatnya yang aku katakan.]
+[Itulah yang aku katakan.]
 
-"Meskipun seperti ini, aku berusaha tetap sopan dan sopan sepanjang waktu."
+"Meskipun seperti ini, aku berusaha tetap sopan dan santun sepanjang waktu."
 
 Mengatakan itu, aku melihat ke tanah.
 
-Akup-Akup itu dalam kondisi yang benar-benar buruk dan kedua kaki dan kaki kirinya tertekuk ke arah yang mustahil. Rasanya sakit hanya menatapnya.
+sayap-sayap itu dalam kondisi yang benar-benar buruk dan kaki kirinya tertekuk ke arah yang mustahil. Rasanya sakit hanya menatapnya.
 
 "Oi." (Renji)
 
@@ -272,11 +272,11 @@ Ketika aku mengangkat suaraku, dia menatapku dengan tatapan penuh kebencian.
 
 The 13 GodSlayers.
 
-Bahkan di antara mereka, aku yang secara langsung membunuh Dewa Setan paling dibenci oleh Iblis. Aku sangat dibenci oleh mereka. Yah, itu tidak bisa dihindari.
+Bahkan di antara mereka, aku yang secara langsung membunuh Dewa Iblis paling dibenci oleh Iblis. Aku sangat dibenci oleh mereka. Yah, itu tidak bisa dihindari.
 
 Aku adalah orang yang membunuh Dewa yang mereka sembah. Sudah jelas bahwa Aku akan dibenci.
 
-Aku meletakkan pedang hijau giok di lehernya. Sekarang setelah Ogre hitam sudah mati, hanya 4 perjanjian yang dihapus —- tidak, hanya 3. Tidak perlu melindungi seseorang dalam situasi ini sekarang.
+Aku meletakkan pedang hijau giok di lehernya. Sekarang setelah Ogre hitam sudah mati, hanya 4 persyaratan yang dipenuhi —- tidak, hanya 3. Tidak perlu melindungi seseorang dalam situasi ini sekarang.
 
 Fakta bahwa pedang itu telah kehilangan kilauan energi sihir sebelumnya adalah bukti dari itu.
 
@@ -284,7 +284,7 @@ Fakta bahwa pedang itu telah kehilangan kilauan energi sihir sebelumnya adalah b
 
 “Ya, aku Yamada Renji. Jadi, kenapa iblis sepertimu bisa mengendalikan keturunan Dewa Iblis? ”
 
-Mengabaikan adalah pKaungan penuh kebencian, aku bertanya.
+Mengabaikan pandangan penuh kebencian, aku bertanya.
 
 Aku mungkin telah melakukan sesuatu yang buruk. Membunuh Dewa, bahkan untuk menyelamatkan dunia, mungkin bukan sesuatu yang harus dimaafkan.Terutama bagi para Iblis yang menyembahnya.
 
@@ -294,37 +294,37 @@ Aku bukan manusia hebat yang bisa melakukan hal seperti itu, aku tidak cukup tol
 
 Apa yang akan Kau lakukan setelah menyelamatkan dunia?
 
-Berkeliling dunia, menjadi jembatan antara manusia dan demi-manusia mungkin tidak buruk. Aku mungkin mencoba untuk memperbaiki hubungan dengan setan musuh juga.
+Berkeliling dunia, menjadi jembatan antara manusia dan demi-human mungkin tidak buruk. Aku mungkin mencoba untuk memperbaiki hubungan dengan iblis juga.
 
-Bahkan, ada Iblis yang tidak berpikir buruk tentang manusia. Mereka adalah minoritas sepenuhnya.
+Bahkan, ada Iblis yang tidak berpikir buruk tentang manusia. Tapi mereka hanya sedikit.
 
-“Apakah Sherfa terlibat dalam ini?” (Renji
+“Apakah Sherfa terlibat dalam ini?” (Renji)
 
-Nama yang Aku ucapkan adalah dari Raja Setan. Setan Lord Sherfa. Orang yang paling berpengaruh di benua Abenelm di sebelah Dewa Setan.
+Nama yang Aku ucapkan adalah dari Raja Iblis. Raja Iblis Sherfa. Orang yang paling berpengaruh di benua Abenelm Selain Dewa SIblis.
 
-Monster yang bisa bertarung setara dengan bahkan Souichi yang telah bangkit sebagai Pahlawan.
+Monster yang bisa bertarung setara dengan Souichi sebagai Pahlawan.
 
-Ketika Aku berbicara nama itu, pKaungan iblis menjadi lebih penuh dengan kebencian dan memelototiku.
+Ketika Aku berbicara nama itu, pandangan iblis menjadi lebih penuh dengan kebencian dan memelototiku.
 
 "Wa —— wanita yang naif itu, tidak mungkin dia bisa mengambil tindakan seperti itu !!"
 
 "Oioi. Dia penguasamu, tahu. ”
 
-Yah, aku setuju bahwa dia naif / lembut Demon Lord.
+Yah, aku setuju bahwa dia Raja iblis naif / lembut.
 
-Untuk Demon Lord, Sherfa memang memiliki terlalu banyak gambar. Dia selalu adil dan jujur, benci mengambil sandera, dan dia sendiri berkata bahwa dia suka manusia. Setelah Raja Iblis sebelumnya meninggal, dia datang kepada kami untuk bahkan dengan bangga menyombongkan diri bahwa dia telah berhasil posisi itu. Tapi itu tidak berarti dia seperti manusia.
+Untuk Raja Iblis, Sherfa memang memiliki terlalu banyak gambaran. Dia selalu adil dan jujur, benci mengambil sandera, dan dia sendiri berkata bahwa dia suka manusia. Setelah Raja Iblis sebelumnya meninggal, dia datang kepada kami bahkan dengan bangga menyombongkan diri bahwa dia telah berhasil posisi itu. Tapi itu tidak berarti dia seperti manusia.
 
-Kekuatan adalah segalanya di benua Setan sehingga siapa pun yang kuat secara otomatis menjadi benar atau begitulah kata mereka. Dia tipe yang mengayunkan tinjunya sebelum berbicara. Benar-benar seperti setan. Dia masih mengaku menyukai manusia.
+Kekuatan adalah segalanya di benua Iblis sehingga siapa pun yang kuat secara otomatis menjadi benar atau begitulah kata mereka. Dia tipe yang mengayunkan pukulannya sebelum berbicara. Benar-benar seperti iblis. Dia masih mengaku menyukai manusia.
 
-"Seperti Aku peduli. Seorang raja iblis yang tidak mencoba menghidupkan kembali Dewa Setan-sama tidak bisa disebut Dewa Setan. ”(Iblis)
+"Aku tidak peduli. Seorang raja iblis yang tidak mencoba menghidupkan kembali Dewa iblis-sama tidak bisa disebut raja iblis. ”(Iblis)
 
-[Bangkit kembali Dewa Setan.]
+[Membangkitkan kembali dewa iblis.]
 
-Ini adalah yang pertama Aku dengar. Aku akhirnya memiringkan kepala Aku pada saat itu. Ngomong-ngomong dia berbicara, seolah-olah mereka dapat menghidupkan kembali Dewa Setan kapan saja.
+Aku mendengarnya pertama kali. Aku akhirnya memiringkan kepalaku pada saat itu. Ngomong-ngomong dia berbicara, seolah-olah mereka dapat menghidupkan kembali Dewa Iblis kapan saja.
 
-"Maksud Kau apa? Setan sudah mati. Renji-niichan membunuh —- “(souichi)
+"Maksudmu apa? Iblis sudah mati. Renji-niichan membunuh —- “(souichi)
 
-“Hmph. Kau pikir Aku akan berbicara semua itu? Ayo, cepat dan bunuh aku. ”(Iblis)
+“Hmph. Kau pikir Aku akan membicarakan semuanya? Ayo, cepat dan bunuh aku. ”(Iblis)
 
 "Hah?"
 
@@ -332,31 +332,31 @@ Ini adalah yang pertama Aku dengar. Aku akhirnya memiringkan kepala Aku pada saa
 
 Tidak, tidak mungkin Kau menang dengan kekuatan militer seperti itu, aku hanya bisa merasa kagum.
 
-Meskipun mereka pKaui dalam hal-hal khusus yang aneh, hal-hal terkait perang mereka adalah sama dengan satu tahun yang lalu.
+Meskipun mereka pandai dalam hal-hal khusus yang aneh, hal-hal terkait perang mereka, sama dengan satu tahun yang lalu.
 
-"Seolah aku peduli."
+"Aku tidak peduli." (reiji)
 
 Mengatakan itu, pedang giok berubah menjadi energi magis dan menghilang.
 
 "Aya, aku sudah selesai sehingga Kau bisa berhenti sekarang."
 
-"Iya nih."
+"Iya."
 
-Penjara gravitasi memegang Iblis juga menghilang dengan itu. Mungkin merasa lebih ringan karena kKaungnya tiba-tiba menghilang, iblis itu juga pingsan.
+Penjara gravitasi memegang Iblis juga menghilang dengan itu. Mungkin merasa lebih ringan karena kandangnya tiba-tiba menghilang, iblis itu juga pingsan.
 
-Kebangkitan Dewa Setan eh?
+Kebangkitan Dewa Iblis eh?
 
 Sambil melihat Aya berjalan menuju kami, aku menghela nafas.
 
 “Sepertinya masalah lagi …… Aku benar-benar benci ini.” (Renji)
 
-"Renji-niichan tidak terlibat dalam segala macam masalah bukan?" (Souichi)
+"Renji-niichan terlibat dalam segala macam masalah bukan?" (Souichi)
 
-Souichi mengatakan itu terdengar agak senang / geli.
+Souichi mengatakan itu dengan terdengar agak senang / geli.
 
-Sedangkan aku, aku benar-benar ingin diampuni dari semua ini.
+Sedangkan aku, aku benar-benar ingin diampuni dan selesai dari semua ini.
 
-"Masalah datang padaku. Juga, berhentilah berbicara seperti aku dengan sengaja terlibat dalam masalah, bukan? ”(Renji)
+"Masalah datang padaku. Juga, berhentilah berbicara seperti aku dengan sengaja terlibat dalam masalah. ”(Renji)
 
 "Eh?" (Souichi)
 
@@ -364,9 +364,9 @@ Sedangkan aku, aku benar-benar ingin diampuni dari semua ini.
 
 [Apa yang Kau katakan tiba-tiba?]
 
-Mengapa Aku mendapat tKau tanya sebagai jawaban atas hal itu? Aku benar-benar berniat menghindari masalah lho? Tetapi masalah sepertinya selalu menemukan Aku sebagai gantinya. Jika ini juga merupakan bagian dari kompensasi transfer dunia (cheat) yang berbeda yang diberikan kepada kami, Aku hanya bisa putus asa.
+Mengapa Aku mendapat tanda tanya sebagai jawaban atas hal itu? Aku benar-benar berniat menghindari masalah lho? Tetapi masalah sepertinya selalu menemukanku sebagai gantinya. Jika ini juga merupakan bagian dari kompensasi cheat transfer antar dunia yang berbeda yang diberikan kepada kami, Aku hanya bisa putus asa.
 
-Juga, kata-kata Ermenhilde yang biasa kagum dan muak menggali dadaku.
+Juga, kata-kata Ermenhilde yang biasa kagum dan muak ada didadaku.
 
 Apakah Aku melakukan sesuatu untuk membuatnya marah? Sementara aku memikirkan itu, Aya datang dan berdiri di sampingku.
 
@@ -388,17 +388,17 @@ Ermenhilde, seperti biasa, tidak bisa membaca suasana hati sama sekali.
 
 “N, sudah lama tidak bertemu, Aya. Aku berjanji bukan? Bahwa aku akan menyelamatkanmu jika Kau dalam bahaya. ”
 
-Mengatakan itu, aku mengarahkan telapak tanganku ke arah Aya. Ketika Aku melakukan itu, Aya, agak senang, juga memukul telapak tangan Aku dengan miliknya yang membuat suara * pachin *.
+Mengatakan itu, aku mengarahkan telapak tanganku ke arah Aya. Ketika Aku melakukan itu, Aya, agak senang, juga memukul telapak tanganku dengan miliknya yang membuat suara * pachin *.
 
 Ketika kami bepergian bersama saat itu, setiap kali kami berhasil dalam sesuatu atau jika sesuatu yang baik terjadi, kami selalu senang. Merasa nostalgia, Aku juga tersenyum.
 
 Aku telah berpikir tentang bagaimana bertemu mereka dan apa yang harus Aku bicarakan tetapi hanya dengan ini, Aku merasa senang bertemu dengan mereka.
 
-"Kau tampak lelah, tetapi, apakah sesuatu terjadi?"
+"Kau tampak lelah, tetapi, apakah sesuatu terjadi?" (renji)
 
-"Ah, tidak, tidak ada ..."
+"Ah, tidak, tidak ada ..." (aya)
 
-Dia tampak bahagia sekarang tetapi tiba-tiba menundukkan kepalanya lagi.Apakah sesuatu terjadi, Aku bertanya-tanya?
+Dia tampak bahagia sekarang tetapi tiba-tiba menundukkan kepalanya lagi. Apakah sesuatu terjadi, Aku bertanya-tanya?
 
 Atau mungkin Aku melakukan sesuatu yang buruk?
 
@@ -406,8 +406,8 @@ Berpikir sampai di sana, Aku ingat bahwa Aku belum pernah mengirim surat kepadan
 
 Itu saja? Aku memutar otak untuk memikirkan cara untuk berbicara dengannya. Aya masih menggantung kepalanya ke bawah dan menggeliat malu-malu sambil bermain dengan rambutnya.
 
-Baik tinggi dan rambutnya telah tumbuh lebih lama dibandingkan terakhir kali aku melihatnya dan menjadi lebih feminin memberinya tampilan yang segar.Tapi aku merasa aku akan dimarahi kalau aku mengatakan itu keras-keras jadi aku tidak.
+Baik tinggi dan rambutnya telah tumbuh lebih lama dibandingkan terakhir kali aku melihatnya dan menjadi lebih feminin memberinya tampilan yang segar. Tapi aku merasa aku akan dimarahi kalau aku mengatakan itu keras-keras jadi aku tidak akan mengatakannya.
 
-Pada akhirnya, kami berdiri seperti itu tanpa berkata apa-apa sampai para petualang lainnya kembali.
+Pada akhirnya, kami berdiri seperti itu tanpa berkata apa-apa sampai para adventturer lainnya kembali.
 
-…… .Apakah reuni seperti itu oke?
+…… .Apakah reuni seperti itu baik-baik saja?
