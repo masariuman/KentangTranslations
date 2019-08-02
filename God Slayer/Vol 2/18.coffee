@@ -13,7 +13,7 @@ Sekarang, kita akan bertarung. Dengan Goblin. Bersama dengan banyak adventurer. 
 Ada orang-orang yang ditenangkan oleh kenyataan bahwa ada banyak rekan dan kemudian ada orang yang takut pada kenyataan bahwa mereka akan bertarung dengan jumlah goblin yang luar biasa. Mereka berpartisipasi karena antusiasme muda mereka tetapi sekarang menjadi takut sebelum itu benar-benar dimulai.
 
 Mereka tampak mirip denganku yang dulu. Dengan lembut aku menepuk Ermenhilde di dalam sakuku.
-
+          
 [Apa yang terjadi?]
 
 "Hanya sedikit gugup."
