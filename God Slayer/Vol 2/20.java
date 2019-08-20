@@ -12,7 +12,7 @@ Jika kita membiarkan mereka seperti itu, binatang buas atau goblin lain akan dat
 
 [..... haah.]
 
-Ini demi semuanya. Namun meski begitu, Ermenhilde tidak tegang.
+Ini demi semuanya. Namun meski begitu, Ermenhilde tidak terlalu tegang.
 
 Aku hanya mendengar keluhannya sejak pagi. Yah, bukannya Aku tidak mengerti perasaannya.
 
@@ -22,37 +22,37 @@ Namun meski begitu, fakta bahwa aku bergaul di antara para Adventurer dan beruru
 
 Tapi tidak apa-apa, kan? Jika aku kembali ke guild sekarang, aku pasti akan terlibat dalam sesuatu yang merepotkan.
 
-Aku ragu ada orang yang mau pekerjaan melelahkan seperti ini yang Aku lakukan saat ini. Hadiah itu baik tetapi secara mental melelahkan. Bau busuk yang diberikan mayat goblin mengerikan. Hanya dalam sehari, dagingnya pecah dan darah mulai mengeluarkan bau yang luar biasa. Di atas segalanya, mayat Ogre hitam tidak bisa dilihat di mana pun tetapi ada noda hitam di mana ia mati. Dan itu sangat berbau. (T / N: Penulis telah menulis orc hitam karena kesalahan, tapi Aku cukup yakin itu salah ketik karena hanya ogre hitam yang muncul.)
+Aku ragu ada orang yang mau pekerjaan melelahkan seperti ini. Hadiahnya cukup baik tetapi secara mental melelahkan. Bau busuk yang diberikan mayat goblin mengerikan. Hanya dalam sehari, dagingnya pecah dan darah mulai mengeluarkan bau yang luar biasa. Selain itu, mayat Ogre hitam tidak bisa dilihat di mana pun tetapi ada noda hitam di mana ia mati. Dan itu sangat bau.
 
-“Kau seharusnya baik-baik saja karena Kau bahkan tidak punya hidung.Atasi itu. "
+“Kau seharusnya baik-baik saja karena Kau bahkan tidak punya hidung. Bertahanlah. "
 
 [Bukan itu masalahnya di sini! Untuk Renji, bukankah seharusnya ada lagi …… pekerjaan yang cocok?]
 
 "Tapi aku benci itu."
 
-Di atas itu, Aku lebih suka pekerjaan mudah seperti berurusan dengan mayat.Aku akan mendapatkan hadiah juga. Pengemis tidak bisa menjadi pemilih.
+Daripada itu, Aku lebih suka pekerjaan mudah seperti berurusan dengan mayat. Aku akan mendapatkan hadiah juga. Pengemis tidak bisa menjadi pemilih.
 
-[Begitu egois …… dan juga, ini bukan pekerjaan yang merepotkan?]
+[Begitu egois …… dan juga, bukankah ini pekerjaan yang merepotkan?]
 
 “Aku hanya mengambil peralatan dari mayat dan mengumpulkannya di satu tempat, kau tahu? Sangat mudah. ​​"
 
-[Aku heran kenapa, aku merasa ingin menangis.]
+[Aku heran kenapa aku merasa ingin menangis.]
 
-"Yah, kenapa memang."
+"Yah, memangnya kepana."
 
-Sambil menjawab Ermenhilde seperti itu, aku dengan terampil mengeluarkan peralatan dari mayat. Kami tidak pernah memiliki masalah uang saat dalam perjalanan kami untuk mengalahkan Dewa Iblis tetapi dalam satu tahun terakhir, Aku telah kehabisan uang cukup banyak. Ketika Aku menyadari bahwa Aku bisa mendapatkan banyak uang dengan menjual peralatan yang didapat seperti ini, keahlian Aku dalam aspek ini meningkat secara instan.
+Sambil menjawab Ermenhilde seperti itu, aku dengan terampil mengeluarkan peralatan dari mayat. Kami tidak pernah memiliki masalah uang saat dalam perjalanan kami untuk mengalahkan Dewa Iblis tetapi dalam satu tahun terakhir, Aku telah kehabisan uang cukup banyak. Ketika Aku menyadari bahwa Aku bisa mendapatkan banyak uang dengan menjual peralatan yang didapat seperti ini, keahlianku dalam aspek ini meningkat secara instan.
 
 Ermenhilde akan marah mengatakan bahwa Pahlawan seperti itu tidak ada tetapi uang lebih penting.
 
-“Aku bekerja dengan baik, bukan? Ini lebih baik daripada bermalas-malasan sepanjang hari, Aku percaya. ”
+“Aku bekerja dengan baik, bukan? Ini lebih baik daripada bermalas-malasan sepanjang hari, Aku percaya akan hal itu. ”
 
-[Itu normal! Aku katakan, pilih pekerjaan Kau lebih baik!]
+[Itu normal! Sudah kukatakan, pilih pekerjaan lebih baik!]
 
-"Aku tidak terlalu hebat sehingga aku diizinkan memilih pekerjaan."
+"Aku tidak terlalu hebat sampai aku diizinkan memilih pekerjaan."
 
-Setelah selesai mengeluarkan peralatan, Aku meraih lengan mayat dan menyeretnya ke tempat yang memutuskan untuk mengumpulkan mereka semua.
+Setelah selesai melepaskan peralatan, Aku memegang lengan mayat dan menyeretnya ke tempat dimana para mayat dikumpulkan.
 
-Setelah melakukan ini hampir 200 kali, bahkan pekerjaan sederhana seperti itu benar-benar melelahkan. Berpartisipasi bersama Aku adalah sekitar 10 lebih Adventurer dan 30 warga sipil dari Magic City. Bahkan ada beberapa anak di sini. Pasti ada kesempatan bagi mereka untuk mendapatkan uang tambahan, kurasa.
+Setelah melakukan ini hampir 200 kali, bahkan pekerjaan sederhana seperti itu benar-benar melelahkan. Orang yang berpatisipasi sekitar 10 lebih Adventurer dan 30 warga sipil dari Magic City. Bahkan ada beberapa anak di sini. Pasti ada kesempatan bagi mereka untuk mendapatkan uang tambahan, kurasa.
 
 [Jika Kau memberi tahu mereka bahwa Kau adalah salah satu Pahlawan, tidakkah Kau akan mendapatkan pekerjaan yang lebih baik secara otomatis?]
 
@@ -60,7 +60,7 @@ Setelah melakukan ini hampir 200 kali, bahkan pekerjaan sederhana seperti itu be
 
 Judul 'Pahlawan' pasti akan menarik perhatian.
 
-Bahkan sekarang, para Adventurer lainnya terus melirik Aku saat Aku melakukan pekerjaan Aku.
+Bahkan sekarang, para Adventurer lainnya terus melirikku saat Aku melakukan pekerjaanku.
 
 Aku tidak cukup bodoh untuk tidak tahu arti di baliknya tetapi Aku tidak punya niat untuk menjawabnya.
 
@@ -72,31 +72,31 @@ Ermenhilde tampaknya masih menggumamkan sesuatu, tetapi aku tidak bisa melakukan
 
 4 Meninggal, 11 luka parah, 31 luka ringan.
 
-Itu adalah jumlah korban yang dimiliki garda depan dalam pertempuran ini.
+Itu adalah jumlah korban pada barisan depan dalam pertempuran ini.
 
-Almarhum semua Adventurer muda, anak laki-laki yang pergi ke garis depan - yang Aku bicarakan sebelum pertempuran.
+Semuanya Adventurer muda, anak laki-laki yang pergi ke garis depan - yang berbiacara denganku sebelum pertempuran.
 
 Aku ingat apa yang Aku katakan kepada mereka saat itu. Aku ingat kata-kata yang Aku gunakan untuk menghibur mereka.
 
 'kalian beruntung'?
 
-Saat Kau datang ke medan perang, keberuntungan berakhir di sana sendiri.Untuk berdiri di medan perang pada usia itu, tidak ada yang lebih diAkungkan daripada itu.
+Saat Kau datang ke medan perang, keberuntungan berakhir di sana dengan sendirinya. Untuk berdiri di medan perang pada usia itu, tidak ada yang lebih disayangkan daripada itu.
 
 Dan di barisan belakang terdiri dari pemanah dan penyihir. 2 Luka parah, 17 luka ringan. Itu saja. Bahkan yang terluka parah akan dapat kembali ke kehidupan normal setelah luka mereka sembuh. Luka mereka adalah tipe yang tidak akan meninggalkan efek setelahnya.
 
-Mereka telah disergap oleh Iblis. Tapi mereka telah dilindungi oleh Souichi dan Aya karena mereka berdua menjaga front.
+Mereka telah disergap oleh Iblis. Tapi mereka telah dilindungi oleh Souichi dan Aya karena mereka berdua menjaga didepan.
 
 ……… memikirkan itu, aku hanya bisa menghela nafas.
 
-Kesenjangan antara aku dan Souichi. Kesenjangan antara God Slayer yang paling lemah dan the Magve yang Berani atau Grand. Kesenjangan antara GodSlayer yang tidak bisa mendapatkan kekuatan tanpa mengorbankan orang lain dan mereka yang selalu bisa bertarung dengan kekuatan terkuat mereka.
+Kesenjangan antara aku dan Souichi. Kesenjangan antara God Slayer yang paling lemah dan brave atau Grand Magus. Kesenjangan antara GodSlayer yang tidak bisa mendapatkan kekuatan tanpa mengorbankan orang lain dan mereka yang selalu bisa bertarung dengan kekuatan terkuat mereka.
 
-Mengatakan bahwa tingkat bahaya di barisan depan dan penjaga belakang berbeda hanyalah alasan. Pada akhirnya, ada korban jiwa. Jika itu adalah Pahlawan yang sebenarnya —- dia akan menyelamatkan anak-anak yang sekarat itu. Seorang pahlawan pasti akan memilikinya.
+Mengatakan bahwa tingkat bahaya di barisan depan dan penjaga belakang berbeda hanyalah alasan. Pada akhirnya, ada korban jiwa. Jika itu adalah Pahlawan yang sebenarnya —- dia akan menyelamatkan anak-anak yang sekarat itu. Seorang pahlawan pasti akan melakukannya.
 
 Tapi sebaliknya aku, apalagi melindungi mereka, aku menggunakan kematian mereka sebagai kekuatanku sendiri.
 
 Akibatnya Orc hitam dikalahkan, dan semua orang mulai memanggilku Pahlawan lagi.
 
-Aku dipanggil satu bahkan di guild pagi ini.
+Aku dipanggil bahkan di guild pagi ini.
 
 Meski begitu, Pahlawan seperti itu seharusnya tidak ada.
 
@@ -112,23 +112,23 @@ Mengatakan itu, aku melepas peralatan dari goblin lagi.
 
 "Aku pikir itu cukup lucu, tapi bagaimana denganmu?"
 
-[Siapa tahu?]
+[Entahlah?]
 
 Jawaban Ermenhilde sangat pendek dan blak-blakan.
 
-Setelah itu, Aku terus bekerja karena kami berdua diam beberapa saat.
+Setelah itu, Aku terus bekerja dan kami berdua diam beberapa saat.
 
-Souichi dan yang lainnya saat ini sedang berbicara dengan walikota kota sihir tentang bagaimana menghadapi iblis yang dipenjara.
+Souichi dan yang lainnya saat ini sedang berbicara dengan walikota tentang bagaimana menghadapi iblis yang dipenjara.
 
 Aku pikir mereka mungkin akan memindahkannya ke ibukota kerajaan untuk menginterogasinya.
 
-Ada banyak penyihir di kota tetapi sangat sedikit yang benar-benar bisa bertarung. Para siswa di akademi pada akhirnya hanya siswa. Pesulap berpengalaman akan memasuki perintah ksatria kerajaan atau mendirikan laboratorium penelitian mereka sendiri.
+Ada banyak penyihir di kota tetapi sangat sedikit yang benar-benar bisa bertarung. Para siswa di akademi pada akhirnya hanya siswa. Magician berpengalaman akan memasuki Royal Knight Order atau mendirikan laboratorium penelitian mereka sendiri.
 
-Dengan hanya tingkat kekuatan militer di kota itu, jika iblis melakukan sesuatu lagi, bahkan jika dia terluka, itu masih akan menyebabkan banyak masalah.Bahkan Souichi dan yang lainnya adalah manusia, mereka lemah terhadap serangan mendadak. Akibatnya, ada korban dalam pertempuran baru-baru ini juga karena serangan mendadak.
+Dengan hanya tingkat kekuatan militer di kota itu, jika iblis melakukan sesuatu lagi, bahkan jika dia terluka, itu masih akan menyebabkan banyak masalah. Bahkan Souichi dan yang lainnya adalah manusia, mereka lemah terhadap serangan mendadak. Akibatnya, ada korban dalam pertempuran baru-baru ini juga karena serangan mendadak.
 
 Karena itu, mereka akan segera mengirim iblis itu ke Ibukota Kerajaan dari Ofan.
 
-"Seorang Raja Iblis yang tidak menghidupkan kembali Dewa Iblis, kan?"
+"Seorang Raja Iblis yang tidak menghidupkan kembali Dewa Iblis, eh?"
 
 [—–Apakah Kau benci bertarung?]
 
@@ -136,7 +136,7 @@ Dewa Iblis.
 
 Salah satu dari sedikit eksistensi yang bisa Aku lawan dengan kekuatan penuh.
 
-Kebangkitan Dewa Iblis juga seperti kebangkitan raison d'être Aku sendiri.Aku menyadari apa yang ingin dikatakan Ermenhilde tetapi Aku tidak memiliki kata-kata untuk menjawabnya.
+Kebangkitan Dewa Iblis juga seperti kebangkitan raison d'êtreku sendiri. Aku menyadari apa yang ingin dikatakan Ermenhilde tetapi Aku tidak memiliki kata-kata untuk menjawabnya.
 
 Senjata GodSlaying yaitu Ermenhilde dan God Slayer yang benar-benar bisa bertarung dengan kekuatan penuh hanya melawan Dewa.
 
@@ -148,27 +148,27 @@ Tapi--
 
 “Aku benci berkelahi. Menakutkan dan menyakitkan. ”
 
-[Aku melihat.]
+[Begitu...]
 
 "Lagipula aku pengecut."
 
 [Itu benar.]
 
-"...... Kau seharusnya menyangkal itu, rekan."
+"...... Kau seharusnya menyangkal itu, partner."
 
 Aku benci berkelahi. Begitu banyak orang terluka. Begitu banyak orang menjadi sedih. Begitu banyak yang mati.
 
-Dan di atas semua - banyak yang harus menangis.
+Dan lebih dari itu - banyak yang harus menangis.
 
-[Aku senang selama pertarungan dengan Iblis god menelurkan.]
+[Aku senang selama pertarungan dengan dewa iblis.]
 
-"Aku melihat."
+"Begitu."
 
 [Tapi Renji memanggilku rekannya daripada senjata.]
 
 "Itu benar."
 
-[....... Jangan menyangkal aku, Renji.]
+[....... Jangan menyangkalku, Renji.]
 
 Mendengar keluhan Ermenhilde yang lembut, aku akhirnya merasa bahagia.
 
@@ -180,13 +180,14 @@ Dipenuhi dengan perasaan itu, aku dengan lembut membelai medali di dalam sakuku 
 
 Aku mengangguk dengan berlebihan.
 
-"Aku sadar."
+"Aku tahu."
 
 [Kau benar-benar bodoh.]
 
-Nah, mari kita bekerja keras pada pekerjaan Aku sekarang.
+Nah, mari kita bekerja keras pada pekerjaanku sekarang.
 
 Aku, yang bekerja keras bahkan ketika mendengarkan pelecehan Ermenhilde yang lembut, mungkin benar-benar seorang masokis.
+[TN: apakah Ermenhilde itu ceue tsundere didalam senjata ? hmm..]
 
 .
 
