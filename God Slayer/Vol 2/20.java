@@ -195,13 +195,13 @@ Aku, yang bekerja keras bahkan ketika mendengarkan pelecehan Ermenhilde yang lem
 
 .
 
-Ketika Aku kembali ke kota ketika matahari mulai terbenam, banyak toko yang disinari cahaya ajaib muncul di pKaungan Aku.
+Ketika Aku kembali ke kota ketika matahari mulai terbenam, banyak toko yang disinari magic light muncul di pandanganku.
 
-Sementara menyusut kembali dengan tidak nyaman karena berterima kasih dengan hormat oleh para penjaga, Aku bertanya-tanya tentang apa yang harus dilakukan selanjutnya.
+Sementara merasa tidak nyaman karena dihormati dan diberi terima kasih oleh para penjaga, Aku bertanya-tanya tentang apa yang harus dilakukan selanjutnya.
 
 Haruskah aku kembali ke penginapan dan tidur atau haruskah aku pergi ke bar?
 
-Sambil memutuskan tentang hal itu, aku menuju penginapan untuk sementara waktu. Ketika Aku menyadari sosok di depan Aku.
+Sambil memutuskan tentang hal itu, aku menuju penginapan untuk sementara waktu. Ketika Aku menyadari sosok di depanku.
 
 "Yo, Souichi."
 
@@ -211,11 +211,11 @@ Sambil memutuskan tentang hal itu, aku menuju penginapan untuk sementara waktu. 
 
 "Yah, aku tidak tahu penginapan mana yang Renji-niichan tinggali, jadi aku memutuskan untuk menunggu di suatu tempat dari mana gerbang selatan bisa terlihat."
 
-Oi Berani-sama, seberapa bebas Kau?
+Oi Brave-sama, seberapa bebaskah dirimu?
 
-Aku akhirnya memberikan tsukkomi di dalam pikiran Aku.
+Aku akhirnya memberikan tsukkomi di dalam pikiranku.
 
-"Bagaimana dengan Iblis itu?"
+"Bagaimana dengan Iblis itu?" (renji)
 
 “Setelah itu, mereka mengirim kuda cepat untuk menghubungi ibu kota Kerajaan. Karena bukan hanya kita, bahkan Renji-niichan terlibat, mungkin Yuuko-san sendiri yang akan datang untuk mengambilnya. ”
 
@@ -223,43 +223,43 @@ Aku akhirnya memberikan tsukkomi di dalam pikiran Aku.
 
 “…… Dia akan marah lho.”
 
-Itu akan buruk.
+Itu buruk.
 
-Sebagai seseorang yang sering dimarahi olehnya selama perjalanan kita, sudah menjadi rahasia umum bahwa dia adalah orang terakhir yang ingin membuatmu marah.
+Sebagai seseorang yang sering dimarahi olehnya selama perjalanan kami, sudah menjadi rahasia umum bahwa dia adalah orang terakhir yang ingin kau buat marah.
 
 Yah, akulah yang selalu salah.
 
 Membawa anak di bawah umur ke 'kehidupan malam' di kota ini, bersikap ceroboh dan terluka, mengajari anak-anak hal-hal aneh, dll.
 
-Aku tahu alasannya tidak terlalu bagus tapi Aku benar-benar merasa bahwa Kau harus menikmati sekarang karena Kau berada di dunia yang berbeda dan semuanya. Itu belum berubah bahkan sekarang.
+Aku tahu alasannya tidak terlalu bagus tapi Aku benar-benar merasa bahwa Kau harus menikmatinya sekarang karena Kau berada di dunia yang berbeda. Itu belum berubah bahkan sekarang.
 
 [Yuuko benar-benar menakutkan ketika marah.]
 
-"Dia menumbuhkan tanduk, aku bersumpah, tanduk!"
+"Dia menumbuhkan tanduk, aku bersumpah, tanduk!" (renji)
 
-"Dia mungkin mendengar bahwa Kau tahu?" (Souichi)
+"Dia mungkin mendengarmu sekarang" (Souichi)
 
 [Ketika itu terjadi, Renji, tolong tempatkan aku di tempat penyimpanan Souichi.]
 
 "Kita akan bersama dalam suka dan duka, benar kan?" (Renji)
 
-Ketika Aku mulai mengambil dengan Ermenhilde, Souichi mulai tertawa.
+Ketika Aku mulai bebricara dengan Ermenhilde, Souichi mulai tertawa.
 
 "Ini benar-benar nostalgia."
 
 Aku mengangkat bahu.
 
-Aku telah melakukan ini selama 3 tahun sekarang. Daripada bernostalgia, itu menjadi lebih seperti biasa bagi Aku.
+Aku telah melakukan ini selama 3 tahun sekarang. Daripada bernostalgia, itu menjadi normal bagiku.
 
 Karena itulah aku hanya merasa tidak nyaman dengan kata-kata Souichi.
 
-"Aku, untuk satu, akan lebih suka kepribadian yang lebih lembut dan anggun, kau tahu."
+"Aku, akan lebih suka kepribadian yang lebih lembut dan anggun." (renji)
 
 [Muu]
 
-Melihat Ermenhilde mengeras hanya dengan kata-kata itu, aku tertawa bersama dengan Souichi.
+Melihat Ermenhilde merajuk hanya dengan kata-kata itu, aku tertawa bersama dengan Souichi.
 
-Seperti biasa, pasangan Aku asyik menggoda.
+Seperti biasa, pasanganku asyik digoda.
 
 "Bagaimana dengan Aya dan Yayoi-chan?"
 
@@ -271,9 +271,9 @@ Seperti biasa, pasangan Aku asyik menggoda.
 
 "Hmm."
 
-[Apa tanggapan setengah hati. Kau akan dimakamkan untuk itu suatu hari nanti, Kau tahu?]
+[Tanggapan yang setengah hati. Kau akan dikubur karena itu suatu hari nanti, Kau tahu?]
 
-Apakah Aku benar-benar akan dimakamkan untuk hal itu?
+Apakah Aku benar-benar akan dikubur karena hal itu?
 
 Aku ragu dia pemarah. Mungkin.
 
@@ -281,11 +281,11 @@ Aku mengikuti Souichi ketika dia mulai berjalan sambil berbicara.
 
 Dia mungkin membawaku ke restoran.
 
-Setelah pertarungan itu, kami berpisah tanpa harus banyak bicara, tapi senang mereka tidak mengatakan apa-apa kepada Aku.
+Setelah pertarungan itu, kami berpisah tanpa harus banyak bicara, tapi bagus mereka tidak mengatakan apa-apa kepadaku.
 
 Yah, mereka mungkin akan bertanya banyak sekarang. Apa yang telah Aku lakukan sampai sekarang dan yang lainnya. Bagaimana Aku harus menghindarinya? Aku menatap langit sambil berpikir.
 
-Lagipula itu bukan sesuatu yang sangat keren, aku benar-benar bermalas-malasan. Tapi aku juga tidak ingin bersembunyi dari anak-anak. Aku tidak bermaksud berbohong tetapi mari kita dramatisasi sedikit saja.
+Lagipula itu bukan sesuatu yang sangat keren, aku benar-benar bermalas-malasan. Tapi aku juga tidak ingin bersembunyi dari anak-anak. Aku tidak bermaksud berbohong tetapi mari kita buat dramatis sedikit saja.
 
 “Tolong bersikap lembut dengan Aya, oke? Jika Renji-niichan membuatnya marah, akulah yang mendapatkan akhir yang buruk, kau tahu? ”(Souichi)
 
@@ -295,27 +295,27 @@ Lagipula itu bukan sesuatu yang sangat keren, aku benar-benar bermalas-malasan. 
 
 Dia mengatakan itu tetapi, Souichi sendiri senang bermain-main dengan teman masa kecilnya.
 
-Dia sangat mudah dimengerti, Aku pikir. Sangat.
+Dia sangat mudah dimengerti.
 
 Sejauh Kau akhirnya bertanya-tanya apakah ada sesuatu yang lebih di antara mereka daripada sekadar teman masa kecil.
 
 "Mengesampingkan itu, Souichi,"
 
-"Jangan kesampingkan ... apa itu, Renji-niichan?"
+"Jangan kesampingkan hal itu ... apa itu, Renji-niichan?"
 
-"Bukankah aku mencium bau? Aku mandi dengan semprotan darah goblin dan berurusan dengan mayat mereka sampai sekarang. ”
+"Bukankah aku bau? Aku mandi dengan semprotan darah goblin dan berurusan dengan mayat mereka sampai sekarang. ”
 
-"Nah, sekarang setelah Kau menyebutkannya, Kau tahu."
+"Nah, setelah Kau menyebutkannya, kau bau."
 
 [Kau akan makan malam sekarang kan? Apakah Kau berniat untuk pergi seperti ini?]
 
 Jika aku benar-benar pergi seperti ini, bukan hanya Aya, bahkan Utano-san akan melakukan sesuatu yang buruk padaku. Dan maksud Aku secara mental.
 
-“Bisakah aku kembali ke penginapanku sekali? Aku ingin mandi. Perlu mengganti pakaianku juga. ”
+“Bisakah aku kembali ke penginapanku sebentar? Aku ingin mandi. Aku Perlu mengganti pakaianku juga. ”
 
-"Ya. Jika Kau pergi dengan pakaian berdarah, aku akan menjadi orang yang dikuburkan ........ ”
+"Ya. Jika Kau pergi dengan pakaian berdarah, aku akan menjadi orang yang dikubur ........ ”
 
-[Yah, tidak bisakah kalian berdua dimakamkan bersama? Dengan senang hati?]
+[Yah, tidak bisakah kalian berdua dikubur bersama? Dengan senang hati?]
 
 Apapun selain itu.
 
@@ -327,11 +327,11 @@ Itu gelap, sempit dan sulit untuk bernapas sendiri.
 
 [Memang benar, Renji.]
 
-Kau mengatakan hal-hal yang keras, rekan.
+Kau mengatakan hal-hal yang keras, partner.
 
-Saat aku mengangkat bahu, Souichi luaghed.
+Saat aku mengangkat bahu, Souichi tertawa.
 
-“Bukankah Eru-san mendapatkan sedikit lebih lembut saat ini?” (Souichi) (T / n: lembut dan bulat terdengar sama dalam bahasa Jepang yang akan menjelaskan dialog berikutnya.)
+“Bukankah Eru-san menjadi sedikit lebih lembut saat ini?” (Souichi) (Tn: lembut dan bulat terdengar sama dalam bahasa Jepang yang akan menjelaskan dialog berikutnya.)
 
 “Sudah bulat sejak awal, itu adalah medali. Kau tidak akan menjadi ...... gemuk, kan? ”
 
@@ -339,35 +339,35 @@ Saat aku mengangkat bahu, Souichi luaghed.
 
 Souichi terlihat sangat imut ketika dia menjatuhkan bahunya sehingga aku mulai tertawa.
 
-Pada itu, dia memelototiku dengan pipi kembung. Tindakannya masih sangat kekanak-kanakan. Haruskah Aku katakan, seperti yang diharapkan dari seorang anak berusia 18 tahun atau harus Aku katakan, meskipun dia sudah berusia 18 tahun dia masih seperti ini.
+Pada itu, dia memelototiku dengan pipi kembung. Tindakannya masih sangat kekanak-kanakan. Bisa dibilang, seperti yang diharapkan dari seorang anak berusia 18 tahun atau bisa dibilang, meskipun dia sudah berusia 18 tahun dia masih seperti ini.
 
-"Pada awalnya, itu lebih formal, memanggilmu Renji-sama, kan?"
+"Pada awalnya, Er lebih formal, memanggilmu Renji-sama, kan?"
 
 […… Aku tidak punya ingatan seperti itu.]
 
-"Ya, saat itu masih murni dan anggun."
+"Ya, saat itu masih polos dan lemah gemulai."
 
 [Haruskah aku membicarakan berbagai hal dengan Aya, Renji?]
 
-Apakah itu benar-benar ingin menyangkal bahwa itu pernah terjadi? Yah, bukan berarti aku juga ingin banyak bicara.
+Apakah dia benar-benar ingin menyangkal bahwa itu pernah terjadi? Yah, bukan berarti aku juga ingin banyak bicara.
 
 Aku hanya karyawan perusahaan dan tiba-tiba dipanggil dengan akhiran '-sama'. Itu memori yang memalukan.
 
-"Berbicara tentang saat itu, Souichi belum tumbuh tinggi dari dulu kan?" (Renji)
+"Berbicara tentang saat itu, Souichi belum tumbuh tinggi kan?" (Renji)
 
 “Uu ……”
 
-[Jangan pedulikan dia. Untuk pria, itu yang ada di dalam dirimu yang penting bagi Souichi.]
+[Jangan pedulikan dia. Untuk pria, yang penting itu ada di dalam dirimu sendiri, Souichi.]
 
-Wow itu keras di Ermenhilde sendiri.
+Wow itu keras untuk Ermenhilde sendiri.
 
-Diberitahu itu, Souichi hanya mengalihkan pKaungannya dan menghela nafas.
+Diberitahu itu, Souichi hanya mengalihkan pandangannya dan menghela nafas.
 
-Bahkan, karena wajahnya juga cukup androgini, jika dia menumbuhkan rambutnya, bukankah dia akan terlihat seperti Yayoi-chan?
+Bahkan, karena wajahnya juga cukup cantik, jika dia menumbuhkan rambutnya, bukankah dia akan terlihat seperti Yayoi-chan?
 
 "Pasti bagus untuk Renji-niichan menjadi begitu tinggi."
 
-"Kurasa aku rata-rata."
+"Kurasa aku pada ukuran rata-rata."
 
 “Lalu aku bahkan di bawah rata-rata. Bahkan di kelas aku yang terpendek.
 
@@ -375,13 +375,13 @@ Bahkan, karena wajahnya juga cukup androgini, jika dia menumbuhkan rambutnya, bu
 
 Seperti yang Aku katakan, Kau tidak menghiburnya seperti itu Idiot! Aku menekan Ermenhilde dari atas saku.
 
-Aku mengatakan itu untuk mengubah topik, tetapi Ermenhilde tampaknya menghadapi pukulan terakhir sebagai gantinya.
+Aku mengatakan itu untuk mengubah topik, tetapi Ermenhilde tampaknya memberikan pukulan terakhir sebagai gantinya.
 
-"Yah, aku akan menambah tinggi badan lebih cepat, aku yakin."
+"Yah, kamu akan bertambah tinggi dengan cepat, aku yakin."
 
 "Ngomong-ngomong, aku masih minum susu setiap hari."
 
-Jadi Kau masih?
+Jadi Kau masih melakukannya?
 
 “Kau benar-benar menjalani hidup yang sehat. Kalau begitu, ayo cepat pergi ke penginapan dan kemudian bertemu dengan Aya dan yang lainnya. ”
 
@@ -395,25 +395,25 @@ Apakah dia marah padanya karena suatu alasan?
 
 Melihat Souichi yang mudah dimengerti, aku merasa tidak enak tetapi akhirnya luaghing.
 
-"Kau benar-benar rukun dengan Aya."
+"Kau benar-benar akrab dengan Aya."
 
-"Aku berharap? Yah, kita adalah teman masa kecil. Aku entah bagaimana bisa mengerti apa yang dia pikirkan. ”
+"ntahlah? Yah, kami adalah teman masa kecil. entah bagaimana aku bisa mengerti apa yang dia pikirkan. ”
 
-"Yah, itu tidak luar biasa."
+"Yah, bukankah itu luar biasa."
 
 Ketika aku mengatakan itu, Souichi menatapku dengan gembira.
 
 "Iri?"
 
-"Yah, aku bertanya-tanya?"
+"Yah, mungkin?"
 
 [Kau tidak jujur, seperti biasa.]
 
-"Tidak ada yang seperti itu, sungguh."
+"Bukan seperti itu, Serius."
 
 Tetapi —– Aku benar-benar tidak iri, Aku merasa bahwa karena mereka berdua memiliki hubungan yang sedemikian rupa sehingga mereka dapat melakukan itu.
 
-Itu tidak iri tetapi lebih dari ...... kecemburuan.
+Itu tidak iri tetapi seperti ...... kecemburuan.
 
 "Ya, aku tidak punya orang seperti itu dalam hidupku."
 
@@ -423,13 +423,13 @@ Itu tidak iri tetapi lebih dari ...... kecemburuan.
 
 [……… muu]
 
-Berani yang melindungi rekan-rekannya. Dipercayai oleh semua orang, aku sedikit iri pada Amagi Souichi.
+Brave yang melindungi rekan-rekannya. Dipercayai oleh semua orang, aku sedikit iri pada Amagi Souichi.
 
 Menyembunyikan itu, Aku menggoda Ermenhilde untuk mengubah topik pembicaraan.
 
 Tidak apa-apa.
 
-Orang dewasa yang cemburu pada anak 10 tahun lebih muda tidak sedap dipKaung mata.
+Orang dewasa yang cemburu pada anak 10 tahun lebih muda tidak sedap dipandang mata.
 
 Kawan-kawan yang bertarung denganku meninggal. Kehilangan nyawa mereka .——- saat itulah aku mendapatkan kekuatan untuk bertarung.
 
@@ -439,10 +439,10 @@ Haah, aku menghela nafas dalam pikiranku.
 
 [....... Itu tidak benar-benar menghibur, Souichi.]
 
-"Ini pengembalian untuk sebelumnya."
+"Ini pembalasan untuk sebelumnya."
 
 Aku iri pada Souichi yang bisa tersenyum dengan lugas seperti itu.
 
-Mengapa Kau menjadi lebih baik dalam senyum yang dipaksakan saat Kau menjadi dewasa?
+Mengapa Kau menjadi lebih baik dalam memaksa tersenyum saat Kau menjadi dewasa?
 
-Atau apakah Kau menjadi dewasa ketika Kau menjadi lebih baik dalam memaksakan senyum Kau?
+Atau apakah Kau menjadi dewasa ketika Kau menjadi lebih baik dalam memaksakan senyummu?
