@@ -162,43 +162,43 @@ Fuyou Aya tidak punya ayah. Pada awalnya, dia mungkin mengharapkan perasaan ayah
 
 (Aya pov)
 
-"Bagaimana itu? Itu tidak aneh kan? ”
+"Bagaimana ? Itu tidak aneh kan? ”
 
-“Sepertinya Aya-chan baik-baik saja. Cocok untuk Kau. Jangan khawatir. "
+“Sepertinya Aya-chan baik-baik saja. Cocok untukmu. Jangan khawatir. "
 
 Berapa kali Aku menanyakan hal itu?
 
 Saat aku memastikannya dengan Yayoi yang telah membantuku dalam berpakaian, sebuah suara lelah datang darinya. Apakah Aku terlalu khawatir?
 
-Di depan cermin Aku sekali lagi memeriksa penampilan Aku.
+Di depan cermin Aku sekali lagi memeriksa penampilanku.
 
 Itu hanya seragam Akademi Sihir tapi aku telah menyisir dan bahkan memakai make up juga.
 
 Seharusnya itu normal untuk gadis seusiaku, tetapi karena alasan tertentu aku tidak bisa terbiasa dengannya.
 
-Aku belum pernah memakai makeup sebelumnya karena tidak ada yang ingin Aku tunjukkan pada diri Aku seperti itu.
+Aku belum pernah memakai makeup sebelumnya karena tidak ada yang ingin Aku tunjukkan pada diriku seperti itu.
 
 Meskipun itu menggangguku bahwa Yayoi yang lebih muda dariku lebih terbiasa dengan itu. Perangkat makeup yang dibawa Yayoi ke kamarku yang tidak terlalu besar terasa sangat tidak pada tempatnya.
 
 "Dengan ini, bahkan Renji-oniisan akan ditaklukkan?" (Yayoi)
 
-"……Aku meragukan itu. Ya. Tidak terjadi. ”(Aya)
+"……Aku meragukan itu. Ya. Tidak akan terjadi. ”(Aya)
 
-Kenapa Renji-san muncul dalam percakapan di sana? Aku bertanya-tanya tetapi tidak bisa membantu.
+Kenapa Renji-san muncul dalam percakapan di sana? Aku bingung tapi apa boleh buat.
 
-Bahkan sekarang, Aku tidak tahu apakah emosi yang Aku miliki terhadap Renji-san adalah cinta, kekaguman atau kasih Akung.
+Bahkan sekarang, Aku tidak tahu apakah emosi yang Aku miliki terhadap Renji-san adalah cinta, kekaguman atau kasih sayang.
 
-Apakah Aku suka dia sebagai laki-laki, apakah Aku mengaguminya sebagai orang yang melindungi Aku berkali-kali atau Aku hanya mencintainya sebagai figur ayah, Aku tidak tahu.
+Apakah Aku suka dia sebagai laki-laki, apakah Aku mengaguminya sebagai orang yang melindungiku berkali-kali atau Aku hanya menyayanginya sebagai figur ayah, Aku tidak tahu.
 
 Tapi itu fakta bahwa satu-satunya orang yang ingin aku tunjukkan pada diriku dengan riasan seperti itu adalah Renji-san.
 
 Itu sebabnya, untuk saat ini, ini baik-baik saja.
 
-"Sangat? Renji-oniisan longgar dengan wanita sehingga bukan tidak mungkin kau tahu? ”
+"Benarkah? Renji-oniisan lemah dengan wanita sehingga bukan tidak mungkin lho? ”
 
 “Itu buruk dengan caranya sendiri sehingga lebih baik itu tidak terjadi. Ya."
 
-Benar, Renji-san longgar dengan wanita. Setiap kali dia bersama wanita cantik seusianya atau bahkan dengan wanita sedikit lebih muda atau lebih tua darinya, dia akan bertindak longgar. Aku merasa telah melihatnya seperti itu berkali-kali.
+Benar, Renji-san lengah dengan wanita. Setiap kali dia bersama wanita cantik seusianya atau bahkan dengan wanita sedikit lebih muda atau lebih tua darinya, dia akan bertindak lengah. Aku merasa telah melihatnya seperti itu berkali-kali.
 
 Juga, dia bahkan mengajarkan hal-hal aneh kepada Souichi dan laki-laki lain bersama kami. Dia sudah dewasa namun sangat kekanak-kanakan. Tapi karena dia seperti itu, kami selalu bisa tersenyum.
 
@@ -206,31 +206,31 @@ Dia membuat kami tersenyum bahkan ketika kami kesakitan. Setelah perjalanan bera
 
 Agar kita tidak gugup, sehingga kita tidak hancur, dia selalu mendukung kita.
 
-"Juga, untuknya, aku masih seperti adik perempuan atau anak perempuan ... sesuatu seperti itu."
+"Juga, untuknya, aku masih seperti adik perempuan atau anak perempuan ... sesuatu seperti itu." (aya)
 
-Bahkan di dalam diriku tidak jelas apakah Renji-san adalah kakak laki-laki, ayah atau hanya laki-laki.
+Bahkan di dalam diriku tidak jelas apakah Renji-san adalah kakak laki-laki, ayah atau hanya seorang pria.
 
 Kurasa aku tidak bisa berbicara tentang orang lain. Aku menghela nafas.
 
 "Aya-chan, Kau benar-benar pasif dengan Renji-oniisan."
 
-"Sangat?"
+"Benarkah ?"
 
-"Dengan saudara, Kau akan menjadi dekat dengannya dengan kasar dan cepat mulai berkelahi."
+"Dengan Abangku, Kau akan menjadi dekat dengannya dengan kasar dan cepat mulai bertengkar."
 
 "Itu karena Souichi idiot. Jika Aku tidak melakukan itu, dia tidak akan menyadari apa pun. ”
 
 Tidak, dia tidak akan menyadari bahkan ketika aku melangkah sejauh itu.
 
-Orang itu padat dan benar-benar bodoh. Bahkan dengan gadis-gadis di kelas kami, ia berbicara dengan mereka hanya sebagai teman.
+Orang itu Sangat dense dan benar-benar bodoh. Bahkan dengan gadis-gadis di kelas kami, ia berbicara dengan mereka hanya sebagai teman.
 
-Meskipun mereka memKaungnya sebagai Pahlawan, sebagai Berani, sebagai seorang pria. Aku punya teman masa kecil yang penuh dosa. Nah, tugas Aku untuk membuatnya menyadari hal-hal ini.
+Meskipun mereka memandangnya sebagai Pahlawan, sebagai Brave, sebagai seorang pria. Aku punya teman masa kecil yang penuh dosa. Nah, tugasku untuk membuatnya menyadari hal-hal ini.
 
 “Tapi itu bagus dengan caranya sendiri.” (Yayoi)
 
-“Aku bertanya-tanya …… ​​Aku sudah mengalami masalah karena itu juga.Sebagai teman masa kecilnya. "
+“Ntahlah …… ​​Aku sudah mengalami masalah karena itu juga. Sebagai teman masa kecilnya. "
 
-Seberapa banyak aku bermasalah karena kepadatannya ....... hanya memikirkannya membuatku menghela nafas. Pada awalnya dia bahkan salah paham dan mencoba menjebakku dengan Renji-san juga.
+Seberapa banyak aku bermasalah karena Dense nya ....... hanya memikirkannya membuatku menghela nafas. Pada awalnya dia bahkan salah paham dan mencoba menjebakku dengan Renji-san juga.
 
 Fakta bahwa dia cepat bertindak mungkin adalah poin bagusnya, tetapi fakta bahwa dia mengambil cara terpendek untuk menyelesaikannya, apa pun itu, juga merupakan poin buruknya.
 
@@ -240,43 +240,43 @@ Fakta bahwa dia cepat bertindak mungkin adalah poin bagusnya, tetapi fakta bahwa
 
 Aku setuju dengan itu juga.
 
-Renji-san adalah pahlawan. Untuk dunia. Dan bahkan bagi Aku juga.
+Renji-san adalah pahlawan. Untuk dunia. Dan bahkan bagiku juga.
 
-Berurusan dengan mayat goblin adalah pekerjaan untuk petualang pemula, Aku pikir. Dia harus membiarkan mereka melakukannya.
+Berurusan dengan mayat goblin adalah pekerjaan untuk petualang pemula, Pikirku. Dia harus membiarkan mereka melakukannya.
 
 "Tapi, fakta bahwa dia bekerja keras bahkan pada hal-hal kecil seperti itu adalah ... benar-benar menakjubkan kurasa."
 
 Tidak peduli seberapa hebatnya dia, dia tetap sama sejak awal.
 
-Ketika kami baru saja dipanggil ke dunia ini. Ketika cheat-nya dianggap lemah dan dia menjadi lebih berat.
+Ketika kami baru saja dipanggil ke dunia ini. Ketika cheat-nya dianggap lemah dan dia menjadi beban.
 
 Untuk menjadi lebih kuat, dia melakukan semua yang dia bisa. Keterampilan bertarung, cara mengayunkan pedang, pengetahuan, ia mengerahkan upaya dalam banyak hal.
 
 Pada awalnya Aku tidak benar-benar memperhatikan itu tetapi memikirkan kembali sekarang, dia benar-benar menakjubkan.
 
-Kami semua memiliki sesuatu yang kami kuasai tetapi Renji-san tidak memilikinya. Dia hanya berspesialisasi dalam memerangi dewa. Tidak berdaya melawan monster. Tapi dia masih putus asa untuk melindungi sesuatu. Dia mengatakan bahwa dia bukan pahlawan tetapi dia adalah pahlawan terbesar dari semua.
+Kami semua memiliki sesuatu yang kami kuasai tetapi Renji-san tidak memilikinya. Dia hanya spesialis dalam melawan dewa. Tidak berdaya melawan monster. Tapi dia masih berjuang habis-habisan untuk melindungi sesuatu. Dia mengatakan bahwa dia bukan pahlawan tetapi dia adalah pahlawan terhebat dari semuanya.
 
 Aku ingin tahu siapa yang mengatakan bahwa 'pahlawan' bukan kata benda tetapi kata kerja (T / N: Itu adalah Robert Downing Jr.)
 
 Itu bukan gelar, pahlawan adalah semua tentang tindakannya.
 
-Seorang pahlawan tidak menyebut dirinya satu, yang lain menyatakannya sebagai satu.
+Seorang pahlawan tidak menyebut dirinya sebagai pahlawan, yang lain akan menyatakannya sebagai pahlawan.
 
-"Kami juga adalah pahlawan, yang disebut God Slayers tapi itu hanya sebutan."
+"Kita juga adalah pahlawan, yang disebut God Slayers tapi itu hanya sebutan."
 
 Saat ini, kami bersekolah sebagai siswa.
 
-Yuuko-san dipanggil sebagai [Sage], mengatakan bahwa kita masih anak-anak dan membuat kita pergi ke satu.
+Yuuko-san dipanggil sebagai [Sage], mengatakan bahwa kita masih anak-anak dan membuat kami bersama-sama.
 
 Tapi Renji-san membuang gelarnya sebagai pahlawan, membuang pedang terkenal yang diberikan kepadanya oleh raja, dan hidup hanya dengan Ermenhilde di tangannya. Dan itu sangat bagus.
 
 Kami memegang gelar pahlawan. Renji-san terus berkeliling menyelamatkan orang. Aku merasa dia sangat suka melakukan itu. Dia mungkin mengatakan hal-hal lain tetapi pada akhirnya dia akan selalu membantu. Seperti itulah Renji-san.
 
-Antara kita dan Renji-san yang seperti itu, yang mana [pahlawan] yang sebenarnya ...... aku bertanya-tanya.
+Antara kami dan Renji-san yang seperti itu, yang mana [pahlawan] yang sebenarnya ...... aku bertanya-tanya.
 
 “Aya-chan, Kau selalu memikirkan hal-hal sulit ……”
 
-"Aku berharap?"
+"Benarkah ?"
 
 "Aku hanya puas dengan alasannya, 'Renji-oniisan luar biasa'."
 
@@ -286,15 +286,15 @@ Tetapi Aku ingin menjelaskannya dengan kata-kata yang lebih baik.
 
 Kau akan berpikir seperti itu kan? Untuk orang yang kau anggap berharga.
 
-"Nah, ayo kita pergi, kan?"
+"Nah, ayo kita pergi ?"
 
-"Sudah? Bukankah masih pagi? ”(Yayoi)
+"Sekarang? Bukankah masih awal? ”(Yayoi)
 
 "Aku tidak ingin membuat mereka menunggu."
 
-"Aya-chan, kaulah tipe orang yang mengabdikan diri pada pria yang Kau suka, bukan?"
+"Aya-chan, kau tipe orang yang mengabdikan diri pada pria yang Kau suka, bukan?"
 
-"Aku berharap?'
+"Benarkah ?'
 
 Aku mengerti apa yang Yayoi katakan tapi apakah Aku benar-benar seperti itu …… siapa yang tahu?
 
@@ -302,7 +302,7 @@ Bukan Aku.
 
 Aku juga tidak terlalu peduli soal itu.
 
-"Itu atau tipe yang akan menuntun pria berkeliling dengan seutas tali."
+"Itu atau tipe yang akan menuntun pria berkeliling dengan seutas tali." (aya)
 
 "...... Bukankah itu benar-benar kebalikan dari apa yang Kau katakan sebelumnya?"
 
@@ -310,21 +310,21 @@ Aku juga tidak terlalu peduli soal itu.
 
 Apakah begitu? Dia tertawa keras.
 
-Sungguh, dia memasang fasad seperti itu di depan orang lain.
+Sungguh, dia memasang muka palsu di depan orang lain.
 
-Meskipun dia seperti ini di depan kita, di depan yang lain di kelas, dia seperti wanita muda yang hanya berbicara dengan sopan.
+Meskipun dia seperti ini di depan kami, di depan yang lain di kelas, dia seperti wanita muda yang hanya berbicara dengan sopan.
 
-“Jika Kau tertawa seperti itu, jumlah penggemar [Saint] akan berkurang, tahu?” (Aya)
+“Jika Kau tertawa seperti itu, jumlah penggemar [Saint] akan berkurang, kau tahu?” (Aya)
 
-“Aku tidak peduli. Aku hanya menyembuhkan mereka yang terluka atau terluka. Akan sangat melelahkan jika mereka membuat patung atau idola dari Aku. ”
+“Aku tidak peduli. Aku hanya menyembuhkan mereka yang terluka. Akan sangat melelahkan jika mereka membuat patung atau mengidolakanku. ”
 
-“Aku setuju dengan itu. Benar-benar melelahkan jika Kau tidak memiliki orang yang dapat Kau ajak bicara secara terbuka di samping Kau. ”
+“Aku setuju dengan itu. Benar-benar melelahkan jika Kau tidak memiliki orang yang dapat Kau ajak bicara secara terbuka di sampingau. ”
 
-“Aya-chan melakukannya dengan mudah. Kau memiliki saudara di kelas Kau. Bagiku, kelasku adalah ... ”
+“Aya-chan melakukannya dengan mudah. Kau memiliki abangku di kelasmu. Bagiku, kelasku adalah ... ”
 
 Setelah itu kami berbicara tentang kelas untuk beberapa waktu kemudian ingat tentang Renji-san dan akhirnya pergi.
 
-Aku melakukan pemeriksaan terakhir di cermin. Memerciki sedikit parfum, aku memeriksa aroma cahayanya. Ini tidak senonoh bukan?
+Aku melakukan pemeriksaan terakhir di cermin. Memerciki sedikit parfum, aku memeriksa aromanya. Ini biasa saja, bukan?
 
 Ketika Aku bertanya itu, Yayoi membuat wajah muak.
 
@@ -340,7 +340,7 @@ Jika kita berbicara ... ..aku ingin tahu apakah aku akan lebih dekat dengannya.
 
 Tapi--
 
-"Aku ingin banyak bicara."
+"Aku ingin berbicara banyak."
 
 Orang itu pasti khawatir tentang hari ini, Aku pikir.
 
@@ -350,7 +350,7 @@ Kami juga mendengar itu.
 
 Kami bertarung dengan monster. Korban akan muncul. Ketika berperang melawan dewa iblis, kami telah melihat lebih banyak orang mati. Puluhan, ratusan orang tewas.
 
-Aku tidak berpikir kita sudah mati rasa untuk itu. Ini adalah fakta bahwa hati kami sakit pada angka-angka itu. Tetapi, jika Kau terjebak hanya dalam hal itu, yang akan mati berikutnya adalah Kau sendiri. Tubuh dan pikiran kita memahami hal itu. Bahkan jika ada kematian, kita akan menghadap ke depan.Kami tidak punya pilihan selain melakukannya. Agar kita tidak mati.
+Aku tidak berpikir kita sudah mati rasa untuk itu. Ini adalah fakta bahwa hati kami sakit pada angka-angka itu. Tetapi, jika Kau terjebak hanya dalam hal itu, yang akan mati berikutnya adalah Kau sendiri. Tubuh dan pikiran kita memahami hal itu. Bahkan jika ada kematian, kita akan menghadap ke depan. Kami tidak punya pilihan selain melakukannya. Agar kita tidak mati.
 
 Tapi Renji-san pasti meratapi hal itu, kurasa. Persis seperti saat itu di depan api unggun. Dia pasti melihat ke bawah.
 
