@@ -158,11 +158,11 @@ Itu sebabnya Aku merasa - bahwa itu adalah nostalgia.
 
 .
 
-Sambil makan, kami berbicara tentang berbagai hal. Kehidupan sekolah mereka, perjalanan Aku, apa yang kami lakukan dalam satu tahun terakhir, apa yang dilakukan orang lain sekarang.
+Sambil makan, kami berbicara tentang berbagai hal. Kehidupan sekolah mereka, perjalananku, apa yang kami lakukan dalam satu tahun terakhir, apa yang dilakukan orang lain sekarang.
 
 Sebelum kami menyadari, kami sudah makan segalanya dan kemudian memesan makanan penutup.
 
-Seperti yang diharapkan, jumlah yang dia pesan tidak memuaskannya karena Aya makan cukup banyak makanan penutup. Yah, aku tidak cukup sensitif untuk benar-benar menunjukkan itu dengan keras. Sudah dewasa Aku bertindak seolah-olah Aku tidak melihat apa-apa, Aku pikir. Souichi yang melakukan itu dengan suara keras harus jatuh ke meja lagi.
+Seperti yang diharapkan, jumlah yang dia pesan tidak memuaskannya karena Aya makan cukup banyak makanan penutup. Yah, aku cukup sensitif untuk benar-benar mengatakan itu dengan keras. Sudah seharusnya Aku bertindak seolah-olah Aku tidak melihat apa-apa, pikirku. Souichi yang melakukan itu dengan suara keras harus jatuh ke meja lagi.
 
 "Sungguh, jenggot tidak cocok untukmu."
 
@@ -170,11 +170,11 @@ Seperti yang diharapkan, jumlah yang dia pesan tidak memuaskannya karena Aya mak
 
 "Eh, um ........ yah, ya."
 
-"Aku pikir itu terlihat jantan sekalipun."
+"Aku pikir itu terlihat jantan." (Souichi)
 
-Dan untuk beberapa alasan, topik tersebut bergeser ke tunggul Aku.
+Dan untuk beberapa alasan, topik tersebut bergeser ke janggutku.
 
-Apakah jenggot Aku benar-benar layak menjadi topik pembicaraan? Juga, melihat Ermenhilde senang mendapatkan lebih banyak kawan terhadap Aku juga menjengkelkan.
+Apakah jenggotku benar-benar layak menjadi topik pembicaraan? Juga, melihat Ermenhilde senang mendapatkan lebih banyak kawan yang melawanku juga menjengkelkan.
 
 Dan sepertinya janggutku tidak disukai oleh Aya dan yayoi-chan. Dan tersisa Souichi, aku bertanya-tanya apakah dia menyadari bahwa mengatakannya seperti itu mengubah makna di balik kalimat itu cukup banyak.
 
@@ -182,13 +182,13 @@ Dan sepertinya janggutku tidak disukai oleh Aya dan yayoi-chan. Dan tersisa Soui
 
 “Aa, begitu. Jadi itu seperti penyamaran. ”
 
-Bukan hanya itu, itu menyakitkan untuk mencukur bersih juga. Dunia ini tidak memiliki hal-hal seperti krim cukur dan alat cukur sehingga Kau harus menggunakan pisau untuk melakukannya. Itu sangat berbahaya sendiri. Sering kali Aku malah memotong pipi atau leher Aku sendiri.
+Bukan hanya itu, itu menyakitkan untuk mencukur bersih juga. Dunia ini tidak memiliki hal-hal seperti krim cukur dan alat cukur sehingga Kau harus menggunakan pisau untuk melakukannya. Itu sangat berbahaya. Sering kali Aku malah memotong pipi atau leherku sendiri.
 
 Ketika Aku mulai berhati-hati akan hal itu, bercukur mulai terasa menyakitkan dan Aku malah berakhir dengan janggut ini. Akibatnya Aku menyadari bahwa Aku mulai diterima sebagai petualang normal.
 
-[Aku pikir dia hanya menemukan mencukur rasa sakit.]
+[Aku pikir dia hanya berpikir mencukur itu menyakitkan.]
 
-Itu benar. Kau benar-benar mengenal Aku dengan baik.
+Itu benar. Kau benar-benar mengenalku dengan baik.
 
 Yah, aku tidak bermaksud menerima yang sebenarnya dengan keras.
 
@@ -200,43 +200,43 @@ Yah, aku tidak bermaksud menerima yang sebenarnya dengan keras.
 
 Aya dan Yayoi tidak menyukainya, mungkin aku harus mencukurnya dengan benar mulai sekarang.
 
-Aku masih merasa sakit tetapi perasaan tidak menunjukkan kepada anak-anak Aku ceroboh lebih besar. Karena Aku telah hidup malas selama satu tahun terakhir, mungkin Aku harus menggunakan ini sebagai kesempatan untuk memperbaiki gaya hidup Aku sendiri atau lebih tepatnya, setidaknya penampilan Aku. Aku mulai merasa seperti itu sambil memKaungi anak-anak.
+Aku masih menganggap itu menyakitkan tetapi perasaan tidak menunjukkan kepada anak-anak bahwa ceroboh jauh lebih besar. Karena Aku telah hidup malas selama satu tahun terakhir, mungkin Aku harus menggunakan ini sebagai kesempatan untuk memperbaiki gaya hidupku sendiri atau lebih tepatnya, setidaknya penampilanku. Aku mulai merasa seperti itu sambil memandangi anak-anak.
 
-Apakah efek energi para pemuda? Saat mengambil 3 ini, Aku juga merasa sedikit lebih energik.
+Apakah ini efek energi masa muda? Saat berbicara dengan mereka bertiga ini, Aku juga merasa sedikit lebih energik.
 
-"Yah, aku akan mencoba untuk menjadi lebih proaktif."
+"Yah, aku akan mencoba untuk menjadi lebih proaktif." (renji)
 
-"Itu bendera 'tidak akan dilakukan' bukan?"
+"Itu bendera 'tidak akan melakukannya' bukan?"
 
-"Percayalah padaku sedikit lagi, Aya."
+"Percayalah padaku walau sedikit, Aya."
 
-"Aku, aku ... tr, percayalah. "
+"Aku, aku ... Per, percaya padamu. "
 
 Apakah ada sesuatu dalam percakapan ini yang membuatnya malu?
 
-Saat dia mengalihkan pKaungan dan menyembunyikan wajahnya, aku hanya bisa memiringkan kepalaku dalam kebingungan. Kali ini Aku benar-benar tidak mengerti. Terlihat Souichi sama karena dia membuat wajah bingung ketika aku memKaungnya.
+Saat dia mengalihkan pandangan dan menyembunyikan wajahnya, aku hanya bisa memiringkan kepalaku dalam kebingungan. Kali ini Aku benar-benar tidak mengerti. Sepertinya Souichi Juga sama bingung karena dia membuat wajah bingung ketika aku memandangnya.
 
-Yayoi-chan saja menyeringai bahagia.
+Yayoi-chan saja tertawa bahagia.
 
 "Kenapa Kau tidak mencoba dan menumbuhkan jenggot juga Souichi? Kau mungkin terlihat lebih jantan. "(Renji)
 
-"Re, benarkah?"
+"Be, benarkah?"
 
-Ketika aku mengatakan itu, Brave-sama menatapku dengan gembira. Akankah jenggot bahkan cocok dengan wajahnya yang androgini? …… Saat membayangkan, tidak mungkin. Aku mengalihkan pKaunganku darinya. Ada batas berapa banyak jenggot yang tidak cocok untuk wajah pria.
+Ketika aku mengatakan itu, Brave-sama menatapku dengan gembira. Akankah jenggot bahkan cocok dengan wajahnya yang Cantik? …… Saat membayangkan, tidak mungkin. Aku mengalihkan pandanganku darinya. Ada batas berapa banyak jenggot yang tidak cocok untuk wajah pria.
 
-Jika Souichi menumbuhkan janggut, Utano-san tidak akan berhenti hanya dengan aku dimakamkan.
+Jika Souichi menumbuhkan janggut, Utano-san tidak akan berhenti hanya dengan menguburku.
 
-Sambil memikirkan hal-hal seperti itu, Aku menjadi sedikit takut. Orang itu benar-benar habis-habisan ketika dia melakukan sesuatu. Utano Yuuko-san adalah orang seperti itu. Mereka mengatakan nama seseorang sering cocok dengan sifat mereka tetapi itu jelas tidak benar. (T / N: Yuuko pada dasarnya berarti anak yang lembut)
+Sambil memikirkan hal-hal seperti itu, Aku menjadi sedikit takut. Orang itu benar-benar habis-habisan ketika dia melakukan sesuatu. Utano Yuuko-san adalah orang seperti itu. Mereka bilang nama seseorang sering cocok dengan sifat mereka tetapi itu jelas tidak benar. (T / N: Yuuko pada dasarnya berarti anak yang lembut)
 
-"Itu pasti tidak akan cocok dengan saudara sama sekali."
+"Itu pasti tidak akan cocok dengan abang sama sekali."(yayoi)
 
-"Yup, tentu saja tidak."
+"Yup, tentu saja tidak."(aya)
 
 [Lagipula Souichi memiliki wajah yang cantik.]
 
 Dan sekali lagi dia ditolak sepenuhnya.
 
-Karena Aku yang mengemukakan ide juga berpikiran sama, Aku juga tidak bisa mendukungnya. Maaf Souichi, juga, Ermenhilde pasangan Aku, "wajah cantik" bukan pujian untuk seorang pria.
+Karena Aku yang mengemukakan ide juga berpikiran sama, Aku juga tidak bisa mendukungnya. Maaf Souichi, juga, Ermenhilde partnerku, "wajah cantik" bukan pujian untuk seorang pria.
 
 .
 
