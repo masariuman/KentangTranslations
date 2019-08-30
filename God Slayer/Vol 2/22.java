@@ -244,57 +244,57 @@ Karena Aku yang mengemukakan ide juga berpikiran sama, Aku juga tidak bisa mendu
 
 .
 
-Setelah selesai makan malam, kami meninggalkan restoran. Bulan merah berada di puncak yang menunjukkan bahwa itu sudah sangat terlambat.
+Setelah selesai makan malam, kami meninggalkan restoran. Bulan merah berada di puncak yang menunjukkan bahwa itu sudah sangat malam.
 
-Ketika Aku menarik napas, Aku menyadari bahwa napas Aku sedikit hangat.
+Ketika Aku menarik napas, Aku menyadari bahwa napasku sedikit hangat.
 
-Bukannya Aku demam. Tapi, mungkin sedikit energi anak-anak dibagikan kepada Aku. Aku merasa seperti itu.
+Bukannya Aku demam. Tapi, mungkin sedikit energi anak-anak dibagikan kepadaku. Aku merasa seperti itu.
 
-Apakah itu menyenangkan? Ya itu. Aku bersenang-senang.
+Apakah itu menyenangkan? Ya, Aku bersenang-senang.
 
-Tanpa memikirkan sesuatu yang bodoh atau tidak berguna, Aku hanya mengobrol dan makan bersama teman-teman Aku, dengan anak-anak.
+Tanpa memikirkan sesuatu yang bodoh atau tidak berguna, Aku hanya mengobrol dan makan bersama teman-temanku, dengan anak-anak.
 
-Aku diingatkan bahwa ini bisa sangat menyenangkan. Waktu di mana kita tidak harus berpikir seperti Berani atau Pahlawan bisa sangat menenangkan, kita diingatkan sekali lagi.
+Aku diingatkan bahwa ini bisa sangat menyenangkan. Waktu di mana kita tidak harus berpikir seperti Brave atau Pahlawan bisa sangat menenangkan, kita diingatkan sekali lagi.
 
 "Apakah Kau makan sesuka hatimu?"
 
-"Iya nih. Aku makan banyak."
+"Iya. Aku makan banyak."
 
 "Lalu, alangkah baiknya jika tinggi badanmu tumbuh sedikit juga."
 
-"Iya nih……."
+"Iya……."
 
 Menjawab dengan penuh semangat, lalu segera menjawab dengan suara kecil, aku menertawakan Souichi seperti itu.
 
-“Terima kasih banyak, Renji-oniisan karena telah memperlakukan kami.” (Yayoi)
+“Terima kasih banyak, Renji-oniisan karena telah mentraktir kami.” (Yayoi)
 
 "Seperti yang Kau harapkan, itu akan memalukan untuk berbagi tagihan dengan anak-anak."
 
 "Fufu."
 
-"Setelah lulus ketika Kau mendapatkan pekerjaan .... maka aku akan meminta kalian memperlakukanku."
+"Setelah lulus dan ketika Kau mendapatkan pekerjaan .... maka aku akan meminta kalian mentraktirku."
 
-"Yakin."
+"baiklah."
 
 Yayoi-chan, seperti biasa, terdengar paling dewasa meskipun dia yang termuda.
 
 “……… ..”
 
-Dan Aya terdiam sambil menggantung kepalanya.
+Dan Aya terdiam sambil menundukkan kepalanya.
 
-Dia menjadi seperti ini segera setelah Aku mengatakan bahwa kita harus kembali. Serius gadis ini. Aku mulai berpikir.
+Dia menjadi seperti ini segera setelah Aku mengatakan bahwa kita harus kembali. benar-benar. Aku mulai berpikir.
 
 "Oi Souichi."
 
-"Iya nih?"
+"Ya?"
 
 Memanggilnya, Aku melemparkan Ermenhilde kepadanya.
 
-Dia sedikit panik karena tindakan tiba-tiba Aku tetapi entah bagaimana menangkapnya dengan baik dengan kedua tangannya.
+Dia sedikit panik karena tindakan tiba-tibaku tetapi entah bagaimana menangkapnya dengan baik dengan kedua tangannya.
 
-Mungkin karena dia tinggal di sekolah sekarang, dia menjadi sedikit santai / ceroboh. Yah, itu seharusnya normal.
+Mungkin karena dia bersekolah sekarang, dia menjadi sedikit santai / ceroboh. Yah, itu seharusnya normal.
 
-Kehidupan di mana Kau berhati-hati 24/7 akan menghancurkan Kau cepat atau lambat. Itu sebabnya, ini baik-baik saja. Karena itu, Utano-san mengirim anak-anak ini ke sekolah, kurasa.
+Kehidupan di mana Kau berhati-hati 24/7 akan menghancurkanmu cepat atau lambat. Itu sebabnya, ini baik-baik saja. Karena itu, Utano-san mengirim anak-anak ini ke sekolah, kurasa.
 
 [Apa yang terjadi Renji?]
 
@@ -318,7 +318,7 @@ Ketika aku melirik Aya yang berjalan di sampingku, dia melihat ke depan seperti 
 
 Fuyou Aya. Teman masa kecil dengan saudara Amagi dan mungkin penyihir terhebat dan terkuat di dunia ini.
 
-Aku — tidak dapat memahami gadis ini. Mengapa dia datang untuk berbicara dengan Aku, apa yang dia harapkan dari Aku.
+Aku — tidak dapat memahami gadis ini. Mengapa dia datang untuk berbicara denganku, apa yang dia harapkan dariku.
 
 Saat itu, Aku telah menyelamatkannya beberapa kali. Dari monster, kecelakaan, penyakit. Sejak saat itu, Aku merasa dia sudah matang.
 
@@ -330,11 +330,11 @@ Hanya satu tahun. Tapi itu cukup bagi seorang gadis untuk tumbuh dewasa, Aku pik
 
 Percakapan berakhir.
 
-Aku pKaui melanjutkan pembicaraan dengan orang-orang tapi Aku pikir Aku payah memulai percakapan sendiri.
+Aku pandai melanjutkan pembicaraan dengan orang-orang tapi Aku pikir Aku payah memulai percakapan sendiri.
 
-Ini berbeda jika Aku memiliki tujuan tetapi seperti sekarang ketika tidak ada tujuan seperti itu dalam pikiran Aku, Aku pikir Aku akan puas dengan hanya berjalan seperti ini. Aku pikir tidak perlu berbicara.
+Ini berbeda jika Aku memiliki tujuan tetapi seperti sekarang ketika tidak ada tujuan seperti itu dalam pikiranku, Aku pikir Aku akan puas dengan hanya berjalan seperti ini. Aku pikir tidak perlu berbicara.
 
-Memalingkan pKaunganku dari Aya, aku menatap langit malam sambil berjalan di sampingnya.
+Memalingkan pandanganku dari Aya, aku menatap langit malam sambil berjalan di sampingnya.
 
 "Seragammu sangat cocok."
 
@@ -342,11 +342,11 @@ Memalingkan pKaunganku dari Aya, aku menatap langit malam sambil berjalan di sam
 
 Bukannya aku punya sesuatu untuk dibicarakan.
 
-Tetapi Aku merasa bahwa Aya memiliki sesuatu yang ingin dia katakan kepada Aku.
+Tetapi Aku merasa bahwa Aya memiliki sesuatu yang ingin dia katakan kepadaku.
 
-Itu aku menunggu dengan sabar untuk Aya berbicara. Merawat dengan bebas, sambil menatap langit malam. Perjalanan tanpa tujuan terasa menyenangkan.
+Karena Itu aku menunggu dengan sabar untuk Aya berbicara. Pelan-pelan, sambil menatap langit malam. Perjalanan tanpa tujuan terasa menyenangkan.
 
-Orang yang hidup di dunia ini tidur lebih awal. Itu karena mereka tidak ada hubungannya. Yang paling mereka miliki untuk kesenangan adalah alkohol dan judi. Tetapi bahkan kasino hanya ada di daerah tempat para bangsawan tinggal. Dan itu pun bukan yang legal. Mereka yang menyukai hal-hal seperti itu mungkin terjaga sampai larut malam, tetapi hanya kita yang akan berjalan-jalan pada saat seperti itu.
+Orang yang hidup di dunia ini tidur lebih awal. Itu karena tidak ada yang mereka lakukan. Kebanyakan dari mereka yang belum tidur miliki kesenangan alkohol dan judi. Tetapi bahkan kasino hanya ada di daerah tempat para bangsawan tinggal. Dan itu pun bukan yang legal. Mereka yang menyukai hal-hal seperti itu mungkin akan tetap tidak tidur sampai larut malam, tetapi hanya kita yang akan berjalan-jalan pada saat seperti itu.
 
 Tidak ada seorang pun di sekitar. Waktu yang tenang Berjalan pada saat seperti itu benar-benar terasa menyenangkan.
 
@@ -354,7 +354,7 @@ Tidak ada seorang pun di sekitar. Waktu yang tenang Berjalan pada saat seperti i
 
 Kaki Aya berhenti.
 
-Aku memKaungnya dan ya kita bertemu.
+Aku memandangnya dan mata kita bertemu.
 
 "Apakah Kau sedih?"
 
@@ -364,7 +364,7 @@ Mengapa? Dia tidak menanyakan itu. Tidak ada alasan untuk mengajukan pertanyaan 
 
 Aya sedang berbicara tentang apa yang terjadi siang hari.
 
-4 mati. Dan mereka adalah petualang yang bertarung dengan Aku. Hidup yang tidak bisa Aku lindungi.
+4 mati. Dan mereka adalah petualang yang bertarung denganku. Hidup yang tidak bisa Aku lindungi.
 
 "Aku pikir aku sedih."
 
@@ -372,11 +372,11 @@ Aya sedang berbicara tentang apa yang terjadi siang hari.
 
 "Apakah begitu?"
 
-"Iya nih."
+"Iya."
 
-Apakah Kau menemukan Aya seperti itu berhati dingin?
+Apakah Aya seperti itu berhati dingin?
 
-Bukan Aku. Aku tidak bisa. Sebenarnya Aku merasa lebih baik begini.
+Ntahlah. Aku tidak bisa memikirkannya. Sebenarnya Aku merasa lebih baik begini.
 
 Jika seseorang dari kita 13 meninggal, jika seseorang yang dekat meninggal, ... ..ya pasti akan menangis.
 
@@ -384,13 +384,13 @@ Tapi, dia tidak akan sedih karena kematian 4 nama atau wajah yang bahkan tidak d
 
 Dan itu normal. Karena jika Kau tidak berpikir seperti itu, Kau yang akan mati selanjutnya. Ya, karena kami mengerti bahwa medan perang adalah tempat semacam itu.
 
-Mereka tidak sensitif seperti usia 18 tahun di dunia asli kita. Tapi, itu sesuatu yang alami untuk dunia ini. Aku yakin Aya khawatir dengan kenyataan bahwa dia tidak merasakan apa-apa bahkan pada kematian seseorang.
+Mereka tidak sensitif seperti layaknya usia 18 tahun di dunia asli kami. Tapi, itu sesuatu yang alami untuk dunia ini. Aku yakin Aya khawatir dengan kenyataan bahwa dia tidak merasakan apa-apa bahkan pada kematian seseorang.
 
 "Aku senang Renji-san baik-baik saja ... Aku sangat senang."
 
 "Aku juga. Aku juga senang bahwa Aya - Souichi dan yang lainnya juga aman. "
 
-Tetapi Aku, pada saat yang sama, juga terpengaruh oleh kematian mereka 4. Aku telah memastikan untuk tidak menunjukkannya baik di wajah Aku maupun dalam tindakan Aku, tetapi Aku rasa mereka menyadarinya. Atau mungkin, Aku belum matang dari satu tahun yang lalu.
+Tetapi Aku, pada saat yang sama, juga terpengaruh oleh kematian mereka ber-4. Aku telah memastikan untuk tidak menunjukkannya baik di wajahku maupun dalam tindakanku, tetapi Aku rasa mereka menyadarinya. Atau mungkin, Aku belum matang dari satu tahun yang lalu.
 
 Sesederhana itu. Ini salahku kalau aku tidak bisa puas. ——- Aku yakin kalau aku berdiri di medan perang sekarang, aku mungkin akan terluka. Tanpa alasan. Aku yakin akan hal itu.
 
@@ -398,9 +398,9 @@ Sesederhana itu. Ini salahku kalau aku tidak bisa puas. ——- Aku yakin kalau 
 
 Suara Aya bergema di keheningan malam.
 
-"Terima kasih telah menyelamatkan Aku."
+"Terima kasih telah menyelamatkanku." (aya)
 
-"Jangan katakan itu. Aku mengatakannya pada waktu itu juga tetapi Aku berjanji kepada Kau, bukan? Bahwa jika Kau dalam bahaya aku akan menyelamatkanmu. ”
+"Jangan katakan itu. Aku mengatakannya pada waktu itu juga tetapi Aku berjanji kepadamu, bukan? Bahwa jika Kau dalam bahaya aku akan menyelamatkanmu. ”
 
 Aku merasa seperti malam itu juga saat itu. Aku tidak ingat dengan baik, tapi itu tenang, masih malam. Di depan api, aku sudah berjanji begitu padanya.
 
@@ -412,9 +412,9 @@ Bahwa aku akan melindungi penyihir terbesar dan terkuat di dunia.
 
 Aku mengangkat bahu.
 
-Aku akan melindungi janji Aku. Itu normal, jelas. Jadi Aku jelas melindungi janji Aku, itu saja.
+Aku akan melindungi janjiku. Itu normal, jelas. Jadi Aku jelas melindungi janjiku, itu saja.
 
-"Renji-san sama seperti biasanya."
+"Renji-san sama seperti biasanya." (aya)
 
 “Aku hanya tidak ingin melanggar janjiku. Setidaknya dari sisiku. ”
 
@@ -424,7 +424,7 @@ Tapi, kecuali untuk kasus-kasus ekstrem —— Aku memastikan untuk tidak melang
 
 Bahkan jika janji itu adalah sesuatu yang sangat kecil. Bahkan jika itu adalah janji yang sangat berharga.
 
-Angin bertiup dan dengan lembut membuat rambut Aya berayun di udara.Dalam kegelapan malam, di bawah cahaya lampu-lampu jalan yang bersinar dari energi magis, cahaya pucat yang tidak ada di dunia kita sebelumnya, bersinar sosoknya.
+Angin bertiup dan dengan lembut membuat rambut Aya berayun di udara. Dalam kegelapan malam, di bawah cahaya lampu-lampu jalan yang bersinar dari energi magis, cahaya pucat yang tidak ada di dunia kita sebelumnya, bersinar.
 
 "Nee, Renji-san."
 
@@ -442,15 +442,15 @@ Tapi meski begitu aku merasakan semacam pesona dalam ekspresinya.
 
 Meskipun Aku tidak bisa melindungi mereka 4, Aku menyelamatkan hidupnya.
 
-Aku yakin itu yang ingin dia sampaikan kepada Aku. Aku terlalu memikirkan kematian 4 orang itu. Kata-kata itu datang karena dia mengkhawatirkan Aku.Kata-kata itu begitu lembut, dan hangat sehingga aku akhirnya tersenyum secara alami.
+Aku yakin itu yang ingin dia sampaikan kepadaku. Aku terlalu memikirkan kematian 4 orang itu. Kata-kata itu datang karena dia mengkhawatirkanku. Kata-kata itu begitu lembut, dan hangat sehingga aku akhirnya tersenyum secara alami.
 
-Dan kemudian menghela nafas. Ini tidak akan berhasil. Aku dikhawatirkan oleh seorang anak. Aku gagal sebagai orang dewasa. Aku akhirnya tersenyum kecut.
+Dan kemudian menghela nafas. Ini tidak harusnya terjadi. Aku dikhawatirkan oleh seorang anak. Aku gagal sebagai orang dewasa. Aku akhirnya tersenyum kecut.
 
 Apa yang dia pikirkan ketika dia melihatku seperti itu, Aya tersenyum seperti anak nakal. Itu bukan senyum yang menarik seperti sebelumnya, itu lebih dari senyum yang cocok dengan gadis seusianya.
 
 "Jangan menangis, oke?" (Aya)
 
-"Aku tidak akan."
+"Tidak akan."
 
 Dia mulai terkikik.
 
@@ -462,6 +462,6 @@ Satu tahun yang lalu - tempat Aku terakhir kali menangis.
 
 Itu sebabnya, Aku tidak akan menangis.
 
-Bahkan jika rekan-rekan Aku mati, tidak peduli siapa yang mati, tidak peduli apa yang Aku kehilangan.
+Bahkan jika rekan-rekanku mati, tidak peduli siapa yang mati, tidak peduli apa yang hilang padaku.
 
 —–Karena aku berjanji begitu.
