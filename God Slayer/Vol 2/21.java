@@ -78,23 +78,23 @@ Untuk [Grand Magus] Fuyou Aya, orang yang dikenal sebagai Yamada Renji itu istim
 
 Kehidupan luar biasa dipanggil ke dunia lain. Dia bisa mengatasinya karena dia bersama dengan teman-teman masa kecilnya Souichi dan yayoi. Jika mereka berdua tidak ada di sini, dia pasti tidak akan mampu mengatasinya.
 
-Keberadaan manusia dan non-manusia. Hidup bersama dengan setengah manusia dan binatang buas yang hanya muncul dalam cerita dan legenda, di dunia yang penuh dengan monster. Dunia bukan ilmu tetapi pedang dan sihir.
+Keberadaan manusia dan non-manusia. Hidup bersama dengan setengah manusia dan binatang buas yang hanya muncul dalam cerita dan legenda, di dunia yang penuh dengan monster. Bukan dunia sains tetapi pedang dan sihir.
 
-Bagi pria itu adalah situasi yang akan membuat mereka bersemangat.Termasuk Souichi, ada 7 pria di antara yang dipanggil 13. Dia ingat bahwa 6 dari mereka sangat bahagia seolah-olah tidak ada masalah dengan ini.
+Bagi pria, itu adalah situasi yang akan membuat mereka bersemangat. Termasuk Souichi, ada 7 pria di antara yang dipanggil 13. Dia ingat bahwa 6 dari mereka sangat bahagia seolah-olah tidak ada masalah dengan ini.
 
 Tetapi pada saat itu, hanya satu yang realistis. Itu adalah Yamada Renji. Dia khawatir tentang hal-hal realistis seperti bagaimana akan bertahan hidup di dunia ini, posisi dan status mereka di dunia ini dan apakah mereka akan dapat kembali atau tidak.
 
 Aya ingat itu bahkan sekarang.
 
-Bahkan dia sangat terkejut dan banyak bertanya pada dewi tentang masa depan mereka. Aya menemukan itu menjadi sangat dewasa darinya.
+Fakta dia sangat terkejut dan banyak bertanya pada dewi tentang masa depan mereka. Aya melihat itu sangat dewasa.
 
 Dewi. Keberadaan yang disebut sebagai Dewi Astrarea oleh manusia.
 
-Dia mengatakan kepada mereka bahwa dia ingin mereka menyelamatkan dunia. Untuk mengalahkan Dewa Setan yang mencoba menghancurkan dunia ini. Untuk alasan itu, dia bisa memberi mereka kekuatan apa pun. Untuk alasan itu, dia akan memenuhi semua keinginan mereka.
+Dia mengatakan kepada mereka bahwa dia ingin mereka menyelamatkan dunia. Untuk mengalahkan Dewa Iblis yang mencoba menghancurkan dunia ini. Untuk alasan itu, dia bisa memberi mereka kekuatan apa pun. Untuk alasan itu, dia akan memenuhi semua keinginan mereka.
 
-Itu sebabnya, Aya berharap. Karena dia berada di dunia lain sekarang, dia ingin menggunakan sihir. Dia membayangkan keajaiban seperti sihir yang hanya muncul dalam cerita dan legenda. Energi ajaib yang tidak akan hilang bagi siapa pun —– bahkan Dewa Setan.
+Itu sebabnya, Aya berharap. Karena dia berada di dunia lain sekarang, dia ingin menggunakan sihir. Dia membayangkan keajaiban seperti sihir yang hanya muncul dalam cerita dan legenda. Energi ajaib yang tidak akan hilang bagi siapa pun —– bahkan Dewa Iblis.
 
-Keinginan itu terpenuhi dan selama pertempuran yang menentukan dia mampu melakukan pertempuran satu lawan satu dengan Dewa Setan sendiri.
+Keinginan itu terpenuhi dan selama pertempuran yang menentukan dia mampu melakukan pertempuran satu lawan satu dengan Dewa Iblis sendiri.
 
 Souichi berharap kekuatan yang tidak pernah hilang dan Yayoi berharap kekuatan untuk menyembuhkan luka.
 
@@ -104,9 +104,9 @@ Yang terakhir berharap adalah Yamada Renji. Dia berharap [senjata untuk membunuh
 
 Itu bukan untuk menikmati dunia ini tetapi kekuatan untuk kembali ke dunia mereka. Kekuatan hanya karena alasan itu.
 
-Pada kenyataannya, ia menerima kuasa untuk menjadi tidak terkalahkan terhadap Allah mana pun. Bukan hanya Dewa Setan, Dewa Roh, atau Dewi.Tetapi bahkan melawan keturunan Dewa Setan, Rasul Dewa Roh dan para pendeta Dewi. Kekuatan itu akan bekerja bahkan melawan para pengikut Dewa.
+Pada kenyataannya, ia menerima kuasa untuk menjadi tidak terkalahkan terhadap Dewa mana pun. Bukan hanya Dewa Iblis, Dewa Roh, atau Dewi. Tetapi bahkan melawan keturunan Dewa Iblis, Utusan Dewa Roh dan para pendeta Dewi. Kekuatan itu akan bekerja bahkan melawan para pengikut Dewa.
 
-Untuk itu, ia dibenci oleh banyak orang. Mendapat kemarahan banyak orang.Dan membuat banyak musuh juga.
+Untuk itu, ia dibenci oleh banyak orang. Mendapat kemarahan banyak orang. Dan membuat banyak musuh juga.
 
 Senjata yang tidak berguna melawan monster, tidak lebih dari senjata normal, Ermenhilde.
 
@@ -114,9 +114,9 @@ Dia melindungi yang tak terhitung jumlahnya dengan senjata itu. Itu termasuk Aya
 
 Dia selalu mengatakan bahwa mustahil untuk menyelamatkan semua orang, tetapi dia adalah orang yang paling berusaha melindungi semua orang.
 
-Ketika dia tidak dapat melindungi seseorang / sesuatu, dia akan selalu menyembunyikan kesedihannya. Pada malam hari, di depan api unggun, dia sering berduka untuk itu. Dia takut pada dunia lain ini lebih dari orang lain.Aya menyadari itu setengah tahun kemudian setelah datang ke dunia ini.
+Ketika dia tidak dapat melindungi seseorang / sesuatu, dia akan selalu menyembunyikan kesedihannya. Pada malam hari, di depan api unggun, dia sering berduka untuk itu. Dia takut pada dunia lain ini lebih dari orang lain. Aya menyadari itu setengah tahun kemudian setelah datang ke dunia ini.
 
-Suatu malam dia bangun dan melihat Renji, yang bertindak sebagai penjaga di malam hari seperti biasa, merasa sedih sendirian. Dia bahkan menyingkirkan Ermenhilde dalam tahanan Yuuko.
+Suatu malam dia bangun dan melihat Renji, yang bertindak sebagai penjaga di malam hari seperti biasa, merasa sedih sendirian. Dia bahkan menyingkirkan Ermenhilde pada Yuuko.
 
 Dia adalah orang dewasa, tetapi lemah namun berusaha paling keras dan selalu memegang rasa tanggung jawab yang terkuat.
 
@@ -126,7 +126,7 @@ Yamada Renji selalu berdiri di bagian paling depan. Bersamaan dengan senjata ber
 
 Untuk melindungi penyihir seperti Aya dan yang lainnya. Untuk melindungi anak-anak seperti Souichi dan lainnya. Dia selalu berusaha untuk tidak membuat orang lain khawatir. Agar setiap orang bisa tidur nyenyak, dia akan selalu mengambil tugas penjaga malam.
 
-Sebelum ada yang tahu, itu menjadi hal yang jelas dan semua orang bergantung padanya untuk itu.
+Tanpa diketahui, itu menjadi hal yang jelas dan semua orang bergantung padanya untuk itu.
 
 Dia masih bisa mengingat punggungnya.
 
@@ -134,11 +134,11 @@ Dia menjadi sombong, dia telah membiarkannya lengah. Dia pikir sudah jelas dia m
 
 Lawannya adalah seorang Ogre seperti hari ini. Mengesampingkan kemampuannya sendiri, dia pergi terlalu jauh di depan ketika mencoba untuk membunuhnya.
 
-Tidak peduli seberapa kuat sihir yang bisa dia gunakan, Aya dan yang lainnya masih manusia. Mereka mati ketika mereka terbunuh. (T / N: klasik shirou: P) bahkan jika Yayoi bisa menyembuhkan luka, dia tidak bisa menghidupkan orang mati.
+Tidak peduli seberapa kuat sihir yang bisa dia gunakan, Aya dan yang lainnya masih manusia. Mereka mati ketika mereka terbunuh. (TN: klasik shirou DAMMIT) bahkan jika Yayoi bisa menyembuhkan luka, dia tidak bisa menghidupkan orang mati.
 
-Ada sihir untuk menghidupkan orang mati, tetapi ada terlalu banyak kendala untuk itu dan di atas semua itu adalah tabu.
+Ada sihir untuk menghidupkan orang mati, tetapi ada terlalu banyak kendala untuk itu dan itu adalah sihir yang tabu.
 
-Itu sebabnya, sudah berakhir jika Kau mati. Itu sama bahkan untuk pemegang cheat yang diberikan oleh sang dewi.
+Itu sebabnya, sudah berakhir jika Kau mati. Itu juga berlaku bahkan untuk pemegang cheat yang diberikan oleh sang dewi.
 
 Malam itu, dia sangat takut sehingga tidak bisa tidur. Merasa kesepian, ada saat-saat dia tidak bisa tidur sebelumnya juga, tetapi itu adalah pertama kalinya dia tidak bisa tidur karena takut mati.
 
@@ -146,9 +146,9 @@ Itu sebabnya, dia berbicara dengan Renji malam itu. Renji telah menguatkan dirin
 
 Ketika dia berterima kasih padanya untuk itu, dia ingat bahwa dia tersenyum bahagia pada saat itu.
 
-Senyum itu menyilaukan, dan senang karena itu menunjuk padanya, dia mulai berbicara dengan Renji lebih dari itu. Dia menerima saran darinya. Tentang sihir, tentang hubungan manusia, tentang dirinya sendiri.
+Senyum itu menyilaukan, dan senang karena itu menunjuk padanya, dia mulai berbicara dengan Renji stelah itu. Dia menerima saran darinya. Tentang sihir, tentang hubungan manusia, tentang dirinya sendiri.
 
-Aya merasa bahwa itu karena kepribadian Renji sehingga Kau bisa membicarakan segalanya dengannya. Kau menyebut bahwa dia hanya mudah diajak bicara tetapi Renji akan selalu melihat Aya ketika berbicara. Dia akan memikirkannya ketika berbicara dan juga akan mengkhawatirkannya.
+Aya merasa bahwa itu karena kepribadian Renji sehingga Kau bisa membicarakan segalanya dengannya. Kau bisa berkata bahwa dia hanya mudah diajak bicara tetapi Renji akan selalu melihat Aya ketika berbicara. Dia akan memikirkannya ketika berbicara dan juga akan mengkhawatirkannya.
 
 Itu, entah bagaimana memberikan rasa aman yang sama dengan yang diberikan orang tua Souichi padanya.
 
