@@ -1,3 +1,5 @@
+Yay mabar dulu sebelum pindah kota, AKHIRNYA ADA FRAN-CHAN LAGI <3
+
 Bab 23 Para Pahlawan dan  setelahnya
 
 Selesai mencukur dengan pisau, aku mencuci muka. Melihat cermin, wajah lelaki tuaku bersih.
