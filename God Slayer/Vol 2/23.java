@@ -298,37 +298,37 @@ berkata seperti itu akupun memasukkan medali itu kembali ke dalam sakuku.
 
 Sekarang bagaimana itu berakhir seperti ini? Aku memiringkan kepalaku dengan bingung.
 
-Karena Aku akhirnya bertemu dengannya lagi, Aku memutuskan untuk melakukan pencarian yang sama seperti Miss Francesca untuk mengumpulkan herbal, tetapi untuk beberapa alasan, Souichi dan Yayoi-chan juga bersama dengan kami. Ketika Aku bertanya apakah itu baik-baik saja dengan sekolah, jawabnya 'ya' sambil tersenyum. Itu adalah senyum yang tidak bisa kupercayai.Terutama Souichi. Nanti, aku akan memastikan untuk bertanya pada Aya atau Yayoi-chan tentang nilainya di sekolah.
+Karena Aku akhirnya bertemu dengannya lagi, Aku memutuskan untuk melakukan pencarian yang sama seperti Miss Francesca untuk mengumpulkan herbal, tetapi untuk beberapa alasan, Souichi dan Yayoi-chan juga bersama dengan kami. Ketika Aku bertanya apakah itu baik-baik saja dengan sekolah, jawabnya 'ya' sambil tersenyum. Itu adalah senyum yang tidak bisa kupercayai. Terutama Souichi. Nanti, aku akan memastikan untuk bertanya pada Aya atau Yayoi-chan tentang nilainya di sekolah.
 
-Tapi tetap saja, dengan kekuatan berlebih ini bersama kami, aku mulai merasa sedih untuk para goblin yang sesekali kami temui.
+Tapi tetap saja, dengan kekuatan berlebih ini pada kami, aku mulai merasa sedih untuk para goblin yang sesekali kami temui.
 
-Lagipula, para goblin itu terkoyak bersama dengan senjata dan baju besinya sama sekali. Seperti yang diharapkan dari sang Pemberani yang telah mengalahkan bos terakhir. Seperti yang diharapkan dari orang yang, dalam arti tertentu, memiliki cheat terkuat.
+Para goblin itu terbealh-belah bersama dengan senjata dan baju besinya. Seperti yang diharapkan dari sang Brave yang telah mengalahkan bos terakhir. Seperti yang diharapkan dari orang yang, dalam arti tertentu, memiliki cheat terkuat.
 
-Dia juga memegang pedang suci dengan energi magis biru yang samar di tangannya. Seiring dengan kemampuan cheat, apalagi aku, bahkan orang Peri tidak punya kesempatan untuk melakukan sesuatu sebelum pertempuran berakhir. Tidak masalah apakah lawan kita hanya satu atau banyak.
+Dia juga memegang pedang suci dengan energi magis biru yang samar di tangannya. Seiring dengan kemampuan cheat, apalagi aku, bahkan orang Elf tidak punya kesempatan untuk melakukan sesuatu sebelum pertempuran berakhir. Tidak masalah apakah lawan kita hanya satu atau banyak.
 
-Untuk saat ini, kami menyerahkan pertempuran sepenuhnya kepada Souichi.Bagaimanapun, itu lebih efektif daripada kita melakukannya.
+Untuk saat ini, kami menyerahkan pertempuran sepenuhnya kepada Souichi. Bagaimanapun, itu lebih efektif daripada kami melakukannya.
 
 “…… .Ini adalah kekuatan Pahlawan, eh?” (Elf)
 
 “Jangan letakkan aku di kategori yang sama, oke? Aku bahkan tidak memiliki setengah kekuatan yang dimiliki Souichi. ”(Renji)
 
-"Lagi-lagi mengatakan hal-hal seperti itu ......"
+"Lagi-lagi mengatakan hal-hal seperti itu ......"(yayoi)
 
 Tapi itu benar. Aku mengangkat bahuku mendengar kata-kata Yayoi-chan.
 
 Sebenarnya, meski aku belum pernah bertarung melawan Souichi, aku yakin aku akan kalah melawannya dalam pertarungan satu lawan satu. Bahkan jika semua 7 perjanjian Ermenhilde dilepaskan, aku tidak akan bisa mengalahkannya.
 
-Aku hanya bisa mengeluarkan kekuatan penuhku melawan Dewa Setan tapi Souichi, selama kehendaknya tidak rusak, bisa menggunakan kekuatan penuhnya melawan siapa pun.
+Aku hanya bisa mengeluarkan kekuatan penuhku melawan Dewa Iblis tapi Souichi, selama keinginannya tidak rusak, bisa menggunakan kekuatan penuhnya melawan siapa pun.
 
-Cheatnya adalah yang luar biasa bahkan di antara kita 13. Karena dia disebut Berani, Souichi sekuat itu. Karena dia sendiri ingin menjadi dan hidup seperti itu.
+Cheatnya adalah yang luar biasa bahkan di antara kita 13. Karena dia disebut Brave, Souichi sekuat itu. Karena dia sendiri ingin menjadi dan hidup seperti itu.
 
 Meski aku pikir akan lebih baik jika dia hidup seperti anak kecil seusianya daripada dengan gelar berat seperti itu. Tapi dia bebas hidup sesuai keinginannya. Jika dia sendiri menginginkannya, Aku tidak akan menentangnya.
 
 “Aku pikir Renji-sama juga cukup kuat untuk tidak kalah melawan Souichi-sama?” (Fran)
 
-"Tidak mungkin. Jika aku bertarung sendirian di depan seperti itu, aku bisa paling banyak mengambil 2 goblin pada saat bersamaan. ”
+"Tidak mungkin. Jika aku bertarung sendirian seperti itu, aku bisa paling banyak mengalahkan 2 goblin pada saat bersamaan. ”
 
-Jika Aku bisa menyergap mereka, mungkin Aku bisa mengambil beberapa lagi tetapi Aku tidak bisa menagih langsung dan tak tertandingi seperti yang dilakukan Souichi. Pertama-tama, aneh untuk pergi dan melawan monster sendirian.
+Jika Aku bisa menyergap mereka, mungkin Aku bisa mengalahkan beberapa lagi tetapi Aku tidak bisa langsung dan tak tertandingi seperti yang dilakukan Souichi. Pertama-tama, aneh untuk pergi dan melawan monster sendirian.
 
 [Renji, aku juga ingin memotong sesuatu.]
 
@@ -336,7 +336,7 @@ Jika Aku bisa menyergap mereka, mungkin Aku bisa mengambil beberapa lagi tetapi 
 
 "??"
 
-Tolong jangan berikan insting Kau. Ini merepotkan.
+Tolong jangan kalah dengan instingmu. Ini merepotkan.
 
 Juga, karena dia tidak bisa mendengar suara Ermenhilde, Nona Francesca terlihat manis ketika dia memiringkan kepalanya dengan kebingungan ketika aku berbicara pada diriku sendiri.
 
@@ -350,7 +350,7 @@ Aku selalu memperlakukan Souichi dan Aya sebagai satu set sehingga rasanya tidak
 
 "Aya-chan dalam suasana hati yang sangat baik tetapi, apakah Kau mengatakan sesuatu padanya?" (Yayoi)
 
-"Yah, kita baru saja mengobrol santai." (Renji)
+"Yah, kita hanya mengobrol santai." (Renji)
 
 "Fuuun"
 
@@ -362,21 +362,21 @@ Tapi yah, benar-benar seperti itu. Kami hanya berbicara tentang masa lalu dan ju
 
 Jangan menyimpan dendam untuk itu.
 
-Ada saat-saat ketika aku meninggalkan Ermenhilde di kamarku dan pergi minum sendirian sementara kami juga bepergian. Aku tidak berpikir itu tidak biasa.
+Ada saat-saat ketika aku meninggalkan Ermenhilde di kamarku dan pergi minum sendirian ketika kami bepergian. Aku tidak berpikir itu tidak biasa.
 
-"Aya-sama tampaknya dalam suasana hati yang baik sejak pagi."
+"Aya-sama tampaknya dalam suasana hati yang baik sejak pagi."(fran)
 
 "Fuun, omong-omong, 'suasana hati yang baik' seperti apa dia?" (Renji)
 
-"Melompat-lompat, dan bersenandung dll, pada dasarnya."
+"Pada dasarnya, Melompat-lompat, dan bersenandung dll."
 
-Itu dia?
+Hanya itu?
 
 "Aya biasanya seperti itu setiap kali dia bahkan sedikit bahagia."
 
 [umu. Bagaimanapun juga dia itu imut.]
 
-Terlepas dari apakah itu lucu atau tidak, selama perjalanan kami dia akan seperti itu setiap kali sesuatu yang baik kurasa.
+Terlepas dari apakah itu imut atau tidak, kurasa selama perjalanan kami dia akan seperti itu setiap kali sesuatu yang baik terjadi.
 
 Meningkatkan sihirnya atau menemukan barang langka dll.
 
@@ -384,9 +384,9 @@ Apakah itu benar-benar istimewa seperti yang dikatakan Miss francesca atau Yayoi
 
 "Waa." (Yayoi)
 
-"Tidak ada yang terjadi yang seharusnya membuatmu menghela nafas atau aku juga tidak melakukan hal seperti itu?"
+"Tidak ada yang terjadi yang seharusnya membuatmu menghela nafas atau aku juga tidak melakukan hal seperti itu, kau tau?"(renji)
 
-Mengatakan itu, aku berlutut di tanah. Aku menemukan beberapa herbal yang kami cari. Itu masih jauh dari jumlah yang dibutuhkan untuk menyelesaikan pekerjaan kita, tetapi masih penting semangat rumput. Dengan hati-hati aku mencabutnya.
+Mengatakan itu, aku berlutut di tanah. Aku menemukan beberapa herbal yang kami cari. Itu masih jauh dari jumlah yang dibutuhkan untuk menyelesaikan pekerjaan kita, tetapi itu masih spirit grass yang penting. Dengan hati-hati aku mencabutnya.
 
 “Kejahatan hati nurani bukan? Renji-oniisan. "(Yayoi)
 
@@ -394,27 +394,27 @@ Mengatakan itu, aku berlutut di tanah. Aku menemukan beberapa herbal yang kami c
 
 "Hm? Apa yang kalian bicarakan? ”(Souichi)
 
-Setelah mengalahkan semua goblin dan masih tidak bernafas, Souichi kembali.Di belakangnya adalah pria Peri dengan busur di tangannya. Melihat dua pria tampan berjalan bersama tentu saja sangat indah.
+Setelah mengalahkan semua goblin dan masih tidak kelelahan, Souichi kembali. Di belakangnya adalah pria Elf dengan busur di tangannya. Melihat dua pria tampan berjalan bersama tentu saja sangat indah.
 
 "Kita sedang berbicara tentang bagaimana pria tidak dapat memahami hati wanita."
 
-"Ah, benar, Aya sangat marah padaku karena alasan yang sama."
+"Ah, benar, Aya sangat marah padaku karena alasan yang sama."(souichi)
 
 "Percakapan seperti apa yang kalian lakukan saat menyelesaikan permintaan?" (Elf)
 
-[Serius.]
+[memanglah.]
 
-Elf dan Ermenhilde yang serius tampaknya takjub pada kami. Dia bahkan mengangkat bahu dan menghela nafas. Di tangannya ada rumput Roh beberapa kali lebih banyak dari milikku. Dia benar-benar orang yang serius.
+Elf dan Ermenhilde yang serius tampaknya takjub pada kami. Dia bahkan mengangkat bahu dan menghela nafas. Di tangannya ada spirit grass beberapa kali lebih banyak dari milikku. Dia benar-benar orang yang serius.
 
-"Karena Kakak, itu tidak bisa membantu."
+"Karena itu abang, yah mau gimana lagi."(yayoi)
 
-"... Itu sangat menyakitkan untuk mendengarnya sendiri, kau tahu?"
+"... Itu sangat menyakitkan mendengarnya, kau tahu?"
 
-Yah, yang sedang kita bicarakan adalah Souichi. Dia tipe yang selalu terlalu dekat. Sedemikian rupa sehingga Kau harus mendorongnya sedikit.
+Yah, yang sedang kita bicarakan adalah Souichi. Dia tipe yang selalu terlalu dekat. Sedemikian rupa sehingga Kau harus mendorongnya sedikit lebih jauh.
 
 Meskipun itu baik untuk jujur ​​dengan apa yang Kau pikirkan, tetapi itu menyusahkan jika Kau terlalu jujur. Meskipun dia tampaknya telah matang sedikit dari itu.
 
-"Tidak apa-apa. Saudaraku, Kau memiliki Aku setelah semua. "(Yayoi)
+"Tidak apa-apa. abangku, Kau memilikiku. "(Yayoi)
 
 “Yah, apa yang bisa kulakukan dengan itu ………” (souichi)
 
@@ -422,11 +422,11 @@ Meskipun itu baik untuk jujur ​​dengan apa yang Kau pikirkan, tetapi itu men
 
 Sungguh, Souichi sama sekali tidak mengerti wanita.
 
-Yah, Yayoi-chan juga unik. Sepertinya seperti biasa, seseorang harus memberitahu mereka untuk merasa lega dan semacamnya. (T / N: Aku agak mengambil kebebasan dengan kalimat ini karena kalimat yang sebenarnya tidak masuk akal dalam bahasa Inggris. Ini aneh di jap juga tho. Abaikan. Tidak terlalu penting)
+Yah, Yayoi-chan juga unik. Sepertinya seperti biasa, seseorang harus memberitahu mereka untuk merasa lega dan semacamnya.
 
 Aku akan menyerahkan hal-hal ini kepada Utano-san. Bagaimanapun juga dia seorang wanita. Aku tidak tahu apa yang harus Aku katakan.
 
-"Kalian berdua benar-benar rukun."
+"Kalian berdua benar-benar akrab."(renji)
 
 “Ya!” (Yayoi)
 
@@ -434,17 +434,17 @@ Aku akan menyerahkan hal-hal ini kepada Utano-san. Bagaimanapun juga dia seorang
 
 Ketika Souichi mengatakan itu, senyum Yayoi-chan sempit. Miss Francesca juga memberikan senyum bermasalah.
 
-Apa ini? Meskipun Aku telah berbicara sampai sekarang juga tetapi entah bagaimana ini terasa lebih seperti piknik saja.
+Apa ini? Meskipun Aku telah berbicara sampai sekarang tetapi entah bagaimana ini terasa lebih seperti piknik saja.
 
 Padahal alasan utamanya adalah Souichi ada di sini. Bagaimanapun, tidak ada bahaya. Goblin bahkan tidak berbahaya lagi. Binatang buas lain juga menjauh karena aura Pedang Suci.
 
-Sambil mengumpulkan Roh Rumput dengan Elf, aku menghela nafas. Adalah baik untuk hidup seperti anak-anak. Ya.
+Sambil mengumpulkan spirit grass dengan Elf, aku menghela nafas. sangat baik untuk hidup seperti anak-anak. Ya.
 
-"Katakanlah, selama perjalanan untuk penaklukan Dewa Setan .." (elf)
+"Katakan, selama perjalanan untuk penaklukan Dewa Iblis .." (elf)
 
 "Hm?
 
-Atas pertanyaan Elf guy, aku mengangguk untuk melanjutkan setelah satu detik.
+Atas pertanyaan Elf, aku mengangguk.
 
 "Apakah kalian seperti ini bahkan saat itu?"
 
@@ -452,13 +452,13 @@ Atas pertanyaan Elf guy, aku mengangguk untuk melanjutkan setelah satu detik.
 
 Tidak peduli seberapa rendah bahaya dari permintaan ini, suasana riang seperti ini tidak normal.
 
-Di tempat pertama, itu aneh untuk riang bahkan ketika goblin datang menyerang.
+Pada dasarnya, itu aneh untuk riang bahkan ketika goblin datang menyerang.
 
 "Tidak. Waktu itu, kami tidak punya waktu luang. ”(Renji)
 
-Aku ingat perjalanan yang menyakitkan, menyakitkan dan membuat Aku menangis berkali-kali.
+Aku ingat perjalanan yang menyakitkan, menyakitkan dan membuatku menangis berkali-kali.
 
-Sekarang, itu hanya terasa nostalgia — itu telah menjadi kenangan berharga Aku.
+Sekarang, itu hanya terasa nostalgia — itu telah menjadi kenangan berhargaku.
 
 "Itu membuatku lega." (Elf)
 
@@ -466,27 +466,27 @@ Sekarang, itu hanya terasa nostalgia — itu telah menjadi kenangan berharga Aku
 
 Ketika Aku bertanya, kali ini Elf mengangkat bahu.
 
-"Jika Kau mengatakan bahwa Kau bepergian dengan suasana hati ini dan telah membunuh Dewa Setan ........ aku akan kehilangan kata-kata."
+"Jika Kau mengatakan bahwa Kau bepergian dengan suasana hati ini dan telah membunuh Dewa Iblis ........ aku akan kehilangan kata-kata."
 
 "Yah, itu benar."
 
-Pada saat itu, kami berada di batas kami setiap hari. Kami belum pernah melakukan perjalanan seperti itu, kami bahkan tidak terbiasa berjalan lama.
+Pada saat itu, kami berada diambang batas kami setiap hari. Kami belum pernah melakukan perjalanan seperti itu, kami bahkan tidak terbiasa berjalan lama.
 
-Setelah dipanggil ke dunia ini, kami dilatih oleh Perintah Ksatria dan dipercayakan dengan harapan dan harapan semua orang.
+Setelah dipanggil ke dunia ini, kami dilatih oleh knight order dan dipercayakan dengan harapan semua orang.
 
 "Tapi, tidak apa-apa sekarang."
 
-"Begitukah?" (Peri)
+"Begitukah?" (Elf)
 
 "Untuk tertawa bahagia, untuk dunia seperti itu, kita telah bekerja sangat keras."
 
-Setelah mengatakan, bahkan Aku merasa itu adalah kata yang bodoh untuk dikatakan. Jika mantan rekan Aku ada di sini, mereka semua akan mengatakan bahwa itu tidak cocok untuk Aku mengatakan itu sama sekali.Aku menyadari itu.
+Setelah mengatakan, bahkan Aku merasa itu adalah kata yang bodoh untuk dikatakan. Jika mantan rekanku ada di sini, mereka semua akan mengatakan bahwa itu tidak cocok untukku mengatakan itu sama sekali. Aku menyadari itu.
 
 Aku tahu masih banyak yang masih belum bisa tertawa.
 
 Ada terlalu banyak anak yatim di dunia ini. Terlalu banyak yang kehilangan orang yang mereka cintai. Kami menyelamatkan dunia tetapi masih ada orang yang belum diselamatkan. Tetapi tetap saja.
 
-"—–Aku mengerti." (Elf)
+"—–Begitu." (Elf)
 
 [umu. Betul.]
 
@@ -494,4 +494,4 @@ Atas kata-kata Ermenhilde, aku mulai tertawa.
 
 Ya itu benar. Persis seperti itu.
 
-Saat ini, pada saat ini, akhirnya, aku merasa senang aku datang ke Magic City.Aku senang telah bertemu Souichi dan yang lainnya. Aku merasakan itu dari lubuk hati Aku.
+Saat ini, pada saat ini, akhirnya, aku merasa senang aku datang ke Magic City. Aku senang telah bertemu Souichi dan yang lainnya. Aku merasakan itu dari lubuk hatiku.
