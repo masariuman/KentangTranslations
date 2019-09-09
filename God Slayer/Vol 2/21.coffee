@@ -1,4 +1,4 @@
-Bab 21 Kenang-kenangan dari Grand Magus (1)
+Bab 21 Kenangan dari Grand Magus (1)
 
 Fuyou Aya tidak memiliki ayah.
 
