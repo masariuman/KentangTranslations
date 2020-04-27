@@ -152,3 +152,5 @@ Seorang pahlawan tidak menghentikan perjalanannya. Lebih tepatnya karena mereka 
 Ruti bergumam pelan.
 
 Waktu fajar masih sangat lama.
+
+<gambar>
