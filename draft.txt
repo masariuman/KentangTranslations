@@ -1,79 +1,415 @@
-「よーし、雨戸全部閉めたな。庭の薬草も吹き飛びそうなものは全部回収したし、残りはまだ採取できない、まぁだめになっても仕方がない」
-「看板とか壊れちゃいそうなものは全部はずしたよ」
+It was a stormy day.
 
-　ゾルタンに嵐が来た。
-　南洋で生まれた嵐は、世界の果て壁に沿って南から北西へと抜ける。
-　秋口にくるのは少し珍しいが、数年に一度程度にはよくあることだ。
+It was rare that a storm would reach the village.
 
-「じゃあ次は洗面所ね！」
+Therefore, there were many homes not sturdy enough to withstand a storm and we gathered everyone to the village elder’s house that also functioned as a meeting place to seek refuge.
 
-　すでに外は風が強くなっている。
-　空は黒く、雨が降り出すのも時間の問題だろう。
+ 
 
-「鉱竜気象台の発表では、明日の夜明けくらいから本格的に嵐の中に入るんだっけか？」
-「うん、若い鉱竜達が飛び回って警報出しているよ」
+The wind howled outside. I could hear the sound of something getting blown away outside. There was an intense clap of thunder and the children around us who evacuated in the same way screamed.
 
-　光の四老竜の1人、黒く輝く雲母うんもの身体を持つ老鉱竜エンシェント・ミネラル・ドラゴン『フユ』は、ハイヘルム山の山頂に水晶の天文台を含む鉱竜大学を設立したアヴァロン大陸最高の地学者だ。
-　若き鉱竜ミネラル・ドラゴンや地学者を志す人やエルフの若者などが訪れ、彼らに老いた鉱竜は惜しみなく知識を伝えている。
-　老鉱竜大学にある部門の一つである、老鉱竜気象台は、アヴァロン大陸全体の気象を観測し、災害を事前に警告する活動を行っている。
-　嵐に悩むゾルタンは、この老鉱竜気象台の情報が欠かせない。
-　船乗りにしても、農家にしても天候は重要な要素である。大陸中の国々が、老鉱竜が運営する学問の城を援助し、不可侵かつ有事の際は各国が共同して防衛にあたることを宣言していた。
+ 
 
-　鉱竜は、ドレイク種ではなくドラゴン種である。
-　彼らは賢く、自然科学を研究することを好む。
-　その鱗は雲母でできており、ドラゴンをよく知らない者からはストーンドラゴンと呼ばれることもあるが、その場合彼らは、「自分は鉱竜ミネラル・ドラゴンだ」　と、強く間違いを訂正する。その際は、自分の鱗を相手の目の前に突きつけ、その黒い輝きをしっかりと説明するのだ。
-　光の四竜にとって、鱗の輝きは誇りである。
+At that time, I was eight years old. My younger sister Ruti was six years old.
 
-　いろいろな場所で研究室を作り何十年も研究を続けることから、光の竜の中でも、輝竜ラディアント・ドラゴン達と並んで身近なドラゴンだろう。
+Due to our special Divine Protections, the two of us were a lot calmer compared to the children our age.
 
-　輝竜は、未来の英雄の門出を祝福するのを生きがいとする。幼い子供が冒険に出るとき、輝竜は人間に化けてそっと手助けをし、冒険の中で子供が育つのを楽しむのだ。これも比較的よく見かけるドラゴンだ。
-　まぁ口の悪い者に、ショタコンドラゴンだのロリコンドラゴンだの言われていたりするが。
-　俺も騎士団見習いの頃に一緒に冒険したことがあった。
-　なにか嬉しいことがあるたびに空気を読まず歌い出すもんで苦労したが、というかなんで子供の俺が気を使わなきゃならなかったんだ……まぁいいやつだったよ。確か名前はアルハゼンと名乗っていたっけ。
+ 
 
-　残りの光の竜は、工学者である蒸気竜スチーム・ドラゴンと法の番人である雷竜ライトニング・ドラゴンだ。
+“Motheerrrr!”
 
-　暗黒大陸由来の闇の四竜には、虚無主義の真空竜バキューム・ドラゴン。
-　停滞と破壊の塩竜ソルト・ドラゴン。
-　子供拐さらいの灰竜アッシュ・ドラゴン。
-　土地を汚染する不浄竜ダスト・ドラゴンがいる。
+ 
 
-　ドラゴンは、人、エルフに次ぐ第三の主要種族として、このアヴァロン大陸で暮らしている。もっとも、このゾルタンにはいないようだ。ドラゴンにも魅力のない土地として見えるのだろうか。
+A slight distance away, a seated girl the same age as Ruti cried out and clung to her mother. “You’re already six years old!” The mother was a little concerned with the gazes around her but she still gently patted the head of the girl clinging to her arm.
 
-「ほらそこ！　サボってないで手を動かす！」
+ 
 
-　怒られてしまった。
+” …… ”
 
-「嵐が来たら水道はダメになるんだから、今のうちに水を貯めておかないと」
+ 
 
-　河川から水を引いている水道は嵐の前に河川側の流入口に蓋をされる。泥水が溢れることになるし、激流で破損することもあるからだ。
-　井戸も大雨で濁りしばらくは使えない。
-　水源豊富なゾルタンでありながら、嵐の直後は水不足になるのだ。その対策として、俺は水道が出るうちに水を袋や樽につめ、生活用水の備蓄をしているというわけだ。
-　どの家庭でも同じことを行っているため、水の量はちょろちょろとしか流れない。時間だけが過ぎていく虚しい作業だ。
+Ruti looked at that situation with her usual gaze … the people around said that the gaze was very cold but that was not true, her emotional expressions were just hard to understand … she stared intently at that scene.
 
-「って、昨日のうちにやろうって言ってたのに、ゴンズと一緒に遊びに行っちゃったのレッドじゃない！」
-「だって誘われたから……」
+I also looked around and saw many children similarly holding hands with their parents or siblings.
 
-　大工のゴンズは嵐の後は街中の家の修理で大忙しになる。さすがにこの時ばかりは怠惰なゾルタン人も休日を返上して働くことになる。
-　そのため、ゴンズは嵐が近づくと、先に休もうなど言い出して遊びだすのだ。タンタの教育に悪い！
+Everyone was afraid.
 
-「あなたも一緒に遊びに行ったんでしょうが！」
+ 
 
-　文句を言いながら、ぴょんとリットは俺の背中にしがみついた。
+“Ruti.”
 
-「さあ働け働け」
+“What is it?”
 
-　騎手の真似をするように俺の尻を叩くふりをする。
+“Are you not afraid?”
 
-「へいへい、働きますともリット様」
-「……昨日いなかった分、私のことも構ってよね」
-「分かってるよ、どうせ嵐で明日か明後日まではどこにもいけないんだから」
+” … Of the wind? Of thunder? Or of the possibility of the building collapsing and crushing everyone?”
 
-　おっと、手が止まってしまった。
-　俺はぎゅっと腕に力を込めたリットの体温を感じつつ、黙って作業を続けた。
+ 
 
-　ん、なんかこの感じ、昔同じようなことしたような……。
+She indifferently asked to confirm what I meant with calm and beautiful eyes and I slowly patted my younger sister’s head.
 
-（……あっ、思い出した）
+ 
 
-　あの時も嵐が来ていたな。ゾルタンを襲う嵐に比べたらずっと弱いものだったけれど、嵐に慣れていない、故郷の村人達は慌ててたっけ……。
+“Any one of that, are you afraid at this moment?”
+
+“Nope, after all, I fear nothing.”
+
+ 
+
+“I fear nothing.” Ruti once had a huge fight when she said that same phrase and clashed with a 13-year-old bully.
+
+Even though she possesses the Divine Protection of the Hero, Ruti, a child with level 1 Divine Protection and no equipment nor combat experience, would have difficulty fighting against a bully leader, a youth who developed early with level 3 Divine Protection of the Warrior, though armed with just a club-like weapon, a thick cloth as armor and an old wooden shield, so she got beaten with the club and came home.
+
+Even though Ruti actually possesses complete immunity to fear since birth and she only said that with that meaning in mind.
+
+ 
+
+… Of course, after that I made that bully leader suffer the same amount of pain … well, maybe about 1.5 times … no, 2 times the pain, yup, probably about that much and had him apologize in front of Ruti.
+
+Thanks to that, I ended up getting treated as the bully leader for some time after that. It was a hassle so I ordered an 11-year-old boy with the Divine Protection of the Cavalier to return the situation to its original state.
+
+From then onward, the former bully leader behaved himself and never resorted to violence. He enjoyed violence not because of his Divine Protection but because he had never had the experience of losing in a fight.
+
+ 
+
+“There’s nothing Ruti fears huh?”
+
+“Onii-chan knows right?”
+
+“Yup.”
+
+ 
+
+Ruti tilted her head and showed that she couldn’t understand my intentions.
+
+ 
+
+“Actually.”
+
+“?”
+
+“I am afraid.”
+
+“Really?”
+
+“Yes. Are you surprised?”
+
+ 
+
+Ruti showed a slightly troubled expression.
+
+She still did not have complete immunity to confusion at that time. That was why I thought she could be surprised.
+
+ 
+
+“I am not surprised.”
+
+“I see, you’re not surprised huh?”
+
+“Yup.”
+
+“Then, I’ll get back to topic. I am afraid … could you hold my hand?”
+
+“Me?”
+
+“Yes, Ruti’s hand.”
+
+“Sure.”
+
+ 
+
+I grasped Ruti’s hand.
+
+Regardless of how overwhelming the Divine Protection residing in her body was, that was the hand of a small girl.
+
+ 
+
+“Are you not afraid anymore?”
+
+“Yup, I’m no longer afraid.”
+
+“That’s great.”
+
+ 
+
+Ruti smiled gently. Others … only mothers and fathers will understand the cuteness of such a smile. It is such a waste.
+
+That was why I hogged it for myself. Until the day Ruti meets a person who can understand that smile.
+
+ 
+
+“Sorry, I lied when I said I was afraid.”
+
+“A lie?”
+
+“I’m totally not afraid.”
+
+“I see.”
+
+ 
+
+Ruti tilted her head further as she could not understand more and more.
+
+ 
+
+“I just wanted to hold Ruti’s hand.”
+
+“My hand?”
+
+“Do you hate it?”
+
+“I don’t. But why?”
+
+“There’s no reason.”
+
+“None?”
+
+“That’s right, I have times I want to hold Ruti’s hand for no particular reason.”
+
+” … Why?”
+
+“There’s no reason … but, people do actions that have no reasons behind them.”
+
+“Actions with no reasons.”
+
+“Yup, I grasped Ruti’s hand for no particular reason. That’s why, if you have any time you have to hold my hand for no reason, you can do so at any time.”
+
+“I see …”
+
+ 
+
+Ruti stared at my hand that was connected to hers.
+
+ 
+
+“Onii-chan.”
+
+“Hm?”
+
+“I love Onii-chan.”
+
+ 
+
+That was rare.
+
+Perhaps that was the first time Ruti expressed words of affection toward anything.
+
+ 
+
+“Thank you, I’m happy.”
+
+“Why?”
+
+“Eh?”
+
+“I am the one who said I love Onii-chan? Why is Onii-chan thanking me?”
+
+ 
+
+I gently rustled Ruti’s hair.
+
+Her striking blue hair brilliantly reflected the candlelight as I pat her head.
+
+ 
+
+“Ruti, I love you too.”
+
+“Mm.”
+
+ 
+
+I have repeated those words to Ruti countless times.
+
+In fact, my younger sister was unbearably cute.
+
+ 
+
+“Ruti smiles when I say those words.”
+
+ 
+
+Ruti looked shocked as she cutely touched her own face.
+
+That gesture was also cute and I smiled gently.
+
+ 
+
+“Smiling means happiness right?”
+
+“Probably.”
+
+“In other words, I am the same too, I feel happy when Ruti say you love me. I’m smiling now right?”
+
+“Yup.”
+
+“That’s why, thank you.”
+
+ 
+
+Ruti deliberately pondered on the meaning of those words to understand them.
+
+ 
+
+“All right.”
+
+“You understand now?”
+
+“Onii-chan, can I do things that have no meaning too?”
+
+“Sure.”
+
+ 
+
+Ruti let go of my hand.
+
+Eh? Did she not like it?
+
+ 
+
+But Ruti went around my back and hugged my head as she clung to me.
+
+ 
+
+“This is better … is it all right?”
+
+“Sure, you can do this anytime.”
+
+“I see.”
+
+ 
+
+She tightened her hug. I could feel her body warmth transmitted through my back.
+
+ 
+
+“Onii-chan.”
+
+“What is it?”
+
+ 
+
+I looked back and naturally Ruti’s face was there.
+
+ 
+
+“Thank you.”
+
+ 
+
+Ruti showed a ‘full-faced smile’ that only I could understand.
+
+For people who could understand that smile, it was a cute smile that could absolutely make them fall in love.
+
+The person who can marry Ruti is super lucky. I’m starting to feel envious.
+
+ 
+
+“Onii-chan, will you always be with me?”
+
+” … Sorry, I cannot do that.”
+
+“I see.”
+
+ 
+
+After this storm passes. I will have to head to the town of Andaru where the Knight that scouted me awaits in order for me to become a Knight.
+
+As far as I know, the monsters in the vicinity of this village do not contribute well to the growth of Divine Protections. Even though I had earnestly hunted monsters from the age of six, my level had only raised from 31 to 33. An Owlbear is too weak.
+
+ 
+
+In preparation for the time I journey with Ruti, I must become as strong as I possibly can.
+
+I do not know until when I can fight alongside her but … until the day Ruti is surrounded by lots of companions. Even if the opponent is the strongest Demon, I must be able to fight it.
+
+ 
+
+“But, if Ruti has anything you don’t want to do, you can call me anytime. I will do it for you.”
+
+“I know that.”
+
+“Really?”
+
+“You have told me many times.”
+
+“I’ll be sad if you forget about me after all?”
+
+ 
+
+A small ear was pressed to my back and Ruti stayed still.
+
+ 
+
+“I’ll come back when I get a break. What do you want for a souvenir?”
+
+“Honeyed milk.”
+
+ 
+
+Ruti who was leaning on my back muttered that.
+
+ 
+
+☆☆
+
+ 
+
+The journey to the Demon Lord and the slow life at the frontier named Zoltan.
+
+I believed that our paths would never cross again. But,
+
+ 
+
+☆☆
+
+ 
+
+“Are you searching for Gideon?”
+
+ 
+
+A young man with black hair and dark skin said that to Danan.
+
+ 
+
+Danan never had any talent for tracking and was at a loss for where to head without obtaining any leads so he was drinking in a tavern at the town Gideon broke off from them. He could not find information on Gideon no matter where he looked.
+
+ 
+
+“What?”
+
+ 
+
+Danan was just feeling pleasant from being drunk so he glared at the youth. Actually, he did not mean to glare but Danan’s 「Eyes of Intimidation」 skill always spontaneously activated. Or rather, without consciously preventing it, his 「Eyes of Intimidation」 would activate on its own.
+
+ 
+
+However, the youth was unruffled.
+
+ 
+
+“You’re strong!”
+
+“I cannot compare to you but my sword is slightly serviceable.”
+
+“Hooooh.”
+
+“Leaving that aside, you’re looking for Gideon right?”
+
+“What about it, do you know Gideon’s whereabouts?”
+
+“No no, I have no idea. I just want to find Gideon too.”
+
+“What”
+
+Dana woke up from his drunken stupor.
+
+He lightly shook his fist and glared at the youth in combat preparation.
+
+ 
+
+“Shall we search for him together? I believe the effectiveness would be better if two people search together.”
+
+ 
+
+The youth merely flashed a smile.

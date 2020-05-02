@@ -1,20 +1,20 @@
 Bab 22 The GodSlayers (5)
 
-Di restoran …… atau lebih tepatnya, aula makan malam dimaksudkan untuk massa di mana Aya dan yang lainnya sedang menunggu memiliki sangat sedikit pelanggan lain.
+Di restoran …… atau lebih tepatnya, tempat makan malam yang biasanya ramai akan orang-orang di mana Aya dan yang lainnya sedang menunggu saat ini, memiliki sangat sedikit pelanggan lain.
 
-Jumlah meja kayu banyak dan terawat dengan baik. Ada juga piano besar tetapi tidak dimainkan sekarang jadi itu cukup tenang sekarang.
+Jumlah meja kayu sangat banyak dan terawat dengan baik. Ada juga piano besar tetapi tidak sekarang tidak dimainkan jadi situasi cukup tenang sekarang.
 
 Di konter, seorang gadis seusia Aya menerima pesanan dan di belakang meja itu, di dalam dapur, 2 orang dewasa, mungkin orang tua gadis itu membuat makanan.
 
-Suasana terasa sangat nyaman ketika kami duduk di meja dan melihat-lihat menu. Ngomong-ngomong, Aya duduk di depanku dan Souichi dan Yayoi ada di samping.
+Suasana terasa sangat nyaman ketika kami duduk di meja dan melihat-lihat menu. Ngomong-ngomong, Aya duduk di depanku dan Souichi dan Yayoi ada di sampingku.
 
 “Ini restoran dengan suasana yang cukup bagus. Apakah kalian sering datang ke sini? "(Renji)
 
-"Ya. Ini penuh dengan siswa seusia kami di sore hari tetapi jumlah pelanggan di malam hari langka. Karena kami cukup terkenal, kami sering datang kesini untuk makan malam. ”
+"Ya. Ini penuh dengan siswa seusia kami di sore hari tetapi jumlah pelanggan di malam hari sangat langka. Karena kami cukup terkenal, kami sering datang kesini untuk makan malam. ”
 
 "Pasti sulit menjadi terkenal ya?"
 
-“Juga, makanan di sini sangat enak. Kuantitas yang dilayani juga baik. "
+“makanan di sini juga sangat enak. Kuantitas yang dihidangkan juga baik. "
 
 [Houu.]
 
@@ -24,31 +24,31 @@ Suasana terasa sangat nyaman ketika kami duduk di meja dan melihat-lihat menu. N
 
 Tapi, Aku rasa itu masuk akal. Aku melihat ke beberapa pelanggan di sini tetapi mereka semua masih muda. Mereka mungkin belum genap 20 tahun.
 
-Itu mungkin karena mereka tidak menyajikan banyak alkohol yang tidak populer dengan kerumunan malam. Ketika Aku melihat menu sambil mendengarkan Souichi, Aku melihat bahwa hanya beberapa minuman yang disebutkan.
+Itu mungkin karena mereka tidak menyajikan banyak alkohol makanya tidak populer dimalam hari. Ketika Aku melihat menu sambil mendengarkan Souichi, Aku melihat bahwa hanya beberapa minuman yang ada.
 
-Bahkan desa-desa memiliki 1 atau 2 lebih dari ini. Berpikir bahwa restoran ini mungkin ditujukan untuk anak di bawah umur - siswa, itu jauh lebih masuk akal.
+Bahkan di desa paling tidak memiliki 1 atau 2 lebih dari ini. Mungkin restoran ini ditujukan untuk anak di bawah umur / siswa, itu jauh lebih masuk akal.
 
 Di dunia ini, tidak ada batasan usia untuk minum. Selama mereka minum secukupnya dan tidak menimbulkan masalah bagi orang lain, siapa pun kecuali anak kecil diperbolehkan minum.
 
-Faktanya tidak ada botol alkohol di belakang meja, atau tempat apa pun yang terlihat, mereka pasti menarik bagi kerumunan siswa.
+Fakta tidak ada botol alkohol di belakang meja, atau dimanapun yang terlihat, mereka pasti menarik bagi kerumunan siswa.
 
 “Tapi, bukankah Kau juga kesulitan berbelanja secara normal?” (Renji)
 
 "Itu tidak masalah, kan?" (Souichi)
 
-"Itu mungkin karena abang tidak benar-benar berbelanja terlalu banyak ... Jika Kau pergi ke toko pedagang besar, kami pasti menonjol." (Yayoi)
+"Itu mungkin karena abang tidak berbelanja terlalu banyak ... Jika Kau pergi ke toko besar, kami pasti menonjol." (Yayoi)
 
 "Eh, benarkah?" (Souichi)
 
 “Ya… .Souichi tidak terlalu peduli dengan penampilannya dan cukup banyak tinggal di rumah sepanjang waktu dan hanya pergi ke toko kecil sehingga Kau mungkin tidak menyadarinya. Wajah kita sangat terkenal. ”(Aya)
 
-“…… Aku mengerti.” (Souichi)
+“…… Begitu.” (Souichi)
 
 "Souichi, tidakkah Kau pergi berbelanja dengan pacarmu atau seseorang?" (Renji)
 
 "Aku tidak punya pacar."
 
-Mengatakan itu, dia menjatuhkan bahunya. Dan Aku hanya bisa merasa terkejut akan hal itu.
+Mengatakan hal itu, dia menjatuhkan bahunya. Dan Aku hanya bisa merasa terkejut akan hal itu.
 
 "Benarkah?" (Renji)
 
@@ -66,13 +66,13 @@ Atau mungkin mereka pikir dia berkencan dengan Aya? Mereka berdua adalah GodSlay
 
 Bahkan Aku pikir itu akan menjadi hubungan alami bagi mereka.
 
-Kedekatan Souichi dan Aya sangat samar-samar. Lebih dekat dari teman normal tetapi agak jauh untuk menjadi kekasih. Mereka berdua saling memanggil teman masa kecil atau teman dekat tapi Aku merasa itu sedikit berbeda. Dan itu tidak seperti mereka tidak sadar satu sama lain juga.
+Kedekatan Souichi dan Aya sangat samar-samar. Lebih dekat dari teman normal tetapi agak jauh untuk menjadi kekasih. Mereka berdua saling menyebutnya teman masa kecil atau teman dekat tapi Aku merasa itu sedikit berbeda. Dan itu tidak seperti mereka tidak sadar satu sama lain juga.
 
 Yah, Aku tidak punya teman masa kecil atau sahabat seperti itu jadi Aku tidak tahu apa jawaban yang benar.
 
 "Karena Kau terkenal, apakah mereka merasa gugup saat berbicara denganmu?" (Renji)
 
-"Sesuatu seperti itu. Karena aku seorang pahlawan, Pembunuh Dewa. Satu-satunya yang datang untuk mengobrol adalah gadis-gadis dari keluarga bangsawan terkenal yang namanya bahkan tidak kuketahui. ”(Souichi)
+"Yaaah seperti itu. Karena aku seorang pahlawan, Pembunuh Dewa. Satu-satunya yang datang untuk mengobrol adalah gadis-gadis dari keluarga bangsawan terkenal yang namanya bahkan tidak kuketahui. ”(Souichi)
 
 "Bukankah itu baik-baik saja? Bagaimanapun, Kau akan hidup dalam kemewahan. "
 
@@ -82,29 +82,29 @@ Apakah begitu? Aku memandangnya.
 
 “Sama seperti Renji-niichan, aku ingin melihat-lihat dunia. Dengan mataku sendiri. "
 
-"Yah, itu terdengar menyenangkan. Tapi Kau tidak seharusnya mencoba untuk hidup seperti aku. ”
+"Yah, itu terdengar menyenangkan. Tapi Kau tidak seharusnya mencoba untuk hidup sepertiku. ”
 
-[Ya, janganlah. Jika Kau mulai hidup seperti itu juga, Renji mungkin akan dikubur oleh Yuuko.]
+[Ya, jangan. Jika Kau mulai hidup seperti itu juga, Renji mungkin akan dikubur oleh Yuuko.]
 
 "...... Itu masa depan yang sangat masuk akal, jadi sungguh, tolong jangan."
 
 Aku mengangkat bahu.
 
-Mata pencaharian dari tangan ke mulut seperti itu. Dapatkan imbalan dari guild, makan dan kemudian tidur. Setelah mengumpulkan sedikit uang, pindah ke desa berikutnya.
+Mata pencaharian dari tangan ke mulut seperti itu, Dapatkan imbalan dari guild, makan dan kemudian tidur. Setelah mengumpulkan sedikit uang, pindah ke desa berikutnya.
 
 'Kebebasan' terdengar bagus tetapi ini adalah kehidupan tanpa tabungan sama sekali. Tidak ada jaminan apa yang akan terjadi setelah Aku menjadi tua.
 
-Jika Souichi benar-benar meniru gaya hidup itu, apa yang akan dilakukan Utano-san yang seperti ibu itu kepadaku ……. Persis seperti yang dikatakan Ermenhilde, Aku akan dikuburkan —- alangkah baiknya jika itu akan berakhir hanya dengan itu.
+Jika Souichi benar-benar meniru gaya hidup itu, apa yang akan dilakukan Utano-san yang seperti ibu itu kepadaku ……. Persis seperti yang dikatakan Ermenhilde, Aku akan dikubur —- alangkah baiknya jika itu akan berakhir hanya dengan itu.
 
-"Menjadi seorang petualang tidak cocok untukmu, Saudaraku."(yayoi)
+"Menjadi seorang petualang tidak cocok untukmu, Abang."(yayoi)
 
-"Benar. Sebagai permulaan Kau tidak memiliki kedewasaan dan kedahsyatan seorang petualang yang Kau butuhkan. Sudah berakhir bagi seorang petualang jika Kau diremehkan, Kau tahu? ”(Aya)
+"Benar. Pada dasarnya Kau tidak memiliki kedewasaan dan kehebatan seorang petualang yang Kau butuhkan. Seorang petualang jika diremehkan maka tandanya berakhir sudah petualanganmu, Kau tahu? ”(Aya)
 
 "... Terima kasih atas pendapat jujurmu, Yayoi, Aya."
 
-[kedahsyatan?]
+[kehebatan?]
 
-Apa yang ingin Kau katakan? Dengan ringan aku memukul Ermenhilde di dalam sakuku. Saat aku melakukan itu, Souichi merasa sedih dari komentar keduanya.
+Apa yang ingin Kau katakan? Dengan pelan aku memukul Ermenhilde di dalam sakuku. Saat aku melakukan itu, Souichi merasa sedih dengan komentar keduanya.
 
 Karena dia terlihat lucu, kami bertiga mulai tertawa.
 
@@ -112,13 +112,13 @@ Karena dia terlihat lucu, kami bertiga mulai tertawa.
 
 Ketika Aku mengatakan itu, ketiganya mengatakan nama-nama hidangan yang mereka inginkan.
 
-Mengesampingkan Aya, Yayoi-chan makan cukup banyak. Aku terkejut. Mungkin karena aku tidak benar-benar memiliki citra dirinya ketika kami bepergian bersama. Sebenarnya aku khawatir Aya tidak makan banyak. Souichi, bertentangan dengan penampilannya, makan cukup banyak tetapi Aya juga makan banyak.
+Mengesampingkan Aya, Yayoi-chan makan cukup banyak. Aku terkejut. Mungkin karena aku tidak benar-benar memiliki pandangan untuknya ketika kami bepergian bersama. Sebenarnya aku khawatir bahwa Aya tidak makan banyak. Souichi, bertentangan dengan penampilannya, makan cukup banyak tetapi Aya juga makan dengan porsi lumayan.
 
 "Apa yang terjadi, apakah Kau merasa tidak enak badan?"(renji)
 
 "Eh?" (Aya)
 
-"Bukan seperti itu, bukankah Kau makan lebih banyak sebelumnya?"
+"Yaaaa, bukankah Kau makan lebih banyak sebelumnya?"
 
 “Uu …… ..”
 
@@ -128,7 +128,7 @@ Aku akhirnya mengatakan sesuatu yang kurang enak. Memutuskan untuk tidak mengata
 
 Bahu Souichi dan Yayoi gemetar ketika mereka berusaha menyembunyikan tawa mereka dan kemudian Souichi sendiri tiba-tiba jatuh mendatar di atas meja. Mungkin, dia dipukul di bawah meja oleh Aya.
 
-[Anak-anak harus makan lebih banyak atau Kau tidak akan tumbuh, tahu?]
+[Anak-anak harus makan lebih banyak atau Kau tidak akan tumbuh dengan baik, tahukah kamu?]
 
 "Kau harus tutup mulut sebentar." (Renji)
 
@@ -138,7 +138,7 @@ Bahu Souichi dan Yayoi gemetar ketika mereka berusaha menyembunyikan tawa mereka
 
 Ermenhilde, kaulah yang kasar.
 
-Dan Yayoi akhirnya tidak bisa menahan diri dan tertawa, lalu suara kecil terdengar. Mungkin, Souichi ditendang lagi karena tubuhnya menggigil sesaat.
+Dan Yayoi akhirnya tidak bisa menahan diri dan tertawa, lalu suara kecil terdengar. Mungkin, Souichi ditendang lagi karena tubuhnya bergetar sesaat.
 
 Aku hanya bisa menggaruk pipiku.
 
@@ -162,7 +162,7 @@ Sambil makan, kami berbicara tentang berbagai hal. Kehidupan sekolah mereka, per
 
 Sebelum kami menyadari, kami sudah makan segalanya dan kemudian memesan makanan penutup.
 
-Seperti yang diharapkan, jumlah yang dia pesan tidak memuaskannya karena Aya makan cukup banyak makanan penutup. Yah, aku cukup sensitif untuk benar-benar mengatakan itu dengan keras. Sudah seharusnya Aku bertindak seolah-olah Aku tidak melihat apa-apa, pikirku. Souichi yang melakukan itu dengan suara keras harus jatuh ke meja lagi.
+Seperti yang diharapkan, jumlah yang dia pesan tidak memuaskannya karena Aya makan cukup banyak makanan penutup. Yah, aku cukup sensitif untuk tidak mengatakan itu dengan keras. Sudah seharusnya Aku bertindak seolah-olah Aku tidak melihat apa-apa, pikirku. Souichi yang melakukan itu dengan suara keras jatuh ke meja lagi.
 
 "Sungguh, jenggot tidak cocok untukmu."
 
@@ -176,37 +176,37 @@ Dan untuk beberapa alasan, topik tersebut bergeser ke janggutku.
 
 Apakah jenggotku benar-benar layak menjadi topik pembicaraan? Juga, melihat Ermenhilde senang mendapatkan lebih banyak kawan yang melawanku juga menjengkelkan.
 
-Dan sepertinya janggutku tidak disukai oleh Aya dan yayoi-chan. Dan tersisa Souichi, aku bertanya-tanya apakah dia menyadari bahwa mengatakannya seperti itu mengubah makna di balik kalimat itu cukup banyak.
+Dan sepertinya janggutku tidak disukai oleh Aya dan yayoi-chan. Dan tersisa Souichi, aku bertanya-tanya apakah dia menyadari bahwa mengatakannya seperti itu dapat mengubah makna di balik kalimat itu.
 
-"Ketika aku dalam tampilan ceroboh ini, aku terlihat seperti seorang petualang normal sehingga itu bekerja untukku."
+"Ketika aku berpenampilan begini, aku terlihat seperti seorang petualang normal sehingga itu cocok untukku."
 
 “Aa, begitu. Jadi itu seperti penyamaran. ”
 
 Bukan hanya itu, itu menyakitkan untuk mencukur bersih juga. Dunia ini tidak memiliki hal-hal seperti krim cukur dan alat cukur sehingga Kau harus menggunakan pisau untuk melakukannya. Itu sangat berbahaya. Sering kali Aku malah memotong pipi atau leherku sendiri.
 
-Ketika Aku mulai berhati-hati akan hal itu, bercukur mulai terasa menyakitkan dan Aku malah berakhir dengan janggut ini. Akibatnya Aku menyadari bahwa Aku mulai diterima sebagai petualang normal.
+Ketika Aku mulai berhati-hati akan hal itu, bercukur mulai terasa merepotkan dan Aku malah berakhir dengan janggut ini. Akibatnya Aku menyadari bahwa Aku mulai diterima sebagai petualang normal.
 
-[Aku pikir dia hanya berpikir mencukur itu menyakitkan.]
+[Aku pikir dia hanya berpikir mencukur itu merepotkan.]
 
 Itu benar. Kau benar-benar mengenalku dengan baik.
 
-Yah, aku tidak bermaksud menerima yang sebenarnya dengan keras.
+Yah, aku tidak bermaksud menerimanya suara dengan keras.
 
-“Bahkan aku memikirkan berbagai hal Ermenhilde.” (Renji)
+“Bahkan aku memikirkan berbagai hal, Ermenhilde.” (Renji)
 
-[Aku bertanya-tanya berapa banyak dari itu benar ........ atau lebih tepatnya, itu normal bagi seseorang untuk menjaga penampilan pribadinya.]
+[Aku bertanya-tanya apakah itu benar ........ atau lebih tepatnya, itu normal bagi seseorang untuk menjaga penampilan pribadinya.]
 
 “…… .Aku tidak bisa membantahnya.”
 
 Aya dan Yayoi tidak menyukainya, mungkin aku harus mencukurnya dengan benar mulai sekarang.
 
-Aku masih menganggap itu menyakitkan tetapi perasaan tidak menunjukkan kepada anak-anak bahwa ceroboh jauh lebih besar. Karena Aku telah hidup malas selama satu tahun terakhir, mungkin Aku harus menggunakan ini sebagai kesempatan untuk memperbaiki gaya hidupku sendiri atau lebih tepatnya, setidaknya penampilanku. Aku mulai merasa seperti itu sambil memandangi anak-anak.
+Aku masih menganggap itu merepotkan tetapi perasaan untuk tidak menunjukkan kepada anak-anak sifat ceroboh jauh lebih besar. Karena Aku telah hidup malas selama satu tahun terakhir, mungkin Aku harus menggunakan ini sebagai kesempatan untuk memperbaiki gaya hidupku sendiri atau lebih tepatnya, setidaknya penampilanku. Aku mulai merasa seperti itu sambil memandangi anak-anak.
 
 Apakah ini efek energi masa muda? Saat berbicara dengan mereka bertiga ini, Aku juga merasa sedikit lebih energik.
 
 "Yah, aku akan mencoba untuk menjadi lebih proaktif." (renji)
 
-"Itu bendera 'tidak akan melakukannya' bukan?"
+"Itu tanda 'tidak akan melakukannya' bukan?"
 
 "Percayalah padaku walau sedikit, Aya."
 
@@ -214,7 +214,7 @@ Apakah ini efek energi masa muda? Saat berbicara dengan mereka bertiga ini, Aku 
 
 Apakah ada sesuatu dalam percakapan ini yang membuatnya malu?
 
-Saat dia mengalihkan pandangan dan menyembunyikan wajahnya, aku hanya bisa memiringkan kepalaku dalam kebingungan. Kali ini Aku benar-benar tidak mengerti. Sepertinya Souichi Juga sama bingung karena dia membuat wajah bingung ketika aku memandangnya.
+Saat dia mengalihkan pandangan dan menyembunyikan wajahnya, aku hanya bisa memiringkan kepalaku dalam kebingungan. Kali ini Aku benar-benar tidak mengerti. Sepertinya Souichi Juga sama bingungnya karena dia membuat wajah bingung ketika aku memandangnya.
 
 Yayoi-chan saja tertawa bahagia.
 
@@ -222,7 +222,7 @@ Yayoi-chan saja tertawa bahagia.
 
 "Be, benarkah?"
 
-Ketika aku mengatakan itu, Brave-sama menatapku dengan gembira. Akankah jenggot bahkan cocok dengan wajahnya yang Cantik? …… Saat membayangkan, tidak mungkin. Aku mengalihkan pandanganku darinya. Ada batas berapa banyak jenggot yang tidak cocok untuk wajah pria.
+Ketika aku mengatakan itu, Brave-sama menatapku dengan gembira. Apakah jenggot bahkan cocok dengan wajahnya yang Cantik? …… Saat membayangkan, tidak mungkin. Aku mengalihkan pandanganku darinya. Ada berapa pria yang tidak cocok dengan janggut.
 
 Jika Souichi menumbuhkan janggut, Utano-san tidak akan berhenti hanya dengan menguburku.
 
@@ -254,9 +254,9 @@ Apakah itu menyenangkan? Ya, Aku bersenang-senang.
 
 Tanpa memikirkan sesuatu yang bodoh atau tidak berguna, Aku hanya mengobrol dan makan bersama teman-temanku, dengan anak-anak.
 
-Aku diingatkan bahwa ini bisa sangat menyenangkan. Waktu di mana kita tidak harus berpikir seperti Brave atau Pahlawan bisa sangat menenangkan, kita diingatkan sekali lagi.
+Aku ingat bahwa ini bisa sangat menyenangkan. Waktu di mana kita tidak harus berpikir seperti Brave atau Pahlawan bisa sangat menenangkan, kami mengingat hal itu sekali lagi.
 
-"Apakah Kau makan sesuka hatimu?"
+"Apakah Kau makan dengan puas?"
 
 "Iya. Aku makan banyak."
 
@@ -268,7 +268,7 @@ Menjawab dengan penuh semangat, lalu segera menjawab dengan suara kecil, aku men
 
 “Terima kasih banyak, Renji-oniisan karena telah mentraktir kami.” (Yayoi)
 
-"Seperti yang Kau harapkan, itu akan memalukan untuk berbagi tagihan dengan anak-anak."
+"Seperti yang Kau harapkan, akan memalukan untuk berbagi tagihan dengan anak-anak."
 
 "Fufu."
 
@@ -282,13 +282,13 @@ Yayoi-chan, seperti biasa, terdengar paling dewasa meskipun dia yang termuda.
 
 Dan Aya terdiam sambil menundukkan kepalanya.
 
-Dia menjadi seperti ini segera setelah Aku mengatakan bahwa kita harus kembali. benar-benar. Aku mulai berpikir.
+Dia menjadi seperti ini segera setelah Aku mengatakan bahwa kita harus kembali. haa ~~ Anak ini.....
 
 "Oi Souichi."
 
 "Ya?"
 
-Memanggilnya, Aku melemparkan Ermenhilde kepadanya.
+Ketika Memanggilnya, Aku melemparkan Ermenhilde kepadanya.
 
 Dia sedikit panik karena tindakan tiba-tibaku tetapi entah bagaimana menangkapnya dengan baik dengan kedua tangannya.
 
@@ -298,9 +298,9 @@ Kehidupan di mana Kau berhati-hati 24/7 akan menghancurkanmu cepat atau lambat. 
 
 [Apa yang terjadi Renji?]
 
-“Aku akan kembali setelah berjalan sedikit dengan Aya. Aku akan ikut dengan kalian dengan benar ke asrama kalian nanti jadi jangan khawatir. ”
+“Aku akan kembali setelah berjalan sedikit dengan Aya. Aku akan ikut dengan kalian ke asrama kalian nanti jadi jangan khawatir. ”
 
-"Seperti biasa, itu muncul entah dari mana Renji-niisan."
+"Seperti biasa, itu muncul entah dari mana dari Renji-niisan."
 
 "Jangan pedulikan itu, itu biasanya benar."
 
@@ -312,7 +312,7 @@ Mengatakan itu, Aku mulai berjalan. Ermenhilde mengatakan sesuatu, tetapi aku be
 
 Diam.
 
-Tetapi tidak ada keluhan terhadap apa yang Aku katakan tiba-tiba.
+Tetapi tidak ada keluhan terhadap apa yang Aku katakan barusan.
 
 Ketika aku melirik Aya yang berjalan di sampingku, dia melihat ke depan seperti berjalan sekarang.
 
@@ -320,9 +320,9 @@ Fuyou Aya. Teman masa kecil dengan saudara Amagi dan mungkin penyihir terhebat d
 
 Aku — tidak dapat memahami gadis ini. Mengapa dia datang untuk berbicara denganku, apa yang dia harapkan dariku.
 
-Saat itu, Aku telah menyelamatkannya beberapa kali. Dari monster, kecelakaan, penyakit. Sejak saat itu, Aku merasa dia sudah matang.
+Dulu, Aku telah menyelamatkannya beberapa kali. Dari monster, kecelakaan, penyakit. Sejak saat itu, Aku merasa dia sudah dewasa.
 
-Hanya satu tahun. Tapi itu cukup bagi seorang gadis untuk tumbuh dewasa, Aku pikir. Tingginya telah tumbuh dari berada di sekitar dadaku hingga mendekati pundakku. Rambutnya juga tumbuh lebih panjang dan ekspresinya juga menjadi seperti orang dewasa. Meskipun dia tertawa kekanak-kanakan saat berbicara dengan Souichi, sekarang ekspresinya tenang.
+Hanya satu tahun. Tapi itu cukup bagi seorang gadis untuk tumbuh dewasa, Aku pikir. Tingginya telah tumbuh dari sekitar dadaku hingga mendekati pundakku. Rambutnya juga tumbuh lebih panjang dan ekspresinya juga menjadi seperti orang dewasa. Meskipun dia tertawa kekanak-kanakan saat berbicara dengan Souichi, sekarang ekspresinya tenang.
 
 "Apakah Kau tumbuh lebih tinggi?"
 
@@ -332,7 +332,7 @@ Percakapan berakhir.
 
 Aku pandai melanjutkan pembicaraan dengan orang-orang tapi Aku pikir Aku payah memulai percakapan sendiri.
 
-Ini berbeda jika Aku memiliki tujuan tetapi seperti sekarang ketika tidak ada tujuan seperti itu dalam pikiranku, Aku pikir Aku akan puas dengan hanya berjalan seperti ini. Aku pikir tidak perlu berbicara.
+Ini berbeda jika Aku memiliki tujuan tetapi ketika tidak ada tujuan seperti sekarang dalam pikiranku, Aku pikir Aku akan puas dengan hanya berjalan seperti ini. Aku pikir tidak perlu berbicara.
 
 Memalingkan pandanganku dari Aya, aku menatap langit malam sambil berjalan di sampingnya.
 
@@ -346,7 +346,7 @@ Tetapi Aku merasa bahwa Aya memiliki sesuatu yang ingin dia katakan kepadaku.
 
 Karena Itu aku menunggu dengan sabar untuk Aya berbicara. Pelan-pelan, sambil menatap langit malam. Perjalanan tanpa tujuan terasa menyenangkan.
 
-Orang yang hidup di dunia ini tidur lebih awal. Itu karena tidak ada yang mereka lakukan. Kebanyakan dari mereka yang belum tidur miliki kesenangan alkohol dan judi. Tetapi bahkan kasino hanya ada di daerah tempat para bangsawan tinggal. Dan itu pun bukan yang legal. Mereka yang menyukai hal-hal seperti itu mungkin akan tetap tidak tidur sampai larut malam, tetapi hanya kita yang akan berjalan-jalan pada saat seperti itu.
+Orang yang hidup di dunia ini tidur lebih awal. Itu karena tidak ada yang mereka lakukan. Kebanyakan dari mereka yang belum tidur bersenang-senang dengan alkohol dan judi. Tetapi kasino hanya ada di daerah tempat para bangsawan tinggal. Dan itu pun bukan yang legal. Mereka yang menyukai hal-hal seperti itu mungkin akan tetap tidak tidur sampai larut malam, tetapi hanya kita yang akan berjalan-jalan pada saat seperti itu.
 
 Tidak ada seorang pun di sekitar. Waktu yang tenang Berjalan pada saat seperti itu benar-benar terasa menyenangkan.
 
@@ -374,7 +374,7 @@ Aya sedang berbicara tentang apa yang terjadi siang hari.
 
 "Iya."
 
-Apakah Aya seperti itu berhati dingin?
+Apakah Aya berhati dingin?
 
 Ntahlah. Aku tidak bisa memikirkannya. Sebenarnya Aku merasa lebih baik begini.
 
@@ -402,7 +402,7 @@ Suara Aya bergema di keheningan malam.
 
 "Jangan katakan itu. Aku mengatakannya pada waktu itu juga tetapi Aku berjanji kepadamu, bukan? Bahwa jika Kau dalam bahaya aku akan menyelamatkanmu. ”
 
-Aku merasa seperti malam itu juga saat itu. Aku tidak ingat dengan baik, tapi itu tenang, masih malam. Di depan api, aku sudah berjanji begitu padanya.
+Aku merasa malam ini seperti malam itu juga saat itu. Aku tidak ingat dengan baik, tapi itu tenang, masih malam. Di depan api, aku sudah berjanji begitu padanya.
 
 Bahwa aku akan melindungi penyihir terbesar dan terkuat di dunia.
 
@@ -438,7 +438,7 @@ Tapi meski begitu aku merasakan semacam pesona dalam ekspresinya.
 
 "Aku sekali lagi diselamatkan olehmu."
 
-"--itu benar."
+"--begitulah."
 
 Meskipun Aku tidak bisa melindungi mereka 4, Aku menyelamatkan hidupnya.
 
