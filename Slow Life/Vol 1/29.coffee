@@ -54,172 +54,110 @@ Dengan Lit duduk di sampingku dan Al tepat di seberangku, kami mulai makan bersa
 
 ☆☆
 
-"Lit-san, aku datang."
+"Lit-san, aku akan menyerang."
 
-Di halaman, Al menghadapi Lit ketika mereka berdua memegang shunts tumpul untuk penggunaan pelatihan.
+Di halaman, Al melawan Lit sambil mereka berdua memegang shotel tumpul untuk berlatih. (T/N : Shotel adalah pedang melengkung yang berasal dari euthopia. bisa cek sendiri di google)
 
- 
+l"Tentu saja, serang padaku dari mana saja."
 
-"Tentu, datang padaku dari mana saja."
+Lit tidak menggunakan dua shotel seperti biasa tetapi hanya satu di tangan kanannya. Tangan kirinya diletakkan di pinggangnya dan dia mengangkat tangan kanannya di atas kepalanya dengan posisi berdiri.
 
- 
+l"menghadapi lawan yang lebih kuat dengan posisi kuda-kuda tinggi?"
 
-Lit tidak melengkapi dua shotel seperti biasa tetapi hanya satu di tangan kanannya. Tangan kirinya diletakkan di pinggangnya dan dia mengangkat tangan kanannya di atas kepalanya dengan posisi berdiri.
+"kuda-kuda sedang, berlawanan arah jarum jam."
 
- 
+Al memegang shotel di tangan kanannya di posisi menengah dan perlahan-lahan bergerak ke kiri, atau kanan Lit. hal itu akan menyebabkan penglihatan lawan terbatas dengan tangan kanan mereka.
 
-"Saat menghadapi lawan yang lebih kuat dengan posisi kuda-kuda?"
+Mungkin dia melihat kesempatan untuk menang atau mungkin dia menyerah pada tekanan pedang Lit, Al berlari maju dan mengarahkan tebasan ke tangan kanan Lit.
 
-"Sikap tengah, berlawanan arah jarum jam."
-
- 
-
-Al memegang shotel di tangan kanannya di posisi tengah dan perlahan-lahan bergerak ke kiri, atau kanan Lit. Melakukan hal itu akan menyebabkan lawan membatasi penglihatan mereka sendiri dengan tangan kanan mereka.
-
- 
-
-Mungkin dia melihat kesempatan untuk menang atau dia menyerah pada tekanan pedang Lit, Al berlari maju dan mengarahkan tebasan ke tangan kanan Lit.
-
-Namun, pedang Lit menghantam bahu Al dengan kecepatan yang lebih besar.
-
- 
+Namun, pedang Lit menghantam bahu Al dengan kecepatan yang lebih tinggi.
 
 "Tss !?"
 
- 
-
-Lit tidak lagi berada di tempat yang diayunkan Al. Pedang Lit dengan sempurna menghentikan selebar kulit dari bahu Al dan dia bisa dengan mudah menghancurkan bahunya jika dia mau.
-
- 
+Lit tidak lagi berada di tempat target tebasan Al. Pedang Lit dengan sempurna berhenti di kulit bahu Al dan dia bisa dengan mudah menghancurkan bahunya jika dia mau.
 
 "Tolong, sekali lagi!"
 
- 
-
 Al berteriak dan Lit mengangguk sambil tersenyum.
 
- 
+aku menyaksikan mereka berdua beradu pedang ketika aku menanam bibit rumput obat baru dan benih di kebun.
 
-Saya menyaksikan mereka berdua bersilangan pedang ketika saya menanam bibit rumput obat baru dan benih di kebun.
+aku terkejut ketika Al yang termenung meminta Lit untuk mengajarinya cara menggunakan pedang.
 
-Saya terkejut ketika Al yang merenung meminta Lit untuk mengajarinya cara pedang.
+Pada awalnya, Lit menolak, mengatakan bahwa dia tidak memiliki teknik pedang yang indah untuk diajari tetapi setelah melihat Al yang serius, dia setuju untuk mengajarinya jika itu hanya teknik dasar.
 
-Pada awalnya, Lit menolak, mengatakan bahwa dia tidak memiliki teknik pedang yang indah untuk mengajar orang lain tetapi setelah melihat penampilan Al yang serius, dia setuju untuk mengajarinya jika itu hanya untuk dasar-dasar.
-
- 
-
-Senjata yang dipilih Al sebagai Senjata Tuan adalah shotel.
+Senjata yang dipilih Al sebagai Senjatamya adalah shotel.
 
 Senjata yang sama digunakan oleh Lit, pedang satu tangan unik berbilah ganda dengan kurva ke dalam.
 
-Pedang itu mampu memotong melewati pertahanan lawan dan itu bisa digunakan sebagai pedang melengkung biasa dengan memegangnya di arah yang berlawanan.
+Pedang itu mampu memotong pertahanan lawan dan itu juga bisa digunakan sebagai pedang melengkung biasa dengan memegangnya di arah yang berlawanan.
 
-Dalam arti tertentu, itu adalah senjata yang ditujukan untuk manusia atau lawan bersenjata lainnya yang sejenis.
+Dalam arti tertentu, itu adalah senjata yang ditujukan untuk manusia atau lawan bersenjata lainnya.
 
-Karena bentuknya, ada kemampuan untuk menanganinya sehingga bahkan saya tidak percaya menggunakannya.
+Karena bentuknya, dibutuhkan kemampuan untuk menggunakannya sehingga bahkan aku tidak percaya diri menggunakannya.
 
- 
-
-Itu adalah pedang yang dicintai dan digunakan oleh pendekar pedang dengan latar belakang seperti Lit yang berkembang di arena.
-
- 
+Itu adalah pedang yang dicintai dan digunakan oleh pendekar pedang dengan latar belakang seperti Lit yang berkembang di arena. 
 
 Master Senjata bisa menjadi master dalam senjata apa pun yang dia pilih. Dalam hal itu, mungkin merupakan pilihan yang lebih baik untuk memilih senjata seperti shotel dibandingkan dengan senjata yang mudah digunakan seperti tombak atau tongkat.
-
- 
 
 Meskipun masih ada bekas luka di hatinya, Al sesekali tersenyum ketika dia mengayunkan pedang.
 
 Mungkin itu adalah pengaruh Perlindungan Ilahi dari Master Senjata.
 
- 
+g"Meskipun luka di hatinya tidak akan hilang, hari dia kembali menjadi dirinya yang dulu tampaknya sudah lebih dekat."
 
-"Meskipun luka di hatinya tidak akan hilang, hari dia kembali ke dirinya yang dulu tampaknya lebih dekat."
-
- 
-
-Pada akhirnya, Al tidak pernah memukul Lit sekali pun, tidak peduli berapa kali pedangnya dibelokkan, ia tidak pernah sekalipun menjatuhkan shotel-nya.
-
- 
+Pada akhirnya, Al tidak pernah menyentuh Lit sekali pun, tidak peduli berapa kali pedangnya dibelokkan, ia tidak pernah sekalipun menjatuhkan shotel-nya.
 
 ☆☆
-
- 
 
 Setelah Al tertidur.
 
 Lit dan aku minum kopi dengan sedikit brendi.
 
- 
+g"Terima kasih, terima kasih Lit, Al menjadi jauh lebih ceria."
 
-"Terima kasih, terima kasih kepada Lit, Al menjadi jauh lebih ceria."
+l"Daripada aku, itu adalah kekuatan Perlindungan Ilahi-Nya. Sepertinya dia tidak bisa menahan kegembiraan karena melihat senjatanya bergerak seperti yang diinginkannya."
 
-“Daripada aku, itu adalah kekuatan Perlindungan Ilahi-Nya. Sepertinya dia tidak bisa menahan kegembiraan karena melihat senjatanya bergerak seperti yang diinginkannya. ”
+Lit tidak pernah bisa membayangkan memiliki perasaan seperti itu untuk shotelnya sendiri. Tentu saja, sebagai senjata favoritnya, dia memiliki perasaan untuk itu tetapi dia tidak akan pernah melihat shotel dan tersenyum.
 
- 
+l“Untuk saat ini, aku percaya dia sedang menggunakan Perlindungan Ilahi-nya ke arah yang baik. Meskipun kita perlu memantau tindakannya karena dia masih tidak stabil."
 
-Lit tidak pernah bisa membayangkan memiliki perasaan seperti itu untuk shotelnya sendiri. Tentu saja, sebagai senjata favoritnya, dia akan memiliki perasaan untuk itu tetapi dia tidak akan pernah melihat shotel dan tersenyum.
+g"Ya, aku juga memperhatikannya dan sedang mengawasinya."
 
- 
+l"Ha ~ daripada itu, aku belum pernah mengajar siapa pun sebelumnya ... Aku sungguh berharap aku tidak menunjukkan hal aneh."
 
-“Untuk saat ini, saya percaya dia sedang mengerjakan Perlindungan Ilahi-nya ke arah yang baik. Meskipun kita perlu mencatat tindakannya karena dia masih tidak stabil. "
+Lit menghela napas dan tertawa kecil.
 
-"Ya, aku juga memperhatikan dan sedang mengawasinya."
+g"Aku pikir kamu baik-baik saja. pada akhirnya, keterampilanlah yang terpenting. "
 
-"Ha ~ kesampingkan itu, aku belum pernah mengajar siapa pun sebelumnya ... Aku sungguh berharap aku tidak menunjukkan kebiasaan aneh."
+l"Itu benar tetapi Gayus selalu mengatakan bahwa hanya mengetahui cara mengayunkan pedang saja tidak cukup. Ada filosofi di balik pedang. Dan filosofi itu tidak diajarkan melalui Perlindungan Ilahi. Pada akhirnya, aku tidak pernah menang melawan Gayus."
 
- 
+Kapten Pengawal Kerajaan dari Kerajaan Logavia dan Mentor Lit, Gayus, yang dibunuh oleh iblis Asura 『Shisandan』.
 
-Lit menghela napas dan tertawa getir.
-
- 
-
-“Aku pikir kamu baik-baik saja. Lebih jauh, pada akhirnya, keterampilanlah yang penting. ”
-
-“Itu benar tetapi Gayus selalu mengatakan bahwa hanya mengetahui cara mengayunkan pedang saja tidak cukup. Ada filosofi di balik pedang. Dan filosofi itu tidak diajarkan melalui Perlindungan Ilahi. Pada akhirnya, saya tidak pernah menang melawan Gayus. ”
-
- 
-
-Kapten Pengawal Kerajaan dari Kerajaan Logavia dan Mentor Lit, Gayus, yang dibunuh oleh Asura Demon 『Shisandan』.
-
-Pada saat kami diberikan izin masuk ke istana Principality of Logavia dan memiliki kesempatan untuk berkomunikasi dengannya, dia sudah menjadi Asura Demon.
+Pada saat kami diberikan izin masuk ke istana Principality of Logavia dan memiliki kesempatan untuk berkomunikasi dengannya, dia sudah menjadi iblis Asura.
 
 Gayus adalah satu-satunya orang yang dihormati oleh Lit, yang melakukan apa yang disukainya pada waktu itu.
 
- 
-
-"Aku ingin tahu apakah aku bisa menyampaikan kepada Al apa yang diajarkan Gayus kepadaku."
-
- 
+l"Aku ingin tahu apakah aku bisa menyampaikan kepada Al apa yang diajarkan Gayus kepadaku."
 
 Aku meletakkan tanganku di pipi Lit saat dia terdengar khawatir.
 
- 
+g"Kamu pasti bisa."
 
-"Kamu bisa."
+l"Benarkah?"
 
-"Betulkah?"
+g"Lagi pula, kamu adalah Lit."
 
-"Lagi pula, kau Lit."
+l"alasan macam apa itu."
 
-"Ada apa dengan alasan itu."
+Lit terkikik pada perkataanku dengan alasan yang tidak berdasar.
 
- 
+Tapi aku serius. aku mengenal lit dengan baik.
 
-Lit terkikik pada dorongan saya berdasarkan alasan yang tidak berdasar.
-
-Tapi aku bersungguh-sungguh. Saya kenal baik dengan Lit.
-
-Dalam pedang dan kata-kata Lit tinggal ajaran dari guru yang hebat.
-
- 
+didalam pedang dan kata-kata Lit memiliki ajaran dari guru yang hebat.
 
 Itu sebabnya dia pasti bisa mengajarkan Al apa yang diajarkan Gayus kepadanya dalam bentuk yang lebih baik.
 
- 
-
-"Terima kasih."
-
- 
+l"Terima kasih."
 
 Lit menutup matanya dan membungkus kedua tangannya di tangan kananku yang diletakkan di pipinya.
