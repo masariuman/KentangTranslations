@@ -3,22 +3,16 @@ Pahlawan Ruti menghunus pedangnya.
 Ada kelompok delapan monster, empat Kepiting Titan, kepiting sebesar gajah, dan empat Hierarch Sphinx dengan kepala elang.
 
 Hierarch Sphinx mungkin adalah kerabat dari Andro-Sphinx dengan kepala manusia yang melindungi pintu masuk reruntuhan itu.
--------------------
-"Aku ingin tahu mengapa Sphinx membela reruntuhan ini?"
 
- 
+"Aku ingin tahu mengapa Sphinx melindungi reruntuhan ini?"
 
-Ares ragu tentang penampilan Sphinx yang bertarung tanpa takut mati.
+Ares bingung tentang Sphinx yang bertarung tanpa takut mati.
 
-Hierarch Sphinx mungkin memiliki kecerdasan rendah tetapi Andro-Sphinx setidaknya harus memiliki kecerdasan yang sama dengan manusia.
+Hierarch Sphinx mungkin memiliki kecerdasan rendah tetapi Andro-Sphinx setidaknya memiliki kecerdasan yang sama dengan manusia.
 
-Apa alasan mereka melindungi reruntuhan ini yang tak seorang pun datang ke selama beberapa dekade dan abad yang tak terhitung jumlahnya?
+Apa alasan mereka melindungi reruntuhan ini yang tak seorang pun datang selama beberapa dekade dan abad yang tak terhitung jumlahnya?
 
- 
-
-"Tidak ada ide?"
-
- 
+r"ntahlah?"
 
 Pahlawan Ruti menjawab seolah-olah dia tidak tertarik.
 
@@ -26,79 +20,45 @@ Pertanyaan itu sama sekali tidak relevan bagi Ruti.
 
 Ada musuh di depannya dan ada pedang di tangannya.
 
- 
-
 Dalam hal ini, tidak perlu ragu.
 
- 
+Dengan pedangnya diturunkan disebelahnya, Ruti langsung menyerbu monster dan menebas mereka.
 
-Dengan pedangnya diturunkan ke sisinya, Ruti langsung menyerbu monster dan menebas.
+(aku suka bertarung. Hanya pada saat Perlindungan Ilahiku yang menginginkannya.)
 
- 
+Dia menghindari cengkraman Kepiting Titan yang diayunkan sambil melompatan.
 
-(Saya suka bertarung. Hanya pada saat itu Perlindungan Ilahi dan keinginan saya cocok.)
-
- 
-
-Dia menghindari cakar yang Kepiting Titan mengayunkannya dengan lompatan.
-
-Hierarch Sphinx berlari ke arah Ruti ketika dia berada di udara tetapi dia mengirim dua dari mereka dengan satu ayunan pedangnya dan memotong kaki depan yang lain.
-
- 
+Hierarch Sphinx berlari ke arah Ruti ketika dia di udara tetapi dia mengalahkan dua dari mereka dengan satu ayunan pedangnya dan memotong kaki depannya.
 
 Saat mendarat, dia mengayunkan pedangnya dalam sekejap dan menusuk perut Kepiting Titan yang muncul di atas kepalanya.
 
- 
-
-Selama waktu itu, Tise telah menaklukkan salah satu Kepiting Titan dan Theodora lainnya.
-
- 
+Ketika waktu itu, Tise telah mengalahkan salah satu Kepiting Titan dan Theodora juga mengalahkan yang lainnya.
 
 "Chain Lightning!"
 
- 
-
 Ares membakar musuh yang tersisa dengan rantai petir.
 
- 
+r"kekuatanmu Tidak cukup."
 
-"Tidak cukup kekuatan."
+Ruti berkata dengan wajah tanpa ekspresi, meski mengenakan baju besi, dengan ringan melompat ke atas Titan Crab yang tersisa yang masih bernafas dan menusukkan pedangnya ke dalamnya.
 
- 
+Gempa bumi terjadi saat Kepiting Titan runtuh.
 
-Ruti berkata dengan wajah tanpa ekspresi saat dia, meski mengenakan baju besi, dengan ringan melompat ke atas Titan Crab yang tersisa yang masih bernafas dan menusukkan pedangnya ke dalamnya.
-
- 
-
-Gempa bumi saat Kepiting Titan runtuh.
-
-Pasir yang telah memasuki reruntuhan melalui celah ditendang menjadi awan debu.
-
- 
+Pasir yang memasuk ke reruntuhan melalui celah bertebaran menjadi awan debu.
 
 "Eh?"
 
- 
-
 Tepat ketika awan debu menghalangi pandangannya, Ares mengangkat suara idiot.
 
-Paruh terbuka lebar dari Hierarch Sphinx yang tersisa menikam dari dalam awan debu.
-
- 
+Paruh dari Hierarch Sphinx yang tersisa terbuka lebar menikam dari dalam awan debu.
 
 "U-uwah !?"
-
- 
 
 Dia buru-buru mencoba menghindar tetapi kemampuan fisik yang diberikan oleh Perlindungan Suci Sage terlalu lambat.
 
 Paruh Hierarch Sphinx berada di ambang merobek kepala Ares ketika tiba-tiba terhenti di depan matanya.
 
- 
-
 "Ru-Ruti!"
-
- 
 
 Ruti dengan santai meraih bagian belakang kepala Hierarch Sphinx dengan tangan kirinya.
 
@@ -106,76 +66,54 @@ Meskipun memiliki postur singa dan kemampuan fisik yang diperkuat dari Perlindun
 
 Ruti tanpa kata-kata mengumpulkan kekuatannya.
 
- 
-
 "Gyurururu !?"
-
- 
 
 Hierarch Sphinx yang beratnya di atas satu ton diangkat ke udara.
 
 Tubuhnya yang besar membentuk lingkaran sempurna di udara.
 
- 
+Ada suara garing(kreek? kriuk? crunch gitu) saat kepalanya menabrak tanah.
 
-Ada suara berderak basah saat kepalanya menabrak tanah.
-
-Ruti telah menghancurkan kepala Hierarch Sphinx ke tanah.
+Ruti menghancurkan kepala Hierarch Sphinx ke tanah.
 
 Darahnya membentuk genangan air dan tubuhnya mengejang seolah-olah melakukan perlawanan terakhir terhadap kematian.
 
- 
-
 "Te-terima kasih sudah menyelamatkanku ..."
 
-“Ares. Tidak perlu untuk serangan daerah. Kami hanya memiliki empat anggota sekarang jadi kami harus secara definitif mengalahkan musuh satu per satu. ”
+r“Ares. Tidak perlu untuk serangan area. kita hanya memiliki empat anggota sekarang jadi kita harus hanya bisa mengalahkan musuh satu per satu. ”
 
 "Eh, ah ..."
 
-“Lebih jauh lagi, posisimu buruk. Onii-san selalu melindungi kamu, tetapi aku maupun Theodora maupun Tise tidak akan melakukan tindakan seperti itu. Lindungi tubuh Anda sendiri. ”
+r“dan juga, posisimu buruk. Onii-san selalu melindungimu, tetapi aku maupun Theodora maupun Tise tidak akan melakukan tindakan seperti itu. Lindungi tubuhmu sendiri. ”
 
-"Sangat menyesal …"
-
- 
+"ma... maaf …"
 
 Ares menggertakkan giginya.
 
-Kata-kata Ruti benar. Meskipun kekuatan tempur Gideon lemah, dia memiliki banyak pengetahuan dalam hal cara menutupi satu sama lain atau memikirkan formasi dan taktik, jadi dia hebat dalam menutupi untuk penjaga belakang.
+Kata-kata Ruti benar. Meskipun kekuatan tempur Gideon lemah, dia memiliki banyak pengetahuan dalam hal cara menutupi satu sama lain atau memikirkan formasi dan taktik, jadi dia hebat dalam menjaga dari belakang.
 
 Dia bisa menggunakan sihir jauh lebih mudah ketika Gideon ada.
 
- 
+(Salah, ini karena Danan dan Yarandorara keluar! Segalanya akan jauh lebih baik jika mereka tidak egois keluar dari tim!)
 
-(Salah, ini karena Danan dan Yarandorara menarik diri! Segalanya akan jauh lebih baik jika mereka tidak egois mundur dari pesta!)
+Setiap kali dia menghadapi kegagalan, harga diri Ares sebagai seorang Sage mendapat pukulan.(T/N: sebagai sage, dia malu atau tidak terima kalau gagal.)
 
- 
+Kenapa itu tidak bisa lebih baik? aku seorang Sage, orang bijak.
 
-Setiap kali dia menghadapi kegagalan, harga diri Ares sebagai seorang Sage mendapat pukulan.
+aku telah memimpin perjalanan selama ini. Seharusnya aku yang melakukan semua pekerjaan yang berhubungan dengan otak.
 
-Kenapa itu tidak bisa lebih baik? Saya seorang Sage, orang bijak.
-
-Saya telah memimpin perjalanan selama ini. Seharusnya aku yang melakukan semua pekerjaan otak.
-
-Namun orang-orang ini tidak mengakui saya dan terus menyanyikan pujian untuk beban itu, Gideon.
+Namun orang-orang ini tidak mengakuiku dan terus memuji untuk si beban itu, Gideon.
 
 Apa yang pria itu capai!
 
- 
+r"Hanya itu yang aku katakan, mari kita lanjutkan."
 
-"Hanya itu yang harus aku katakan, mari kita lanjutkan."
-
- 
-
-Tepat ketika Ares berada di ambang menumpahkan semua dendamnya, Ruti dengan acuh tak acuh mengatakan itu, seolah dia tidak tertarik dengan apa yang dirasakan Ares, dan berjalan pergi tanpa berbalik.
+Tepat ketika Ares berada di ambang mengatakan semua dendamnya, Ruti dengan acuh tak acuh mengatakan itu, seolah dia tidak tertarik dengan apa yang dirasakan Ares, dan berjalan pergi tanpa berbalik.
 
 Ares tidak lagi ada di matanya.
 
- 
-
 ☆☆
-
- 
-
+------
 Mereka melanjutkan melalui bagian yang ditutupi dengan dinding megalit yang diukir dengan gambar dan huruf.
 
  
