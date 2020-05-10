@@ -113,220 +113,140 @@ Tepat ketika Ares berada di ambang mengatakan semua dendamnya, Ruti dengan acuh 
 Ares tidak lagi ada di matanya.
 
 ☆☆
-------
-Mereka melanjutkan melalui bagian yang ditutupi dengan dinding megalit yang diukir dengan gambar dan huruf.
 
- 
+Mereka melewati bagian yang ditutupi dengan dinding megalit yang diukir dengan gambar dan huruf.
 
-"Ini, tanpa diragukan lagi, kehancuran dari era era Demon Lord sebelumnya."
+"Ini, tanpa diragukan lagi, kehancuran dari era era raja iblis sebelumnya."
 
- 
+Ares berkomentar setelah melihat tulisan-tulisan Benua Kegelapan yang tertulis di dinding.
 
-Ares berkomentar setelah melihat surat-surat Benua Kegelapan yang tertulis di dinding.
+"Ares-dono. Kami sudah bisa tahu tanpa Akamu mengatakannya. dariapada itu, pikirkan apa yang bisa kita lakukan dalam situasi ini. ”
 
- 
+"... Magma Slimes barusan adalah Pasukan Lava dari Raja Iblis Four Kings Heavenly, Dreadna si Api, kan?"
 
-"Ares-dono. Kami sudah bisa tahu tanpa Anda mengatakannya pada tahap akhir ini. Alih-alih, pikirkan apa yang bisa kita lakukan dalam situasi ini. ”
-
-"... Magma Slimes barusan adalah Pasukan Lava dari Raja Iblis Lord Four Kings Heavenly, Dreadna Api, kan?"
-
- 
-
-Mampu menggali melalui reruntuhan dengan mencairkan rintangan menggunakan panas mereka, pasukan Magma Slimes adalah kebanggaan Dreadna Api yang mengumpulkan persenjataan kuno dari semua negeri.
+Mampu melewati reruntuhan dengan mencairkan semuanya menggunakan panas mereka, pasukan Magma Slimes adalah kebanggaan Dreadna si Api yang mengumpulkan persenjataan kuno dari semua negeri.
 
 Kemampuan tempur mereka juga kuat dan kemampuan mereka untuk melawan serangan dengan meludah lava kental juga menyusahkan.
 
- 
-
-"Selain itu, ada banyak dengan Perlindungan Ilahi dari Elementalist Api dan Petarung Liar. Bahkan kita akan berada dalam bahaya jika mereka menyerang kita dengan angka kan? ”
-
- 
+"Selain itu, ada banyak dengan Perlindungan Ilahi dari Elementalist Api dan Petarung Liar. Bahkan kita akan berada dalam bahaya jika mereka menyerang kita dengan jumlah yang banyak kan? ”
 
 Akan lebih baik jika mereka mundur sesegera mungkin.
 
 Situasi semakin memburuk semakin dalam mereka menggali.
 
- 
-
 Namun,
 
- 
-
-"Jika kita membiarkan mereka untuk mengambil senjata dari Raja Iblis sebelumnya, apa gunanya kita datang ke sini?"
-
- 
+r"Jika kita membiarkan mereka untuk mengambil senjata dari Raja Iblis sebelumnya, apa gunanya kita datang ke sini?"
 
 Ares mengangguk mengikuti kata-kata Ruti.
 
- 
+“Theodora, tenanglah. Jika yang terburuk menjadi yang terburuk, kita bisa melarikan diri dengan menggunakan Ice Magicku. Magma Slimes lemah terhadap Ice Magic. ”
 
-“Theodora, tenanglah. Jika yang terburuk menjadi yang terburuk, kita bisa melarikan diri dengan menggunakan Ice Magic saya. Magma Slimes lemah terhadap Ice Magic. ”
+Theodora ingin mengatakan sesuatu tetapi dia sepertinya merasa itu tidak ada artinya dan dia menggelengkan kepalanya.
 
- 
-
-Theodora ingin mengatakan sesuatu tetapi dia sepertinya merasa itu tidak ada artinya ketika dia dengan ringan menggelengkan kepalanya.
-
- 
-
-(Mereka adalah lawan yang mampu bersembunyi di dalam tembok dan kita tidak tahu kapan mereka akan membuka lubang dan menyerang. Meskipun mereka adalah slime, kecerdasan mereka dapat dibandingkan dengan manusia. Kita juga tidak tahu jumlah mereka. Jika mereka hanya mengandalkan taktik gelombang ketika mereka bersembunyi di dinding, kami akan segera kehabisan kekuatan magis.)
-
- 
+(Mereka adalah lawan yang mampu bersembunyi di dalam tembok dan kita tidak tahu kapan mereka akan membuka lubang dan menyerang. Meskipun mereka adalah slime, kecerdasan mereka dapat dibandingkan dengan manusia. Kita juga tidak tahu jumlah mereka. Jika mereka hanya mengandalkan taktik per serangan ketika mereka bersembunyi di dinding, kita akan segera kehabisan kekuatan magic.)
 
 Tetapi bahkan jika Theodora atau Ares mati, sang Pahlawan mungkin akan selamat.
 
-Kekuatannya semakin kuat. Bahkan sebagai pengguna Tombak dan ahli Pengguna Sihir, Theodora tidak bisa lagi memahami ketinggiannya.
-
- 
+Kekuatannya semakin kuat. Bahkan sebagai pengguna Tombak dan ahli Pengguna Sihir, Theodora tidak bisa lagi memahami kehebatannya.
 
 (Semuanya mungkin akan baik-baik saja selama Pahlawan selamat.)
 
- 
-
-Theodora melontarkan senyum masam yang langka saat dia memikirkan hal itu.
-
- 
+Theodora melontarkan senyum masam saat dia memikirkan hal itu.
 
 "Mungkin aku seharusnya pergi mencari Gideon juga."
 
- 
+Jika dia, dia mungkin bisa mengumpulkan solusi terbaik bahkan untuk situasi ini.
 
-Jika itu dia, dia mungkin bisa mengumpulkan solusi terbaik bahkan untuk situasi ini.
+Terlepas dari pertempuran, dia adalah pria yang sangat berbeda dari dirinya yang tidak memiliki bakat, seorang pria dengan pandangan yang luas.
 
-Terlepas dari pertempuran, dia adalah pria yang sangat berbeda dari dirinya yang tidak memiliki bakat, seorang pria dengan bidang pandang yang luas.
-
-Pada jam selarut ini, dia menyesal tidak meminta ajarannya tentang apa yang harus dilakukan ketika dia mulai merasa bahwa dia mungkin menjadi beban.
+sekarang ini, dia menyesal tidak meminta diajarkan tentang apa yang harus dilakukan ketika dia mulai merasa bahwa dia mungkin menjadi beban.
 
 Theodora dengan nostalgia memikirkan wajah Gideon yang sudah lama tidak dilihatnya.
 
- 
-
 ☆☆
 
- 
+iblis haunt.
 
-Setan Menghantui.
+yang Melindungi reruntuhan bagian paling dalam adalah iblis menakutkan yang memiliki penampilan kerangka kambing dengan lapisan kulit tipis di seluruh tubuhnya.
 
-Melindungi kedalaman reruntuhan adalah iblis menakutkan yang memiliki penampilan kerangka kambing dengan lapisan kulit tipis yang membentang di seluruh tubuhnya.
+iblis elit yang menggunakan trisula bengkok di tangannya dengan air liur asam menetes dari rahangnya yang terbuka.
 
-Itu adalah sejenis iblis elit dan mengancam mereka dengan trisula bengkok di tangannya saat air liur asam menetes dari rahangnya yang terbuka.
+"tidak kusangka kita akan menghadapi iblis haunt ...!"
 
- 
+Ares terdiam ketika melihat iblis elit.
 
-"Untuk berpikir bahwa kita harus menghadapi Setan Hantu ...!"
+Sebagian besar iblis elit memiliki kemampuan kebal terhadap magic dan dalam kasus Haunt Demon, sekitar 50% magic tidak akan bekerja melawannya.
 
- 
+Kemampuan itu mungkin menjadi ancaman bagi individu seperti Ares yang bergantung pada magic untuk bertarung, tetapi itu fatal bagi penyihir yang ingin memperbudaknya, karena tidak peduli seberapa teliti mereka dan seberapa sempurna mereka mengontrol mantra, dalam satu dari setiap dua kasus , itu akan melawan mantra dan mematahkan leher penyihir.
 
-Ares terdiam pada keberadaan iblis elit.
+Oleh karena itu, mereka diberi nama iblis Haunt (Fear/menakutkan).
 
-Sebagian besar setan elit memiliki kemampuan sihir yang tidak valid dan dalam kasus Haunt Demon, sekitar 50% mantra akan dibatalkan.
+Theodora dan Tise menunjukkan ekspresi tegang menghadapi musuh yang tangguh tapi ... hanya Ruti yang memikirkan sesuatu yang lain.
 
-Kemampuan itu mungkin menjadi ancaman bagi individu seperti Ares yang bergantung pada sihir untuk bertarung, tetapi itu fatal bagi penyihir yang ingin memperbudaknya, karena tidak peduli seberapa teliti mereka dan seberapa sempurna mantra kontrol, dalam satu dari setiap dua kasus , itu akan menahan kontrol dan mematahkan leher penyihir.
-
-Oleh karena itu, mereka diberi nama Haunt (Fear) Demon.
-
- 
-
-Baik Theodora dan Tise menunjukkan ekspresi tegang menghadapi musuh yang tangguh tapi ... hanya Ruti yang memikirkan sesuatu yang lain.
-
- 
-
-"Mengapa Iblis Hantu di sini? Saya mendengar bahwa setan berada di pihak tentara Raja Iblis, tetapi sepertinya dikelilingi oleh Magma Slimes yang sudah mati? ”
-
- 
+r"Mengapa Iblis haunt di sini? aku mendengar bahwa iblis ini berada di pihak tentara Raja Iblis, tetapi sepertinya iblis ini dikelilingi oleh Magma Slimes yang sudah mati?"
 
 Pertanyaan yang muncul di sana adalah kebalikan dari pertanyaan tentang Hierarch Sphinx.
 
 Ruti sama sekali tidak tertarik dengan siapa kerabat Hierarch Sphinx, tetapi dia dipenuhi dengan minat untuk makna di balik keberadaan Haunt Demon itu.
 
-Demon Lord Army = Demon.
+tentara raja iblis = Demon.
 
-Bahkan jika Anda membaca dengan teliti hanya beberapa dokumen tentang Raja Iblis berturut-turut, itu adalah satu-satunya bagian yang konsisten terlepas dari dokumen.
+Bahkan jika kamu membaca dengan teliti hanya beberapa dokumen tentang Raja Iblis berturut-turut, itulah satu-satunya bagian yang konsisten terlepas dari dokumen.
 
- 
+r"Apakah Demon Lord Taraxon saat ini memiliki ideologi dan kekuatan yang berbeda dibandingkan dengan Demon Lord sebelumnya? Tetapi buku-buku itu menggambarkan iblis sebagai ras tanpa perbedaan."
 
-"Apakah Demon Lord Taraxon saat ini memiliki ideologi dan doktrin kekuatan yang berbeda dibandingkan dengan Demon Lord sebelumnya? Tetapi buku-buku itu menggambarkan iblis sebagai ras tanpa perbedaan. ”
+Selain iblis Asura, iblis adalah makhluk hidup dan secara alami memiliki Perlindungan Ilahi juga.
 
- 
+Namun, iblis dilahirkan dengan Perlindungan Ilahi tunggal yang unik untuk seluruh spesies.
 
-Selain dari Demon Asura, setan adalah makhluk hidup dan secara alami memiliki Perlindungan Ilahi juga.
+Sebagai contoh, iblis Haunt yang di depan mata mereka, dan setiap iblis Haunt lainnya, akan memiliki Perlindungan Ilahi dari iblis Demon. Belum ada penampakan iblis dengan Perlindungan Ilahi lainnya seperti warrior atau magician.
 
-Namun, setan dilahirkan dengan Perlindungan Ilahi tunggal yang unik untuk seluruh spesies.
+Atau lebih tepatnya, ras yang hanya memiliki Perlindungan Ilahi tunggal yang unik disebut iblis.
 
-Sebagai contoh, Demon Haunt di depan mata mereka, dan setiap Demon Haunt lainnya, akan memiliki Perlindungan Ilahi dari Haunt Demon. Belum ada penampakan setan dengan Perlindungan Ilahi lainnya seperti Prajurit atau Pesulap.
+r"Dengan kata lain, iblis berbagi peran Perlindungan Ilahi mereka dengan seluruh ras mereka. Onii-san berspekulasi bahwa para Dewa tidak bermaksud agar mereka memainkan peran makhluk jahat. "
 
-Atau lebih tepatnya, ras yang hanya memiliki Perlindungan Ilahi tunggal yang unik disebut setan.
+daripada menjawab semua itu, iblis Haunt memukul ujung tombaknya di tanah.
 
- 
+mungkin dia meminta mereka untuk datang padanya.
 
-“Dengan kata lain, iblis berbagi peran Perlindungan Ilahi mereka dengan seluruh ras mereka. Onii-san berspekulasi bahwa para Dewa tidak bermaksud agar mereka memainkan peran makhluk jahat. "
-
- 
-
-Alih-alih menjawab, Haunt Demon memukul ujung tombaknya di tanah.
-
-Itu mungkin meminta mereka untuk melakukannya.
-
- 
-
-"Menarik."
-
- 
+r"Menarik."
 
 Ujung mulut Ruti sedikit melengkung ketika dia tersenyum.
 
-Topik diskusi yang dia bertukar dengan kakaknya melalui banyak malam panjang. Apa pasukan Raja Setan? Identitas sebenarnya dari keberadaan yang ingin mereka kalahkan.
+Topik diskusi yang dia bahas dengan abangnya melalui banyak malam yang panjang. Apa pasukan Raja iblis? Identitas sebenarnya dari keberadaan yang ingin mereka kalahkan.
 
 Apa yang akan dikatakan Onii jika dia ada di sini ... hanya membayangkan itu menenangkan hatinya.
 
- 
-
 ☆☆
 
- 
-
-"Aku sudah bilang!"
-
- 
+"kan sudah kubilang!"
 
 Theodora berteriak.
 
 Rintangan yang dipasang Theodora menahan serangan dari Magma Slimes, tetapi itu hanya masalah waktu sebelum dihancurkan.
 
- 
+Setelah mereka mengalahkan iblis Haunt, seolah-olah telah menghitung waktunya, Dreadna si api dan pasukan Magma Slime-nya menyerang mereka.
 
-Setelah mereka mengalahkan Haunt Demon, seolah-olah telah menghitung waktunya, Dreadna of Fire dan pasukan Magma Slime-nya menyerang mereka.
+Penghalang yang didirikan oleh iblis Haunt menghilang juga dan Magma Slimes muncul satu demi satu dari dalam dinding. Mereka mungkin menunggu kesempatan ini.
 
-Penghalang yang didirikan oleh Haunt Demon menghilang juga dan Magma Slimes muncul satu demi satu dari dalam dinding. Mereka mungkin bertujuan untuk kesempatan ini.
+Ruti dan tim mundur ke pintu yang iblis Haunt jaga dan mereka dikepung.
 
- 
+Selain Ruti, semua anggota kelelahan dari pertempuran dengan iblis Haunt.
 
-Ruti dan party telah mundur ke pintu yang Haunt Demon jaga dan mereka dikepung.
-
- 
-
-Selain Ruti, semua anggota kelelahan dari pertempuran dengan Haunt Demon.
-
-Ares akan keluar begitu dia menggunakan beberapa mantra lagi sementara konsumsi sihir Theodora juga intens.
-
- 
+Ares hanya bisa menggunakan beberapa mantra lagi sementara konsumsi sihir Theodora juga intens.
 
 "Saya kembali."
 
-"Tise! Bagaimana itu!? Apakah ada senjata yang mampu menghancurkan pasukan Raja Iblis di depan kita !? ”
+"Tise! bagaimana!? Apakah ada senjata yang mampu menghancurkan pasukan Raja Iblis di depan kita !? ”
 
- 
-
-Satu-satunya harapan mereka adalah meletakkan senjata di belakang mereka. Teriak Ares sambil terus berharap.
-
- 
+Satu-satunya harapan mereka adalah senjata di belakang mereka. Teriak Ares sambil terus berharap.
 
 "Ada sebuah kapal."
 
-"S-kapal?"
+"ka-kapal?"
 
-"Aku telah melucuti perangkap di sepanjang lorong, ikuti aku."
-
- 
+"Aku telah membuang perangkap di sepanjang lorong, ikuti aku."
 
 Tise berkata sebelum dia sekali lagi kembali ke lorong.
 
@@ -334,78 +254,54 @@ Tidak ada pilihan lain.
 
 Para pahlawan membuntuti Tise.
 
- 
-
 ☆☆
 
- 
+Retakan membelah gurun dan bayangan besar terbang di udara.
 
-Retakan membelah gurun dan bayangan besar terbang ke udara.
+Itu tampak seperti perahu layar tanpa layar tetapi memakai baling-baling yang tak terhitung jumlahnya berputar sambil terbang melayang di langit.
 
-Itu tampak seperti perahu layar tanpa layar tetapi baling-baling yang tak terhitung jumlahnya berputar ketika lambung besar melayang di langit.
-
-Pasir gurun yang telah terakumulasi di kapal untuk waktu yang lama terlempar dan mereka berkilau ketika mereka melayang ke tanah.
-
- 
+Pasir gurun yang telah terkumpul di kapal untuk waktu yang lama terlempar keluar dan berkilauan ketika mereka mendarat di tanah.
 
 "A-apa-apaan ini !?"
 
 "Sebuah kapal terbang."
 
- 
-
 Tise, tanpa ekspresi, mengemudikan kapal terbang menggunakan tongkat kendali.
 
-Namun, dia gemetar karena tegang dan cemas menghadapi benjolan peralatan yang dia pindahkan untuk pertama kali.
+Namun, dia gemetar karena tegang dan cemas menghadapi sesuatu yang dia gerakkan untuk pertama kali.
 
-Tidak banyak, tetapi pasukan Magma Slime mengejar mereka dari belakang.
+pasukan Magma Slime mengejar mereka dari belakang walaupun tidak begitu banyak.
 
-Dia bisa melihat bahwa banyak bagian kayu membentuk lambung kapal. Api akan dengan cepat menyebar jika mereka diserang dengan api ... Tise berpikir sendiri.
+Dia bisa melihat bahwa banyak bagian kayu membentuk lambung kapal. Api akan dengan cepat menyebar jika mereka diserang dengan api ... pikir tise.
 
 Kita harus melarikan diri secepat mungkin!
 
- 
+"Kapal terbang !? Tise, kenapa kamu bisa mengendalikan senjata rahasia dari raja iblis sebelumnya yang bahkan aku tidak tahu ... jangan bilang kau berhubungan dengan pasukan raja iblis sebelumnya. ”
 
-"Kapal terbang !? Tise, kenapa kamu bisa mengendalikan senjata rahasia dari Demon Lord sebelumnya yang bahkan aku tidak tahu ... jangan bilang kau berhubungan dengan Demon Lord Army sebelumnya. ”
+r“Ares, sekarang bukan waktunya untuk itu. Tise, kamu bisa fokus terbang. Jika kita dikejar oleh drake, aku akan melakukan sesuatu. ”
 
-“Ares, sekarang bukan waktunya untuk itu. Tise, kamu bisa fokus terbang. Jika kita dikejar oleh drake, aku akan melakukan sesuatu. ”
+"oke, Pahlawan-sama."
 
-"Dimengerti, Pahlawan-sama."
+Ruti menuju ke ujung kapal.
 
- 
-
-Ruti menuju ke geladak.
-
-Melihat ke bawah geladak, dia melihat bahwa mereka telah menerobos Gurun Pasir Darah yang mereka perjuangkan untuk jalani dan mereka sudah dekat dengan permukiman penduduk gurun.
-
- 
+Melihat ke bawah, dia melihat bahwa mereka telah menerobos Gurun Pasir yang mereka lewati mati-matian sebelumnya dan mereka sudah dekat dengan permukiman penduduk gurun.
 
 "Ini memiliki kecepatan luar biasa, Pahlawan-dono."
 
- 
-
 Theodora yang berdiri di belakang Ruti berseru dengan kagum.
 
- 
+r"Ya."
 
-"Ya."
+"Ini bahkan bukan kecepatan penuh jadi senjata raja iblis ini benar-benar hebat. Dengan ini, kita bisa pergi ke mana saja yang kita inginkan di dunia ... adakah tempat yang Hero-dono ingin datangi? "
 
-"Ini bahkan bukan throttle penuh sehingga senjata Demon Lord sebelumnya benar-benar luar biasa. Dengan ini, kita bisa pergi ke mana saja yang kita inginkan di dunia ... adakah di mana pun Hero-dono ingin pergi? ”
-
-"Aku tidak bisa pergi ke sana. Tidak selama aku adalah Pahlawan. ”
-
- 
+r"Aku tidak bisa pergi ke sana. Tidak selama aku masih Pahlawan. "
 
 Ruti berkata sambil menatap baling-baling berputar di atas kepalanya.
 
- 
-
-"Sayap-sayap ini terlalu banyak untukku."
-
- 
+g"Sayap-sayap ini terlalu berlebihan untukku."
 
 Kapal Terbang.
 
 Sayap untuk bebas terbang di seluruh dunia.
 
-Sementara hampir semua anggota terpikat oleh sayap itu, hanya Ruti yang menertawakan dirinya sendiri dengan hati yang basah.
+Sementara hampir semua anggota terpikat oleh sayap itu, hanya Ruti yang menertawakan dirinya sendiri dengan hati kacau.
