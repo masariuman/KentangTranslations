@@ -305,3 +305,5 @@ Kapal Terbang.
 Sayap untuk bebas terbang di seluruh dunia.
 
 Sementara hampir semua anggota terpikat oleh sayap itu, hanya Ruti yang menertawakan dirinya sendiri dengan hati kacau.
+
+<gambar>
