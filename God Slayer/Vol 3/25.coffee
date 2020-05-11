@@ -80,125 +80,125 @@ Selama perjalanan kami, pada awalnya mereka bahkan bermusuhan ........ tidak jug
 
 Bagi Dewa Roh itu, mengirim sesuatu ke Utano-san yang merupakan utusan Dewi itu aneh. Ya, itu pasti sesuatu yang merepotkan, naluriku memberitahuku.
 
-Pertama-tama, 'permintaan dari dewa' ini sendiri terdengar mencurigakan. Pertama kami mendapat 'permintaan' dari Dewi untuk menaklukkan Dewa iblis dan bahkan memiliki tuntutan yang lebih tidak masuk akal selama perjalanan. Bagiku, wajar saja untuk waspada.
------
-Sementara saya memikirkan hal-hal lama seperti itu, pintu ayun serikat berderit terbuka dan Nona Francesca dan Faylona kembali. Serikat menjadi sedikit bising dari penampilan pintu masuk kombinasi yang indah.
+pada dasarnya, 'permintaan dari dewa' ini sendiri terdengar mencurigakan. Pertama kali kita mendapat 'permintaan' dari Dewi untuk menaklukkan Dewa iblis , setelahnya pasti akan memiliki tuntutan yang lebih tidak masuk akal selama perjalanan. Bagiku, wajar saja untuk waspada.
+
+ketika aku memikirkan hal masa lalu, pintu guild berbunyi terbuka. Nona Francesca dan Faylona kembali. guild menjadi sedikit lebih ribut karena kombinasi dari si cantik dan si ganteng masuk.
 
 "Yo, bagaimana?"
 
-“Untuk saat ini, saya meminta makanan selama 10 hari. Ini akan disiapkan besok. ”(Elf)
+"Untuk saat ini, aku meminta makanan selama 10 hari. semua akan disiapkan besok. "(Elf)
 
-"Lalu, apa yang tersisa adalah transportasi, eh?"
+"Lalu, tinggal transportasi, eh?"
 
 Makanan selama 10 hari. Bahkan jika itu hanya Daging Kering atau makanan yang bisa diawetkan seperti itu, itu akan sangat berat. Kita butuh kuda.
 
-Dalam hal kuda, meskipun itu tergantung pada kualitas, kita akan membutuhkan koin emas daripada tembaga. (T / N: ingatkan bahwa di dunia ini Perak> emas> tembaga) Jelas tidak ada mobil di dunia ini, dan satu-satunya alat transportasi adalah kuda atau kereta. Jelas harga semakin tinggi dalam kasus itu. Belum lagi kita membutuhkan setidaknya dua kuda. Dan berdasarkan kurs Magic City, dompet saya akan kosong. Dompet Faylona juga akan habis dari memesan makanan.
+Dalam hal kuda, meskipun itu tergantung pada kualitas, kita akan membutuhkan koin emas daripada tembaga. (T / N: ingatkan di dunia ini Perak > emas > tembaga) Jelas tidak ada mobil di dunia ini, dan satu-satunya alat transportasi adalah kuda atau kereta kuda. Jelas harga semakin tinggi dalam kasus itu. Belum lagi kita membutuhkan setidaknya dua kuda. Dan berdasarkan kurs Magic City, dompetku akan kosong. Dompet Faylona juga akan habis dari memesan makanan.
 
-Menghela nafas, aku berdiri. Tidak peduli berapa banyak saya mencoba menyelamatkan, itu segera dihabiskan di suatu tempat. Saya merasa ingin menangis karena kenyataan itu.
+Menghela nafas, aku berdiri. Tidak peduli berapa banyak aku mencoba menabung, itu pasti akan segera habis. aku merasa ingin menangis karena kenyataan itu.
 
-Maka tinggalkan saja ini, adalah apa yang akan dikatakan Ermenhilde kecuali Penyihir Ibukota – Utano-san, sekarang setelah namanya muncul, aku juga tidak bisa berpura-pura tidak tahu. Jika aku mengabaikannya ketika aku melihat gadis kulit putih di konter, aku pasti sudah bebas tapi sekarang nama Utano-san telah muncul, aku tidak bisa ……… itulah cara kerja ikatan kurasa. Saya akhirnya merasa harus melakukan sesuatu juga.
+abaikan saja ini, adalah apa yang akan dikatakan Ermenhilde tapi Penyihir Ibukota – Utano-san, setelah namanya muncul, aku juga tidak bisa berpura-pura tidak tahu. Jika aku mengabaikannya ketika aku melihat gadis kulit putih di konter, aku pasti sudah bebas tapi sekarang nama Utano-san telah muncul, aku tidak bisa ……… mungkin itulah cara kerja yang disebut ikatan . aku akhirnya merasa harus melakukan sesuatu juga.
 
-Ya, Ermenhilde menjadi Ermenhilde, mengetahui bahwa saya toh tidak akan bisa meninggalkannya, tetapi masih mengatakan itu berarti ia benar-benar memiliki kepribadian yang buruk. Mengingat sosoknya dari belakang yang berdiri di depan konter, aku tidak tahan. Sebagai orang dewasa, saya tidak bisa begitu saja meninggalkan anak dalam kesulitan.
+Ya, Ermenhilde seperti biasanya, mengetahui bahwa aku tidak akan bisa meninggalkannya, tetapi masih mengatakan hal itu berarti ia benar-benar memiliki kepribadian yang buruk. Mengingat sosoknya dari belakang yang berdiri di depan konter, aku tidak bisa menahannya(TN: wusss jgn ngeres). Sebagai orang dewasa, aku tidak bisa begitu saja meninggalkan anak dalam kesulitan.
 
-"Maaf tapi, bisakah aku meminta kamu untuk menyiapkan kuda juga?"
+"Maaf tapi, bisakah aku memintamu untuk menyiapkan kuda juga?"
 
 "Ya, tidak masalah."
 
-Mengatakan itu, aku berdiri di mana tatapan Mururu berbalik ke arahku.
+akupun berdiri dan tatapan Mururu berbalik ke arahku.
 
-"Pergi ke suatu tempat?"
+"mau Pergi ke suatu tempat?"
 
-“Kamu juga ikut. Apa yang akan dilakukan Nona Francesca? "
+"Kamu juga ikut. Apa yang akan Nona Francesca lakukan? "
 
-"Saya?"
+"aku?"
 
-“Kita akan mendapat penghasilan. Mururu, izinkan saya mengajari Anda sedikit tentang bagaimana uang bekerja. "
+"kami akan sedikit bekerja untuk mendapatkan uang. Mururu, aku akan mengajarimu tentang bagaimana uang bekerja. "
 
-Saya mengatakan itu, tetapi dia hanya memelintir kepalanya dengan bingung.
+aku mengatakan itu, tetapi dia hanya memelintir kepalanya dengan bingung.
 
-Merasa khawatir tentang masa depan kita, aku hanya bisa menghela nafas ketika aku menjatuhkan bahuku.
+Merasa khawatir tentang kami nanti, aku hanya bisa menghela nafas ketika dan menjatuhkan bahuku.
 
-Itu akan baik-baik saja jika dia hidup di dunia binatang, tetapi sekarang dia telah datang ke sini, dia harus belajar bagaimana uang bekerja jika dia akan hidup dengan manusia.
+akan baik-baik saja jika dia hidup di dunia beast, tetapi sekarang dia telah datang ke sini, dia harus belajar bagaimana uang bekerja jika dia akan hidup dengan manusia.
 
-Saya tidak tahu berapa banyak uang yang dicuri darinya, tetapi dia pasti mangsa yang mudah bagi para perampok.
+aku tidak tahu berapa banyak uang yang dicuri darinya, tetapi dia pasti mangsa yang mudah bagi para perampok.
 
-"Dengan menghasilkan, apakah kamu akan menaklukkan monster?"
+"Dengan mencari uang, apakah kamu akan mengalahkan monster?"
 
-"Betul. Kami tidak punya banyak waktu jadi kami hanya akan menemukan mangsa mudah di tempat yang mudah. ​​"
+"Betul. kita tidak punya banyak waktu jadi kita hanya akan menemukan mangsa mudah di tempat yang mudah. ​​"
 
-Mengatakan itu, aku mengayunkan memo itu di tanganku.
+aku mengayunkan memo itu di tanganku.
 
-Penaklukan monster. Lawan kita akan menjadi goblin yang dapat ditemukan di dekatnya. Ini juga bisa diselesaikan dengan cepat juga. Karena kita seharusnya pergi besok, aku tidak ingin menghadapi monster yang akan melelahkan kita.
+Penaklukan monster. kita akan melawan goblin yang berada disekitar. Ini juga bisa diselesaikan dengan cepat juga. Karena kita harus pergi besok, aku tidak ingin menghadapi monster yang akan melelahkan.
 
-Sejujurnya, saya hanya ingin bergantung pada pengumpulan ramuan tetapi mempertimbangkan kepribadian Mururu, itu akan sulit. Gadis ini benar-benar benci menunggu.
+Sejujurnya, aku hanya ingin bergantung pada pengumpulan ramuan tetapi mempertimbangkan kepribadian Mururu, itu akan sulit. Gadis ini benar-benar benci menunggu.
 
 "Uang?" (Mururu)
 
-"Ya itu betul. Di dunia manusia, Anda tidak dipanggil sebagai orang dewasa sampai Anda mulai mendapatkan penghasilan sendiri. ”(Renji)
+"Ya itu betul. Di dunia manusia, kamu tidak bisa dipanggil dewasa sampai kamu bisa mendapatkan penghasilan sendiri. "(Renji)
 
-"…….Saya melihat.."
+"…….begitu....."
 
-"Itu menyakitkan bagi telingaku."
+"Itu menyakitkan bagi telingaku."(fran)
 
 [Menjadi setengah manusia sebenarnya mungkin lebih baik dalam kasus seperti itu.]
 
-Ermenhilde mengatakan itu tetapi bahkan aku berpikir seperti itu. Aneh karena saya adalah orang yang mengatakan itu, tetapi itu juga menyakitkan bagi telinga saya sendiri.
+Ermenhilde mengatakan itu tetapi tetapi aku juga aku berpikir seperti itu. Aneh rasanya karena aku yang mengatakan itu, tetapi itu juga menyakitkan bagi telingaku.
 
 Mururu membuat ekspresi terkejut dan Miss Francesca membuat wajah masam.
 
-Satu hal Mururu, saya pikir Nona Francesca akan dapat menghasilkan sendiri. Yah, perburuan goblin pertamanya mungkin telah menjadi trauma baginya. Dia hampir mati setelah berburu sendirian, dia pasti ingat itu.
+hanya untuk mururu, kupikir Nona Francesca akan dapat mencari uang sendiri. Yah, perburuan goblin pertamanya mungkin menjadi trauma baginya. Dia hampir mati setelah berburu sendirian, dia pasti ingat itu.
 
 "Serahkan kudanya padaku."
 
-"Ya. Untuk saat ini, mari kita dapatkan setidaknya biaya penginapan Mururu. "
+"Ya. Untuk saat ini, mari kita dapatkan setidaknya biaya penginapan untuk Mururu. "
 
-Saat ini, dia tidak punya pilihan untuk tinggal bersamaku atau menghabiskan malam dengan Peri di hutan.
+Saat ini, dia tidak punya pilihan untuk tinggal bersamaku atau menghabiskan malam dengan elf di hutan.
 
-Saya satu hal, tetapi Peri biasanya tidak terlalu menyambut ras lain. Faylona bahkan bisa disebut kasus yang tidak biasa. Memikirkan hal-hal seperti itu, saya memberikan dompet saya ke Faylona. Aah aku bertanya-tanya berapa biayanya. Tidak peduli berapa banyak yang saya hasilkan setelah datang ke sini, saya ragu itu akan cukup untuk membeli beberapa kuda.
+aku sih tidak apa-apa, tetapi elf biasanya tidak terlalu menyambut ras lain. Faylona bahkan bisa disebut kasus yang tidak biasa. sambil berfikir, aku memberikan dompetku ke Faylona. Aah ntah berapa kira-kira biayanya. Tidak peduli berapa banyak yang kuhasilkan setelah datang ke sini, aku ragu itu akan cukup untuk membeli beberapa kuda.
 
 "Ayo, ayo pergi."
 
-"Un, mengerti."
+"Un, SIAP."
 
-"Iya."
+"YES."
 
 Sepertinya, Nona Francesca juga ikut dengan kami.
 
-Akan lebih mudah dengan pesulap jadi terus terang aku lega.
+Akan lebih mudah kalau ada magician jadi terus terang aku lega.
 
 [Seperti yang diharapkan, lebih mudah hidup bersama orang-orang.]
 
-Saya sedikit terkejut dari kata-kata tiba-tiba.
+aku sedikit terkejut dari perkataan itu.
 
 Jarang bagi Ermenhilde untuk mengatakan sesuatu seperti itu.
 
-[Seperti ini, Renji sedang melakukan pencarian penaklukan monster karena pengaruh orang.]
+[dengan ini, Renji akan melakukan permintaan penaklukan monster karena pengaruh orang-orang.]
 
-“Tolong berhenti bicara seolah itu hal yang baik. Aku tidak suka pertempuran atau penaklukan monster. ”
+"Tolong berhenti bicara seolah itu hal yang baik. Aku tidak suka pertempuran atau penaklukan monster."
 
-Ini berbahaya, sakit ketika Anda terluka dan Anda bahkan mungkin mati. Dan itu sama untuk kawan-kawan saya juga.
+hal itu berbahaya, itu bisa menyakitkanmu terluka dan bahkan mungkin mati. Dan itu sama untuk teman-temanku juga.
 
-Itu sebabnya saya ingin hidup dengan hati-hati sambil mengumpulkan herbal saja. Tapi dunia ini kejam, sebelum aku sadar aku akan melakukan pencarian penaklukan monster lain.
+Itu sebabnya aku ingin hidup dengan hati-hati sambil mengumpulkan tanaman obat saja. Tapi dunia ini kejam, sebelum aku sadar aku akan melakukan permintaan penaklukan monster.
 
-Berburu Orc hitam dengan Nona Francesca, dan Ogre hitam dan para goblin tentara. Dan Setan itu juga. Saya bekerja terlalu banyak baru-baru ini. Tepat ketika aku berpikir aku akhirnya bisa santai, kali ini aku harus mengantar gadis kulit putih ini ke ibukota. Karena penyihir ibu kota — Utano-san terlibat, aku akan merasa sedih meninggalkannya.
+Berburu Orc hitam dengan Nona Francesca, Ogre hitam dan para pasukan goblin. Dan iblis itu juga. aku bekerja terlalu banyak baru-baru ini. Tepat ketika aku berpikir aku akhirnya bisa santai, kali ini aku harus mengantar gadis kulit putih ini ke ibukota. Karena penyihir ibu kota — Utano-san terlibat, aku akan merasa tidak enak meninggalkannya.
 
-"Apa yang terjadi tiba-tiba?"
+"ada apa?"
 
-"Teman mengobrol saya mengatakan sesuatu yang aneh."
+"Teman mengobrolku mengatakan sesuatu yang aneh."
 
-Ketika aku menjawab bahwa Mururu yang mendatangiku dan bertanya apa yang terjadi, dia membuat wajah bingung dan menatapku.
+Ketika aku menjawab Mururu yang mendatangiku dan bertanya apa yang terjadi, dia membuat wajah bingung dan menatapku.
 
-Yah, itu reaksi normal mengingat dia tidak bisa mendengar Ermenhilde. Mungkin karena Nona Francesca ingat bagaimana dia dulu dulu, dia mulai tertawa.
+Yah, itu reaksi normal mengingat dia tidak bisa mendengar Ermenhilde. Mungkin karena Nona Francesca ingat bagaimana dia dulu, dia mulai tertawa.
 
 "Renji, kamu aneh."
 
-"Aku sudah diberitahu banyak hal."
+"banyak yang berkata begitu padaku."
 
-[…… ..dan setiap kali kamu diberitahu itu, aku bertanya-tanya, apa tidak apa-apa seperti itu?]
+[…… ..dan setiap kali kamu dibilang aneh, apa tidak apa-apa seperti itu?]
 
 Yah tidak terlalu tapi lebih baik daripada diandalkan sebagai Pahlawan.
 
-Bahkan jika Anda mengharapkan sesuatu yang heroik dari saya, saya memiliki beberapa hal yang bisa saya lakukan. Saya hanya bisa bertarung. Itu juga, hanya sedikit lebih kuat dari petualang normal.
+Bahkan jika kamu mengharapkan sesuatu yang heroik dariku, aku memiliki sedikit hal yang bisa kulakukan. Aku bisa bertarung. Itu juga, hanya sedikit lebih kuat dari petualang normal.
 
 .
 
@@ -208,75 +208,75 @@ Bahkan jika Anda mengharapkan sesuatu yang heroik dari saya, saya memiliki beber
 
 .
 
-Bersama dengan Miss Francesca dan Mururu, saya meninggalkan distrik. Bahkan tidak perlu mencari goblin. Mereka akan muncul sendiri selama Anda pergi agak jauh dari jalan raya dan ke padang rumput.
+Bersama dengan Miss Francesca dan Mururu, aku meninggalkan distrik. tidak perlu mencari goblin. Mereka akan muncul sendiri selama kamu pergi agak jauh dari jalan raya dan ke padang rumput.
 
-Biasanya begitu. Hari ini, itu sedikit berbeda. Keberadaan Mururu mengurangi kesulitan pencarian perburuan goblin.
+Biasanya begitu. Hari ini, agak sedikit berbeda. Keberadaan Mururu mengurangi kesulitan pencarian goblin.
 
-"Sana. Temukan mereka. "
+"diSana. "
 
 "Luar biasa, Mururu-chan."
 
-"... Ini banyak, bahkan anak-anak di desa bisa melakukannya."
+"... hanya segini saja, bahkan anak kecil di desa bisa melakukannya."
 
 Dia mengatakan itu, tetapi dia pasti senang dipuji karena ekornya bergoyang dengan penuh semangat di bawah jubahnya.
 
-Saat melihat ke mana Mururu bilang, aku bisa mengkonfirmasi 3 goblin dengan penglihatanku. Mururu menemukan mereka dengan mudah karena indra penciumannya. Bisa dikatakan sebagai salah satu kemampuan spesial Beastmen.
+aku melihat ke mana Mururu tunjuk, aku bisa mengkonfirmasi 3 goblin dengan penglihatanku. Mururu menemukan mereka dengan mudah karena indra penciumannya. Bisa dikatakan sebagai salah satu kemampuan spesial Beastmen.
 
-Kemampuan fisik Beastmen melebihi kita manusia atau kemampuan demi-manusia dengan jarak yang sangat jauh. Itu sama dengan ketajaman dari 5 indera juga. Kekuatan lengan mereka, kekuatan kaki dll juga dalam level yang berbeda. Dan mereka seperti itu sejak mereka masih anak-anak juga. Seorang beastman dewasa berada di level yang sama sekali berbeda. Di sisi lain, mereka tidak bisa menggunakan sihir apa pun. Bukannya mereka tidak memiliki energi magis, namun mereka bahkan tidak bisa menggunakan sihir roh. Satu teori menunjukkan bahwa mereka menggunakan semua energi magis mereka dalam meningkatkan kemampuan fisik mereka, itulah sebabnya mereka begitu kuat secara fisik.
+Kemampuan fisik Beastmen melebihi kita manusia atau kemampuan setengah-manusia.termasuk juga ketajaman dari 5 indera. Kekuatan lengan mereka, kekuatan kaki dll juga dalam level yang berbeda. Dan mereka seperti itu sejak mereka masih anak-anak juga. Seorang beastman dewasa berada di level yang sama sekali berbeda. Di sisi lain, mereka tidak bisa menggunakan sihir apa pun. Bukannya mereka tidak memiliki energi magis, tapi tetap saja mereka bahkan tidak bisa menggunakan sihir roh. Satu teori menunjukkan bahwa mereka menggunakan semua energi magis mereka dalam meningkatkan kemampuan fisik mereka, itulah sebabnya mereka begitu kuat secara fisik.
 
-Sementara berjongkok dan bersembunyi di antara rumput setinggi pinggang, saya kagum dengan keterampilan fisik mereka.
+Sementara berjongkok dan bersembunyi di antara rumput setinggi pinggang, aku kagum dengan keterampilan fisik mereka.
 
-"Meskipun kamu memiliki tubuh yang kecil, kamu benar-benar wanita beastwed." (Renji)
+"Meskipun kamu memiliki tubuh yang kecil, kamu benar-benar wanita beastwoman." (Renji)
 
 "Aku bahkan sudah menyelesaikan upacara untuk menjadi dewasa."
 
-Mengatakan itu, dia membusungkan dadanya dengan sedikit bangga. Begitu kekanak-kanakan itu terasa sangat lucu. Kenapa aku merasa sangat senang melihatnya?
+dia membusungkan dadanya dengan sedikit bangga. Begitu kekanak-kanakan. dia terlihat sangat lucu. Kenapa aku merasa sangat senang melihatnya?
 
-Tidak seperti Demi-manusia, binatang buas memiliki rentang hidup yang mirip dengan manusia. Dengan penampilannya, dia harus berusia sekitar 14 tahun. Sekarang aku memikirkannya, Souichi dan yang lainnya juga berusia sekitar ini ketika kita dipanggil.
+Tidak seperti Demi-human, beastmen memiliki rentang hidup yang mirip dengan manusia. dilihat dari penampilannya, dia harusnya berusia sekitar 14 tahun. Sekarang aku memikirkannya, Souichi dan yang lainnya juga berusia sekitar ini ketika kami dipanggil kedunia ini.
 
 "Mururu-chan sudah diperlakukan sebagai orang dewasa di antara para Beastmen?"
 
-"Betul. Upacara kedewasaan untuk beastmen tidak dilakukan berdasarkan usia tetapi oleh kekuatan fisik. Menang melawan monster tertentu, mengumpulkan bahan, dengan melakukan hal-hal seperti itu Anda harus mendapatkan persetujuan dari rekan-rekan Anda untuk diterima sebagai orang dewasa. "
+"Betul. Upacara kedewasaan untuk beastmen tidak dilakukan berdasarkan usia tetapi oleh kekuatan fisik. Menang melawan monster tertentu, mengumpulkan bahan, dengan melakukan hal-hal seperti itu kamu harus mendapatkan persetujuan dari rekan-rekanm untuk diterima sebagai orang dewasa. "
 
-Upacara kedewasaan. Itu tidak berdasarkan usia seperti dengan manusia. Ini berbeda dengan setiap perlombaan tetapi terutama itu melibatkan mengalahkan monster saja. Mereka yang tidak cocok untuk bertempur seharusnya mengumpulkan beberapa materi tertentu saja. Monster yang terlibat dalam penaklukan semacam itu biasanya adalah goblin atau Orc sehingga Mururu harus terbiasa bertarung sendirian melawan monster pada level itu.
+Upacara kedewasaan. upacara itu tidak berdasarkan usia seperti dengan manusia. berbeda dengan setiap spesies tetapi yang paling utama pasti mengalahkan monster sendirian. Mereka yang tidak cocok untuk bertempur hanya mengumpulkan beberapa material tertentu saja. Monster yang terlibat dalam penaklukan semacam itu biasanya adalah goblin atau Orc sehingga Mururu harusnya terbiasa bertarung sendirian melawan monster pada level itu.
 
-Saat saya jelaskan itu, keduanya menatap saya terkejut.
+Saat aku menjelaskan itu, keduanya menatapku dengan terkejut.
 
-"Kamu tahu banyak."
+"Kamu tahu banyak ya."
 
-“Aku juga sudah melalui upacara itu. Yah, dalam kasus kami, itu bukan untuk diakui sebagai Orang Dewasa tetapi untuk diakui sebagai kawan. ”
+"Aku juga sudah melalui upacara itu. Yah, dalam kasus kami, itu bukan untuk diakui sebagai Orang Dewasa tetapi untuk diakui sebagai teman. "
 
-Sebenarnya harus dikatakan bahwa kita diseret untuk melakukannya tepatnya.
+lebih tepatnya kami diseret untuk melakukannya.
 
 Di benua Elfreim, untuk mendapatkan kepercayaan mereka, kami diminta untuk memburu monster yang dikatakan sebagai penguasa satu bagian dari hutan. Seperti yang diharapkan, aku tidak melakukannya sendirian tetapi dengan Souichi dan yang lainnya.
 
-Kemudian kami diberitahu bahwa biasanya Anda tidak menghadapi monster kelas bos seperti itu tetapi harus bertarung dengan goblin biasa. Pada dasarnya, daripada upacara, kami hanya digunakan untuk menyingkirkan masalah mereka.
+Kemudian kami diberitahu bahwa biasanya kamu tidak menghadapi monster kelas bos seperti itu tetapi hanya bertarung dengan goblin biasa. Pada dasarnya, daripada upacara, kami hanya digunakan untuk menyingkirkan masalah mereka.
 
-"Apakah begitu?"
+"benarkah?"
 
-"Aku mungkin tidak terlihat seperti itu tetapi aku telah menjalani HARD .... bagaimanapun juga, sulit untuk hidup." .)
+"Aku mungkin tidak terlihat seperti itu tetapi aku telah menjalani HARD .... hidup sulit." (T/N: maksud di huruf besar itu si renji mengatakan dengan bahasa inggris kemudian digantinya dengan bahasa jeoang karena dia sadar mereka tidak akan paham.)
 
-[Serius .....]
+[haa~~ .....]
 
-Entah kenapa, Ermenhilde mendesah lelah. Yah, aku benar-benar menghabiskan hidup yang sulit. Dari pegawai biasa hingga menyelamatkan dunia.
+Entah kenapa, Ermenhilde menghela nafas lelah. Yah, aku benar-benar melewati hidup yang sulit. Dari pegawai biasa hingga menyelamatkan dunia.
 
-Jika aku terus berpikir ke arah itu aku akan depresi lagi jadi aku menghela nafas dan melihat ke arah para goblin yang belum merasakan kami.
+Jika aku terus berpikir ke arah itu aku akan depresi lagi jadi aku menghela nafas dan melihat ke arah para goblin yang belum menyadari keberadaan kami.
 
-"Apakah kamu akan baik-baik saja dengan Goblin?"
+"Apakah kamu akan tidak apa-apa melawan Goblin?"(renji)
 
-“Ya, tidak masalah. Aku bisa mengambil lebih banyak lagi …… bahkan lima dari mereka dengan mudah. ​​”(Mururu)
+"Ya, tidak masalah. Aku bisa melawan lebih banyak lagi …… bahkan lima dari mereka dengan mudah. ​"(Mururu)
 
-"Itu meyakinkan."
+"bagus."
 
-Dia pasti menyadari apa yang ingin saya katakan sejak suasananya berubah.
+Dia pasti menyadari apa yang ingin kukatakan sejak suasananya berubah.
 
 Tubuh kecilnya yang terbungkus jubah terasa seperti semakin besar. Matanya yang ceroboh dan tampak lembut tiba-tiba berubah berbahaya dan bersinar. Kakinya tertutup bulu putih sepenuhnya. Mungkin, lengannya di bawah jubah itu sama.
 
-Pertempuran sikap. Aku melihat ke arah goblin lagi, sepertinya mereka masih belum memperhatikan kita tetapi melihat sekeliling mungkin karena merasakan kehadiran yang kuat di sekitarnya.
+posisi bertarung. Aku melihat ke arah goblin lagi, sepertinya mereka masih belum menyadari kami tetapi mereka melihat kesekitar mungkin karena merasakan kehadiran yang kuat di sekitarnya.
 
-Miss Francesca juga terkejut dengan perubahan mendadak di Mururu. Aku ingin tahu apakah mereka mengajarkan ekologi para beastmen di Akademi Sihir? Bahkan jika mereka melakukannya, masih tidak akan ada pesulap yang tidak akan tertarik untuk melihat langsung ini.
+Miss Francesca juga terkejut dengan perubahan mendadak Mururu. Aku ingin tahu apakah mereka mengajarkan ekologi para beastmen di Akademi Sihir? Bahkan jika mereka melakukannya, masih tidak akan ada magician yang tidak akan tertarik untuk melihat langsung ini.
 
-“Bisakah saya memburu mereka sekarang?” (Mururu)
+"Bisakah aku memburu mereka sekarang?" (Mururu)
 
 "Itu pekerjaannya."
 
@@ -286,49 +286,49 @@ Menjawab dengan ringan seperti itu, dia berlari dengan kecepatan luar biasa menu
 
 [Apakah dia baik-baik saja?]
 
-Nah, siapa yang tahu. Saya menerima permintaan ini untuk memeriksanya juga. Kami akan melakukan perjalanan bersama dari sini setelah semua, saya perlu tahu seberapa baik dia bisa melawan, hal-hal apa yang bisa dia lakukan.
+Nah, ntahlah. aku menerima permintaan ini untuk memeriksanya juga. Kami akan melakukan perjalanan bersama, aku perlu tahu seberapa bagus dia bisa bertarung, hal-hal apa yang bisa dia lakukan.
 
-Setelah melihatnya menikmati liburan, saya mencari Nona Francesca berikutnya.
+Setelah melihatnya menikmati pertarungannya, giliran Nona Francesca berikutnya.
 
 "Apakah ini pertama kalinya kamu melihat Beastwoman?"
 
-"Kamu, s ... awalnya aku pikir mereka tidak akan jauh berbeda dari manusia."
+"y, ya ... awalnya aku pikir mereka tidak akan jauh berbeda dari manusia."
 
-“Mereka hanya terlihat mirip. Kecuali untuk telinga dan ekornya. ”
+"Mereka hanya terlihat mirip. Kecuali untuk telinga dan ekornya. "
 
 Tetapi ketika mereka memasuki pertempuran, mereka benar-benar berubah.
 
 Dari kejauhan, aku mendengar suara * gii * menjerit.
 
-Ketika aku menoleh untuk melihat ke sana, Mururu sudah menurunkan salah satu goblin. Yang mengatakan, saya tidak bisa memastikan. Aku hanya bisa mengatakan itu karena 3 goblin yang bisa kulihat dari jauh ini telah berkurang menjadi dua.
+Ketika aku menoleh untuk melihat ke sana, Mururu sudah mengalahkan salah satu goblin. yah, aku tidak bisa memastikan. Aku hanya bisa mengatakan itu karena 3 goblin yang bisa kulihat dari jauh ini telah berkurang menjadi dua.
 
-Kemudian, bayangan putih yang Mururu lompat ke ketinggian luar biasa dan menerjang ke goblin berikutnya.
+Kemudian, bayangan putih Mururu lompat dengan ketinggian luar biasa dan menerjang ke goblin berikutnya.
 
-Yang terakhir menghilang ke rumput begitu saja. Itu mungkin ditarik dan dirobohkan oleh binatang buas bernama Mururu. Gaya bertarung itu benar-benar cocok dengan binatang buas.
+goblin Yang terakhir lari dan menghilang ke rumput begitu saja. Itu mungkin ditarik dan dikalahkan oleh binatang buas bernama Mururu. Gaya bertarung itu benar-benar cocok dengan binatang buas.
 
-Aku menghela nafas pada pergantian peristiwa yang tiba-tiba dan Nona Francesca tampaknya kehilangan kata-kata.
+Aku menghela nafas dengan semua itu dan Nona Francesca tampaknya kehilangan kata-kata.
 
 "Luar biasa."
 
 Saya hanya bisa mengatakan itu.
 
-Terus terang, dia mungkin lebih kuat dari saya di usia yang begitu muda. Saya merasa seperti kehilangan kepercayaan diri lagi.
+Terus terang, dia mungkin lebih kuat dariku di usia yang begitu muda. aku merasa seperti kehilangan kepercayaan diri lagi.
 
-Apakah itu Souichi dan kelompok atau dia, mengapa anak-anak di sekitarku begitu kuat? Apakah saya punya posisi / status di sini?
+maupun itu grup souichi atau dia, mengapa anak-anak di sekitarku begitu kuat? Apakah aku punya posisi / status di sini?
 
-"Dia luar biasa."
+"Dia luar biasa."(fran)
 
 "Ya."
 
-Mengatakan itu, aku berjalan keluar dari rumput tempat aku bersembunyi.
+aku berjalan keluar dari rumput tempatku bersembunyi.
 
-Mururu sedang menunggu di sana, tidak ternodai dengan darah, bagi kita untuk sampai ke sana. Meskipun dia petarung tempur dekat sepertiku, seberapa bagus dia untuk menghindari darah, gadis putih ini?
+Mururu sedang menunggu di sana, tidak ternodai dengan darah, menunggu kami untuk sampai ke sana. Meskipun dia petarung jarak dekat sepertiku, seberapa hebat dia untuk dapat menghindari darah?
 
-Kilau berbahaya di matanya hilang menunjukkan bahwa dia sudah tenang sekarang. Tetapi di bawah jubah yang berkibar-kibar, lengannya tidak tipis seperti gadis normal, tetapi ditutupi dengan bulu putih murni sampai sikunya. Dan yang lebih tidak biasa adalah pisau 4 seperti cakar panjang tumbuh dari tangannya. Saat ini hanya tangan kanannya yang telah mengalami transformasi tetapi biasanya kedua tangannya harus seperti itu.
+Kilau berbahaya di matanya sudah hilang menunjukkan bahwa dia sudah tenang sekarang. Tetapi di bawah jubah yang berkibar-kibar, lengannya tidak tipis seperti gadis normal, tetapi ditutupi dengan bulu putih murni sampai sikunya. Dan yang lebih tidak biasa adalah 4 pisau seperti cakar panjang tumbuh dari tangannya. Saat ini hanya tangan kanannya yang telah mengalami transformasi tetapi biasanya kedua tangannya harus seperti itu.
 
 Penampilan itu jelas bukan manusia. Itu membuktikan bahwa gadis ini milik spesies yang sama sekali berbeda, Beastmen.
 
-Nona Francesca di sampingku menelan ludah, tetapi ketika seseorang bahkan sedikit terbiasa melihat binatang buas, mereka akan menemukan gadis pejuang murni ini menjadi sangat cantik.
+Nona Francesca di sampingku menelan ludahnya, tetapi ketika seseorang bahkan sedikit terbiasa melihat binatang buas, mereka akan menemukan gadis pejuang murni ini menjadi sangat indah.
 
 Keindahan mulia dan agung yang tidak pernah dimiliki manusia. Ditambah dengan kekuatan yang dia tunjukkan tadi, itu membuatnya terlihat sangat menawan.
 
@@ -342,121 +342,121 @@ Menyembunyikan emosiku, aku mengambil pisauku dari sarungnya. Membuka mulut si g
 
 "Bukan hanya aku, tapi semua petualang."
 
-Ketika saya memberikan penjelasan yang bagus, saya mulai melepas peralatan dari para goblin. Ini pekerjaan biasa saya setelah setiap pertarungan. Padahal Mururu yang benar-benar mengalahkan yang ini.
+sambil aku memberikan penjelasan, aku mulai melepas equip dari para goblin. Ini pekerjaan biasaku setelah setiap pertarungan. Padahal Mururu yang mengalahkan semua ini.
 
-[…… Tidak bisakah kamu bertingkah seperti bandit setidaknya kali ini?]
+[…… Tidak bisakah kamu tidak bertingkah seperti bandit setidaknya kali ini?]
 
-"Juga, kamu bisa menjual peralatan seperti itu untuk uang juga."
+"dan Juga, kamu bisa menjual peralatan seperti itu untuk uang juga."
 
-[Oi Renji? Ini pertama kalinya kamu bertarung dengan wanita buas ini. Setidaknya cobalah bertingkah seperti pahlawan untuk sekali?]
+[Oi Renji? Ini pertama kalinya kamu bertarung dengan beastwoman ini. Setidaknya cobalah bertingkah seperti pahlawan untuk sekali?]
 
 Sambil mengabaikan Ermenhilde yang terus mengatakan hal-hal seperti itu, aku melepas peralatan dari para goblin.
 
-Jika hanya bertingkah seperti Pahlawan akan mengisi dompet saya juga saya tidak akan keberatan. Tapi itu tidak dan yang lebih penting saat ini adalah uang daripada kehormatan pahlawan. Lagipula kamu tidak bisa makan dengan hormat …… Jika aku mengatakan sesuatu seperti “Aku Pahlawan.” Maka saya mungkin makan di desa mungkin tetapi itu sendiri konyol untuk dilakukan sebagai manusia.
+Jika hanya bertingkah seperti Pahlawan akan mengisi dompetku, aku tidak akan keberatan. Tapi itu tidak akan terjadi dan yang lebih penting saat ini adalah uang daripada kehormatan pahlawan. Lagipula kamu tidak bisa makan hanya dengan kehormatan …… Jika aku mengatakan sesuatu seperti “Aku Pahlawan.” Maka aku mungkin dapat makan di desa tetapi itu konyol untuk dilakukan sebagai manusia.
 
-Bagaimanapun, sangat disayangkan bahwa satu-satunya senjata yang bisa digunakan di sini adalah pedang pendek. Itu juga memiliki chip di pedangnya. Saya ragu kita akan mendapat banyak dari menjual ini. Saya hanya bisa menghela nafas.
+sangat disayangkan bahwa satu-satunya senjata yang bisa digunakan di sini adalah pedang pendek. Itu juga memiliki chip di pedangnya. aku ragu kita akan menjual mahal benda  ini. aku hanya bisa menghela nafas.
 
 "Aku mengerti."
 
-“Aku tidak berpikir banyak petualang melakukan semua itu ……” (fran)
+"Aku tidak berpikir banyak petualang melakukan semua itu ……" (fran)
 
-"Ketika Anda tidak punya uang, ini adalah sumber penghasilan utama."
+"Ketika kamu tidak punya uang, ini adalah sumber penghasilan utama."
 
-[Betapa menyedihkannya ...]
+[Betapa menyedihkannya dirimu ...]
 
-Setelah itu, kami meminta Mururu mencari Goblin dan aku dan Nona Francesca juga bergabung dalam pertempuran.
+Setelah itu, kami meminta Mururu mencari Goblin dan aku dan Nona Francesca juga bergabung dalam pertarungan.
 
-Karena itu, sulit bagi kami untuk mengikuti kecepatan Mururu. Dia cepat dan kuat. Lebih mudah untuk bergerak terpisah darinya daripada mencocokkan dengannya. Terus terang, perbedaan kemampuan fisik agak terlalu banyak.
+sulit bagi kami untuk mengikuti kecepatan Mururu. Dia cepat dan kuat. Lebih mudah untuk bergerak terpisah darinya daripada mencoba mencocokkan dengannya. Terus terang, perbedaan kemampuan fisik kami agak terlalu banyak.
 
-Sekali lagi membuat saya menyadari perbedaan antara manusia dan Beastmen. Mungkin, bahkan Faylona tidak akan bisa mengikutinya.
+Sekali lagi membuatku sadar akan perbedaan antara manusia dan Beastmen. Mungkin, bahkan Faylona tidak akan bisa mengikutinya.
 
-"Kami bertarung cukup banyak tapi ....... apa kamu baik-baik saja?"
+"Kita bertarung cukup banyak tapi ....... apa kamu baik-baik saja?"(fran)
 
-"Ya, aku hampir pada batasku."
+"Ya, aku hampir pada batasku."(renji)
 
-2 pedang panjang di pinggangku, 1 pedang pendek di sisi lain pinggang. Perisai besi di tangan kiriku, dan 2 battleax di punggungku. Berat totalnya mungkin sedikit lebih dari 40kg. Alih-alih mengatakan berat, itu bahkan sulit untuk menggerakkan tubuh saya. Tubuh saya terlatih dengan baik dari perjalanan konstan tetapi ini masih mengambil sebagian besar stamina saya. Jika saya tidak memiliki Cheat yang diberikan kepada saya, saya mungkin tidak akan bisa bergerak.
+2 pedang panjang di pinggangku, 1 pedang pendek di sisi lain pinggang. Perisai besi di tangan kiriku, dan 2 battleax di punggungku. Berat totalnya mungkin sedikit lebih dari 40kg. jangankan berat, bahkan aku kesulitan menggerakkan tubuhku. Tubuhku terlatih dengan baik dari perjalanan dulu tetapi tetap saja ini menguras staminaku. Jika aku tidak memiliki Cheat yang diberikan kepadaku, aku mungkin tidak akan bisa bergerak.
 
-Napasku menjadi kasar tetapi aku bisa melanjutkan sedikit lagi. Saya benar-benar ingin kembali dengan cepat. Bagaimana sih protagonis fantasi berjalan begitu mudah dengan lebih banyak barang di tas mereka? Jika aku berharap pada dewi bahwa aku ingin menjadi seperti protagonis dari sebuah kisah fantasi, aku ingin tahu bagaimana jadinya aku?
+Napasku menjadi kasar tetapi aku bisa melanjutkan sedikit lagi. aku benar-benar ingin kembali dengan cepat. Bagaimana sih protagonis fantasi berjalan begitu mudah dengan lebih banyak barang di tas mereka? Jika aku berharap pada dewi bahwa aku ingin menjadi seperti protagonis dari sebuah kisah fantasi, bagaimana jadinya aku?
 
 Sambil memikirkan itu, aku mengalihkan pikiranku dari ketegangan.
 
 [Kamu terlalu rakus.]
 
-"Sebanyak ini seharusnya mengisi dompet kita dengan cukup baik."
+"paling tidak dengan semua ini dapat mengisi dompet kita."
 
-"Daripada hal-hal seperti itu, cakar saya memotong lebih baik. Bagaimana itu bahkan berguna, benda tumpul itu? "
+"Daripada itu, cakarku memotong lebih baik. Bagaimana itu bahkan berguna, benda tumpul itu? "
 
-Mururu yang mengatakan itu juga memegang tongkat kasar dan pedang, yang tidak cocok dengan tubuh mungilnya, di tangannya juga.
+Mururu yang mengatakan itu juga memegang tongkat besar dan pedang, yang tidak cocok dengan tubuh mungilnya, di tangannya juga.
 
-Itu lebih rendah dari apa yang saya miliki tetapi tetap saja dia bahkan tidak merasakan sedikit pun dari itu. Saya merasa ingin membuatnya membawa setengah dari apa yang saya miliki tetapi dengan cepat membuang pikiran itu. Itu akan rendah bagiku baik sebagai orang dewasa maupun sebagai pria.
+Itu lebih sedikit dari apa yang kubawa tetapi tetap saja dia bahkan tidak merasakan berat sedikit pun dari itu. Aku merasa ingin membuatnya membawa setengah dari apa yang kubawa tetapi aku dengan cepat membuang pikiran itu. Itu akan jelek bagiku baik sebagai orang dewasa maupun sebagai pria.
 
 "Menghasilkan uang berarti kamu harus mengumpulkan barang-barang yang bisa dijual."
 
 "...... Aku benar-benar tidak bisa mengerti manusia."
 
-"Aku tidak berpikir itu benar-benar benar."
+"Aku tidak berpikir itu benar."(fran)
 
 [Kamu salah di sini, Renji.]
 
 Oh, diamlah. Kita harus pergi besok jadi kita harus mendapatkan sebanyak mungkin hari ini.
 
-Kami telah memperoleh ketentuan, dan kami harus mendapatkan kuda juga. Tetapi ada banyak hal lain seperti jamu dan obat-obatan yang dibutuhkan dalam perjalanan. Tidak ada yang namanya memiliki terlalu banyak uang.
+Kita telah memperoleh bekal, dan kita harus mendapatkan kuda juga. Tetapi ada banyak hal lain seperti tanaman obat dan obat-obatan yang dibutuhkan dalam perjalanan. Tidak ada yang namanya memiliki terlalu banyak uang.
 
-Biasanya, saya tidak akan bekerja sekeras ini, tetapi karena kami memiliki jadwal yang ketat, saya ingin siap untuk keadaan yang tidak terduga. Belum lagi bahwa 9i telah terlibat dalam banyak hal yang mengganggu akhir-akhir ini.
+Biasanya, aku tidak akan bekerja sekeras ini, tetapi karena kami memiliki jadwal yang ketat, aku ingin siap untuk keadaan yang tidak terduga. Belum lagi bahwa aku telah terlibat dalam banyak hal yang merepotkan akhir-akhir ini.
 
 Memikirkan semua itu …… Aku merasa lelah lagi. Aku ingin tahu apakah aku akan bisa bergerak besok.
 
-Setelah kembali ke Magic City, saya pertama-tama pergi langsung ke toko item untuk menjual peralatan yang didapat dari goblin. Ketika saya meletakkan semua peralatan di konternya, penjaga toko berteriak kaget. Yah itu tidak bisa membantu, setelah semua biasanya petualang tidak datang dengan begitu banyak peralatan untuk dijual setelah pergi hanya satu berburu.
+Setelah kembali ke Magic City, aku langsung pergi ke toko barang untuk menjual peralatan yang didapat dari goblin. Ketika aku meletakkan semua peralatan di konternya, penjaga toko berteriak kaget. yaaaa, biasanya petualang tidak datang dengan begitu banyak peralatan untuk dijual hanya dengan sekali berburu.
 
-Meskipun itu menghasilkan uang bagi Anda, itu juga besar dan sulit untuk dibawa kembali ke kota. Ini juga menjadi penghalang saat bertarung dan jika kamu menjatuhkannya hanya untuk bertarung maka mengumpulkan semuanya kembali adalah rasa sakit tersendiri. Dan, sebagian besar peralatan tidak dapat digunakan dengan mudah karena monster tidak memelihara senjatanya. Itu sebabnya orang lebih suka berburu lebih banyak monster daripada mengumpulkan item dari setiap monster. Kebanyakan petualang menemukan yang pertama lebih efisien.
+Meskipun itu menghasilkan uang, itu juga besar dan sulit untuk dibawa kembali ke kota. Ini juga menjadi penghalang saat bertarung dan jika kamu menjatuhkannya hanya untuk bertarung maka mengumpulkan semuanya kembali sangat merepotkan. Dan, sebagian besar peralatan tidak dapat digunakan dengan mudah karena monster tidak memelihara senjatanya. Itu sebabnya orang lebih suka berburu lebih banyak monster daripada mengumpulkan barang dari setiap monster. Kebanyakan petualang memilih cara yang lebih efisien.
 
-Setelah itu, saya menyerahkan taring goblin di guild dan mengambil hadiah kami. Seperti yang diharapkan, dengan kami bertiga, kami telah berburu cukup banyak dari mereka sehingga jumlahnya cukup bagus. Biaya perjalanan masih lebih besar.
+Setelah itu, aku menyerahkan taring goblin di guild dan mengambil hadiah kami. Seperti yang diharapkan, dengan kami bertiga, kami telah berburu cukup banyak sehingga bayarannya cukup bagus. walaupun Biaya perjalanan masih lebih besar.
 
-"Oh, benar, Mururu, di mana kamu tidur sampai sekarang?"
+"Oh iya, Mururu, di mana kamu tidur sampai sekarang?"
 
-"Di luar rumah."
+"Di luar."
 
-Saya seharusnya telah mengetahui. Nona Francesca benar-benar terkejut, tetapi saya tidak banyak karena saya mengharapkan jawaban ini.
+aku harusnya sudah mengetahuinya. Nona Francesca benar-benar terkejut, tetapi aku tidak karena sudah menduga jawaban ini.
 
-Dia bangkrut dan tidak tahu bagaimana uang bekerja. Belum lagi beastmen adalah pemburu alami yang hidup di alam liar. Mereka benar-benar tidak punya masalah dengan tidur di luar rumah.
+Dia tidak punya uang dan tidak tahu bagaimana uang bekerja. Belum lagi beastmen adalah pemburu alami yang hidup di alam liar. Mereka benar-benar tidak punya masalah dengan tidur di manapun.
 
-"Sini."
+"ini."
 
-Mengatakan itu, saya menyerahkan sejumlah uang yang kami hasilkan dalam kantong kepada Mururu.
+aku menyerahkan sejumlah uang yang kami hasilkan dalam kantong kepada Mururu.
 
-Saya menyerahkan satu kepada Miss Francesca juga. Dia menolak pada awalnya tetapi ketika saya mengatakan itu baik-baik saja, dia menerimanya. Yah, dia membantu kami jadi itu normal saja.
+aku menyerahkan kepada Miss Francesca juga. Dia menolak pada awalnya tetapi ketika aku mengatakan itu baik-baik saja, dia menerimanya. Yah, dia membantu kami jadi itu normal saja.
 
 "Ini?" (Mururu)
 
-“Hadiah dari permintaan. Ini adalah uang yang Anda dapatkan setelah bekerja hari ini. "
+"Hadiah dari permintaan. Ini adalah uang yang kamu dapatkan setelah bekerja hari ini. "
 
-Dia memandang kantong dengan tatapan ingin tahu dan memeriksa berat dan yang lainnya.
+Dia memandang kantong dengan tatapan ingin tahu dan memeriksa beratnya.
 
-Itu tampak sangat lucu bahkan ketika tahu itu tidak sopan pada saya, saya akhirnya tertawa.
+dia tampak sangat lucu dan walaupun itu tidak sopan, aku akhirnya tertawa.
 
-“Jadi, kamu bisa makan selain daging kering dengan ini juga.” (Renji)
+"Jadi, kamu bisa makan selain daging kering dengan ini juga." (Renji)
 
-"Saya melihat. Hasilkan seperti ini dan gunakan untuk makanan, bukan? ”(Mururu)
+"begitu... mencari uang seperti ini berguna juga untuk makanan ya?"(Mururu)
 
 "Tidak, uang digunakan bukan hanya untuk makanan tetapi ......"
 
-Jika saya mulai menjelaskan tentang 'belanja' padanya sekarang, saya akan benar-benar lelah.
+Jika aku mulai menjelaskan tentang 'belanja' padanya sekarang, aku akan benar-benar kelelahan.
 
-Berburu goblin, mengumpulkan peralatan, menjualnya di kota ........ jujur, aku sudah sangat lelah. Saya ingin kembali ke penginapan dan tidur.
+Berburu goblin, mengumpulkan peralatan, menjualnya di kota ........ jujur, aku sudah sangat lelah. aku ingin kembali ke penginapan dan tidur.
 
 Duduk di kursi kayu di guild, aku menghela nafas. Aah, aku sangat lelah.
 
-[Kamu baru saja menjelaskan rasa sakit, bukan?]
+[Kamu baru saja sadar bahwa menjelaskan semuanya itu merepotkan, bukan?]
 
-“Mari kita bertemu dengan Faylona dan memutuskan kapan kita akan bertemu besok. Saya sangat lelah. "
+"ayo kita bertemu dengan Faylona dan memutuskan kapan kita akan bertemu besok. aku sangat lelah."
 
-"... Moouu."
+"... Moouu."(fran)
 
-Mengatakan itu, Nona Francesca mulai menjelaskan berbagai penggunaan uang kepada Mururu.
+Nona Francesca mulai menjelaskan berbagai penggunaan uang kepada Mururu.
 
-Yah, terserahlah. Mengesampingkan hal itu, saya mulai memikirkan hal-hal lain. Aku ingin tahu apa yang sedang dilakukan Faylona saat ini. Dia mengambil terlalu banyak waktu untuk membeli kuda saja. Apakah dia juga pergi berburu sendirian mungkin?
+Yah, terserahlah. Mengesampingkan hal itu, aku mulai memikirkan hal-hal lain. Aku ingin tahu apa yang sedang dilakukan Faylona saat ini. Dia menggunakan terlalu banyak waktu untuk membeli kuda saja. Apakah dia juga pergi berburu sendirian mungkin?
 
-[Fuu, kami benar-benar banyak bekerja hari ini.]
+[Fuu, kita benar-benar banyak bekerja hari ini.]
 
 "Tapi kau sama sekali tidak melakukan apa-apa?"
 
@@ -468,22 +468,22 @@ Itu Kepala.
 
 "Akan menyenangkan jika sesuatu yang baik terjadi."
 
-Sambil melihat konter, aku bergumam. Tapi saya pikir itu akan sulit.
+Sambil melihat konter, aku bergumam. Tapi aku pikir itu akan sulit.
 
-Mungkin, kita tidak akan bisa menyewa pesulap. Ada banyak permintaan yang lebih baik daripada yang saya pasang. Seorang penyihir normal tidak akan menerima milikku.
+Mungkin, kita tidak akan bisa menyewa magician. Ada banyak permintaan yang lebih baik daripada yang kupasang. Seorang magician normal tidak akan menerima permintaanku.
 
-Itu sebabnya saya memutuskan untuk tidak memikirkan hal-hal menyedihkan seperti itu.
+Itu sebabnya aku memutuskan untuk tidak memikirkan hal-hal menyedihkan seperti itu.
 
-Tapi selanjutnya, saya memikirkan perjalanan kami. Kami akan bergerak dengan kuda tetapi terus terang, menunggang kuda benar-benar menyakitkan. Bahkan setelah saya terbiasa, secara fisik sangat mahal untuk menempuh jarak jauh dengan kuda.
+Tapi aku lebih memikirkan perjalanan kami. Kami akan bergerak dengan kuda tetapi terus terang, menunggang kuda benar-benar menyakitkan. Bahkan walaupun aku terbiasa, sangat melelahkan untuk menempuh jarak jauh dengan kuda.
 
-Pada dasarnya, pantat Anda, atau lebih tepatnya, seluruh tubuh bagian bawah Anda mulai sakit. Dan jika Anda mendorongnya, seluruh tubuh Anda juga mulai sakit.
+Pada dasarnya, pantatmu, atau lebih tepatnya, seluruh tubuh bagian bawahmu akan sakit. Dan jika kamu memaksanya, seluruh tubuhmu juga akan sakit.
 
-Memikirkan hal itu, akhirnya saya menghela nafas lagi.
+akupun menghela nafas lagi.
 
-Di sebelah saya, mantan pemula Miss Francesca sedang mengajar petualang pemula Mururu tentang penggunaan uang. Adegan itu terlihat sangat menyenangkan, itu menyembuhkan saya.
+Di sebelah, mantan pemula Miss Francesca sedang mengajar petualang pemula Mururu tentang penggunaan uang. Adegan itu terlihat sangat menyenangkan, itu menyembuhkanku.
 
-"Ini damai."
+"damainya."
 
-[Tapi kamu melawan goblin hanya beberapa jam yang lalu.]
+[Tapi kamu melawan goblin beberapa jam yang lalu.]
 
-……… Pasangan saya benar-benar kekurangan mimpi.
+……… Pasangan saya benar-benar kekurangan impian.
