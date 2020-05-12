@@ -1,54 +1,52 @@
 Bab 26 Jalan Menuju Ibukota (3) 
 
-(T / N: Saya baru menyadari bahwa saya telah menerjemahkan judul bab untuk 2 terakhir sebagai 'Jalan Menuju Kerajaan' untuk beberapa alasan ketika itu adalah 'jalan ke ibukota'. Mengapa? Saya tidak tahu apa-apa! Mungkin karena ada WN dengan nama yang mirip dan aku jadi bingung. Aku bersumpah aku selalu linglung saat menerjemahkan hal ini.: P)
+Sambil meletakkan barang bawaan kami ke punggung Kuda, aku menguap dan mataku dan Miss Francesca saling melihat. aku merasa malu dan  saya mencoba menyembunyikannya dengan berkonsentrasi mengatur barang bawaan kami.
 
-Sambil menempelkan barang bawaan kami ke pelana Kuda, aku menguap ketika mataku bertemu dengan barang milik Miss Francesca. Merasa malu, saya mencoba menyembunyikannya dengan berkonsentrasi mengatur barang bawaan kami.
+Pagi hari di awal musim gugur terasa dingin dan langit masih sedikit gelap.
 
-Pagi-pagi di awal musim gugur terasa dingin dan langit masih redup dan suram.
+"Renji-san, apakah kamu butuh bantuan?"
 
-"Renji-san, apakah kamu butuh bantuan di suatu tempat?"
+Ketika aku sedang bersiap di dekat gerbang kota, gadis di belakangku bertanya kepadaku.
 
-Ketika saya sedang bersiap di dekat gerbang kota, gadis di belakang saya bertanya kepada saya.
+"Tidak perlu, aku baik-baik saja. Atau lebih tepatnya, aku dan Feirona sudah cukup melakukan semua ini jadi kau bisa istirahat lebih lama lagi" (T / N: Faylona = Feirona sesuai ilustrasi resmi bahasa Inggris.)
 
-"Tidak, aku baik-baik saja. Atau lebih tepatnya, aku dan Feirona sudah cukup untuk persiapan jadi kau bisa istirahat lebih lama lagi, kau tahu? ” (T / N: Faylona = Feirona sekarang sesuai bahasa Inggris resmi dalam ilustrasi.)
-
-"Tidak, aku baik-baik saja. Bahkan saya sudah agak terbiasa bepergian sekarang. ”
+"Tidak, aku baik-baik saja. aku sudah terbiasa bepergian sekarang. "
 
 "Yah, aku tahu itu."
 
-Saat menjawabnya, aku bertanya-tanya mengapa itu berakhir seperti ini untuk yang kesekian kalinya. Meskipun aku sebenarnya tahu alasannya juga.
+Saat menjawabnya, aku berfikir mengapa selalu berakhir seperti ini. Meskipun aku sebenarnya tahu alasannya.
 
-Aku memandangi gadis di belakangku yang berjongkok dan mengepak barang-barang di tas sekarang; Fuyou Aya. Salah satu dari 13 Pahlawan, jenius yang dikenal sebagai [Grand Magus].
+Aku melihat gadis di belakangku yang berjongkok dan memasukkan barang-barang di tas; Fuyou Aya. Salah satu dari 13 Pahlawan, jenius yang dikenal sebagai [Grand Magus].
 
-……… Kenapa dia menerima permintaan seperti itu yang pada dasarnya tidak memberi imbalan?
+……… Kenapa dia menerima permintaan yang pada dasarnya tidak memberi imbalan?
 
-Yah, entah bagaimana saya bisa menebak alasannya tetapi saya tidak begitu yakin. Itu sebabnya saya akhirnya ragu untuk bertanya langsung padanya juga. Karena aku tahu Aya sendiri akan bermasalah tentang bagaimana menjawabnya jika aku menanyakan hal seperti itu padanya. Apa yang gadis Fuyou Aya harapkan dari pria bernama Yamada Renji? Baik aku maupun Aya sendiri belum menentukan jawaban untuk itu.
+Yah, entah bagaimana aku bisa menebak alasannya tetapi aku  tidak begitu yakin. akupun ragu untuk bertanya langsung padanya juga. Karena aku tahu Aya sendiri akan kerepotan bagaimana menjawabnya jika aku menanyakan hal seperti itu padanya. Apa yang gadis Fuyou Aya harapkan dari pria bernama Yamada Renji? Baik aku maupun Aya sendiri belum menentukan jawaban untuk itu.(TN: YOURE HERE PAPA !!!PAPAAA!!)
 
-Sungguh aneh bahwa kami masih bepergian bersama meskipun seperti itu. Saya memang mencoba membujuknya sebaliknya. Tidak akan ada hadiah, dia akan merindukan kelasnya dan bahkan ada pekerjaan mengangkut Demon itu ke ibukota 1 minggu kemudian. Saya tidak berpikir dia punya waktu untuk tetap bersama kami, tapi ...
+Sungguh aneh bahwa kami masih bepergian bersama. aku memang mencoba memberitahunya bahwa Tidak akan ada hadiah, dia akan merindukan kelasnya dan bahkan ada pekerjaan membawa iblis itu ke ibukota dalam 1 minggu nanti. aku tidak berpikir dia punya waktu untuk tetap bersama kami, tapi ...
 
-“Tetap saja, kamu siap ikut dengan kami?” (Renji)
+“Tetap saja, kamu ikut dengan kami?” (Renji)
 
 "Iya."
 
-Itu adalah jawaban instan. Saya hanya bisa menghela nafas. Tidak ada gunanya mengatakan apa-apa lagi sehingga saya menyerah. Saya sudah cukup mencoba. Dia tidak akan mendengarkan saya bahkan jika saya memintanya untuk tidak sekarang. Belum lagi, aku akan memperburuk suasana hatinya juga. Jika itu terjadi, kasus yang lebih buruk, aku akan berakhir di sebuah lubang di tengah kota …… .Aku percaya dia tidak akan melakukan itu padaku, tapi karena ada banyak kasus di masa lalu dari beberapa pria yang telah menderita itu, jadi aku tidak bisa memastikan.
+jawaban instan. aku hanya bisa menghela nafas. Tidak ada gunanya mengatakan apa-apa lagi jadi aku menyerah saja. aku lelah. Dia tidak akan mendengarkanku bahkan jika aku memintanya sekarang. Belum lagi, aku akan memperburuk suasana hatinya juga. Jika itu terjadi, kasus yang lebih buruk, aku akan berakhir di sebuah lubang di tengah kota …… .Aku percaya dia tidak akan melakukan itu padaku, tapi karena ada banyak kasus di masa lalu dari beberapa pria yang telah menderita itu, jadi aku tidak bisa memastikan.
 
 Aku merasa seperti Ermenhilde tertawa di dalam sakuku. Pasti imajinasiku.
 
 “Lagipula, kamu menerima permintaan dengan Souichi dan Yayoi tapi ........ itu tidak adil. (Aya)
 
-"Bahkan jika kamu mengatakan itu padaku ..."
+"Bahkan jika kamu berkata begitu padaku ..."
 
-Mereka ada di sana sehingga berakhir seperti itu. Bukannya aku bias dalam hal apa pun, dan jika kesempatan itu muncul aku akan melakukan pencarian dengan Aya juga. Yah, memang benar aku tidak mengundangnya. Penampilan cemberutnya terlihat sangat lucu, tetapi jika aku tahu semuanya akan berakhir seperti ini, aku akan mengundangnya saat itu.
+Mereka hanya kebetulan ada dilokasi makanya mereka juga ikut. Bukannya aku memilih kasih, jika kebetulan itu muncul aku akan menyelesaikan permintaan dengan Aya juga. Yah, memang benar aku tidak mengundangnya. Penampilan cemberutnya terlihat sangat lucu, tetapi jika aku tahu semuanya akan berakhir seperti ini, aku akan mengundangnya saat itu.
 
-Ya, bahkan dalam kasus itu, dia mungkin akan bergabung dengan kami dengan alasan yang berbeda. Itu fakta bahwa dia akan bersama kami akan sangat membantu untuk jujur. Mengesampingkan keadaan saya dan Aya, kemampuannya adalah hal yang nyata. Jauh lebih besar dariku atau Nona Francesca. Bisa dibilang dia berada di level yang berbeda.
+Ya, bahkan dalam kasus itu, dia mungkin akan bergabung dengan kami dengan alasan yang berbeda. jujur bahwa dia akan bersama kami akan sangat membantu. Mengesampingkan keadaanku dan Aya, kemampuannya adalah hal yang nyata. Jauh lebih besar dariku atau Nona Francesca. Bisa dibilang dia berada di level yang berbeda.
 
 [Pada saat-saat seperti ini, kamu harus jujur, tahu?]
 
-"Fakta bahwa aku tidak bisa adalah salah satu dari rasa sakit yang datang dengan menjadi dewasa."
+"Fakta bahwa aku tidak bisa jujur adalah rasa sakit yang datang dari menjadi dewasa."
 
-"Apa artinya itu?" (Aya)
+"maksudmu apa?" (Aya)
 
-Mengatakan itu, Aya terkikik.
+Aya terkikik.
 
 Melihatnya seperti itu, aku hanya bisa menghela nafas sambil menurunkan bahuku.
 
