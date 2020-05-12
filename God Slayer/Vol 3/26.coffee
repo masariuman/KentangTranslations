@@ -48,71 +48,71 @@ Ya, bahkan dalam kasus itu, dia mungkin akan bergabung dengan kami dengan alasan
 
 Aya terkikik.
 
-Melihatnya seperti itu, aku hanya bisa menghela nafas sambil menurunkan bahuku.
+Melihat dia seperti itu, aku hanya bisa menghela nafas sambil menurunkan bahuku.
 
 "Aku tidak ingin kamu melakukan hal-hal berbahaya dan sebagai murid aku ingin kamu belajar di sekolah, itulah yang kumaksud."
 
-"Tidak apa-apa. Aku sebenarnya cukup pintar, tahu? ”
+"Tidak apa-apa. Aku sebenarnya cukup pintar lho"
 
-Mengangkat tasnya di pundaknya, dia menatapku dengan senyum tenang. Kepercayaan — saya bisa merasakan kepercayaannya pada saya dari pandangannya. Saya telah melihat tatapan itu berkali-kali selama perjalanan kami. Itu sebabnya saya tidak bisa menolaknya sekarang juga. Tetapi saya masih mempertanyakan apakah saya benar-benar memiliki kekuatan yang cukup untuk disebut layak menerima senyum itu. Aku, hanya bisa bekerja keras dan mencoba yang terbaik untuk menjawab senyumnya, kepercayaannya. Namun kesenjangan antara kekuatan kita tidak akan hilang.
+Mengangkat tasnya di pundaknya, dia menatapku dengan senyum tenang. Kepercayaan — aku bisa merasakan kepercayaannya padaku dari pandangannya. aku telah melihat tatapan itu berkali-kali selama perjalanan kami. Itu sebabnya aku tidak bisa menolaknya sekarang. Tetapi aku masih mempertanyakan apakah aku benar-benar memiliki kekuatan yang cukup untuk disebut layak menerima senyum itu. Aku, hanya bisa bekerja keras dan mencoba yang terbaik untuk menjawab senyumnya, kepercayaannya. Namun kesenjangan antara kekuatan kami tidak akan hilang.
 
-“Pelajaranku juga akan baik-baik saja. Juga ...... jika aku mendapat masalah, bantu aku lagi baik-baik saja? ”(Aya)
+"Pelajaranku juga akan baik-baik saja. dan ...... jika aku mendapat masalah, bantu aku lagi ya?"(Aya)
 
-Tapi Aya masih mengatakan hal seperti itu padaku sambil tersenyum. Kata-kata itu jelas diucapkan karena dia ingat janji yang pernah saya buat untuknya sejak lama.
+Tapi Aya masih mengatakan hal seperti itu padaku sambil tersenyum. Kata-kata itu jelas diucapkan karena dia ingat janji yang pernah kubuat untuknya sejak lama.
 
 Menggoyangkan rambutku, aku mengalihkan pandanganku. Itu memalukan. Sebenarnya, aku ingin kamu membantuku ........ Tapi aku tidak bisa mengatakan itu karena aku lelaki dan orang dewasa di sini. Aku tidak bisa meminta seorang gadis yang lebih muda dariku untuk melindungiku.
 
-“……… ..”
+"……… .."
 
-“…… ..um, balasanmu?” (Aya)
+"…… ..um, balasanmu?" (Aya)
 
-Nah, bagaimana saya harus menjawabnya? Berpikir, saya melihat ke arah Nona Francesca yang melirik ke arah kami. Feirona dan Mururu tidak peduli tentang kami dan sibuk mengerjakan pengepakan mereka. Saya bersyukur untuk itu. Nona Francesca pasti bertanya-tanya mengapa seorang pahlawan seperti Aya memilih untuk menerima permintaan seperti itu, kurasa. Yah, alasannya tidak lebih dari fakta bahwa aku dan Aya saling kenal.
+Nah, bagaimana aku harus menjawabnya? sambil Berpikir, aku melihat ke arah Nona Francesca yang melirik ke arah kami. Feirona dan Mururu tidak peduli tentang kami dan sibuk menyusun barang mereka. aku bersyukur mereka tidak peduli. Nona Francesca pasti bertanya-tanya mengapa seorang pahlawan seperti Aya memilih untuk menerima permintaan seperti itu, kurasa. Yah, alasannya tidak lebih dari fakta bahwa aku dan Aya saling kenal.
 
-Tempat pertemuan yang saya minta adalah gerbang timur kota tetapi ketika saya sampai di sana, saya benar-benar terkejut karena Aya ada di sana menunggu kami. Ternyata, bahkan Souichi baik-baik saja dengan Aya ikut dengan kami. Yah, pria itu adalah sekutu Aya sebelum apa pun ........ meskipun ada juga bagian di mana dia benar-benar tidak bisa melawan Aya juga. Cobalah menjadi sedikit lebih kuat, Souichi.
+Tempat pertemuan yang kuminta adalah gerbang timur kota tetapi ketika aku sampai di sana, aku benar-benar terkejut karena Aya ada di sana menunggu kami. Ternyata, bahkan Souichi tidak maslah dengan Aya ikut dengan kami. Yah, pria itu pasti mendukung aya ........ meskipun ada juga bagian di mana dia benar-benar tidak bisa melawan Aya juga. Cobalah menjadi sedikit lebih kuat, Souichi.
 
 Yah, tentu saja ini sangat membantu kami, tetapi bagaimana aku bisa menjelaskan mengapa seorang Pahlawan mengambil bagian dalam pencarian ini kepada orang lain? Aku bertanya-tanya berapa biasanya untuk menyewa Pahlawan untuk melakukan permintaanmu?
 
-Aku bahkan tidak mengharapkan siapa pun. Kasus terburuk kami bertiga, Feirona, aku dan Mururu, sendirian akan bepergian sendirian atau begitulah yang kupikirkan. Sudah merupakan kejutan besar ketika Miss Francesca memutuskan untuk menerima permintaan itu. Meskipun itu sendiri sangat aneh. Kenapa dia bahkan menerima permintaan berbahaya seperti itu?
+Aku bahkan tidak mengharapkan siapa pun. kemungkinan terburuk hanya kami bertiga, Feirona, aku dan Mururu, akan bepergian. Sudah merupakan kejutan besar ketika Miss Francesca memutuskan untuk menerima permintaan itu. Meskipun itu sendiri sangat aneh. Kenapa dia bahkan menerima permintaan berbahaya seperti itu?
 
-Menurut orang itu sendiri, dia hanya ingin bertualang. Tetapi detailnya bahkan lebih menarik.
+Menurut orangnya sendiri, dia hanya ingin bertualang. Tetapi detailnya bahkan lebih menarik.
 
-Segera, Miss Francesca akan lulus dari sekolah. Sebagai seorang putri bangsawan, dia akan memiliki kebebasan yang sangat kurang setelah itu. Bagaimanapun, para bangsawan memiliki berbagai tugas mereka sendiri. Setelah dia lulus dia tidak akan mendapatkan kesempatan untuk melakukan sesuatu seperti petualangan. Saya ragu keluarganya bahkan akan mengizinkan sesuatu seperti itu.
+tidak lama lagi, Miss Francesca akan lulus dari sekolah. Sebagai seorang putri bangsawan, dia tidak akan memiliki banyak kebebasan setelah itu. Bagaimanapun, para bangsawan memiliki berbagai tugas mereka sendiri. Setelah dia lulus dia tidak akan mendapatkan kesempatan untuk melakukan sesuatu seperti petualangan. aku ragu keluarganya bahkan akan mengizinkan sesuatu seperti itu.
 
-Saya memiliki beberapa bangsawan dalam daftar kenalan saya juga. Saya ingat bahwa mereka juga tidak memiliki banyak kebebasan. Berpikir seperti itu, Nona Francesca sebenarnya telah menerima banyak kebebasan. Saya kira akan ada cukup banyak bangsawan yang tidak akan melihat itu bagus tapi itu masalahnya untuk diatasi. Saya tidak bisa menahannya.
+aku memiliki kenalan beberapa bangsawan. aku ingat bahwa mereka juga tidak memiliki banyak kebebasan. Berpikir seperti itu, Nona Francesca sebenarnya telah menerima banyak kebebasan. mungkin akan ada banyak bangsawan yang tidak akan melihat itu sebagai hal bagus tapi itu masalahnya sendiri. aku tidak bisa menolongnya.(T/N : dude, ente pahlawan, nikahi aja udah bebas itu anak. siapa juga yg nolak pahlawan, tapi ni mc memang best deh.)
 
-Perjalanan ini akan berbahaya, bahkan bisa berakibat fatal baginya. Sambil memahami itu, dia masih ingin ikut dengan kami jadi aku tidak bisa menolaknya. Bagaimanapun, lebih baik memiliki daya tembak sebanyak mungkin.
+Perjalanan ini akan berbahaya, bahkan bisa berakibat fatal baginya. dia memahami itu dan dia masih ingin ikut dengan kami jadi aku tidak bisa menolaknya. yah memilki banyak orang akan lebih baik juga.
 
-“Aku sudah selesai dengan persiapan. Bagaimana denganmu? ”
+"Aku sudah selesai dengan persiapanku. Bagaimana denganmu?"
 
 "Ya, aku sudah selesai juga."
 
-Saya menelepon Feirona dan sepertinya mereka sudah selesai dengan persiapan juga dan berjalan ke arah kami. Tatapan Aya terasa semakin kuat ke arahku tapi aku tidak mengindahkannya. Sayangnya, saya sudah memutuskan untuk berhenti mengucapkan kalimat yang sangat memalukan mulai sekarang. Pertama-tama, hanya pahlawan yang berhak mengatakan kalimat seperti itu. Mereka terlalu berat untukku.
+aku memanggil Feirona dan sepertinya mereka sudah selesai dengan persiapan mereka dan berjalan ke arah kami. Tatapan Aya terasa semakin kuat ke arahku tapi aku tidak memperdulikannya. Sayangnya, aku sudah memutuskan untuk berhenti mengucapkan kalimat yang sangat memalukan mulai sekarang. pada dasarnya, hanya pahlawan yang berhak mengatakan kalimat seperti itu. kata-kata terlalu berat untukku.
 
-Kami telah membeli 3 kuda. Feirona dengan satu kuda, Mururu dan Nona Francesca dengan satu kuda dan aku dan Aya pada yang terakhir. Saya lebih suka memiliki Nona Francesca di belakang saya tetapi jika saya mengatakan itu, apalagi jatuh dalam lubang, saya merasa seperti saya akan dibakar sampai mati.
+Kami telah membeli 3 kuda. Feirona dengan satu kuda, Mururu dan Nona Francesca dengan satu kuda dan aku dengan Aya untuk kuda terakhir. aku lebih suka jika Nona Francesca duduk di belakangku tetapi jika aku mengatakan itu, jangankan jatuh dalam lubang, aku merasa aku akan dibakar sampai mati.
 
-Memikirkan hal-hal seperti itu, aku menoleh ke arah Mururu. Dia membuat wajah agak mengantuk mungkin karena dia bukan orang pagi. Meskipun kami akan pergi dalam perjalanan yang sulit, aku merasa agak tenang melihat wajahnya.
+aku menoleh ke arah Mururu. Dia membuat wajah agak mengantuk mungkin karena dia bukan orang yang biasa bangun pagi. Meskipun kami akan pergi dalam perjalanan yang sulit, aku merasa agak tenang melihat wajahnya.
 
-"Bangun, Mururu. Ini akan pergi. "
+"Bangun, Mururu. kita akan pergi. "
 
-"Tidak — aku baik-baik saja."
+"Unn — aku akan baik-baik saja."
 
-Anda pasti tidak terlihat baik-baik saja sama sekali. Nona Francesca menggelengkan bahunya untuk membangunkannya, tetapi itu hanya membuat kepalanya bergoyang ke depan dan ke belakang. Kuncir kudanya juga ikut bergoyang sehingga terlihat lucu.
+kamu tidak terlihat baik-baik saja sama sekali. Nona Francesca menggoyangkan bahunya untuk membangunkannya, tetapi itu hanya membuat kepalanya bergoyang ke depan dan ke belakang. ponytailnya juga ikut bergoyang sehingga terlihat lucu.
 
-Ketika saya melihat ke arah Feirona, dia mengangkat bahu seolah-olah bermasalah. Aku tidak terlalu memikirkannya karena aku hanya merasa lebih tenang karena dia.
+Ketika aku melihat ke arah Feirona, dia mengangkat bahu seolah-olah merepotkan. Aku tidak terlalu memikirkannya karena aku hanya merasa lebih tenang karena dia.
 
-"Mengesampingkan gadis yang mengantuk itu, aku berharap dapat bekerja sama denganmu, Aya-dono."
+"Mengesampingkan gadis yang mengantuk itu, aku berharap dapat bekerja sama denganmu, Aya-dono."(elf)
 
-"Ya, sama di sini."
+"Ya, aku juga."
 
-Seperti itu, Feirona dan Aya melakukan perkenalan formal satu sama lain. Tetapi meskipun itu tidak terasa sangat kaku mungkin karena kepribadian mereka.
+Feirona dan Aya melakukan perkenalan dengan formal. Tetapi itu tidak terasa sangat kaku mungkin karena kepribadian mereka.
 
-Sementara aku memikirkan itu, aku merasakan sesuatu menarik mantelku. Saat melihat, itu adalah Mururu.
+aku merasakan sesuatu menarik mantelku. ketika berbalik dan melihat, itu adalah Mururu.
 
-"Apa itu?"
+"ada apa?"(renji)
 
-"WHO?"
+"Siapa?"
 
-Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. Saya satu hal tetapi mengejutkan bahwa dia bahkan tidak mengenali Aya. Mendengar itu Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, itu tidak seperti Aya akan marah hanya karena Mururu tidak mengenalinya, kau tahu? Dia tidak sesempit itu. Sebenarnya Aya akan merasa lebih baik jujur.
+Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. aku terkejut bahwa dia bahkan tidak mengenali Aya. Mendengar itu Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, itu tidak seperti Aya akan marah hanya karena Mururu tidak mengenalinya, kau tahu? Dia tidak sesempit itu. Sebenarnya Aya akan merasa lebih baik jujur.
 
 Sungguh melelahkan untuk diperlakukan sebagai Pahlawan terus-menerus. Secara mental, itu. Saya pikir Aya memiliki pendapat yang sama karena dia menatap Mururu dan Francesca dengan ekspresi bermasalah.
 
