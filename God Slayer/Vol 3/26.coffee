@@ -112,108 +112,108 @@ aku merasakan sesuatu menarik mantelku. ketika berbalik dan melihat, itu adalah 
 
 "Siapa?"
 
-Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. aku terkejut bahwa dia bahkan tidak mengenali Aya. Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, Aya juga tidak akan marah hanya karena Mururu tidak mengenalinya, Dia tidak sesempit itu. jujur mungkin Sebenarnya Aya akan merasa lebih baik.
+Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. aku terkejut bahwa dia bahkan tidak mengenali Aya. Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, Aya juga tidak akan marah hanya karena Mururu tidak mengenalinya, Dia bukanlah orang yang seperti itu. jujur mungkin Sebenarnya Aya suka seperti itu.
 
-Sungguh melelahkan untuk diperlakukan sebagai Pahlawan terus-menerus. Secara mental, itu. Saya pikir Aya memiliki pendapat yang sama karena dia menatap Mururu dan Francesca dengan ekspresi bermasalah.
+Sungguh merepotkan untuk diperlakukan sebagai Pahlawan terus-menerus. tentu saja merepotkan secara mental. kupikir Aya memiliki pendapat yang sama karena dia menatap Mururu dan Francesca dengan ekspresi kerepotan.
 
 "........ Pahlawan yang dipilih oleh Dewi."
 
-Saya tidak tahu bagaimana Nona Francesca menjelaskannya, tetapi begitulah Mururu menggambarkan Aya sekarang.
+aku tidak tahu bagaimana Nona Francesca menjelaskannya, tetapi begitulah Mururu menggambarkan Aya sekarang.
 
-"Senang bertemu denganmu, um ..."
+"Senang bertemu denganmu, um ..." (aya)
 
 "Mururu."
 
-"Saya melihat. Senang bertemu denganmu, Mururu. "
+"begitu.... Senang bertemu denganmu, Mururu. "
 
-"Juga."
+"saya juga."
 
-Sambil tersenyum masam, Aya menyapa Mururu. Mururu tampaknya juga tidak waspada terhadap Aya dan menyambutnya juga.
+Sambil tersenyum aneh, Aya menyapa Mururu. Mururu tampaknya juga tidak waspada terhadap Aya dan menyambutnya dengan biasa juga.
 
-"Jadi kita sudah selesai dengan basa-basi?" (Renji)
+"sudah selesai basa-basinya?" (Renji)
 
-"Ya. Ayo berangkat cepat. ”(Elf)
+"Ya. Ayo berangkat cepat."(Elf)
 
 "Un." (Mururu)
 
-Mururu mengangguk pada kata-kata Feirona dan kami berpisah di kelompok masing-masing.
+Mururu mengangguk pada kata-kata Feirona dan kami berpisah sesuai dengan kelompoknya.
 
-Awalnya, Mururu seharusnya bersama saya dan Aya dengan Miss Francesca tetapi Aya mengubah itu. Alasannya ....... sebagai orang dewasa aku tidak harus membongkar terlalu dalam tentang itu. Tetapi saya harus mengatakan bahwa meskipun saya tidak akan mendapatkan perasaan untuk anak seperti Mururu dalam hal apapun.
+Awalnya, Mururu seharusnya bersamaku dan Aya dengan Miss Francesca tetapi Aya tidak mau. Alasannya ....... sebagai orang dewasa aku tidak harus menggai lebih dalam tentang itu. Tetapi aku bisa mengatakan aku tidak akan mempunyai perasaan untuk anak seperti Mururu dalam hal apapun.
 
-Kuda-kuda di dunia ini lebih kuat dan bertubuh kuat seperti di pasukan tingkat per jam daripada kuda pacu yang biasa kita lihat. Mereka cukup kuat untuk membawa dua manusia dewasa bersama dengan bagasi dan masih memiliki stamina yang cukup untuk dijalankan. Tetapi sebagai gantinya, mereka tidak secepat itu meskipun masih jauh lebih cepat daripada berjalan. Duduk di atas pelana yang dibuat untuk dua orang pertama, aku mengulurkan tanganku ke arah Aya.
+Kuda di dunia ini lebih kuat dan bertubuh kuat seperti di pasukan daripada kuda pacu yang biasa kita lihat. Mereka cukup kuat untuk membawa dua manusia dewasa bersama dengan barang dan masih memiliki stamina yang cukup untuk jalan. Tetapi sebagai gantinya, mereka tidak bisa cepat tapi masih jauh lebih cepat daripada berjalan. Duduk di atas pelana yang dibuat untuk dua orang, aku mengulurkan tanganku ke arah Aya.
 
-Mengambil tanganku, dan menggunakannya sebagai tumpuan, dia dengan terampil duduk di atas pelana. Ketika seseorang memiliki ketampanan, mereka pasti terlihat cantik bahkan saat melakukan tindakan paling biasa.
+meraih tanganku, dan menggunakannya sebagai tumpuan, dia dengan terampil duduk di atas pelana. Ketika seseorang memiliki rupa yang menawan, mereka pasti terlihat cantik bahkan saat melakukan tindakan biasa.
 
-Saat melirik ke arah Miss Francesca dan Mururu, mereka juga telah menaiki kuda mereka. Nona Francesca mengenakan pakaian bepergian yang biasa dengan penutup dada kulitnya dan Mururu dibungkus dengan jubah putihnya. Tapi karena dia menunggang kuda, pahanya yang tebal terlihat oleh mata dari balik jubah.
+Saat melirik ke arah Miss Francesca dan Mururu, mereka juga telah menaiki kuda mereka. Nona Francesca mengenakan pakaian bepergian yang biasa dengan penutup dada kulitnya dan Mururu dibungkus dengan jubah putihnya. Tapi karena dia menunggang kuda, pahanya yang tebal terlihat oleh mata.
 
-Sementara aku melihat itu, Aya tiba-tiba mencubitku dari belakang. Sebenarnya sedikit sakit.
+ketika aku melihat itu, Aya tiba-tiba mencubitku dari belakang. itu sedikit sakit.
 
-“Aku meninggalkan kudanya untukmu.” (Aya)
+"Aku menyerahkan pengendalian kuda kepadamu." (Aya)
 
 "Hm, ya."
 
-Memberikan jawaban singkat, saya membuat kuda itu mulai berlari. Jika saya memberi alasan, saya hanya akan terseret lebih dalam ke rawa. Saya tahu itu dari pengalaman hidup saya sendiri. Pria yang baik tidak melakukan kesalahan dua kali. Mungkin.
+sambil menjawab singkat, aku membuat kuda itu mulai berlari. jika mau kuebrikan alasannya, aku hanya akan terseret lebih jauh kalau kulanjutkan. aku tahu itu dari pengalaman hidupku sendiri. Pria yang baik tidak melakukan kesalahan dua kali. Mungkin.
 
-Penjaga di gerbang terkejut dengan penampilan saya dan Aya tetapi saya memutuskan untuk mengabaikannya. Setelah saya selesai dengan permintaan ini, saya mungkin harus pensiun ke desa lagi. Saya tidak ingin menonjol seperti ini lagi.
+Penjaga di gerbang terkejut dengan penampilanku dan Aya tetapi aku memutuskan untuk mengabaikannya. Setelah aku selesai dengan permintaan ini, aku mungkin harus berdiam ke desa lagi. aku tidak ingin menonjol seperti ini lagi.
 
 [Apa yang kamu lakukan?]
 
 "Tidak ada yang aneh, sungguh."
 
-Ketika aku mengatakan itu, aku mendengar desahan dari dalam sakuku. Saya benar-benar tidak dipercaya sama sekali.
+Ketika aku mengatakan itu, aku mendengar helaan nafas dari dalam sakuku. aku benar-benar tidak dipercaya sama sekali.
 
 "Souichi juga melihat dada Francesca-senpai juga ........ apakah semua orang seperti itu?" (Aya)
 
 "………"
 
-Itu sangat sulit dijawab. Belum lagi, bahwa orang itu sendiri sepertinya telah mendengar pertanyaan itu karena saya merasa kudanya sedikit menjauh dari kami. Pasti imajinasiku.
+Itu sangat sulit dijawab. Belum lagi, orangnya sepertinya telah mendengar pertanyaan itu karena aku merasa kudanya sedikit menjauh dari kami. Pasti hanya imajinasiku.
 
-Tapi sungguh tidak ada cara untuk menjawab pertanyaan ini. Setidaknya tidak untuk pria berusia 28 tahun ke seorang gadis berusia 18 tahun. Entah bagaimana aku hanya bisa meminta maaf kepada Souichi di kepalaku. Tampaknya poin kasih sayang Nona Francesca untuknya langsung turun meskipun dia bahkan tidak di sini.
+Tapi sungguh tidak ada cara untuk menjawab pertanyaan ini. Setidaknya tidak untuk pria berusia 28 tahun ke seorang gadis berusia 18 tahun. Entah bagaimana aku hanya bisa meminta maaf kepada Souichi di kepalaku. Tampaknya poin perasaan Nona Francesca untuknya langsung turun meskipun dia bahkan tidak di sini.
 
-Saat kuda itu bergoyang saat berlari, Aya memelukku erat-erat dari belakang agar tidak jatuh. Saat ini dia tidak mengenakan seragamnya tetapi mengenakan jubah merah tua dengan sulaman perak yang bisa membuat orang merasakan sensasi kulitnya hampir secara langsung. Meskipun tingginya telah tumbuh, dia belum benar - benar tumbuh . Jelas, saya tidak bisa mengatakan itu dengan lantang. Yah, saya juga mengenakan jubah di atas tunik saya sehingga yang saya rasakan tidak terlalu banyak.
+Saat kuda itu bergoyang saat berlari, Aya memelukku erat-erat dari belakang agar tidak jatuh. Saat ini dia tidak mengenakan seragamnya tetapi mengenakan jubah merah tua dengan sulaman perak yang bisa membuat orang merasakan sensasi kulitnya hampir secara langsung. Meskipun tingginya telah tumbuh, dia belum benar - benar tumbuh . tentu saja aku tidak bisa mengatakan itu dengan lantang. Yah, aku juga mengenakan jubah sehingga yang aku tidak terlalu merasakannya.
 
-Pakaiannya ini terbuat dari benang perak suci yang diambil dari serangga / perayap khusus kemudian memiliki perlindungan dari Roh Api yang diterapkan Salamander di atasnya mengubahnya menjadi warna merah. Di atas itu, sulaman juga terbuat dari mithril. Jubah yang dikenakannya di atasnya juga terbuat dari kulit naga air. Di pinggangnya ada pedang pendek mithril dengan zamrud yang tertanam di ujung gagangnya; dan tongkat penyihir pendek dengan batu permata yang hampir transparan seperti permata tertanam di atasnya.
+Pakaiannya ini terbuat dari benang perak suci yang diambil dari serangga khusus kemudian memiliki perlindungan dari Roh Api yang Salamander mengubahnya menjadi warna merah. sulaman juga terbuat dari mithril. Jubah yang dikenakannya di atasnya juga terbuat dari kulit naga air. Di pinggangnya ada pedang pendek mithril dengan zamrud yang tertanam di ujung gagangnya; dan tongkat penyihir pendek dengan batu permata yang hampir transparan seperti permata tertanam di atasnya.
 
-Itu peralatan yang sama seperti ketika dia bertarung melawan Dewa Setan. Semua itu sangat berharga sehingga pada dasarnya tak ternilai harganya. Itu bisa membuat orang berpikir bahwa dia akan pergi untuk memulai perang sendirian. Nah, saat Anda sedang dalam perjalanan, sebenarnya mungkin lebih baik diperlengkapi seperti dia. Anda tidak tahu apa yang bisa terjadi, jadi lebih baik selalu berada di posisi teratas. Saya, yang tidak membeli peralatan baru karena kekurangan uang sebenarnya adalah orang yang melakukan kesalahan.
+Itu peralatan yang sama seperti ketika dia bertarung melawan Dewa iblis. Semua itu sangat berharga sehingga pada dasarnya tak ternilai harganya. Itu bisa membuat orang berpikir bahwa dia akan pergi untuk memulai perang sendirian. Nah, saat kamu sedang dalam perjalanan, sebenarnya mungkin lebih baik memiliki perlengkapan yang lengkap. kamu tidak tahu apa yang akan terjadi, jadi lebih baik selalu berada di posisi siap. aku, yang tidak membeli peralatan baru karena kekurangan uang sebenarnya adalah orang yang melakukan kesalahan.
 
-"Tapi tetap saja, ketika kita berada di atas kuda seperti ini, Anda akhirnya berpikir kembali saat-saat ketika kita melakukan perjalanan bersama bukan?" (Renji)
+"Tapi tetap saja, ketika kita berada di atas kuda seperti ini, kamu akhirnya berpikir kembali saat-saat ketika kita melakukan perjalanan bersama bukan?" (Renji)
 
-“…… .haah.” (Aya)
+"…… .haah." (Aya)
 
-Dia menghela nafas melihat bahwa aku telah menghindari pertanyaannya tetapi dia tidak mengejar lebih jauh. Terima kasih Tuhan untuk itu.
+Dia menghela nafas mengetahui bahwa aku telah menghindari pertanyaannya tetapi dia tidak menanyakannya lebih jauh. Terima kasih Tuhan untuk itu.
 
-"Itu benar. Setelah Yui-chan mengontrak Naga itu, kami mulai selalu menggunakan naga itu untuk bepergian. ”(Aya)
+"Itu benar. Setelah Yui-chan melakukan kontrak dengan Naga itu, kita mulai selalu menggunakan naga itu untuk bepergian."(Aya)
 
-Hiyuu Yui. Salah satu pahlawan yang dikenal sebagai Pengguna Monster / Penjinak. Dia yang termuda di antara kita 13. Aku ingin tahu bagaimana dia lakukan hari ini. Semua monster yang dikontraknya adalah yang terkenal. Peri yang merupakan ahli sihir roh. Ksatria Hantu yang abadi dan ahli pedang. Dan naga kuno yang menyebut dirinya raja. Saya pikir mereka seharusnya berada di benua Elfreim sekarang. Tempat itu mungkin lebih baik untuk ditinggali saat ini.
+Hiyuu Yui. Salah satu pahlawan yang dikenal sebagai penjinak monster. Dia yang termuda di antara kita 13. Aku ingin tahu apa yang dia lakukan hari ini. Semua monster yang melakukan kontrak dengannya adalah monster yang terkenal. Peri yang merupakan ahli sihir roh. Ksatria Hantu yang abadi dan ahli pedang. Dan naga kuno yang menyebut dirinya raja. kupikir mereka seharusnya berada di benua Elfreim sekarang. Tempat itu mungkin lebih baik untuk ditinggali saat ini.
 
-"Apakah kamu tahu apa yang Yui lakukan saat ini ——?"
+"Apakah kamu tahu apa yang Yui lakukan saat ini ——?"(renji)
 
-"Aku penasaran. Mungkin Yuuko-san tahu tentang itu. ”
+"ntahlah. Mungkin Yuuko-san tahu tentang itu."
 
-Utano-san eh. Aku ingin tahu apa yang sedang dilakukan orang itu sekarang juga. Tapi mengingat itu dia, dia pasti mengambil banyak pekerjaan pada dirinya dan bekerja keras sekarang, kurasa. Dia orang yang baik. Meskipun begitu, dia juga bisa menakutkan.
+Utano-san eh. Aku ingin tahu apa yang sedang dilakukan orang itu sekarang juga. Tapi mengingat itu dia, dia pasti mengambil banyak pekerjaan dan bekerja keras sekarang, kurasa. Dia orang yang baik. Meskipun begitu, dia juga bisa menakutkan.
 
-"Renji, mari kita langsung menuju Hutan Jiwa Pembusuk." (Elf)
+"Renji, mari kita langsung menuju Hutan dari jiwa-jiwa busuk."(TN:forest of rotting souls.) (Elf)
 
-"Tentu! Kami akan pergi sampai pintu masuk dan bermalam di sana. ”
+"ok! Kita akan pergi sampai pintu masuk dan bermalam di sana."
 
-Membuat kuda dijalankan di samping kami, Feirona memberi tahu kami tentang tujuan kami saat ini. Hutan Jiwa-Jiwa Pembusuk. Seperti namanya, itu adalah tempat di mana orang mati berjalan dan hantu muncul dan yang hidup jarang masuk. Jalan raya menuju ibu kota dibuat mengelilingi hutan ini tetapi jika kita menerobosnya secara langsung, kita akan dapat mengurangi banyak waktu. Tadi malam, saya dan Feirona memutuskan untuk menerobosnya sambil merencanakan rute yang harus kami ambil.
+Membuat kuda berjalan di samping kami, Feirona memberi tahu kami tentang tujuan kami saat ini. Hutan Jiwa-Jiwa busuk. Seperti namanya, itu adalah tempat di mana zombie dan hantu muncul dan yang hidup jarang masuk. Jalan raya menuju ibu kota dibuat mengelilingi hutan ini tetapi jika kita menerobosnya secara langsung, kita akan dapat mengurangi banyak waktu. Tadi malam, aku dan Feirona memutuskan untuk menerobosnya sambil merencanakan rute yang harus kami ambil.
 
-Zombi cukup tangguh tetapi gerakannya tumpul. Hantu tidak berbahaya selama Anda memiliki semangat / keinginan yang kuat. Jika kami ingin membunuh mereka, kami membutuhkan peralatan buatan perak, tetapi jika hanya untuk melewatinya, itu sangat mudah.
+Zombie cukup tangguh tetapi gerakannya kaku. Hantu tidak berbahaya selama kamu memiliki semangat / keinginan yang kuat. Jika kami ingin membunuh mereka, kami membutuhkan peralatan terbuat dari perak, tetapi jika hanya untuk melewatinya, itu sangat mudah.
 
-Yah, awalnya hanya aku, Feirona dan Mururu yang akan bepergian, tetapi sekarang setelah kita membawa Aya dan Miss Francesca juga, kita bisa membunuh mereka dengan sihir juga. Zombie bisa dibunuh dengan senjata fisik tetapi hantu benar-benar tipe roh. Entah sihir atau perak adalah wajib. Awalnya kami hanya bisa mengabaikan mereka dan bergegas melewati hutan tapi sekarang kami akan cukup aman saat melewatinya.
+Yah, awalnya hanya aku, Feirona dan Mururu yang akan bepergian, tetapi sekarang setelah kita membawa Aya dan Miss Francesca juga, kita bisa membunuh mereka dengan sihir juga. Zombie bisa dibunuh dengan senjata fisik tetapi hantu benar-benar tipe roh. sihir atau perak adalah sesuatu yang wajib untuk mengalahkannya. Awalnya kami hanya bisa mengabaikan mereka dan bergegas melewati hutan tapi sekarang kami akan cukup aman saat melewatinya.
 
-Satu-satunya masalah yang tersisa adalah memastikan bahwa kami tidak tersesat. Tetapi dengan Feirona, peri, dengan kita, kita juga harus baik-baik saja dengan itu.
+Satu-satunya masalah yang tersisa adalah memastikan bahwa kami tidak tersesat. Tetapi dengan Feirona, elf, dengan kami, kami juga harus baik-baik saja dengan itu.
 
 [Perjalanan dengan Aya. Sungguh nostalgia.]
 
-"Ya itu benar. Saya juga akan berada dalam perawatan Anda, Eru. ”(Aya)
+"Ya itu benar. tolong jaga aku juga, Eru."(Aya)
 
-[Ya, aku serahkan Renji padamu Aya.]
+[Ya, aku aku serahkan Renji padamu Aya.]
 
-“…… .apa aku?”
+"…… .kenapa aku?"
 
-Saya hanya bisa menghela nafas. Memang benar jadi saya tidak bisa benar-benar membantahnya.
+aku hanya bisa menghela nafas. yaah aku juga tidak bisa membantahnya.
 
-Sudah satu tahun sejak saya bepergian dengan Aya, dengan salah satu rekan saya.
+Sudah satu tahun sejak aku bepergian dengan Aya, dengan salah satu rekanku.
 
-Sambil berlari melewati pagi hari, jalan raya berkabut, aku merasa diriku sedikit bersemangat. Aya juga harus sama. Memikirkan itu, saya menjadi sedikit lebih bahagia.
+Sambil berlari melewati pagi hari, jalan raya berkabut, aku merasa diriku sedikit bersemangat. Aya juga mungkin juga sama. Memikirkan itu, aku menjadi sedikit lebih bahagia.
