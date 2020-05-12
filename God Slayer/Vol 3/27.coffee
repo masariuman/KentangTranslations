@@ -114,19 +114,19 @@ Jangan tanya itu. Seperti biasa, aku hanya bisa berharap bahwa partnerku akan be
 
 aku tidak tahu bagaimana dia menjawab pertanyaan itu, tetapi sekarang dia dengan malu-malu memandang ke arah api. Dia benar-benar telah tumbuh banyak selama satu tahun terakhir. aku belum pernah melihat senyum seperti ini sebelumnya.
 
-Untuk saat ini, mari kita tekan Ermenhilde di dalam sakuku dan berharap itu mencoba membaca suasana hati lebih banyak.
+Untuk saat ini, mari pukul Ermenhilde di dalam sakuku dan berharap itu dapat mencoba membaca suasana hati.
 
-"Yah, selama kamu bersenang-senang, tidak apa-apa. Sangat penting bagi teman sekelas untuk bersenang-senang satu sama lain. ”
+"Yah, selama kamu bersenang-senang, tidak apa-apa. Sangat penting bagi teman sekelas untuk bersenang-senang satu sama lain."
 
-Sekali lagi saya mengalihkan topik pembicaraan. Padahal itu pasti seperti yang dikatakan Ermenhilde. Lagipula aku juga laki-laki, entah itu temanku atau seseorang yang lebih muda dariku, akhirnya aku melihat mereka seperti itu. Saat ini, kami berbicara seperti itu normal tetapi kami belum dipanggil, kami bahkan tidak akan pernah melakukan kontak.
+Sekali lagi aku mengalihkan topik pembicaraan. Padahal itu pasti seperti yang dikatakan Ermenhilde. Lagipula aku juga laki-laki, entah itu temanku atau seseorang yang lebih muda dariku, aku melihat mereka seperti itu. Saat ini, kami berbicara seperti itu hal normal tetapi jika kami kami tidak dipanggil didunia ini, kami bahkan tidak akan pernah berkomunikasi.
 
 Dan sekarang dia bahkan memiliki gelar pahlawan. Itu normal untuk mendapatkan perhatian para pria.
 
 "…….. Itu saja?"
 
-Rupanya dia tidak senang dengan kata-kataku karena dia sekarang cemberut dan aku juga merasa tatapannya menjadi lebih tajam juga. Berpura-pura tidak memperhatikan bahwa saya melemparkan lebih banyak kayu ke dalam api.
+Rupanya dia tidak senang dengan kata-kataku dan dia sekarang cemberut serta aku juga merasa tatapannya menjadi lebih tajam juga. aku Berpura-pura tidak menyadarinya sambil melemparkan lebih banyak kayu ke dalam api.
 
-[Serius.]
+[yang benar dong.]
 
 "Aku hanya ingin Aya menikmati hidup normal sebagai murid."
 
@@ -140,11 +140,11 @@ Mungkin, Utano-san memiliki alasan yang sama untuk mengirim anak-anak ini ke Aka
 
 "Orang dewasa tidak pernah adil, Aya."
 
-Ketika aku mengangkat bahu mengatakan itu, aku hanya menghela nafas. Ermenhilde juga sama.
+aku mengangkat bahu mengatakan itu dan hanya menghela nafas. Ermenhilde juga.
 
-Jika saya harus menjawab dengan jujur, saya harus mengambil langkah maju. Saya tidak punya pilihan selain memahami dengan jelas apa yang dia harapkan dari saya.
+Jika aku harus menjawab dengan jujur, aku harus melagkah kedepan. aku tidak punya pilihan selain memahami dengan jelas apa yang dia harapkan dariku.
 
-Dan saya bahkan tidak berpikir dia menginginkan itu. Akibatnya, meskipun dia akan menunjukkan ketidakpuasan ketika saya 'lari' seperti ini, dia tidak pernah benar-benar marah. Saya pikir dia menikmati permainan saya dengan kata-kata.
+Dan aku bahkan tidak berpikir dia menginginkan itu. Akibatnya, meskipun dia akan menunjukkan ketidakpuasan ketika aku 'lari' seperti ini, dia tidak pernah benar-benar marah. kupikir dia menikmati permainanku dengan kata-kata.
 
 Kami terdiam beberapa saat setelah itu. Sekali lagi, hanya suara api yang berderak, suara rumput yang bergoyang dan suara tidur Francesca yang sampai di telinga kami.
 
@@ -152,19 +152,19 @@ Kami terdiam beberapa saat setelah itu. Sekali lagi, hanya suara api yang berder
 
 "Memang benar."
 
-Saya merasa kami telah melakukan percakapan yang sama sejak lama.
+aku merasa kami telah melakukan percakapan yang sama daritadi.
 
-Saya akan tidak adil dan dia akan langsung dan jujur.
+aku akan menjadi yang tidak adil dan dia akan terus terang dan jujur.
 
-Apa yang dia harapkan dari saya?
+Apa yang dia harapkan dariku?
 
-Selama perjalanan, baik Utano-san dan Toudo sering memarahi saya. Meski begitu, kami belum menemukan jawabannya. Dan bahkan jika kita melakukannya, saya bertanya-tanya apakah saya bisa melihatnya dengan lantang.
+Selama perjalanan, baik Utano-san dan Toudo sering memarahiku. Meski begitu, kami belum menemukan jawabannya. Dan bahkan kami menemukannya, aku tidak yakin apakah aku bisa melihatnya dengan langsung.
 
-[Kamu 2 dengan serius ……. Jangan membuat kemajuan sama sekali.]
+[Kamu berdua benar-benar ……. tidak membuat kemajuan sama sekali.]
 
 "Tutup mulutmu."
 
-Bajingan ini, aku benar-benar akan membuang.
+Bajingan ini, aku benar-benar akan membuangnya.
 
 "Eru juga telah berubah."
 
@@ -174,67 +174,67 @@ Bajingan ini, aku benar-benar akan membuang.
 
 […… Tapi aku adalah senjata.]
 
-Aku diam-diam tertawa mendengar kata-kata Aya. Ketika saya melakukannya, saya bisa merasakan atmosfer Ermenhilde menjadi kecewa.
+Aku diam-diam tertawa mendengar kata-kata Aya. aku bisa merasakan atmosfer Ermenhilde menjadi kecewa.
 
-Mau bagaimana lagi, aku melihatmu sebagai rekanku dan bukan hanya senjata. Itu sebabnya saya merasa senang ketika Aya mengatakan itu. Dan sangat menyenangkan melihat Anda kecewa dengan hal seperti manusia.
+Mau bagaimana lagi, aku melihatmu sebagai rekanku dan bukan hanya senjata. Itu sebabnya aku merasa senang ketika Aya mengatakan itu. Dan sangat menyenangkan melihat kamu kecewa dengan hal seperti manusia.
 
-"Jadi, katanya."
+"jadi, seperti itulah katanya."
 
-[Kenapa kalian berdua tidak memperlakukanku seperti senjata ........ Tidak, kalian semua yang dipanggil 13 orang seperti itu.]
+[Kenapa kalian berdua tidak memperlakukanku seperti senjata ........ Tidak, kalian semua yang dipanggil ke dunia ini 13 orang semuanya seperti itu.]
 
-Bahkan mulai menggerutu seperti itu.
+dia mulai menggerutu seperti itu.
 
-Itu bahkan lebih lucu ketika aku dan Aya mulai tertawa lagi. Ini salahmu karena mengatakan sesuatu yang sangat aneh.
+Itu bahkan lebih lucu jadi aku dan Aya mulai tertawa lagi. Ini salahmu karena mengatakan sesuatu yang sangat aneh.
 
 "Kamu benar-benar harus tidur sekarang."
 
 "Aku akan tidur ketika giliranmu tidur juga."
 
-Ada makna mendalam di balik apa yang dia katakan, tetapi tergantung pada bagaimana Anda melihatnya, orang bisa benar-benar mengambil jalan yang salah.
+Ada makna mendalam di balik apa yang dia katakan, tetapi tergantung pada bagaimana kamu melihatnya, orang bisa salah sangka.
 
-"Aku harap kamu tidak mengatakan itu kepada orang lain juga?"
+"Aku harap kamu tidak mengatakan itu kepada orang lain juga"
 
-"Bukan saya. Hanya untukmu, Renji-san. ”
+"tidak. Hanya untukmu, Renji-san."
 
 Dia mulai terkikik. Aku berpikir untuk menjawab dengan cara yang lucu tetapi menyerah pada akhirnya hanya menggaruk kepalaku.
 
-Saya ingin tahu serius atau hanya main-main dengan saya. Pasti yang terakhir. Karena itu akan lebih baik untuk hatiku.
+aku ingin tahu apakah dia serius atau hanya main-main denganku. Pasti yang terakhir. Karena itu akan lebih baik untuk hatiku.
 
-"Saya melihat."
+"begiu..."
 
 "Iya."
 
-Saya hanya bisa menjawab seperti itu dan dia juga menjawab hanya dengan satu kata.
+aku hanya bisa menjawab seperti itu dan dia juga menjawab hanya dengan satu kata.
 
-Saya pikir tidak apa-apa jujur.
+aku pikir tidak apa-apa jujur.
 
-Sementara kami menatap api unggun di depan kami, aku menghela nafas. Bahkan setelah satu tahun kami belum berubah. Saya ingin tahu apakah itu baik atau buruk. Jika saya menggunakan kata-kata Ermenhilde, tidak ada kemajuan.
+Sementara kami menatap api unggun di depan kami, aku menghela nafas. Bahkan setelah satu tahun kami belum berubah. aku ingin tahu apakah itu baik atau buruk. Jika aku menggunakan kata-kata Ermenhilde, tidak ada kemajuan.
 
 Ketika aku berpikir seperti itu, Aya diam-diam berdiri. Dan datang dan duduk di sampingku begitu saja.
 
-"Kau melakukan ini ketika kami bepergian juga saat itu."
+"Kau melakukan ini ketika kita bepergian juga saat itu."
 
-"... Kamu."
+"... Mouu."
 
-Tetapi saya merasa bahwa jarak di antara kami lebih pendek dari pada saat itu. Apakah ini disebut sebagai kemajuan?
+Tetapi aku merasa bahwa jarak di antara kami lebih dekat dari pada saat itu. Apakah ini disebut sebagai kemajuan?
 
 [fumu.]
 
-Juga, itu merepotkan bahwa saya tidak memiliki siapa pun untuk mempercayakan Ermenhilde seperti yang saya miliki saat itu.
+Juga, itu merepotkan bahwa aku tidak memiliki siapa pun untuk mempercayakan Ermenhilde seperti dulu.
 
-Biasanya aku akan meninggalkannya dengan Souichi atau Utano-san. Saya harus berpikir tentang mungkin memberikannya kepada Ms Francesca atau Feirona saat kami berkemah berikutnya. Yah, ini tidak seperti pesta ini akan berlanjut selamanya. Saya mungkin tidak akan bepergian dengan Aya setelah ini.
+Biasanya aku akan meninggalkannya dengan Souichi atau Utano-san. aku berpikir mungkin memberikannya kepada Ms Francesca atau Feirona saat kami berkemah berikutnya. Yah, ini tidak seperti tim ini akan berlanjut selamanya. aku mungkin tidak akan bepergian dengan Aya setelah ini.
 
-Pada akhirnya setelah itu kami nyaris tidak berbicara lagi. Fakta bahwa aku tetap bertugas malam hari lebih dari yang diminta dan lupa membangunkan Feirona sampai nanti, aku hanya akan menganggap ini bahwa kita serius dalam tugas kita. Saya kira saya pasti terlalu terpengaruh oleh nostalgia saya.
+Pada akhirnya setelah itu kami nyaris tidak berbicara lagi. Fakta bahwa aku tetap berjaga malam hari sesuai perjanjian dan lupa membangunkan Feirona, aku hanya akan menganggap ini bahwa kami serius dalam tugas kami. aku kira aku pasti terlalu terpengaruh oleh nostalgiaku.
 
-Fakta bahwa kami tidak membuat kemajuan, berarti bahwa hubungan kami tidak berubah di tahun apa pun. Pada gilirannya itu berarti posisi saya di dalam hati Aya tidak berubah walaupun saya telah menghilang begitu egois. Aku seharusnya senang untuk itu ——- kan?
+Fakta bahwa kami tidak membuat kemajuan, berarti bahwa hubungan kami tidak berubah. artinya posisiku di dalam hati Aya tidak berubah walaupun aku telah menghilang begitu saja dengan egois. Aku seharusnya senang untuk itu ——- kan?
 
-Setelah beralih dengan Feirona, saya memposisikan diri saya demikian. Sambil tersenyum masam, aku menutup mataku.
+Setelah berganti dengan Feirona, aku memposisikan diriku. Sambil tersenyum aneh, aku menutup mataku.
 
 "Selamat malam, Ermenhilde."
 
-[Iya. Tidur nyenyak, Renji.]
+[ya. Tidur nyenyak, Renji.]
 
-Besok, kita akan melewati hutan yang dipenuhi hantu dan mayat hidup. Saya tidak akan punya waktu untuk memikirkan hal-hal yang tidak berguna seperti itu.
+Besok, kita akan melewati hutan yang dipenuhi hantu dan mayat hidup. aku tidak akan punya waktu untuk memikirkan hal-hal yang tidak berguna seperti itu.
 
 Aku benci bagian diriku yang lari dari pikiranku sendiri.
 
