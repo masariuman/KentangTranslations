@@ -112,7 +112,7 @@ aku merasakan sesuatu menarik mantelku. ketika berbalik dan melihat, itu adalah 
 
 "Siapa?"
 
-Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. aku terkejut bahwa dia bahkan tidak mengenali Aya. Mendengar itu Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, itu tidak seperti Aya akan marah hanya karena Mururu tidak mengenalinya, kau tahu? Dia tidak sesempit itu. Sebenarnya Aya akan merasa lebih baik jujur.
+Dia bertanya sambil menunjuk ke arah Aya ……… Jadi dia benar-benar tidak tahu. aku terkejut bahwa dia bahkan tidak mengenali Aya. Miss Francesca panik dan buru-buru menjelaskan tentang Aya. Yah, Aya juga tidak akan marah hanya karena Mururu tidak mengenalinya, Dia tidak sesempit itu. jujur mungkin Sebenarnya Aya akan merasa lebih baik.
 
 Sungguh melelahkan untuk diperlakukan sebagai Pahlawan terus-menerus. Secara mental, itu. Saya pikir Aya memiliki pendapat yang sama karena dia menatap Mururu dan Francesca dengan ekspresi bermasalah.
 
