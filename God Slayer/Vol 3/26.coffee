@@ -36,6 +36,8 @@ Aku merasa seperti Ermenhilde tertawa di dalam sakuku. Pasti imajinasiku.
 
 "Bahkan jika kamu berkata begitu padaku ..."
 
+<gambar>
+
 Mereka hanya kebetulan ada dilokasi makanya mereka juga ikut. Bukannya aku memilih kasih, jika kebetulan itu muncul aku akan menyelesaikan permintaan dengan Aya juga. Yah, memang benar aku tidak mengundangnya. Penampilan cemberutnya terlihat sangat lucu, tetapi jika aku tahu semuanya akan berakhir seperti ini, aku akan mengundangnya saat itu.
 
 Ya, bahkan dalam kasus itu, dia mungkin akan bergabung dengan kami dengan alasan yang berbeda. jujur bahwa dia akan bersama kami akan sangat membantu. Mengesampingkan keadaanku dan Aya, kemampuannya adalah hal yang nyata. Jauh lebih besar dariku atau Nona Francesca. Bisa dibilang dia berada di level yang berbeda.
