@@ -110,53 +110,53 @@ aku mengayunkan dokumen di depan Koutarou-kun. Banyak dokumen yang tidak terkait
 
 "Tidak. aku di sini untuk meminjam pengetahuanmu. "
 
-"Milikku?"
+"aku?"
 
-Apakah ada semacam masalah yang terjadi? Ketika saya menatapnya dengan ragu, dia melepaskan jubahnya.
+Apakah ada semacam masalah yang terjadi? Ketika aku menatapnya dengan ragu, dia melepaskan jubahnya.
 
-Yang muncul adalah rambut perak dan mata heterokromatik, satu emas dan satu merah. Ini adalah hasil dari meminta dewi untuk mengubah penampilannya begitu dia datang ke dunia ini. Wajah dan fisik androgini, rambut perak, mata kanan merah dan mata kiri emas. Dia benar-benar terlihat seperti seseorang dari dunia fantasi. Atau lebih tepatnya, bahkan di dunia ini, dia adalah satu-satunya dengan penampilan seperti ini.
+tampak rambut perak dan mata heterokromatik(berwarna beda), satu emas dan satu merah. Ini adalah hasil dari meminta dewi untuk mengubah penampilannya seperti itu ketika dia dipanggil ke dunia ini. Wajah dan fisik tampan, rambut perak, mata kanan merah dan mata kiri emas. Dia benar-benar terlihat seperti seseorang dari dunia fantasi. Atau lebih tepatnya, bahkan di dunia ini, dialah satu-satunya dengan penampilan seperti ini.
 
-“Mata Iblisku menunjukkan masa depan Renji-dono, sepertinya dia akan menghadapi bahaya …….” (Koutaoru)
+"Mata Iblisku menunjukkan masa depan Renji-dono, sepertinya dia akan menghadapi bahaya ……." (Koutaoru)
 
 "Ini bukan pertama kalinya Yamada-kun akan berada dalam bahaya."
 
-Saya memotong kata-katanya secara instan.
+aku memotong kata-katanya secara instan.
 
-Juga, bagaimana aku harus mengatakan ini, [Demonic Eye of Future Sight] milik Koutarou-kun memiliki akurasi yang bervariasi. Tidak, saya kira saya harus mengatakan bahwa tidak ada masa depan yang spesifik. Ini tidak lain adalah pengetahuan dari dunia asliku tetapi masa depan seperti berbagai cabang pohon. Tidak ada satu pun kecuali masa depan yang bisa terjadi.
+dan bagaimana aku harus mengatakan ini, [Demonic Eye of Future Sight] milik Koutarou-kun memiliki akurasi yang bervariasi. bisa kukatakan bahwa tidak spesifik. Ini adalah pengetahuan dari dunia asliku tetapi masa depan seperti berbagai cabang pohon. Tidak cuma satu tapi ada banyak  masa depan yang bisa saja terjadi.
 
-Terutama di antara kita —– [Si Berani] Souichi-kun, [Pengguna Pedang Iblis] Hisaki Masaki-chan dan Yamada-kun yang kekuatannya agak terpisah dari norma, prediksi masa depan orang-orang ini sebagian besar salah.
+Terutama di antara kami —– [brave] Souichi-kun, [Pengguna Pedang Iblis] Hisaki Masaki-chan dan Yamada-kun yang kekuatannya agak terpisah dari norma, prediksi masa depan orang-orang ini sebagian besar salah.
 
 Bahkan jika kamu mengatakan bahwa Yamada-kun dalam bahaya, kurasa dia pasti terlibat dalam kasus yang merepotkan, hanya itu yang kurasakan. Bahkan, dia sudah seperti itu sejak awal. Bahkan ketika seseorang memperkirakan hidupnya akan dalam bahaya, dia akan selalu keluar hidup-hidup. Bahkan jika lawannya adalah Iblis tingkat tinggi, atau Raja Iblis, atau Dewa Iblis. Dia akan berjuang tanpa henti, bangkit kembali dengan putus asa, dan melakukan semua yang dia bisa untuk menyembunyikan ketakutannya.
 
 Tapi ya ……
 
-"Jadi, bagaimana dengan Yamada-kun? Apakah ini terkait dengan permintaan dari Dewa Roh yang Anda ceritakan tentang punggung kecil ini? ”
+"Jadi, bagaimana dengan Yamada-kun? Apakah ini terkait dengan permintaan dari Dewa Roh yang kamu ceritakan beberapa waktu lalu"
 
-"Umu. Mereka mungkin akan meninggalkan Kota Sihir besok, tetapi mereka akan menghadapi descandant dewa Iblis selama perjalanan mereka. "
+"Umu. Mereka mungkin akan meninggalkan Kota Sihir besok, tetapi mereka akan menghadapi keturunan dewa Iblis selama perjalanan mereka. "
 
-"Lagi? Dia bertarung satu dengan Souichi dan yang lainnya juga kan? Dan dia bertarung satu di desa juga sepertinya. ”
+"Lagi? Dia bertarung dengan Souichi dan yang lainnya juga kan? Dan dia bertarung di desa juga sepertinya."
 
-Mengatakan itu, aku mengambil pedang mithril yang disimpan di dekat mejaku. Amethyst ungu di ujung pegangan adalah bukti bahwa itu adalah pedang Yamada-kun.
+Mengatakan itu, aku mengambil pedang mithril yang disimpan di dekat mejaku. Amethyst ungu di ujung pegangannya adalah bukti bahwa itu adalah pedang Yamada-kun.
 
-Dan Yamada-kun telah menjual pedang ini ke toko senjata di beberapa desa. Sebelum raja atau ksatria dapat menemukannya, aku membelinya kembali dengan uang sakuku. Saya akan menagihnya untuk uang itu, pasti. Sepertinya dia miskin, jadi aku akan membuatnya bekerja di suatu tempat.
+Dan Yamada-kun telah menjual pedang ini ke toko senjata di suatu desa. Sebelum raja atau ksatria menemukannya, aku membelinya kembali dengan uangku. aku akan menagihnya untuk uang itu, pasti. Sepertinya dia miskin, jadi aku akan membuatnya bekerja nanti.
 
-Ini akan menjadi hukuman karena mendorong pekerjaan yang menyusahkan pada saya, meninggalkan anak-anak sendirian dan berkeliling menyelamatkan orang-orang acak di pedesaan. Menyelamatkan bahkan orang asing adalah salah satu kebajikannya tetapi itu tidak berarti dia bisa mengabaikan kita. Aku tidak akan memaafkannya dengan mudah.
+Ini akan menjadi hukuman karena mendorong pekerjaan yang menyusahkan padaku, meninggalkan anak-anak sendirian dan berkeliling menyelamatkan orang-orang secara acak di pedesaan. Menyelamatkan orang asing adalah salah satu kebajikannya tetapi itu tidak berarti dia bisa mengabaikan kami. Aku tidak akan memaafkannya dengan mudah.
 
-Ketika saya mulai berpikir seperti itu, daripada beban pekerjaan saya, kejengkelan saya terhadap Yamada-kun menjadi lebih besar. Pertama-tama, pria itu terlalu egois. Meskipun dia memiliki posisi seperti kakak laki-laki, ayah dan wali bagi orang lain ........ dia selalu terluka karena bergegas ke garis depan. Itu bagus bahwa dia ingin melindungi anak-anak tetapi berapa banyak dia ingin membuat kita khawatir untuknya? Dia adalah model untuk orang dewasa yang tidak berguna. Tetapi meskipun begitu, tidak dapat dihindari bahwa kita semua percaya padanya dan menemukan bahwa bagian dirinya sangat menarik. Sifat kerja kerasnya benar-benar hebat ……… ..aku merasa seperti kehilangan entah bagaimana jadi aku harus mengubah pikiranku.
+Ketika aku mulai berpikir seperti itu, daripada beban pekerjaanku, kejengkelanku terhadap Yamada-kun menjadi lebih besar. Pertama-tama, pria itu terlalu egois. Meskipun dia memiliki posisi seperti abang laki-laki tertua, ayah dan wali bagi orang lain ........ dia selalu terluka karena bergegas ke garis depan. Itu bagus bahwa dia ingin melindungi anak-anak tetapi berapa banyak dia ingin membuat kami khawatir untuknya? Dia adalah model untuk orang dewasa yang tidak berguna. Tetapi meskipun begitu, tidak dapat dihindari bahwa kita semua percaya padanya dan menemukan bahwa itulah bagian dirinya yang sangat menarik. Sifat kerja kerasnya benar-benar hebat ……… ..aku merasa seperti kalah entah bagaimana jadi aku harus mengubah pikiranku.
 
 Meskipun dia yang terlemah, dia tidak menerima bahwa dia juga yang paling unik di antara kita.
 
-Di antara kita 13, dia adalah satu-satunya yang membuat pilihan yang benar , dia menggunakan kekuatan itu bukan untuk dirinya sendiri tetapi untuk orang lain. Sebagai hasilnya, dia sendiri menanggung dendam dan kebencian semua Iblis atas dosa membunuh Dewa Setan. Meskipun kita dirayakan sebagai GodSlayers dan sebagai pahlawan, setan hanya membenci Yamada-kun yang membunuh Dewa Setan dan tidak semua dari kita 13.
+Di antara kita 13, dia adalah satu-satunya yang membuat pilihan yang benar , dia menggunakan kekuatan itu bukan untuk dirinya sendiri tetapi untuk orang lain. Sebagai hasilnya, dia sendiri menanggung dendam dan kebencian semua Iblis atas pembunuhan Dewa iblis. Meskipun kita dirayakan sebagai GodSlayers dan sebagai pahlawan, iblis hanya membenci Yamada-kun yang membunuh Dewa iblis dan tidak semua dari kita 13.
 
-Berapa banyak wanita yang menangis untuk pria itu. Fakta bahwa aku juga salah satunya benar-benar tidak lucu. Pria macam apa yang membuat seorang wanita menangis dan kemudian meninggalkannya juga? Itu juga untuk setahun penuh?
+Berapa banyak wanita yang menangis untuk pria itu. Fakta bahwa aku juga salah satunya benar-benar tidak lucu. Pria macam apa yang membuat seorang wanita menangis dan kemudian meninggalkannya? dan juga untuk setahun penuh?
 
-Segera dia akan datang ke Ibukota Kerajaan untuk permintaan Roh Tuhan, atau lebih tepatnya sebagai pengawal untuk Beastman yang menerima permintaan itu. Saya harap Anda sudah siap Yamada Renji, saya akan menangkap Anda dan bekerja untuk Anda untuk ini.
+dia akan datang ke Ibukota Kerajaan untuk permintaan dewa roh, atau lebih tepatnya sebagai pengawal untuk Beastman yang menerima permintaan itu. aku harap kamu sudah siap Yamada Renji, aku akan menangkapmu dan memperkerjakanmu sepenuh hati untuk ini.
 
-Turnamen seni bela diri juga sudah dekat. Itu akan menjadi tempat pertama untuk memulai.
+Turnamen seni bela diri juga sudah dekat. Itu akan menjadi hal yang pertama dilakukannya.
 
 Sementara aku memutuskan semua itu, Koutarou-kun mengambil beberapa langkah mundur.
 
-"Apa itu?" (Yuuko)
+"ada apa?" (Yuuko)
 
 "Tidak, tidak ada apa-apa bu."
 
@@ -164,11 +164,11 @@ Kenapa begitu formal tiba-tiba? Pola bicara anak ini berubah seperti itu tiba-ti
 
 Menempatkan kembali pedang Mithril di atas meja, aku menghela nafas.
 
-"Jadi, apa itu tentang Yamada-kun?"
+"Jadi, ada apa tentang Yamada-kun?"
 
-"Ahem ........ Sementara menuju ke ibukota, dia akan diserang oleh keturunan Dewa Setan."
+"Ahem ........ Sementara menuju ke ibukota, dia akan diserang oleh keturunan Dewa iblis."
 
-"Oh benar, itu."
+"Oh iya."
 
 Aku tidak terlalu khawatir tentang Yamada-kun dalam bahaya.
 
@@ -176,75 +176,75 @@ Aku tidak terlalu khawatir tentang Yamada-kun dalam bahaya.
 
 "Mata kananku, yah, itu meramalkan kematiannya."
 
-"……..Saya melihat."
+"……..begitu."
 
 Kematian. Itu tidak lembut sama sekali.
 
-Tapi aku juga tidak bisa pindah dari sini. Ada hal-hal yang hanya bisa saya lakukan di sini. Dan aku tidak akan menjadi orang yang pergi dan bertemu dengannya meskipun dia adalah orang yang telah mengabaikanku begitu lama. Meskipun bagian terakhir adalah alasan utama, tetapi yang pertama juga penting.
+Tapi aku juga tidak bisa pergi dari sini. Ada hal-hal yang hanya bisa aku lakukan di sini. Dan aku tidak akan menjadi orang yang pergi dan bertemu dengannya meskipun dia adalah orang yang telah mengabaikanku begitu lama. Meskipun bagian terakhir adalah alasan utama, tetapi yang pertama juga penting.
 
 "Biarkan saja dia." (Yuuko)
 
-"Sungguh tak berperasaan. Seperti yang diharapkan dari sang Penyihir hebat. ”
+"Sungguh tak berperasaan. Seperti yang diharapkan dari sang Penyihir hebat."
 
 "Aku akan menamparmu."
 
-"Aku sangat menyesal."
+"maafkan aku."
 
-Ketika aku mengatakan itu sambil tersenyum, dia langsung meminta maaf. Bagus, saya suka anak-anak yang jujur.
+Ketika aku mengatakan itu sambil tersenyum, dia langsung meminta maaf. Bagus, aku suka anak-anak yang berterus terang.
 
-Melihat Koutarou-kun dan karakternya yang tidak stabil, aku merasa santai. Siapa penyihir? Aku bahkan berpikir kalau aku lebih cocok disebut Saint daripada Yayoi-chan ………… Tidak, itu akan menyakitkan dengan caranya sendiri.
+Melihat Koutarou-kun dan karakternya yang tidak stabil, aku merasa santai. Siapa juga penyihir? Aku bahkan berpikir kalau aku lebih cocok disebut Saint daripada Yayoi-chan ………… Tidak, itu akan menyakitkan dengan caranya sendiri.
 
-"Yah kalau itu Yamada-kun, dia seharusnya baik-baik saja, kan?"
+"Yah kalau itu Yamada-kun, dia seharusnya baik-baik saja, kan?"(yuuko)
 
-"…….Betulkah?"
+"…….benarkah?"
 
 "Berapa kali mata kananmu meramalkan kematian Yamada-kun?"
 
-Ketika saya menanyakan hal itu, pandangannya menjadi kosong dan dia mulai menghitung dengan jarinya.
+Ketika aku menanyakan hal itu, pandangannya menjadi kosong dan dia mulai menghitung dengan jarinya.
 
 Pertama dia melewati semua lima jari di tangan kanannya kemudian kelima tangan kirinya juga ......
 
-"Aku tidak tahu sudah berapa kali ini terjadi."
+"Aku tidak tahu sudah berapa kali ini terjadi."(kou)
 
-"Persis."
+"begitulah."
 
-Dia lebih unik dari Souichi-kun, yang adalah [Berani] dan [pendekar pedang] Masaki-chan yang ingin memiliki kekuatan untuk bahkan memotong nasib itu sendiri, tidak ada yang namanya masa depan yang pasti.
+Dia lebih unik dari Souichi-kun, si [brave] dan [pendekar pedang] Masaki-chan yang ingin memiliki kekuatan untuk bahkan memotong nasib itu sendiri, tidak ada yang namanya masa depan yang pasti.
 
-Kekuatan untuk tidak kalah melawan siapa pun. Kekuatan untuk memotong takdir itu sendiri. Keduanya adalah kemampuan yang sangat kuat. Tergantung pada bagaimana menggunakannya, mereka bisa menyaingi bahkan raja Iblis dalam kekuatan murni. Tetapi kekuatan kemauan dapat memungkinkan Anda untuk melewati batas Anda sendiri tetapi Anda tidak bisa melewati batas manusia, atau begitulah menurut saya. Dibandingkan dengan itu, yang diinginkan Yamada-kun adalah senjata untuk membunuh Dewa. Kekuatan untuk membunuh Dewa. Itu Aya-chan yang meminta kekuatan menyaingi para Dewa yang berdiri di atas semua kehidupan, tapi itu hanya dalam hal energi magis. Hanya Yamada-kun yang meminta kekuatan untuk melampaui Dewa. Artinya, hasilnya, kami melihatnya satu tahun yang lalu. Itu sebabnya kita bisa percaya padanya.
+Kekuatan untuk tidak kalah melawan siapa pun. Kekuatan untuk memotong takdir itu sendiri. Keduanya adalah kemampuan yang sangat kuat. Tergantung pada bagaimana menggunakannya, mereka bisa menyaingi bahkan raja Iblis dalam kekuatan murni. Tetapi kekuatan kemauan dapat memungkinkan kamu untuk melewati batasmu sendiri tetapi kamu tidak bisa melewati batas manusia, begitulah menurutku. Dibandingkan dengan itu, yang diinginkan Yamada-kun adalah senjata untuk membunuh Dewa. Kekuatan untuk membunuh Dewa. Aya-chan yang meminta kekuatan menyaingi para Dewa, tapi itu hanya dalam hal energi magis. Hanya Yamada-kun yang meminta kekuatan untuk melampaui Dewa. yang berarti, hasilnya, kami melihatnya satu tahun yang lalu. Itu sebabnya kami bisa percaya padanya.
 
 “Dia akan mencapai ibukota dengan aman dan sehat. Pastinya."
 
-"Tapi itu bagus sekali."
+"itu bagus sekali, tapi..."
 
-"Percaya saja padanya. Bagaimanapun juga, dia adalah pemimpin kita. ”
+"Percaya saja padanya. Bagaimanapun juga, dia adalah pemimpin kita."
 
 Orang itu sendiri pasti akan menyangkal itu, dia juga tidak berharap untuk itu.
 
-……… tapi lelaki bernama Yamada Renji itu pasti pemimpin kita. Itu tidak akan berubah bahkan sekarang. Bahkan setelah dia menghilang, dia akan selalu menjadi pemimpin kita ……… karena dia yang terkuat di antara kita semua.
+……… tapi lelaki bernama Yamada Renji itu pasti pemimpin kami. Itu tidak akan berubah bahkan sekarang. Bahkan setelah dia menghilang, dia akan selalu menjadi pemimpin kami ……… karena dia yang terkuat di antara kami semua.
 
-Bukannya dia memiliki semacam karisma, bukan karena dia selalu membuat keputusan yang tepat. Kami gagal bersama berkali-kali. Kami salah memilih berkali-kali. Tetapi meskipun demikian satu-satunya alasan kami tidak melanggar adalah karena dia berdiri di depan kami, karena ia akan selalu membawa anak-anak bersamanya. Dengan Ermenhilde di tangannya, meskipun dia bisa bertarung dengan kekuatan penuh hanya melawan Dewa Setan, tetap saja dia akan berdiri di depan kita.
+Bukannya dia memiliki semacam karisma, bukan karena dia selalu membuat keputusan yang tepat. Kami slalu gagal bersama berkali-kali. Kami salah memilih berkali-kali. Tetapi meskipun demikian satu-satunya alasan kami tidak kacau adalah karena dia berdiri di depan kami, karena ia akan selalu membawa anak-anak bersamanya. Dengan Ermenhilde di tangannya, meskipun dia bisa bertarung dengan kekuatan penuh hanya melawan Dewa iblis, tetap saja dia akan berdiri di depan kami.
 
-Dan semua Pahlawan akan mengejar punggungnya. Dia memberi kami rasa lega. Mungkin itu yang dia harapkan juga. Mungkin itu adalah cita-cita yang ada dalam benaknya juga. Sebagai orang dewasa, sebagai yang tertua, kehidupan yang bisa dibanggakannya. Dia selalu mengatakan itu.
+Dan semua Pahlawan akan mengejarnya. Dia memberi kami rasa lega. Mungkin itu yang dia harapkan juga. Mungkin itu adalah cita-cita yang ada dalam benaknya juga. Sebagai orang dewasa, sebagai yang tertua, kehidupan yang bisa dibanggakannya. Dia selalu mengatakan itu.
 
 "Dia adalah Pahlawan Protagonis dari cerita ini. Dia tidak akan mati. "
 
-"Aku cemburu pada Yuuko-dono yang sangat percaya padanya. Akan menyenangkan jika saya juga bisa menjadi seperti dia juga. "
+"Aku cemburu pada Yuuko-dono yang sangat percaya padanya. Akan menyenangkan jika aku juga bisa menjadi seperti dia juga. "
 
-Semua orang mengatakan itu. Saya kira semua orang ingin menjadi pusat pesta mereka, kan?
+Semua orang mengatakan itu. aku kira semua orang ingin menjadi pusat dari tim mereka, kan?
 
 Dari sudut pandang Yamada-kun posisi itu tampaknya yang paling sulit, paling menyakitkan dan berat. Aku hanya bisa tersenyum kecut karenanya.
 
-"Lalu bekerja lebih keras. 'Pahlawan' adalah kata kerja. Bukan gelar —– jika Anda ingin menjadi protagonis, Anda hanya dapat terus bertindak seperti pahlawan. ”(Yuuko)
+"kalau begitu bekerja lebih keraslah. 'Pahlawan' adalah kata kerja. Bukan gelar —– jika kamu ingin menjadi protagonis, kamu hanya dapat terus bertindak seperti pahlawan."(Yuuko)
 
 "Umu."
 
-"Juga —— Astrarea selalu mengawasi Yamada-kun, dia akan baik-baik saja."
+"Jdan uga —— Astrarea selalu mengawasi Yamada-kun, dia akan baik-baik saja."
 
 "…….Ya itu benar."
 
-Saya ingat bahwa Dewi yang terlalu protektif dan berperilaku buruk.
+aku ingat bahwa Dewi yang terlalu protektif dan berperilaku buruk.
 
-Saya tidak tahu hati sanubari yang mana yang ditarik tetapi Dewi memiliki kasih sayang pada Yamada-kun. Seorang dewi yang mencintai pembunuh Dewa.
+aku tidak tahu hatinya yang mana yang tertarik tetapi Dewi memiliki kasih sayang pada Yamada-kun. Seorang dewi yang mencintai pembunuh Dewa.
 
 "Tapi tetap saja, mataku menunjukkan kematian Renji-dono .."
 
@@ -252,14 +252,16 @@ Ketika dia mengatakan itu, aku menjentikkan jari.
 
 Saat berikutnya, Koutarou-kun menghilang dari pandanganku. Mengaktifkan sihir [Teleport], aku membuatnya terbang. Tujuannya adalah pusat hutan Roh di benua Elfreim. Di sisi World Tree. Mungkin ada beberapa kesalahan perhitungan tetapi dia tidak akan jauh dari sana. Mungkin.
 
-Kematian Yamada-kun katanya, kematian. Jika Anda begitu khawatir, bantu dia meskipun hanya dari pinggir lapangan. Dengan kemampuan koutarou-kun, dia seharusnya bisa mengulurkan tangan tanpa membuat orang lain menyadari kehadirannya. Dan juga untuk kembali dari benua Elfreim.
+Kematian Yamada-kun katanya, kematian. Jika kamu begitu khawatir, bantu dia meskipun hanya dari jauh. Dengan kemampuan koutarou-kun, dia seharusnya bisa mengulurkan tangan tanpa membuat orang lain menyadari kehadirannya. Dan juga untuk kembali dari benua Elfreim.
 
-"Serius. Saya sangat sibuk, Anda tahu. ”
+"Serius. aku sangat sibuk. "
 
 Membuka buku di tanganku, aku membalik halaman.
 
-Pembangunan panti asuhan, memberikan pekerjaan kepada gelandangan, pemulihan ibu kota, penaklukan monster, diplomasi dengan Elfreim ——- dan banyak hal lain yang tersisa untuk saya lakukan.
+Pembangunan panti asuhan, memberikan pekerjaan kepada gelandangan, pemulihan ibu kota, penaklukan monster, diplomasi dengan Elfreim ——- dan banyak hal lain yang tersisa untuk aku lakukan.
 
-Saya tidak membutuhkan Wizard yang terlalu banyak bicara dengan saya, tetapi akan lebih baik jika saya bisa mendapatkan bantuan aktual.
+aku tidak membutuhkan Wizard yang terlalu banyak bicara denganku, tetapi akan lebih baik jika aku bisa mendapatkan bantuan yang sebenarnya.
 
-Cepatlah dan datang ke Ibukota Yamada-kun. Saya menunggumu dengan banyak pekerjaan.
+Cepatlah dan datang ke Ibukota Yamada-kun. aku menunggumu dengan banyak pekerjaan.
+
+<gambar> 005.png
