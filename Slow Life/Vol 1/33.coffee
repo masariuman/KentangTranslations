@@ -158,69 +158,47 @@ g"Aku tidak bisa menggunakan shotel jadi aku tidak akan bisa mengajarimu cara me
 
 "O-oke."
 
- 
+Meski begitu, Al meremehkan red di hatinya.
 
-Meski begitu, Al jelas membuat cahaya Merah di hatinya.
+Bagaimanapun juga, lawan latihan biasanya adalah Pahlawan Lit.
 
-Bagaimanapun, lawan latihan regulernya adalah Pahlawan Lit.
-
-Dia agak mengerti bahwa Red adalah pengguna pedang yang tidak cocok dengan braket D-rank tetapi masih ada perbedaan besar jika dibandingkan dengan Pahlawan.
-
- 
+Dia ntah mengapa mengerti bahwa Red adalah pengguna pedang yang tidak cocok dengan level rank-d tetapi masih ada perbedaan besar jika dibandingkan dengan Pahlawan.
 
 (Lagipula, Red-san tidak bisa menggunakan shotel.)
-
- 
 
 Dia masih mengenakan pedang tembaga di pinggangnya.
 
 Itu adalah artikel murahan yang tidak akan pernah dipilih orang yang cerewet.
 
- 
-
 Harganya mungkin sekitar 5 Peryl.
 
 Itu adalah sesuatu yang tidak bisa dibandingkan dengan shotel bagus yang harganya lebih dari 3000 Peryl yang dia terima hari ini.
-
- 
 
 Tanpa sadar, Al terperangkap dalam pikiran seperti itu.
 
 Setelah pindah ke halaman belakang, Red mengambil sapu yang disandarkan ke dinding.
 
- 
-
-"Baiklah, ini akan berhasil."
+g"Baiklah, ini sudah cukup."
 
 "Eh?"
-
- 
 
 Red memegang satu sapu di tangannya.
 
 Dia bahkan tidak mengambil pedang kayu.
 
- 
+g"ada apa?"
 
-"Apa yang salah?"
+"T-tidak, err, senjatanya mana?"
 
-"T-tidak, well, senjata?"
+g"Senjatamu ada di pinggangmu."
 
-"Senjatamu ada di pinggangku."
+"Tidak! Senjata red! "
 
-"Tidak! Senjata merah! "
+Red tersenyum cengir.
 
- 
+g"Satu sapu lebih dari cukup."
 
-Red menyeringai.
-
- 
-
-"Satu sapu lebih dari cukup."
-
- 
-
-Darah segera naik ke kepala Al.
+Al langsung naik darah.
 
 Bahkan dia tidak bisa mengerti mengapa dia sangat marah. Namun, dia mengerti lebih jauh di masa depan bahwa itu karena dorongan dari Perlindungan Ilahi-Nya.
 
@@ -228,23 +206,17 @@ Dia adalah Master Senjata yang menggunakan shotel. Dia percaya bahwa itu adalah 
 
 Meskipun begitu, lawannya tidak memiliki apa-apa selain sapu sebagai senjata dan merasa itu sudah cukup.
 
-Bagaimana dia bisa memaafkan itu? Dia mengecilkan shotel!
+Bagaimana dia bisa memaafkan itu? Dia meremehkan shotel!
 
-Weapon Master Divine Protection membisikkan itu pada Al.
+perlindungan ilahi master senjata membisikkan itu pada Al.
 
- 
+Tanpa menunggu sinyal untuk mulai, Al menghunus pedangnya dan dia berlari.
 
-Tanpa menunggu sinyal untuk mulai, Al menghunus pedangnya saat dia berlari.
-
-Meskipun itu adalah shotel berbilah kusam yang dibuat dengan logam lunak untuk tujuan pelatihan, itu masih benjolan logam. Akan ada cedera jika dia menyerang menggunakan seluruh kekuatannya.
+Meskipun itu adalah shotel berbilah kusam yang dibuat dengan logam lunak untuk tujuan pelatihan, itu masih terbuat dari logam. Akan ada cedera jika dia menyerang menggunakan seluruh kekuatannya.
 
 Namun, pada saat itu, Al terpikat oleh keinginan untuk mengayunkan shotelnya dengan sekuat tenaga tanpa ragu-ragu.
 
- 
-
 "Eh?"
-
- 
 
 Al, yang seharusnya berlari ke arah Red, tiba-tiba menyadari bahwa ia menatap ke langit yang diwarnai merah oleh matahari terbenam.
 
@@ -252,15 +224,11 @@ Sepertinya dia entah bagaimana jatuh ke tanah tanpa mengetahui.
 
 Al menatap Red dengan bingung. Kejutan itu menghilangkan impuls dari Perlindungan Ilahi-Nya.
 
- 
-
-“Seorang Master Senjata kuat melawan rasa takut dan kebingungan tetapi lemah terhadap perasaan marah. Anda harus mendisiplinkan diri Anda terlebih dahulu. ”
+g"Seorang Master Senjata kuat melawan rasa takut dan kebingungan tetapi lemah terhadap perasaan marah. kamu harus mendisiplinkan dirimu terlebih dahulu."
 
 "Eh, ah, eh?"
 
-"Aku menyapu kakimu saat kamu menyerang lurus ke arahku tanpa pikir panjang."
-
- 
+g"Aku menyapu kakimu saat kamu menyerang lurus ke arahku tanpa pikir panjang."
 
 Dia tidak melihat apa-apa.
 
