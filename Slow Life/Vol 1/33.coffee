@@ -1,250 +1,160 @@
-Bab 33: Al mendapatkan pedang yang luar biasa
+Bab 33: Al mendapatkan pedang yang luar biasa 
 
-Penerjemah: Tseirp
-
- 
-
-"Ini akan sulit tetapi lakukan yang terbaik."
+"Ini akan sulit tetapi lakukanlah yang terbaik."
 
 "Terima kasih banyak."
 
- 
+Al membungkuk ke arah pelanggan ketika pelanggan pergi.
 
-Al membungkuk ke arah pelanggan ketika dia pergi.
+Saat ini, Al duduk di konter untuk toko Red untuk menjaga toko.
 
-Saat ini, Al duduk di konter untuk toko Red untuk cenderung ke toko.
+Selama minggu ini, berkali-kali red dan Lit tidak ada di sekitar toko.
 
- 
-
-Selama minggu ini, berkali-kali Merah dan Lit tidak ada di sekitar toko.
-
-Biasanya, salah satu dari mereka akan tetap tinggal di toko tetapi hari ini, Al cenderung ke toko daripada mereka berdua.
+Biasanya, salah satu dari mereka akan tetap tinggal di toko tetapi hari ini, Al berjaga sendirian.
 
 Karena Al tidak memiliki banyak pengetahuan di bidang kedokteran, jika ada pertanyaan tentang obat mana yang terbaik, ia hanya dapat menuliskan gejala-gejalanya dan berjanji bahwa Red akan memberikannya kepada mereka ketika ia kembali.
 
- 
+Jumlah pelanggan tidak terlalu tinggi dan mereka tidak banyak yang datang.
 
-Jumlah pelanggan tidak terlalu tinggi dan mereka tidak datang dengan mantap.
-
-Tetapi bertentangan dengan asumsi Al, ada banyak pelanggan yang lebih sering dari yang diharapkan sehingga Al kesulitan mencari obat-obatan.
-
- 
+Tetapi bertentangan dengan asumsi Al, ada banyak pelanggan dari yang dibayangkan sehingga Al kesulitan mencari obat-obatan.
 
 "Tolong, satu botol pasta beri putih."
 
 "O-oke!"
 
- 
+ada beberapa yang menunjuk obat yang mereka inginkan di rak, ada juga yang langsung menyebutkan nama obatnya.
 
-Sementara ada beberapa yang menunjuk obat yang mereka inginkan di rak pajangan, ada juga yang langsung menyebutkan nama obatnya.
-
-Meskipun ada label yang jelas di rak untuk masing-masing obat, itu menakutkan untuk mencari mereka sementara pelanggan menunggunya.
-
- 
+Meskipun ada label nama di rak untuk masing-masing obat, tidak enak untuk mencarinya sementara pelanggan menunggunya.
 
 "Hmm, ah ini dia, pasta berry putih."
-
- 
 
 Dia menghela napas ketika akhirnya menemukannya.
 
 Al menyerahkan produk itu dengan senyum, merasa lega karena dia menyerahkannya dengan aman.
 
- 
-
-"Ini akan menjadi 2 Peryl!"
-
- 
+"harganya 2 Peryl!"
 
 Pria seperti penyihir itu meletakkan delapan keping koin perak Quarter Peryl di atas meja.
 
- 
-
-"Apakah Pengawal memperlakukanmu dengan buruk?"
+"Apakah penjaga memperlakukanmu dengan buruk?"
 
 "Eh?"
 
- 
+Pria yang meletakkan koin perak mengatakan itu.
 
-Pria yang meletakkan koin perak itu bergumam.
+Pria itu bertubuh kecil dan mengenakan pakaian seperti penyihir yang kotor. Dia membawa tas kain tipis dan panjang di atas bahunya. Al ingat bahwa dia bertemu pria itu di Marsh Selatan sebelumnya.
 
-Pria itu bertubuh kecil dan mengenakan pakaian seperti penyihir yang ternoda noda. Dia membawa tas kain tipis dan panjang di atas bahunya. Al ingat bahwa dia bertemu pria itu di Marsh Selatan sebelumnya.
+"Itu karena penjaga membenci kami penduduk Marsh Selatan. Mereka sepertinya tidak berusaha menangkap penjahat. Lebih penting lagi, Al, mereka mungkin akan mencoba menangkapmu dengan menggunakan alasan bahwa kau bohong."
 
- 
-
-“Itu karena Pengawal membenci kami penduduk Marsh Selatan. Mereka sepertinya tidak berusaha menangkap penjahat. Lebih penting lagi, Al, mereka mungkin akan mencoba menangkapmu dengan menggunakan alasan yang kau bohongi. ”
-
- 
-
-Dalam benak Al, dia bisa melihat tempat Tanta ditangkap seminggu yang lalu.
+dibenak Al, dia mengingat Tanta yang ditangkap seminggu yang lalu.
 
 Meskipun, pada saat itu, Kapten Penjaga Moen meminta maaf ...
 
- 
-
-"Jika terjadi sesuatu, cari bantuan dari Big Hawk-san. Pria itu kejam terhadap musuh-musuhnya tetapi baik kepada sesama warga Marsh Selatan. Orang tuamu juga ada di tempat Big Hawk sekarang. ”
+"Jika terjadi sesuatu, cari bantuan dari Big Hawk-san. Pria itu kejam terhadap musuh-musuhnya tetapi baik kepada sesama warga Marsh Selatan. Orang tuamu juga ada di tempat Big Hawk sekarang."
 
 "... Tapi ayah menyuruhku tinggal di sini."
 
-"Aku mengerti perasaan ayahmu. Para Pengawal selalu bertujuan untuk membuat Big Hawk-san dan kami membayarnya. Mungkin ini pilihan yang lebih aman untuk menjauh. ”
+"Aku mengerti perasaan ayahmu. Para penjaga selalu menargetkan Big Hawk-san dan kami. Mungkin ini pilihan yang tepat dan aman untuk menjauh."
 
- 
+Pria itu maju ke depan dan meraih bahu Al.
 
-Pria itu mencondongkan tubuh ke depan dan meraih bahu Al.
+Al tanpa sadar merasakan tubuhnya.
 
-Al tanpa sadar menegang tubuhnya.
-
- 
-
-“Tapi itu salah. Al, Anda sedang ditargetkan oleh Pengawal. Mereka memantau toko ini. ”
+"Tapi itu salah. Al, kamu sedang ditargetkan oleh penjaga. Mereka memantau toko ini."
 
 "Pemantauan? Itu tidak mungkin …"
 
-“Mengapa kamu berpegang teguh pada kepercayaan itu ketika kamu tidak tahu pasti apa-apa? Apakah kamu tidak tahu bahwa untuk Pengawal, solusi termudah adalah bahwa kamu, Al, telah berbohong? "
+"Mengapa kamu bersikeras ketika kamu tidak tahu apa-apa? Apakah kamu tidak tahu bahwa untuk penjaga, solusi termudah adalah bahwa kamu, Al, telah berbohong?"
 
 "……"
 
- 
-
 Pria itu meremas bahu Al.
 
-Semburat rasa sakit mengalir di bahunya.
+rasa sakit mengalir di bahunya.
 
- 
+"Oop, maaf. Aku tidak bermaksud menakutimu. Aku hanya mengkhawatirkanmu."
 
-"Oop, maaf. Aku tidak bermaksud menakutimu. Aku hanya mengkhawatirkanmu. ”
+Pria itu tersenyum dengan senyumam aneh.
 
- 
+Dia menepuk bahu Al untuk meyakinkannya dan melepaskan tangannya.
 
-Pria itu tersenyum dengan seringai bengkok.
-
-Dia membelai bahu Al untuk meyakinkannya dan menarik tangannya.
-
- 
-
-“Yah, ketahuilah bahwa Big Hawk-san mengkhawatirkanmu. Jika Anda merasakan bahaya dalam hidup Anda ... atau sehat, jika Anda bosan tidak melakukan apa-apa, datanglah ke mansion. Anda tahu tempat yang tepat? "
+"Yah, ketahuilah bahwa Big Hawk-san mengkhawatirkanmu. Jika kamu merasakan bahaya dalam hidupmu ... atau ya, jika kamu bosan tidak melakukan apa-apa, datanglah ke mansion. kamu tahu tempatnya kan?"
 
 "Lagipula aku penduduk Marsh Selatan."
 
- 
-
 Itu adalah rumah besar yang berdiri tidak pada tempatnya, menjulang di atas deretan rumah-rumah bobrok di South Marsh.
 
-Semua penduduk Marsh Selatan mengenal Big Hawk, orang nomor dua di Persekutuan Pencuri yang menjabat sebagai bos distrik Marsh Selatan.
+Semua penduduk Marsh Selatan mengenal Big Hawk, orang nomor dua dari guild Pencuri yang menjabat sebagai bos distrik Marsh Selatan.
 
-Setiap orang yang tinggal di Marsh Selatan memiliki pendapatan sedikit dikurangi dan dikumpulkan oleh Big Hawk. Sebagai gantinya, ia mengelola pemolisian diri di distrik Marsh Selatan yang memiliki ketertiban umum yang buruk yang bahkan dibenci oleh Pengawal ... atau itu adalah dalih.
-
- 
+Setiap orang yang tinggal di Marsh Selatan pendapatannya dikurangi sedikit dan dikumpulkan oleh Big Hawk. Sebagai gantinya, ia mengelola sendirian di distrik Marsh Selatan yang memiliki ketertiban umum yang buruk yang bahkan dibenci oleh penjaga ... atau itu adalah tipuan.
 
 Sejujurnya, Al tidak memiliki kesan yang baik tentang orang itu.
 
- 
-
-“Coba katakan pada penjaga rumah bahwa kamu adalah Al. Kami akan menghibur Anda dengan ciuman di dahi dan sup hangat di mansion. ”
+"katakan saja pada penjaga rumah bahwa kamu adalah Al. Kami akan menghiburmu dengan ciuman di dahi dan sup hangat di mansion."
 
 "Te-terima kasih banyak."
-
- 
 
 Pintu berbunyi.
 
 Itu adalah seorang perawat dari klinik Newman. Dia mungkin datang untuk membeli obat.
 
- 
-
-"Oop, aku tidak bisa menghalangi bisnis. Maaf telah meluangkan waktu Anda. Sampai jumpa. Kami akan menunggu ... ah, benar. "
-
- 
+"Oop, aku tidak bisa menghalangi bisnis. Maaf telah meluangkan waktumu. Sampai jumpa. Kami akan menunggu ... oh iya... "
 
 Pria itu meletakkan tas di punggungnya di atas meja.
 
- 
+"kamu baru saja membangkitkan Perlindungan Ilahimu? aku dengar dari ayahmu. Master Senjata. Itu bagus sekali. Ini hanya di antara kita, tetapi berapapun usianya, ketika Perlindungan Ilahimu bangkit, itu menunjukkan bahwa para Dewa telah mengakuimu telah tumbuh menjadi seorang anak yang melakukan apa pun yang kamu inginkan kepada orang dewasa, yang dapat memenuhi peran yang mereka berikan kepadamu. Itu adalah kebiasaan kami. "
 
-"Anda baru saja membangkitkan Perlindungan Ilahi Anda? Saya mendengar dari ayahmu. Master Senjata. Itu masalah besar. Ini hanya di antara kita, tetapi berapapun usianya, ketika Perlindungan Ilahi Anda bangun, itu menunjukkan bahwa para Dewa telah mengakui bahwa Anda telah tumbuh menjadi seorang anak yang melakukan apa pun yang Anda inginkan kepada orang dewasa yang dapat memenuhi peran yang mereka berikan kepada Anda. Itu adalah kebiasaan kami. "
+"orang dewasa?"
 
-"Seorang dewasa?"
-
-“Ini adalah hadiah perpisahan untuk itu. Untuk bintang naik Master Senjata kami memegang harapan kami untuk. Jika Anda tumbuh di Marsh Selatan, maka gunakan kekuatan itu demi Marsh Selatan. Dengan cara itu, kita dapat bertahan hidup melalui keadaan yang menyedihkan ini. ”
-
- 
+"Ini adalah hadiah perpisahan untuk itu. Untuk naiknya Master Senjata kami memegang harapan kami untuk itu. Jika kamu tumbuh di Marsh Selatan, maka gunakan kekuatan itu demi Marsh Selatan. Dengan cara itu, kita dapat bertahan hidup melalui keadaan yang menyedihkan ini."
 
 Setelah membuka tas, ada satu shotel di dalamnya.
 
- 
-
 "I-ini !?"
 
- 
+Al membuka pedang itu sedikit dari sarungnya dan tanpa sadar mengangkat suaranya ketika dia melihat sinar.
 
-Al menghunus pedang itu sedikit dari sarungnya dan tanpa sadar mengangkat suaranya ketika dia melihat sinar.
-
- 
-
-"Pedang tajam yang dibuat dengan Crimson Steel dan dipesona dengan sihir yang kuat. Kami mendapatkannya dari pedagang dari kota pisau yang dikenal sebagai Pulau Igosu. ”
+"Pedang tajam yang dibuat dengan Crimson Steel dan diberikan dengan sihir yang kuat. Kami mendapatkannya dari pedagang dari kota pisau yang dikenal sebagai Pulau Igosu."
 
 "Aku tidak bisa menerima sesuatu yang berharga ini!"
 
- 
-
 Harganya mungkin melebihi 3000 Peryl.
 
- 
+Itu adalah jenis pedang yang sangat baik dan hanya petualang rank-c yang berjuang bersusah payah yang bisa mendapatkannya.
 
-Itu adalah jenis pedang yang sangat baik yang hanya petualang C-rank yang berjuang melalui kesulitan yang bisa mendapatkannya.
-
- 
-
-"Tidak apa-apa. Ini adalah berkah kami menuju Master Senjata masa depan. Kepada Tuhan yang memberimu Perlindungan Ilahi-mu. ”
-
- 
+"Tidak apa-apa. Ini adalah berkah kami menuju Master Senjata masa depan. untuk dewa yang memberi Perlindungan Ilahi-mu."
 
 Sebelum Al bisa mengembalikan senjatanya, lelaki itu tersenyum dengan senyum miring dan cepat-cepat meninggalkan toko.
 
- 
-
 Setelah pria itu pergi, perawat yang bekerja di klinik Newman datang ke konter dengan ekspresi khawatir.
 
- 
-
-"Apakah kamu baik-baik saja? Apakah Anda kenal pria itu? "
+"Apakah kamu baik-baik saja? Apakah kamu kenal pria itu? "
 
 "... Sepertinya dia tinggal di kota yang sama denganku."
 
- 
-
 Al hanya bisa menjelaskannya seperti itu.
-
- 
 
 ☆☆
 
- 
-
 Setelah beberapa saat, Red kembali.
-
- 
 
 "Selamat datang kembali, Red-san."
 
-"Oo, aku kembali."
+g"Oo, aku kembali."
 
 "Di mana Lit-san?"
 
-"Kurasa dia tidak akan kembali untuk sementara waktu."
-
- 
+l"Kurasa dia tidak akan kembali untuk sementara waktu."
 
 Al menunjukkan ekspresi kecewa ketika mendengar itu.
 
 Ajaran pedang dari Lit pada malam hari adalah sesuatu yang Al nantikan lebih dari apa pun saat ini.
 
- 
+g"Kamu tidak akan bisa berlatih dengan Lit hari ini ya ... Begitu,... oke, aku akan menjadi lawanmu hari ini."
 
-"Kamu tidak akan bisa berlatih dengan Lit hari ini ya ... Begitu, oke, aku akan menjadi lawanmu hari ini."
+"Red-san?"
 
-"Red-san akan?"
-
-"Aku tidak bisa menggunakan shotel jadi aku tidak akan bisa mengajarimu cara menggunakan pedang tapi ... mungkin bagus untuk mengalami pertempuran melawan senjata jenis lain."
+g"Aku tidak bisa menggunakan shotel jadi aku tidak akan bisa mengajarimu cara menggunakan pedang tapi ... mungkin bagus untuk mendapatkan pengalaman melawan senjata lain."
 
 "O-oke."
 
