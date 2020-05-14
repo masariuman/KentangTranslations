@@ -74,41 +74,41 @@ Aku hanya bisa menghela nafas dengan takjub.
 
 orang yang muncul adalah pria yang mengenakan pakaian compang-camping. Ya, benar dalam jenis pakaian seperti itu seseorang tidak akan bisa mengatakan apakah dia pria atau wanita selama dia tidak berbicara. Koutarou-kun memang memiliki sosok kurus untuk seorang lelaki sehingga orang mungkin menganggapnya sebagai wanita tinggi? …… ..mungkin tidak.
 
-Dia ditutupi jubah compang-camping dari kepala hingga kaki dan hanya bagian bibirnya yang terlihat. Anda akan membuat ruangan lebih berdebu sehingga benar-benar berhenti.
+Dia ditutupi jubah compang-camping dari kepala hingga kaki dan hanya bagian bibirnya yang terlihat. kamu akan membuat ruangan menjadi lebih berdebu jadi tolonglah berhenti.
 
-Atau lebih tepatnya, bagaimana aku harus mengatakan ini ........ dia terlihat sangat lusuh. Bukannya dia juga kekurangan uang.
+Atau lebih tepatnya, bagaimana aku harus mengatakan ini ........ dia terlihat sangat lusuh. padahal dia tidak kekurangan uang.
 
-Saya benar-benar tidak bisa memahami selera pakaian anak ini. Bahkan ketika kami bepergian, dia akan memilih pakaian yang menunjukkan kulitnya. Itu menyebabkan dia mendapatkan gigitan serangga, dan ditebang dari cabang-cabang pohon juga. Saya benar-benar berharap dia lebih memperhatikan dirinya sendiri.
+aku benar-benar tidak bisa memahami selera berpakaian anak ini. ketika kami bepergian, dia memilih pakaian yang menunjukkan kulitnya. akibatnya dia mendapatkan gigitan serangga, dan terluka karena cabang-cabang pohon. aku benar-benar berharap dia lebih memperhatikan dirinya sendiri.
 
-“Jadi mengapa kamu berada dalam pakaian compang-camping itu lagi? Mencoba bersikap seperti orang yang mencurigakan? (Yuuko)
+"Jadi mengapa kamu menggunakan pakaian compang-camping itu lagi? Mencoba bersikap seperti orang yang mencurigakan?"(Yuuko)
 
-“Apa-apaan itu ........ bukankah aku baru saja mengatakannya? Dalam pertarungan ini, tidak ada yang akan mengenali siapa aku sehingga lebih mudah untuk bergerak! ”
+"Apa-apaan itu ........ bukankah aku baru saja mengatakannya? Dengan pakaian ini, tidak ada yang akan mengenali siapa aku sehingga lebih mudah untuk bergerak!"
 
-Luar biasa dia tidak ditangkap seperti itu. Apa yang dilakukan penjaga kerajaan? Saya berpikir tentang mengurangi gaji mereka di dalam kepala saya. Yah, bahkan jika mereka mencoba untuk menangkapnya, dia tetap saja [Teleport]. Meski seperti ini, dia tetap menjadi salah satu Pahlawan. Bahkan kemampuan fisiknya berada di atas kemampuan orang lain di dunia ini.
+Luar biasa dia tidak ditangkap karena itu. Apa yang dilakukan penjaga kerajaan? aku berpikir tentang mengurangi gaji mereka. Yah, bahkan jika mereka mencoba untuk menangkapnya, dia akan memakai [Teleport] juga. Meski seperti ini, dia tetap salah satu Pahlawan. Bahkan kemampuan fisiknya berada di atas kemampuan orang lain di dunia ini.
 
-"Jadi untuk apa kamu datang ke sini? Maaf tapi aku benar-benar sibuk sekarang jadi aku tidak bisa bermain-main denganmu ........ apa kamu di sini untuk membantu Yuuta-kun? ”(Yuuko)
+"Jadi untuk apa kamu datang ke sini? Maaf tapi aku benar-benar sibuk sekarang jadi aku tidak bisa bermain-main denganmu ........ apa kamu di sini untuk membantu, Yuuta-kun?"(Yuuko)
 
-Kuuki Yuuta-kun adalah seorang ksatria dari negara ini dan juga salah satu dari 13 Pahlawan. Dia adalah wakil komandan Ordo Kesatria yang terkenal sebagai [Ksatria Perisai]. Sudah satu tahun sejak dia masuk ordo tetapi karena prestasinya sebagai orang yang menyelamatkan dunia, dia dipromosikan ke posisi wakil komandan dalam waktu setengah tahun. Dia bekerja keras setiap hari bahkan sekarang tampaknya.
+Kuuki Yuuta-kun adalah seorang ksatria dari negara ini dan juga salah satu dari 13 Pahlawan. Dia adalah wakil komandan knight yang terkenal sebagai [Ksatria Perisai]. Sudah satu tahun sejak dia masuk ke knight order tetapi karena prestasinya sebagai orang yang menyelamatkan dunia, dia dipromosikan ke posisi wakil komandan dalam waktu setengah tahun. tampaknya Dia bekerja keras setiap hari bahkan sampai sekarang.
 
-Juga, dalam hal kemampuan dia bahkan melampaui ksatria terkuat di negeri ini, O'brien, jadi dia mungkin akan menjadi komandan cepat atau lambat.
+dan Juga dalam hal kemampuan dia bahkan melampaui ksatria terkuat di negeri ini, O'brien, jadi dia mungkin akan menjadi komandan cepat atau lambat.
 
-Saat ini dia bertindak sebagai ajudan komandan dan juga mempelajari berbagai pekerjaan komandan pada saat yang sama. Akan aneh jika dia tiba-tiba diangkat menjadi komandan dan diminta untuk memimpin seluruh ordo kesatria, jadi ini yang terbaik. Yuuta-kun tidak dibenci oleh siapa pun di sekitarnya sehingga ia tampaknya menghabiskan setiap hari dengan bahagia. Aku cemburu. Saya juga ingin sedikit mengolah tubuh saya.
+Saat ini dia bertindak sebagai ajudan komandan dan juga mempelajari berbagai pekerjaan komandan pada saat yang sama. Akan aneh jika dia tiba-tiba diangkat menjadi komandan dan diminta untuk memimpin seluruh knight order, jadi ini yang terbaik. Yuuta-kun tidak dibenci oleh siapa pun di sekitarnya sehingga ia tampaknya menghabiskan setiap hari dengan bahagia. Aku cemburu. aku juga ingin sedikit menggerakkan tubuhku.
 
-"Jika Anda di sini untuk uang, mereka akan memberi Anda gaji juga Anda tahu?" (Yuuko)
+"Jika kamu ke sini untuk uang, mereka akan memberimu gaji juga lho?" (Yuuko)
 
-"Saya akan lewat. Saya tidak sebebas itu. Dan saya juga kekurangan uang. ”
+"tidak. aku tidak sebebas itu. Dan aku juga tidak kekurangan uang."
 
-Lalu kenapa kau memakai pakaian usang itu? Jika Anda hanya ingin menyembunyikan identitas Anda, cukup berpakaian hitam seperti pembunuh dalam game.
+Lalu kenapa kau memakai pakaian usang itu? Jika kau hanya ingin menyembunyikan identitasmu, cukup berpakaian hitam seperti pembunuh dalam game.
 
-"Jika kamu tidak di sini untuk menghabiskan waktu, cepat katakan padaku mengapa kamu datang? Saya sangat sibuk, Anda tahu. ”
+"Jika kamu tidak di sini untuk menghabiskan waktu, cepat katakan padaku mengapa kamu datang? aku sangat sibuk."
 
-Mengatakan itu, aku mengayunkan dokumen di depan Koutarou-kun. Banyak dokumen yang tidak terkait dengan urusan rumah tangga sedang menunggu saya.
+aku mengayunkan dokumen di depan Koutarou-kun. Banyak dokumen yang tidak terkait dengan urusan rumah tangga sedang menungguku.
 
-“…… Kamu benar-benar kurang menyenangkan dalam hidupmu. Anda harus lebih menikmati percakapan seperti ini. "
+"…… Kamu benar-benar kurang rasa senang dalam hidupmu. kamu harus lebih menikmati percakapan seperti ini. "
 
-“Seperti yang aku katakan, aku tidak bebas. Apakah Anda hanya ingin seseorang untuk diajak bicara? "
+"Seperti yang kukatakan, aku tidak bebas. Apakah kamu hanya ingin seseorang untuk diajak bicara? "
 
-"Tidak. Saya di sini untuk meminjam pengetahuan Anda. "
+"Tidak. aku di sini untuk meminjam pengetahuanmu. "
 
 "Milikku?"
 
