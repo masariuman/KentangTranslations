@@ -232,174 +232,116 @@ g"Aku menyapu kakimu saat kamu menyerang lurus ke arahku tanpa pikir panjang."
 
 Dia tidak melihat apa-apa.
 
-Bahkan setelah mendengarkan penjelasannya, Al masih tidak bisa membayangkan bagaimana dia dirobohkan.
+Bahkan setelah mendengarkan penjelasannya, Al masih tidak bisa membayangkan bagaimana dia dijatuhkan.
 
- 
-
-“Sapu tentu saja merupakan barang pengganti kelas tiga sebagai senjata. Namun, ia memiliki jangkauan yang lebih panjang dibandingkan dengan shotel. Jika Anda bergegas masuk tanpa strategi apa pun, wajar jika sapu akan mencapai Anda terlebih dahulu.
-
- 
+g"Sapu tentu saja merupakan barang pengganti kelas tiga sebagai senjata. Namun, ia memiliki jangkauan yang lebih panjang dibandingkan dengan shotel. Jika kamu bergegas menyerang tanpa strategi apa pun, wajar jika sapu akan mencapaimu terlebih dahulu."
 
 Al melompat.
 
- 
-
 "Hoh."
-
- 
 
 Red tertawa senang.
 
-Kemarahan dari sebelumnya tidak lagi ditampilkan di wajah Al. Itu telah digantikan oleh hasrat yang membara di dalam hatinya dan ketajaman dingin dari baja yang terasah saat dia mengarahkan pedangnya pada Red.
+Kemarahan dari sebelumnya tidak lagi nampak di wajah Al. Itu telah digantikan oleh hasrat yang membara di dalam hatinya dan ketajaman dingin dari baja yang terasah sambil dia mengarahkan pedangnya pada Red.
 
- 
-
-"Sangat bagus, orang dengan kerangka pikiran seperti itu akan membuat kemajuan."
-
- 
+g"bagus, orang dengan pikiran seperti itu akan membuat kemajuan."
 
 Red menyiapkan sapunya untuk menghadapi Al yang terus mengarahkan pedangnya ke arahnya tanpa terburu-buru.
 
- 
-
 ☆☆
 
- 
+"Seni pedang! Wave Sword!"
 
-"Seni pedang! Wave Sword! "
+Al berteriak ketika dia mengayunkan pedangnya dan gelombang kejut dalam bentuk pedang muncul.
 
- 
-
-Al berteriak ketika dia mengayunkan pedangnya dan gelombang kejut dalam bentuk pedang melonjak.
-
- 
-
-"Oh wow, kamu sudah memperoleh seni bela diri ya?"
-
- 
+g"Oh wow, kamu sudah memperoleh seni bela diri ya?"
 
 Red dengan ringan mengayunkan sapunya dan dengan mudah mengusir gelombang pedang Al, membuatnya menghilang.
 
- 
+g"ini dia."
 
-"Sini."
+Al mengira dia punya banyak ruang di antara mereka, tetapi dengan menggunakan celah yang dia tunjukkan ketika melepaskan gelombang pedang, Red langsung mendekat dan ujung sapu itu ditusukkan di depan matanya. Dia tidak bisa lagi menghitung berapa kali ini telah terjadi.
 
- 
+"Aku mengaku kalah."
 
-Al mengira dia punya banyak ruang di antara mereka, tetapi dengan menggunakan celah yang dia tunjukkan ketika melepaskan gelombang pedang, Red langsung mendekat dan ujung sapu itu ditusukkan di depan matanya. Dia tidak bisa lagi menghitung berapa kali yang telah terjadi.
-
- 
-
-"Aku mengakui."
-
-“Cobalah untuk menahan diri dari mengambil keterampilan seni bela diri lagi. Seni bela diri mungkin mencolok tetapi Anda harus fokus pada kemampuan dasar Anda terlebih dahulu. Cara untuk menyerang dari jarak jauh mungkin berharga bagi Master Senjata yang tidak bisa menggunakan busur atau apa pun selain saat ini, memprioritaskan teknik untuk menutup dengan aman dan bertarung memiliki kemampuan yang lebih besar. ”
+g"Cobalah untuk menahan diri menggunakan keterampilan seni bela diri lagi. Seni bela diri mungkin bagus tetapi kamu harus fokus pada kemampuan dasarmu terlebih dahulu. Cara untuk menyerang dari jarak jauh mungkin berharga bagi Master Senjata yang tidak bisa menggunakan busur atau apa pun tapi saat ini, prioritaskan teknik untuk dapat mendekat dengan aman dan itu akan memberikan keuntungan besar."
 
 "Iya …"
 
- 
+Dia akhirnya tidak bisa menahan diri untuk tidak menggunakan seni bela diri karena dia tidak bisa menemukan cara untuk menutup jarak ke Red tetapi bahkan itu dengan mudah dikalahkan.
 
-Dia akhirnya tidak bisa menahan diri untuk tidak menggunakan seni bela diri karena dia tidak bisa menemukan cara untuk menutup jarak ke Red tetapi bahkan itu dengan mudah dipertahankan.
-
- 
-
-"Sangat bagus, mari kita akhiri di sini untuk hari ini."
+g"Sangat bagus, mari kita akhiri sampai di sini untuk hari ini."
 
 "Erm ..."
 
-"Apa itu? Apakah Anda punya pertanyaan?"
+g"ada apa? Apakah kamu punya pertanyaan?"
 
-"Kenapa kamu masih petualang D-rank meskipun kamu begitu kuat?"
+"Kenapa kamu masih petualang rank-d meskipun kamu begitu kuat?"
 
- 
+Kekuatan Lit membuat orang tercengang, tetapi kekuatan Red sungguh tak terduga.
 
-Kekuatan Lit membuat orang tercengang, tetapi kekuatan Red tak terduga.
+Al mungkin benar-benar pemula, tetapi setelah melawan Red, ia mengerti bahwa Red adalah pejuang sukar dipahami yang sebanding dengan Lit.
 
-Al mungkin benar-benar pemula, tetapi setelah melawan Red, ia mengerti bahwa Red adalah pejuang transenden yang sebanding dengan Lit.
-
- 
-
-"Hmm. Saya hanya merasa bahwa tidak perlu membidik kekuasaan dan otoritas hanya karena seseorang kuat. ”
+g"Hmm. aku hanya merasa bahwa tidak perlu menargetkan kekuatan dan otoritas hanya karena seseorang itu kuat."
 
 "Eh?"
 
-“Aku bersenang-senang sekarang. Menjalankan toko bersama dengan Lit, kadang-kadang mengajar anak-anak seperti dasar-dasar Al, memberikan bantuan kepada mereka yang membutuhkan di sekitarku ... Aku menikmati kehidupan seperti itu. ”
+g"Aku sangat senang sekarang. Menjalankan toko bersama dengan Lit, kadang-kadang mengajari anak-anak seperti Al dasar-dasar yang dibutuhkan, memberikan bantuan kepada mereka yang membutuhkan di sekitarku ... Aku menikmati kehidupan seperti itu."
 
-"T-tapi, bukankah lebih baik menjalani hidupmu ... mendapatkan rasa hormat dari banyak orang, memenuhi peran Perlindungan Ilahi-mu, meninggalkan namamu di bagian utama sejarah, menjadi pahlawan hebat !?"
+"T-tapi, bukankah lebih baik menjalani hidup lebih baik ... mendapatkan rasa hormat dari banyak orang, memenuhi peran Perlindungan Ilahi-mu, meninggalkan namamu di bagian utama pada sejarah, menjadi pahlawan hebat !?"
 
- 
+Red tertawa.
 
-Red tertawa ketika mendapati itu lucu.
-
- 
-
-"Beberapa waktu yang lalu, kamu merasa tidak nyaman dengan Perlindungan Ilahi mu dan mengatakan bahwa kamu akan lebih memilih Perlindungan Ilahi dari Prajurit tetapi tampaknya kamu telah sepenuhnya beradaptasi dengan Perlindungan Ilahi kamu."
+g"Beberapa waktu yang lalu, kamu merasa tidak nyaman dengan Perlindungan Ilahimu dan mengatakan bahwa kamu akan lebih memilih Perlindungan Ilahi dari warrior tetapi tampaknya kamu telah sepenuhnya beradaptasi dengan Perlindungan Ilahimu."
 
 "Eh, ah ... kurasa kau benar."
-
- 
 
 Al kagum dengan perubahan pemikirannya sendiri.
 
 Tanpa disadari, Al kini berusaha untuk menjadi pahlawan.
 
- 
-
-“Tidak apa-apa, itu juga hidup. Untuk hidup dengan pedang dan membuat nama, untuk mati oleh pedang dan tinggalkan namamu. Itu tidak terlalu buruk. "
+g"Tidak apa-apa, yang seperti itu juga kehidupan. Untuk hidup dengan pedang dan membuat nama terkenal, untuk mati oleh pedang dan meninggalkan namamu. Itu tidak terlalu buruk."
 
 "……"
 
-“Tapi, aku berbeda. Hanya itu yang ada di sana. ”
+g"Tapi, aku berbeda. Hanya itu saja."
 
-"Saya pikir saya, saat ini, berhutang budi kepada orang itu ... Big Hawk. Saya menerima pedang dari pria itu. "
+"aku pikir, aku, saat ini, berhutang budi kepada orang itu ... Big Hawk. aku menerima pedang dari pria itu. "
 
 "Sebuah pedang?"
 
-“Itu adalah pedang halus yang berharga dan dengan itu, aku bisa menjadi pahlawan seperti Lit-san. Itulah yang saya pikirkan ... tetapi apakah itu sesuatu yang sebenarnya saya inginkan sendiri, atau itu adalah sesuatu yang diinginkan Perlindungan Ilahi saya ... saya tidak tahu. "
+"Itu adalah pedang bagus yang berharga dan dengan itu, aku bisa menjadi pahlawan seperti Lit-san. Itulah yang aku pikirkan ... tetapi apakah itu sesuatu yang sebenarnya aku inginkan sendiri, atau itu adalah sesuatu yang diinginkan Perlindungan Ilahiku ... aku tidak tahu."
 
-“Bahkan aku tidak bisa memahami cara kerja hati seseorang. Namun, ya ... jika Anda bermasalah, cobalah mendengarkan pedang Anda. "
+g"Bahkan aku saja tidak bisa memahami cara kerja hati seseorang. Namun, ya ... jika kamu memiliki masalah, cobalah mendengarkan pedangmu."
 
 "Mendengarkan pedangku?"
 
-"Apakah itu ingin memotong banyak lawan atau apakah itu hanya akan memotong untuk melindungi yang kamu sayangi ... itu adalah sesuatu yang aku dengar di masa lalu dari seorang kenalan yang terampil dengan tombak."
+g"Apakah itu ingin memotong banyak lawan atau apakah itu hanya akan memotong untuk melindungi yang kamu sayangi ... itu adalah sesuatu yang aku dengar di masa lalu dari seorang kenalan yang terampil dengan tombak."
 
 "... Begitu, terima kasih banyak!"
 
-"Tentu. Nah, sudah waktunya makan malam. ”
+g"Tentu. Nah, sudah waktunya makan malam."
 
 "Iya!"
 
- 
-
 Menatap pedang latihannya, Al mengangguk kuat.
-
- 
 
 ☆☆
 
- 
-
-Pisau itu mencerminkan hati.
+mata pisau itu mencerminkan hati.
 
 Melalui mata pisau, seseorang dapat berbicara dengan hati mereka.
 
-Tentara Salib, Theodora, asisten instruktur dalam seni tombak untuk Ksatria Katedral, mengajar mereka untuk melakukannya ketika mereka bermasalah dengan impuls dari Perlindungan Ilahi mereka.
+Tentara Salib, Theodora, asisten instruktur dalam seni tombak untuk Ksatria Katedral, mengajar mereka untuk melakukannya ketika mereka memiliki masalah dengan impuls dari Perlindungan Ilahi mereka.
 
-Dalam gaya hidup asketik dari Ksatria Katedral, ada banyak yang bertentangan dengan impuls Perlindungan Ilahi masing-masing.
+Dalam gaya hidup asketik dari Ksatria Katedral, ada banyak yang bertentangan dengan impuls Perlindungan Ilahi mereka masing-masing.
 
- 
-
-Setengah-Elf Yarandorara dan saya terkejut ketika Theodora, dengan wajah model prajurit tanpa ekspresi, mulai tertawa setelah dia mengingat perjuangannya ketika mengajar seorang gadis muda dengan Perlindungan Ilahi dari Anak Liar.
+half-Elf Yarandorara dan aku terkejut ketika Theodora, dengan wajah model prajurit tanpa ekspresi, mulai tertawa setelah dia mengingat perjuangannya ketika mengajar seorang gadis muda dengan Perlindungan Ilahi Anak Liar (wild child).
 
 Aku bisa mengingat dengan jelas ekspresi gembira di wajah Theodora ketika dia mengatakan bahwa meskipun dia menyebabkan banyak kesulitan, gadis itu menjadi Ksatria Katedral yang dia bisa banggakan.
 
- 
-
 Namun,
 
- 
+g"Pedang sebagai hadiah ya ..."
 
-"Pedang sebagai hadiah ya ..."
-
- 
-
-Saya harus menyelidiki pedang itu nanti.
+aku harus menyelidiki pedang itu nanti.
