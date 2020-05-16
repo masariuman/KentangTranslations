@@ -132,51 +132,51 @@ dia menghentikan kudanya dan turun.
 
 Kemudian, dia berlutut ke tanah dan menelusuri tanah dengan jarinya. Melihat dari dekat, aku menyadari bahwa itu sebenarnya langkah kaki. Sungguh menakjubkan bagaimana dia memperhatikan itu.
 
-Bahkan aku telah belajar bagaimana berjalan melalui hutan entah bagaimana, tapi kurasa aku masih bisa dibandingkan dengan Elf, kurasa. Dan untuk memperhatikan ini dari atas seekor kuda, itu hanya bisa disebut sebagai menakjubkan.
+walaupun aku telah belajar bagaimana berjalan melalui hutan entah bagaimana, tapi kurasa aku masih tidak bisa dibandingkan dengan Elf, kurasa. Dan untuk menyadari ini dari atas kuda, itu sangat hebat.
 
-Saya juga turun dan mengkonfirmasi langkah kaki. Itu bukan langkah kaki normal. Itu bukan satu-satunya sepatu, tetapi seperti jari panjang ramping. Seperti jari kaki kaki.
+aku juga turun dan mengkonfirmasi langkah kaki. Itu bukan langkah kaki normal. Itu bukan sepatu, tetapi seperti jari panjang ramping. Seperti tulang jari kaki.
 
 "Sebuah tengkorak?"
 
-"Mungkin. Dan raksasa di situ. ”
+"Mungkin. Dan itu juga besar."
 
-Mengikuti jejak, setidaknya tiga kali lebih besar dari saya. Itu haruslah kerangka kelas Ogre setidaknya atau mungkin kerangka jenis chimera. Anda tidak bisa menebak dengan tepat apa jenisnya hanya dari jejak kaki, tetapi sudah pasti ada tingkat monster yang jauh lebih tinggi.
+dilihat dari jejaknya setidaknya tiga kali lebih besar dariku. Itu haruslah sekelas Ogre atau mungkin jenis chimera. kamu tidak bisa menebak dengan tepat apa jenisnya hanya dari jejak kaki, tetapi sudah pasti ada monster yang jauh lebih kuat.
 
 "Apakah sesuatu terjadi, Feirona-san, Renji-sama?"
 
-"Ya sedikit. Mururu, kau mencium bau aneh? ”
+"Ya sedikit. Mururu, kau mencium bau aneh?"
 
-“Tidak ada yang berbeda. Seluruh hutan memiliki bau busuk. "
+"Tidak ada yang berbeda. Seluruh hutan memiliki bau busuk. "
 
 Dia meringis ketika menjawab itu.
 
-Dalam situasi seperti itu, peningkatan kemampuan mencium pria buas berguna di sini tapi hutan ini merupakan pengecualian untuk itu.
+Dalam situasi seperti itu, peningkatan kemampuan mencium beastmen berguna di sini tapi hutan ini merupakan pengecualian untuk itu.
 
 "Apakah monster yang merepotkan muncul mungkin?" (Aya)
 
-"Itu adalah kerangka. Mungkin tipe Ogre atau chimera ……. ”
+"Itu adalah tengkorak. Mungkin tipe Ogre atau chimera ……."
 
-"Untuk berbicara dengan kata-kata Souichi, karakter bos?"
+"seperti kata souichi, apakah itu karakter bos?"
 
-“Itu kata yang nostalgia. Tapi ya, sesuatu seperti itu. "
+"itu kata yang nostalgia. Tapi ya, itu sesuatu seperti itu. "
 
-Back then we always called monsters so. Remembering that I started feeling nostalgic again. At first we really treated this as a game after all. Different world. Fantasy world. We were excited from a world where swords and magic ruled. So excited that we had forgotten that swords take life and we were always near death’s door.
+dulu kami selalu dipanggil monster. mengingat itu akupun merasakan nostalgia lagi. kami menganggap dunia ini seperti permainan pada awalnya. di dunia lain. dunia fantasi. kami sangat bersemangat hanya dendan dunia dimana pedang dan magic didalamnya. sangat bersemangat sampai kami lupa kalau pedang dapat mengambil nyawa dan kami selalu di dekat kematian.
 
-At the same time, I also felt my nervousness fade a little as well.
+pada waktu yang sama, rasa gugupku hilang perlahan.
 
-After three years I felt that I really have changed. To kill and get killed. Even though I’m on an adventure unbelievable from the point of view of someone living in the modern world, here I am calming down from remembering my previous adventure. I realised that I had gotten too used to this world as well.
+setelah 3 tahun aku merasa aku telah berubah. membunuh atau dibunuh. walaupun aku sedang melakukan petualangan yang tidak masuk akal dari sisi orang yang hidup di dunia moderen, aku mulai tenang memikirkan petualanganku di masa lalu. aku menyadari aku sudah terbiasa dengan dunia ini juga.
 
-“Boss?”
+"Bos?"
 
-“Meaning a strong one, something like the master of this forest. If we defeated our journey might become easier for the remaining time.”
+"artinya monster yang kuat, seperti master dari hutan ini. jika kita mengalahkannya mungkin perjalanan kita akan menjadi lebih mudah nantinya."
 
-Seperti yang diharapkan, yang lain tahu apa arti 'karakter bos' jadi saya memberi mereka penjelasan singkat. Yah, itu tidak salah.
+Seperti yang diharapkan, yang lainnya tahu apa arti 'karakter bos' jadi aku memberi mereka penjelasan singkat. Yah, itu tidak salah juga.
 
-"Itu akan mudah selama Aya menghembuskannya."
+"Itu akan mudah selama Aya meledakkannya."
 
-[Kenapa kamu benar-benar tergantung pada orang lain ………… Aku juga di sini, kamu tahu?]
+[Kenapa kau benar-benar bergantung pada orang lain ………… Aku juga di sini, kau tahu?]
 
-"Kerangka akan terlalu sulit bagiku."
+"tengkorak akan terlalu sulit bagiku."
 
 Mengatakan bahwa aku mengangkat bahu di mana Ermenhilde menghela nafas. Lagipula itu tidak bisa dihindari; Saya memberi alasan. Saya bisa menghancurkannya dengan kapak atau palu yang diciptakan oleh Ermenhilde tapi saya tidak pandai menggunakan salah satu dari itu. Bahkan tombak pun sulit diayunkan.
 
