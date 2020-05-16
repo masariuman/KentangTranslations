@@ -20,67 +20,67 @@ aku mengkonfirmasi kondisinya dengan pergi sedikit lebih dekat dengannya dengan 
 
 Yang paling terpengaruh dengan hutan ini adalah Feirona. Tanpa perlindungan roh, efek kebencian dari kematian dan roh pada elf ini lebih dari yang kubayangkan. Bahkan dia sendiri, yang hidup di hutan energi magis, tidak menyangka begitu. Dia tampaknya berusaha menyembunyikannya tetapi warna wajahnya tampak sangat buruk. Dia terganggu tapi tidak ada yang akan sadar kalau hanya dengan sekali lihat bahwa kondisinya semakin memburuk.
 
-Meskipun aku tahu betapa jahatnya roh jahat, aku tetap tidak menyangka efeknya sebesar ini. Dan ini juga bukan pertama kalinya aku bepergian dengan elf juga. Tetapi terakhir kali aku melakukannya adalah melalui hutan yang kupikir memiliki perlindungan dari roh. Begitu ya, kurasa aku sekali lagi mengerti mengapa elf dipanggil sebagai penjaga hutan. Kondisinya belum seburuk itu tetapi itu tidak berarti kondisinya tidak menjadi lebih buruk. aku harus melakukan sesuatu. aku memikirkannya ketika aku berlari dengan kudaku. Hal terbaik untuk dilakukan pada saat-saat seperti itu adalah beristirahat tetapi itu pun akan sulit di hutan ini.
+Meskipun aku tahu betapa jahatnya roh jahat, aku tetap tidak menyangka efeknya sebesar ini. Dan ini juga bukan pertama kalinya aku bepergian dengan elf. Tetapi terakhir kali aku melalui hutan yang sepertinya memiliki perlindungan dari roh. Begitu ya, kurasa aku sekali lagi mengerti mengapa elf dipanggil sebagai penjaga hutan. Kondisinya belum seburuk itu tetapi itu tidak berarti kondisinya tidak menjadi lebih buruk. aku harus melakukan sesuatu. aku memikirkannya ketika aku berlari dengan kudaku. Hal terbaik untuk dilakukan pada saat-saat seperti itu adalah beristirahat tetapi itu pun akan sulit di hutan ini.
 
-Tidak ada jalan beraspal di hutan ini. Bahkan sekarang, kami bergerak maju dengan bantuan kemampuan meramalkan Feirona sebagai salah satu penghuni hutan. Dan akan sangat buruk jika dia menjadi tidak bisa bergerak.
+Tidak ada jalan beraspal di hutan ini. Bahkan sekarang, kami bergerak dengan bantuan kemampuan meramal Feirona sebagai salah satu penghuni hutan. Dan akan sangat buruk jika dia menjadi tidak bisa bergerak.
 
 "Akan lebih baik jika kita setidaknya bisa tidur nyenyak di malam hari."
 
-[Tapi itu akan lebih sulit di hutan ini.]
+[Tapi itu akan sulit di hutan ini.]
 
-Saya rasa begitu. Sementara matahari terbit kita akan bergerak ke arah timur di mana ibukota berada tetapi pada malam hari kita akan diserang oleh zombie dan hantu.
+kurasa begitu. ketika matahari terbit kami bergerak ke arah timur di mana ibukota berada tetapi pada malam hari kami akan diserang oleh zombie dan hantu.
 
-Sungguh menakjubkan bahwa kita masih bisa bergerak bahkan setelah tidak beristirahat selama tiga hari penuh. Karena kami membiarkan wanita tidur dalam prioritas, kelelahan saya dan Feirona telah mencapai puncaknya.
+Sungguh menakjubkan bahwa kami masih bisa bergerak bahkan setelah tidak beristirahat selama tiga hari penuh. Karena kami meprioritaskan wanita tidur dimalam hari, kelelahanku dan Feirona telah mencapai puncaknya.
 
-Aku hanya harus bertarung dengan pedangku jadi tidak masalah selama aku bertahan saat kita bergerak tetapi gerakan kita bergantung pada pengalaman Feirona jadi setidaknya aku ingin dia beristirahat.
+Aku hanya harus bertarung dengan pedangku jadi tidak masalah selama aku bertahan saat kami bergerak tetapi gerakan kami bergantung pada pengalaman Feirona jadi setidaknya aku ingin dia beristirahat.
 
 "Kalau saja kamu bisa menjadi pedang perak, kita akan memiliki lebih sedikit masalah untuk dihadapi."
 
-[Bahkan aku akan lebih santai jika aku bisa tetapi sayangnya aku bukan perak atau Mithril.]
+[Bahkan aku akan lebih santai jika aku bisa tetapi sayangnya aku bukan perak ataupun Mithril.]
 
-Yah, saya tidak berharap banyak. Mengatakan itu di dalam pikiranku, aku berbaris di samping kuda Ms Francesca sambil berlari.
+Yah, aku tidak berharap banyak juga. Mengatakan itu di dalam pikiranku, aku berada di samping kuda Ms Francesca.
 
-Pedang berwarna Jade Green itu terbuat dari bahan yang tidak dapat ditemukan dimanapun di dunia ini. Sejujurnya Ermenhilde adalah pedang yang hanya terbuat dari energi magis. Bahkan memiliki properti aneh untuk meningkatkan ketajaman, kekuatan serangan dan intensitasnya hanya dengan melepaskan tujuh kendala yang diberikan padaku oleh sang dewi. Sama seperti perak yang efektif melawan roh mayat hidup, bilah Ermenhilde adalah salah satu senjata langka yang dapat melukai Dewa.
+Pedang berwarna Jade Green itu terbuat dari bahan yang tidak dapat ditemukan dimanapun di dunia ini. Sejujurnya Ermenhilde adalah pedang yang hanya terbuat dari energi magis. Bahkan memiliki properti aneh untuk meningkatkan ketajaman, kekuatan serangan dan intensitasnya hanya dengan melepaskan tujuh perjanjian yang diberikan padaku oleh sang dewi. Sama seperti perak yang efektif melawan roh mayat hidup, Ermenhilde adalah salah satu senjata langka yang dapat melukai Dewa.
 
-Tentu saja, itu adalah efek yang sangat langka tetapi tidak berguna dalam situasi saat ini. Itu bisa berfungsi sebagai senjata normal melawan zombie tetapi tidak akan berpengaruh pada roh dan hantu. Seperti biasa, saya merasa ingin menangis karena tidak bergunanya cheat saya.
+Tentu saja, itu adalah efek yang sangat langka tetapi tidak berguna dalam situasi saat ini. Itu bisa berfungsi sebagai senjata normal melawan zombie tetapi tidak akan berpengaruh pada roh dan hantu. Seperti biasa, aku merasa ingin menangis karena cheatku tidak berguna.
 
 "Ms Francesca."
 
 "Ada apa, Renji-sama?"
 
-Suara energik datang kepada saya sebagai balasan.
+Suara energik datang kepadaku sebagai balasan.
 
-Karena kami membiarkan mereka beristirahat di malam hari, Nona Francesca dan Mururu masih bersemangat. Saat ini Aya sedang beristirahat di belakangku dengan menutup matanya. Dia tidak tertidur, tetapi saya masih merasa sedikit malu dengan melihat seberapa besar kepercayaan yang dia berikan kepada saya. Memikirkan itu sejenak, saya menyadari bahwa saya tidak bijaksana dan menghilangkan pikiran-pikiran itu dengan menggelengkan kepala.
+Karena kami membiarkan mereka beristirahat di malam hari, Nona Francesca dan Mururu masih bersemangat. Saat ini Aya sedang beristirahat di belakangku dengan menutup matanya. Dia tidak tertidur, tetapi aku masih merasa sedikit malu dengan melihat seberapa besar kepercayaan yang dia berikan kepadaku. Memikirkan itu sejenak, aku menyadari bahwa aku tidak bijaksana dan mulai menghilangkan pikiran-pikiran itu dengan menggelengkan kepala.
 
-“Mururu juga, katakan padaku jika kamu merasa tidak bisa melanjutkan lebih lama lagi. Kami akan istirahat kalau begitu. "
+"Mururu juga, katakan padaku jika kalian merasa tidak bisa melanjutkan lebih lama lagi. kita akan istirahat jika demikian."
 
-“Fufu, terima kasih atas pertimbanganmu. Tapi aku masih baik-baik saja. "
+"Fufu, terima kasih atas pertimbanganmu. Tapi aku masih baik-baik saja. "
 
-Mengatakan bahwa dia memberikan senyum lembut yang membuatku merasa tenang juga. Tapi itu juga hanya sesaat. Tatapannya tiba-tiba menjadi serius. Saat yang sama Feirona berlari di depan juga menghentikan kudanya, dan Aya sedang beristirahat sambil bersandar di belakang juga bergerak dan bersiap untuk bertempur.
+dia memberikan senyum lembut yang membuatku merasa tenang juga. Tapi itu juga hanya sesaat. Tatapannya tiba-tiba menjadi serius. Feirona yang berlari di depan juga menghentikan kudanya, dan Aya sedang beristirahat sambil bersandar di belakang juga bergerak dan bersiap untuk bertempur.
 
-Ketika saya akhirnya melihat ke depan, saya melihat zombie manusia lapis baja berdiri seolah menghalangi jalan kami. Yah itu mungkin bukan niat mereka tetapi mereka masih di jalan. Melihat dari dekat aku juga melihat 2 kabut seperti benda melayang di sekitar mereka; pasti hantu.
+Ketika aku akhirnya melihat ke depan, aku melihat zombie manusia lapis baja berdiri seolah menghalangi jalan kami. Yah itu mungkin bukan kemauan mereka tetapi mereka masih menghalangi jalan. Melihat dari dekat aku juga melihat 2 kabut seperti benda melayang di sekitar mereka; pasti hantu.
 
-Mereka mengatakan Anda tidak dapat melihat roh tetapi melalui niat jahat mereka dan membenci hantu di dunia ini yang memiliki kabut seperti tubuh. Yah, itu membuat segalanya lebih mudah bagi kami. Pertama kali saya melihat mereka, daripada merasa takut, saya hanya merasa 'ini benar-benar dunia fantasi ya?', Itu saja.
+Mereka bilang kamu tidak dapat melihat roh tetapi melalui niat jahat mereka dan rasa benci, hantu di dunia ini memiliki tubuh seperti kabut. Yah, itu membuat segalanya lebih mudah bagi kami. Pertama kali aku melihat mereka, bukannya takut, aku hanya merasa 'ini benar-benar dunia fantasi ya?', Itu saja.
 
-Zombi tidak memiliki pikiran atau keinginan yang jelas. Mereka tidak berkerumun seperti goblin dan hanya menyerang yang hidup karena insting murni.
+Zombie tidak memiliki pikiran atau keinginan yang jelas. Mereka tidak berkerumun seperti goblin dan hanya menyerang yang hidup karena insting murni.
 
 Sebaliknya, hantu akan mengendalikan zombie atau mayat hidup lain yang memiliki keinginan lemah untuk menyerang yang hidup. Bahkan ada musuh yang lebih merepotkan seperti vampir dan Grim Reaper yang memiliki kemampuan yang sama juga.
 
-Jika ada pendeta bersama kami, kami bisa memurnikan mereka dengan mukjizat dewi tetapi seorang pendeta yang bisa menggunakan mukjizat tingkat tinggi seperti itu tidak akan melakukan petualangan di tempat pertama. Dia akan tetap di gereja sambil berdoa kepada dewi. Saya mungkin berprasangka tentang itu.
+Jika ada pendeta bersama kami, kami bisa memurnikan mereka dengan mukjizat dewi tetapi seorang pendeta yang bisa menggunakan mukjizat tingkat tinggi seperti itu tidak akan melakukan petualangan seperti ini. Dia akan tetap di gereja sambil berdoa kepada dewi. aku mungkin berfikir seperti itu.
 
-“Aya, aku menyerahkan hantu padamu. Ms Francesca pergi ke sisi Feirona. "
+"Aya, aku menyerahkan hantu itu padamu. Ms Francesca pergi ke sisi Feirona. "
 
-Mengatakan bahwa aku turun dari kudaku dan pada saat yang sama Mururu datang di sampingku. Biasanya kita akan mengabaikan musuh seperti itu tetapi melihat bahwa Feirona berhenti, itu pasti jalan yang harus kita lalui. Menyimpulkan itu, saya memutuskan untuk segera mengurus ini.
+aku turun dari kudaku dan pada saat yang sama Mururu datang di sampingku. Biasanya kita akan mengabaikan musuh seperti itu tetapi melihat bahwa Feirona berhenti, itu pasti jalan yang harus kita lalui. aku memutuskan untuk segera mengurus ini.
 
-"Aku akan mengambil yang benar."
+"Aku akan menyerang yang sebelah kanan."
 
 "Lalu, yang kiri adalah milikku."
 
-Pada saat yang sama saya menendang bumi dan berlari. Jubahnya terbuka dan kedua tangan Mururu menumbuhkan cakar seperti pisau dan dibungkus dengan bulu putih. Saat dia berlari menuju zombie dengan kecepatan fisik yang tak tertandingi untukku, dia memotong daging mereka yang busuk dengan cakar itu. Tidak bisa menahan guncangan, zombie jatuh ke tanah dengan anggota tubuh mereka meledak. Kemudian dia melanjutkan untuk menendang kepala mereka seolah itu pekerjaan sehari-hari.
+Pada saat yang sama aku menendang tanah dan berlari, Jubah mururu terbuka dan kedua tangan Mururu menumbuhkan cakar seperti pisau dan dibungkus dengan bulu putih. Saat dia berlari menuju zombie dengan kecepatan fisik yang tak tertandingi untukku, dia memotong daging mereka yang busuk dengan cakar itu. Tidak bisa menahan guncangan, zombie jatuh ke tanah dengan anggota tubuh mereka meledak. Kemudian dia melanjutkan untuk menendang kepala mereka seolah itu pekerjaan sehari-hari.
 
-Zombi benar-benar aneh. Mereka jatuh dalam kebingungan jika kepala mereka meledak. Tetapi tidak peduli berapa kali Anda menusuk kepala mereka dengan panah, mereka tidak terpengaruh. Biasanya, orang akan fokus pada meniup kepala mereka sampai tidak ada yang tersisa darinya. Sebuah teori menyatakan bahwa sesuatu—— seperti roh jahat atau serangga telah melekat pada mayat dan mengendalikannya tetapi saya tidak tertarik memeriksanya. Kedengarannya menjijikkan. Selama saya tahu cara membunuhnya, saya tidak peduli.
+Zombie benar-benar aneh. Mereka akan kebingungan jika kepala mereka meledak. Tetapi tidak peduli berapa kali kamu menusuk kepala mereka dengan panah, mereka tidak terpengaruh. Biasanya, orang akan fokus pada meledakkan kepala mereka sampai tidak ada yang tersisa darinya. Sebuah teori menyatakan bahwa sesuatu—— seperti roh jahat atau serangga telah melekat pada mayat dan mengendalikannya tetapi aku tidak tertarik untuk memeriksanya. Kedengarannya menjijikkan. Selama aku tahu cara membunuhnya, aku tidak peduli.
 
-Saya juga datang berdampingan dengannya dan menyerang leher zombie dengan pisau besi saya. Ayunan pertama memotong setengah dan kemudian benar-benar memotongnya dari garis miring terbalik. Itu tidak mungkin jika itu adalah makhluk hidup tetapi karena daging mereka seperti busuk dan otot telah membusuk, ini sudah cukup.
+aku juga datang berdampingan dengannya dan menyerang leher zombie dengan pisau besi saya. Ayunan pertama memotong setengah dan kemudian benar-benar memotongnya dari garis miring terbalik. Itu tidak mungkin jika itu adalah makhluk hidup tetapi karena daging mereka seperti busuk dan otot telah membusuk, ini sudah cukup.
 
 [Atau Anda bisa menggunakan saya, Anda tahu?]
 
