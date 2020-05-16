@@ -178,63 +178,63 @@ Seperti yang diharapkan, yang lainnya tahu apa arti 'karakter bos' jadi aku memb
 
 "tengkorak akan terlalu sulit bagiku."
 
-Mengatakan bahwa aku mengangkat bahu di mana Ermenhilde menghela nafas. Lagipula itu tidak bisa dihindari; Saya memberi alasan. Saya bisa menghancurkannya dengan kapak atau palu yang diciptakan oleh Ermenhilde tapi saya tidak pandai menggunakan salah satu dari itu. Bahkan tombak pun sulit diayunkan.
+aku mengangkat bau dan menghela nafas. Lagipula itu tidak bisa dihindari. aku bisa menghancurkannya dengan kapak atau palu yang diciptakan oleh Ermenhilde tapi aku tidak pandai menggunakan. Bahkan tombak pun sulit diayunkan.
 
-Juga, daripada pergi ke pertempuran jarak dekat dengan senjata yang tidak kamu sukai, itu jauh lebih efektif dan aman untuk hanya menerbangkan target dengan serangan sihir jarak jauh.
+Juga, daripada pergi ke pertempuran jarak dekat dengan senjata yang tidak kamu sukai, itu jauh lebih efektif dan aman untuk hanya meledakkan target dengan serangan sihir jarak jauh.
 
-Itu tidak ingin memotong zombie dan tidak bisa memotong hantu. Dan kerangka itu terlalu berat untukku. Saya kira pasti khawatir bahwa itu tidak banyak berguna selama seluruh perjalanan ini sampai sekarang.
+ermenhilde tidak ingin memotong zombie dan tidak bisa memotong hantu. Dan tengkorak itu terlalu berat untukku. aku kira dia pasti khawatir bahwa dia tidak banyak berguna selama seluruh perjalanan ini sampai sekarang.
 
-Padahal menurut saya itulah cara kerja, untuk memiliki orang yang tepat di pekerjaan yang tepat. Tidak perlu bagi saya untuk bisa melakukan semuanya. Feirona mengurus bergerak melalui hutan, Vanguard diserahkan kepada Mururu dan hantu dirawat oleh Aya dan Ms Francesca. Karena akan menjadi buruk jika saya tidak melakukan apa-apa, saya hanya bergerak untuk memastikan semua orang dapat melakukan yang terbaik dari kemampuan mereka. Itu juga pekerjaan penting dalam sebuah pesta.
+Padahal menurutku itulah cara kerja, untuk memiliki orang yang tepat di pekerjaan yang tepat. Tidak perlu bagiku untuk bisa melakukan semuanya. Feirona mengurus arah perjalanan melalui hutan, penjagaan garis depan diserahkan kepada Mururu dan hantu diurus oleh Aya dan Ms Francesca. Karena akan menjadi buruk jika aku tidak melakukan apa-apa, aku hanya bergerak untuk memastikan semua orang dapat melakukan yang terbaik dengan kemampuan mereka. Itu juga pekerjaan penting dalam sebuah tim.
 
-"Fufu, tidak apa-apa. Saya juga menjadi jauh lebih kuat dari saya setahun yang lalu. ”
+"Fufu, tidak apa-apa. aku juga menjadi jauh lebih kuat daripada setahun yang lalu. "
 
-Aya mengatakan itu dengan membusungkan dadanya dengan bangga di atas kuda. Bagaimana bisa diandalkan.
+Aya mengatakan itu dan membusungkan dadanya dengan bangga di atas kuda. sungguh bisa diandalkan.
 
-Juga, jika kamu menjadi terlalu kuat, aku mungkin akan mulai memintamu untuk melindungiku jadi cobalah untuk tidak menjadi terlalu kuat, oke?
+jika kamu menjadi terlalu kuat, aku mungkin akan mulai memintamu untuk melindungiku jadi cobalah untuk tidak menjadi terlalu kuat, oke?
 
-Meskipun dia sudah jauh lebih kuat dariku setahun yang lalu, seberapa kuat dia sekarang? Saya pikir cepat atau lambat dia benar-benar akan menjadi cukup kuat untuk mengalahkan Dewa Setan sendirian dalam pertempuran sihir.
+Meskipun dia sudah jauh lebih kuat dariku setahun yang lalu, seberapa kuat dia sekarang? aku pikir cepat atau lambat dia benar-benar akan menjadi cukup kuat untuk mengalahkan Dewa iblis sendirian dalam pertempuran sihir.
 
-"Itu bagus untuk diketahui." (Renji)
+"Itu bagus sekali." (Renji)
 
-"Kami juga memiliki Renji-sama."
+"Kami juga memiliki Renji-sama."(fran)
 
 [itu benar.]
 
-"Sayangnya, aku hanya akan menghalangi kali ini."
+"Sayangnya, aku hanya akan menghalangi kalian kali ini."
 
 […… Oi.]
 
-Membawa medali di dalam sakuku, aku mengelusnya dengan jariku.
+mengeluarkan medali di dalam sakuku, aku mengelusnya dengan jariku.
 
-Saya memiliki keinginan untuk bertarung tetapi tidak ada seorang pun di sini yang perlu dilindungi oleh saya. Aya, Feirona, dan Mururu, ketiganya lebih kuat dariku. Bahkan Ms. Francesca telah menjadi petualang yang andal sekarang. Dia mungkin tidak lebih kuat dari saya, tetapi dia setidaknya bisa melindungi dirinya sendiri.
+aku memiliki keinginan untuk bertarung tetapi tidak ada seorang pun di sini yang perlu dilindungi olehku. Aya, Feirona, dan Mururu, ketiganya lebih kuat dariku. Bahkan Ms. Francesca telah menjadi petualang yang andal sekarang. Dia mungkin tidak lebih kuat dariku, tetapi dia setidaknya bisa melindungi dirinya sendiri.
 
-Dalam kasus seperti itu, hanya satu dari perjanjian saya yang akan dihapus. Keinginan saya untuk bertarung. Itu tidak jauh berbeda dari pertarungan melawan para goblin itu. Dalam situasi seperti itu, akan sulit bagi saya untuk menghadapi tengkorak. Terutama jika itu melawan tipe Ogre atau chimera.
+Dalam kasus seperti itu, hanya satu dari persyaratanku yang akan dicapai. Keinginanku untuk bertarung. Itu tidak jauh berbeda dari pertarungan melawan para goblin itu. Dalam situasi seperti itu, akan sulit bagiku untuk menghadapi tengkorak. Terutama jika itu melawan tipe Ogre atau chimera.
 
-Tidak bisa bertarung dengan tingkat kekuatan yang stabil adalah salah satu kelemahan terbesar cheat saya. Ada saat-saat ketika tiga atau empat perjanjian saya dilepaskan melawan para goblin atau orc belaka, namun ada kalanya hanya satu dari mereka dilepaskan bahkan terhadap monster kelas bos.
+Tidak bisa bertarung dengan tingkat kekuatan yang stabil adalah salah satu kelemahan terbesar cheatku. Ada saat-saat ketika tiga atau empat perjanjianku terpenuhi melawan para goblin atau orc, namun ada kalanya hanya satu dari mereka dilepaskan bahkan terhadap monster kelas bos. (TN : sebenarnya lebih enak pakai persyaratan, tapi dari judulnya ya perjanjian saja biar sama, maaf kalau saya plin plan menerjemahkan)
 
-Saya bahkan tidak tahu berapa kali saya menghela nafas pada fakta itu. Hari ini juga, saya menghela nafas sekali lagi. Aya menatapku mungkin telah memahami pikiranku, tetapi aku memutuskan untuk mengabaikannya.
+aku bahkan tidak tahu berapa kali aku menghela nafas pada fakta itu. Hari ini juga, aku menghela nafas sekali lagi. Aya menatapku dan mungkin telah memahami pikiranku, tetapi aku memutuskan untuk mengabaikannya.
 
-"Yah, mari kita selesaikan ini dengan cepat. Setelah matahari terbenam, musuh akan mendapat keuntungan. ”
+"Yah, mari kita selesaikan ini dengan cepat. Setelah matahari terbenam, musuh akan mendapat keuntungan."
 
 "Itu benar."
 
-Saya setuju dengan kata-kata Feirona. Akan menyusahkan untuk disergap dalam kegelapan malam.
+aku setuju dengan kata-kata Feirona. Akan menyusahkan untuk disergap dalam kegelapan malam.
 
 Karena kompensasi / cheat dunia yang berbeda, Aya juga memiliki tubuh fisik yang lebih kuat dari biasanya tetapi sebagai penyihir dia jauh lebih lemah daripada orang seperti Souichi.
 
-Akan lebih baik jika kita semua menyerang dan menyelesaikannya dengan cepat, hanya untuk aman.
+Akan lebih baik jika kita semua menyerang dan menyelesaikannya dengan cepat.
 
-"Untuk saat ini, mari kita terus menuju ke timur. Mengikuti arah langkah kaki, kerangka itu tampaknya juga bergerak seperti itu. ”
+"Untuk saat ini, mari kita terus menuju ke timur. Mengikuti arah langkah kaki, tengkorak itu tampaknya juga bergerak kearah yang sama juga."
 
-"Iya. Tolong beritahu saya ketika Anda menemukannya. "
+"Iya. Tolong beritahu jika kamu menemukannya. "
 
 "Oke."
 
-Tapi, yah, akan lebih baik jika kita tidak bertemu sama sekali, saya pikir.
+Tapi, yah, akan lebih baik jika kita tidak bertemu sama sekali.
 
-Saya ingin menghindari pertempuran yang tidak berguna. Tidak peduli seberapa kuat Aya, tidak pernah pasti bagaimana pertempuran berlanjut.
+aku ingin menghindari pertempuran yang tidak berguna. Tidak peduli seberapa kuat Aya, tidak jelas apa yang akan terjadi.
 
-Anda mungkin berakhir membahayakan bukan hanya diri Anda sendiri tetapi Anda juga kawan karena beberapa situasi yang tidak terduga. Yang paling aman adalah melarikan diri dari hutan ini tanpa pernah bertemu kerangka itu.
+kamu mungkin berakhir membahayakan bukan hanya dirimu sendiri tetapi temanmu juga karena beberapa situasi yang tidak terduga. Yang paling aman adalah melarikan diri dari hutan ini tanpa pernah bertemu tengkorak itu.
 
 "Aku benar-benar ingin keluar dari hutan ini." (Renji)
 
@@ -244,25 +244,25 @@ Anda mungkin berakhir membahayakan bukan hanya diri Anda sendiri tetapi Anda jug
 
 [Selama perjalanan ini, aku sama sekali tidak melakukan apa-apa ……]
 
-Tapi aku tidak terlalu keberatan. Faktanya, partner saya ini harus belajar untuk lebih bergantung pada rekan-rekannya. Ya, saya merasa marah karena saya terlalu bergantung pada milik saya.
+Tapi aku tidak terlalu keberatan. Faktanya, partnerku ini harus belajar untuk lebih bergantung pada rekan-rekannya. Ya, aku merasa dia marah karena aku terlalu terlalu banyak bergantung.
 
 "Aku juga tidak keberatan."
 
-Aya pasti sudah mendengar suaranya juga karena dia juga menghiburnya. Dia benar-benar imut di saat-saat seperti ini. Mungkin karena dia selalu memarahi orang lain hampir sepanjang waktu, ini berdampak lebih besar.
+Aya pasti sudah mendengarnya juga karena dia sekarang menghiburnya. Dia benar-benar imut di saat-saat seperti ini. Mungkin karena dia selalu memarahi orang lain hampir sepanjang waktu, ini berdampak lebih besar.
 
-"Tergantung aku sedikit lagi, Eru." (Aya)
+"bergantunglah padaku sedikit lagi, Eru." (Aya)
 
 [tetapi tetap saja…]
 
 "Tapi itu akan membuatku bahagia?"
 
-Saya mendengarkan percakapan mereka ketika saya mengendalikan kuda saya agar tidak jatuh di belakang yang lain.
+aku mendengarkan percakapan mereka ketika aku mengendalikan kudaku agar tidak ketinggalan.
 
 Bergantung padaku, eh?
 
-Yah, tidak seperti diriku sendiri, dia sebenarnya memiliki kekuatan untuk membuat cadangan kata-kata itu sehingga tidak ada masalah. Tanpa kekuatan aku berusaha menjadi seperti itulah mengapa aku gagal berkali-kali. Hanya karena saya seorang dewasa bukan berarti saya bisa melakukan segalanya. Tapi yah, karena aku bekerja keras seperti itu, aku bisa mendapatkan kepercayaan dari teman-temanku.
+Yah, tidak seperti diriku sendiri, dia sebenarnya memiliki kekuatan untuk membuat kata-kata itu sehingga tidak ada masalah. Tanpa kekuatan aku berusaha menjadi seperti itu dan itulah mengapa aku gagal berkali-kali. Hanya karena aku seorang dewasa bukan berarti aku bisa melakukan segalanya. Tapi yah, karena aku bekerja keras seperti itu, aku bisa mendapatkan kepercayaan dari teman-temanku.
 
-Anda benar-benar tidak tahu bagaimana tindakan Anda dapat menyebabkan hasil apa pun di dunia ini.
+kamu benar-benar tidak tahu bagaimana tindakanmu dapat menyebabkan hasil apa pun di dunia ini.
 
 […….. Aku tahu..]
 
@@ -270,13 +270,13 @@ Suara yang menjawab Aya tampak agak bangga.
 
 [Itu sebabnya aku ingin diandalkan juga oleh Renji.]
 
-——- bagaimana saya harus menjawabnya?
+——- bagaimana aku harus menjawabnya?
 
-Bagaimana saya harus mengambil kata-kata itu? Apa arti sebenarnya di balik kata-kata Ermenhilde? Memikirkan semua itu, aku menggelengkan kepala.
+Bagaimana aku harus menjawab kata-kata itu? Apa arti sebenarnya di balik kata-kata Ermenhilde? Memikirkan semua itu, aku menggelengkan kepala.
 
-"Aku benar-benar bergantung padamu, rekan."
+"Aku benar-benar bergantung padamu, rekanku."
 
-[Aku ingin diandalkan seperti senjata, rekan.]
+[Aku ingin diandalkan seperti senjata, rekanku.]
 
 Itu tidak mungkin.
 
@@ -284,4 +284,9 @@ Lagipula kamu adalah temanku yang paling aku percayai.
 
 Kakaka, ketika aku tertawa seperti itu, Ms Francesca dan Mururu berbalik untuk melihat ke arahku. Karena mereka tidak dapat mendengar suara Ermenhilde, mereka pasti terkejut melihatku tertawa begitu tiba-tiba.
 
-Ini juga agak merepotkan. Mungkin setelah beberapa waktu lagi, saya harus membiarkan mereka mendengar suara Ermenhilde juga. Ya, itu tergantung pada kenyamanan saya sendiri. Ini hanya diizinkan untuk teman-teman terdekat saya. Itu normal untuk berpikir seperti itu kan?
+Ini juga agak merepotkan. Mungkin nanti, aku harus membiarkan mereka mendengar suara Ermenhilde juga. Ya, itu tergantung pada kenyamananku sendiri. Ini hanya diizinkan untuk teman-teman terdekatku. Itu normal untuk berpikir seperti itu kan?
+
+
+(TN : saya tidak tahu ini gambar yang benar atau tidak)
+
+<gambar> 102.png
