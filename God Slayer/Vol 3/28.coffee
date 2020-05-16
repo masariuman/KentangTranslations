@@ -80,31 +80,31 @@ Pada saat yang sama aku menendang tanah dan berlari, Jubah mururu terbuka dan ke
 
 Zombie benar-benar aneh. Mereka akan kebingungan jika kepala mereka meledak. Tetapi tidak peduli berapa kali kamu menusuk kepala mereka dengan panah, mereka tidak terpengaruh. Biasanya, orang akan fokus pada meledakkan kepala mereka sampai tidak ada yang tersisa darinya. Sebuah teori menyatakan bahwa sesuatu—— seperti roh jahat atau serangga telah melekat pada mayat dan mengendalikannya tetapi aku tidak tertarik untuk memeriksanya. Kedengarannya menjijikkan. Selama aku tahu cara membunuhnya, aku tidak peduli.
 
-aku juga datang berdampingan dengannya dan menyerang leher zombie dengan pisau besi saya. Ayunan pertama memotong setengah dan kemudian benar-benar memotongnya dari garis miring terbalik. Itu tidak mungkin jika itu adalah makhluk hidup tetapi karena daging mereka seperti busuk dan otot telah membusuk, ini sudah cukup.
+aku juga datang berdampingan dengannya dan menyerang leher zombie dengan pisau besiku. Ayunan pertama memotongnya dari garis miring terbalik. Itu tidak mungkin terjadi jika itu adalah makhluk hidup tetapi karena daging mereka sudah busuk dan otot telah membusuk, ini sudah cukup.
 
-[Atau Anda bisa menggunakan saya, Anda tahu?]
+[Atau kamu bisa menggunakanku, kau tahu?]
 
 "Kau ingin memotong daging yang membusuk?"
 
 […………………. Bagaimanapun juga aku adalah senjata.]
 
-Anda hanya ragu, bukan?
+kamu ragu, kan?
 
-Sambil tersenyum masam, aku menghadapi yang tersisa. Saat itu juga kedua hantu itu juga meledak. Aya pasti menggunakan sihirnya.
+Sambil tersenyum masam, aku melawan sisanya. Saat itu juga kedua hantu itu juga meledak. Aya pasti menggunakan sihirnya.
 
 Di dalam hutan yang sunyi, dan suara ledakan terdengar. Tiga kali.
 
-Untuk beberapa alasan hantu lemah terhadap sihir. Energi ajaib - apakah mereka lemah terhadap sihir karena mengubah kemauan mental Anda menjadi kemampuan ofensif atau apakah itu karena alasan lain? Dan itu tidak seperti apa pun yang akan berhasil. Hanya sihir tipe Api dan kilat yang efektif.
+Untuk beberapa alasan hantu lemah terhadap sihir. Energi ajaib - apakah mereka lemah terhadap sihir karena mengubah kemauan mentalmu menjadi kemampuan ofensif atau apakah itu karena alasan lain? Dan itu tidak seperti apa pun yang akan berhasil. Hanya sihir tipe Api dan petir yang efektif.
 
-Itu cukup umum dalam permainan fantasi tetapi ketika Anda melihat itu terjadi dalam kenyataan juga, Anda akan menjadi penasaran di balik alasannya.
+Itu cukup umum dalam permainan fantasi tetapi ketika kamu melihat itu terjadi dalam kenyataan juga, kamu akan menjadi penasaran di balik alasannya.
 
-Bahkan ketika aku memikirkan hal-hal seperti itu, aku tidak menghentikan tanganku dan memotong kepala zombie terakhir. Karena mereka memiliki daging busuk, ia memiliki gerakan yang sangat membosankan. Tampaknya, manusia secara tidak sadar menahan kekuatan mereka sendiri untuk tidak menghancurkan tubuh mereka sendiri tetapi zombie juga tidak memilikinya. Tetapi jika daging mereka telah membusuk sejauh ini, bahkan itu tidak berguna. Lengan mereka akan jatuh hanya jika mereka mencoba meraih saya dan kaki mereka akan terkoyak hanya dengan berlari sedikit.
+ketika aku memikirkan hal-hal seperti itu, aku tidak menghentikan tanganku dan memotong kepala zombie terakhir. Karena mereka memiliki daging busuk, ia memiliki gerakan yang sangat kaku. Tampaknya, manusia secara tidak sadar menahan kekuatan mereka sendiri untuk tidak menghancurkan tubuh mereka sendiri tetapi zombie tidak seperti itu. Tetapi jika daging mereka telah membusuk sejauh ini, itu tidak berguna. Lengan mereka akan jatuh hanya jika mereka mencoba meraihku dan kaki mereka akan terkoyak hanya dengan berlari sedikit.
 
-Mururu sudah menuju ke arah Miss Francesca. Seperti yang diharapkan, dia tidak ingin memotong daging yang membusuk dengan cakar kebanggaannya. Aku ingin tahu bagaimana rasanya memotong dengan cakar Anda sendiri. Ketika saya bertanya, dia hanya mengatakan kata-Menjijikkan. Nah, jika dia mengatakan itu berarti dia masih belum terbiasa menggunakan cakar pada makhluk hidup.
+Mururu sudah menuju ke arah Miss Francesca. Seperti yang diharapkan, dia tidak ingin memotong daging yang membusuk dengan cakar kebanggaannya. Aku ingin tahu bagaimana rasanya memotong dengan cakarmu sendiri. Ketika aku bertanya, dia hanya mengatakan kata-Menjijikkan. Nah, jika dia mengatakan itu berarti dia masih belum terbiasa menggunakan cakar pada makhluk hidup.
 
-Setelah memastikan bahwa mereka semua sudah mati, saya kembali ke kuda saya di mana Aya sudah duduk.
+Setelah memastikan bahwa mereka semua sudah mati, aku kembali ke kudaku di mana Aya sudah duduk.
 
-"Itu membantu."
+"Itu sangat membantu."
 
 "Sama-sama."
 
@@ -112,25 +112,25 @@ Sambil memegang tangan kecilnya, aku sekali lagi menaiki kuda.
 
 Karena ledakan keras tadi, keheningan hutan terasa lebih menakutkan sekarang.
 
-"Kalau begitu, ayo cepat dan bergerak lebih jauh."
+"Kalau begitu, ayo cepat dan kita pergi lagi."
 
-Seolah sedang menungguku, Feirona mulai bergerak dengan kudanya lagi. Saya dan Nona Francesca memindahkan kuda-kuda kami untuk mengikutinya juga.
+Seolah sedang menungguku, Feirona mulai bergerak dengan kudanya lagi. aku dan Nona Francesca menggerakkan kuda-kuda kami untuk mengikutinya juga.
 
-Dengan harapan saya, kita masih akan membutuhkan 2 hari lagi. Masih ada jalan panjang sebelum kita meninggalkan hutan ini. Berpikir itu, aku menghela nafas.
+Dengan harapanku, kita masih akan membutuhkan 2 hari lagi. Masih ada jalan panjang sebelum kita meninggalkan hutan ini. aku menghela nafas.
 
 "Apa kamu baik baik saja?"
 
-Aya bertanya kepadaku dari belakang saat dia meletakkan sedikit lebih banyak kekuatan di lengannya di pinggangku. Sangat menyenangkan untuk menjadi sedekat ini dengan seorang gadis tetapi jika saya diizinkan untuk mengatakan sesuatu yang tidak romantis, ini membuat menunggang kuda lebih sulit jadi tolong lepaskan saya dari ini.
+Aya bertanya kepadaku dari belakang sambil dia sedikit lebih kuat memelukku di pinggangku. Sangat menyenangkan untuk menjadi sedekat ini dengan seorang gadis tetapi jika aku diizinkan untuk mengatakan sesuatu yang tidak romantis, ini membuat menunggang kuda lebih sulit jadi tolong jangan lakukan itu.
 
-Dia tampaknya mengatakan sesuatu tetapi tenggelam oleh suara kuda yang berlari dan angin yang bertiup. Ketika saya hendak bertanya lagi padanya, Feirona mendekati kami dengan menunggang kudanya.
+Dia tampaknya mengatakan sesuatu tetapi tenggelam oleh suara kuda yang berlari dan angin yang bertiup. Ketika aku hendak bertanya lagi padanya, Feirona mendekati kami dengan menunggang kudanya.
 
-"Apakah sesuatu terjadi?"
+"Apakah sesuatu terjadi?"(renji)
 
 "Ada sesuatu di sana—"
 
-Mengatakan itu, dia menghentikan kudanya dan turun.
+dia menghentikan kudanya dan turun.
 
-Kemudian, dia berlutut ke tanah dan menelusuri bumi dengan jarinya. Melihat dari dekat, saya menyadari bahwa itu sebenarnya langkah kaki. Sungguh menakjubkan bagaimana dia memperhatikan itu.
+Kemudian, dia berlutut ke tanah dan menelusuri tanah dengan jarinya. Melihat dari dekat, aku menyadari bahwa itu sebenarnya langkah kaki. Sungguh menakjubkan bagaimana dia memperhatikan itu.
 
 Bahkan aku telah belajar bagaimana berjalan melalui hutan entah bagaimana, tapi kurasa aku masih bisa dibandingkan dengan Elf, kurasa. Dan untuk memperhatikan ini dari atas seekor kuda, itu hanya bisa disebut sebagai menakjubkan.
 
