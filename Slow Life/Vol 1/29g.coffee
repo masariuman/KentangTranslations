@@ -114,6 +114,8 @@ Setelah Al tertidur.
 
 Lit dan aku minum kopi dengan sedikit brendi.
 
+<gamber> vol1 16.png
+
 g"Terima kasih, terima kasih Lit, Al menjadi jauh lebih ceria."
 
 l"Daripada aku, itu adalah kekuatan Perlindungan Ilahi-Nya. Sepertinya dia tidak bisa menahan kegembiraan karena melihat senjatanya bergerak seperti yang diinginkannya."
