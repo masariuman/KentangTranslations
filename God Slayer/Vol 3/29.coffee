@@ -269,5 +269,130 @@ aku berdiri dengan bantuan pohon lagi dan mulai berjalan kearah yang kuanggap ar
 
 ".....maafkan aku."
 
-karena pertarungan ini, aku benar-benar kehilangan arah kami. pohon-pohon yang sudah kutanda sebagai tanda sudah hancur karena pertarungan tadi. aku tidak dapat memberitahu dimana barat dan timur.
+karena pertarungan ini, aku benar-benar kehilangan arah kami. pohon-pohon yang sudah kutanda sebagai tanda sudah hancur karena pertarungan tadi. aku tidak dapat mengetahui dimana barat dan timur.
 
+murru juga sama dand ia berdiri disampingku.
+
+"Oi, Feirona!!"
+
+aku berteriak dengan suara keras tapi tidak ada jawaban.
+
+pasti ada sesuatu yang terjadi dengan mereka juga. kami tidak terlalu jauh mencari ranting juga. mereka harusnya sadar akan pertarungan yang besar telah terjadi.
+
+kesimpulan yang aku dapatkan bahwa mereka juga diserang. tapi aku ragu bahwa ada lebih dari satu monster seperti itu disekitar... aku tidak mau berfikir seperti itu. ayo jangan langsung berfikir skenario terburuk. jika tidak, kami hanya berdiri disini seharian.
+
+waktu pun berlalu, aku berfikir apa yang akan dilakukan selanjutnya. sangat berbahaya jika kami langsung sembarangan mencari lokasi tenda juga. kami pasti tersesat. tapi sebentar lagi malam tiba. dan hantu akan berkeliaran dimanapun. sebelum itu, aku benar-benar ingin bertemu dengan yang lainnya.
+
+"mururu, bisakah kamu mencium dimana monster atau aya?"
+
+aku bertanya itu tapi dia menggelengkan kepalanya. aku dapat melihatnya juga dari telinga serigalanya terjatuh lemas.
+
+"apa ada sesuatu yang terhadi?"(renji)
+
+"hm?"
+
+"kamu terlihat kurang bersemangat dari biasanya."
+
+diwaktu yang sama, aku mengkonfirmasi lukaku juga. lukanya agak dalam tapi tidak mengenai tulang. urat nadi juga sepertinya baik-baik saja jadi darah tidak keluar terlalu banyak seperti yang kubayangkan. keberuntungan kecil dalam malapetaka, eh? ini sangat sakit sekali sampai aku ingin menangis tapi aku tidak akan mati.
+
+mururu menolongku untuk memotong lengan baju kananku dan mengunakannya untuk mengikat tangan kananku dengan kuat untuk menghentikan pendarahan. paling tidak ini dapat berguna sementara. rasa sakit berkurang dan pikiranku juga menjadi lebih baik.
+
+"bersemangatlah miruru, kita akan segera bertemu nona francesca dan lainnya."
+
+"un. tapi apakah mereka akan baik-baik saja?"
+
+"yeah, mereka akan baik-baik saja. mereka tidak akan membuat kesalahan sepertiku."
+
+dengan mereka berdua disitu, mereka paling tidak dapat mengurusnya dan melindungai nona francesca juga.
+
+aku agak khawatir tapi aya ada disitu juga. mari percaya bahwa mereka baik-baik saja. situasi kami sekarang lebih bermasalah. kami tersesat dan tidak memiliki barang juga serta 1 orang terluka juga. jangankan menjadi beban, luka seperti ini, harusnya kamu mengabaikanku dan meninggalkanku. well, aku ragu mururu sedingin itu.
+
+"mari kita buat tempat kita sekarang menjadi pusat kita dan berkeliling sebentar. harusnya kita tidak jauh dari tenda."
+
+"Un. kita, harus mengobati lukamu juga."
+
+"itu juga tapi aku lebih khawatir dengan mereka."
+
+kami berdua adalah penyerang garis depan sedangkan mereka bertiga penyerang garis belakang. ini tidak bisa dibilang tim yang seimbang. kami harus bertemu secepat mungkin karena kemungkinan aku yang akan jadi target selanjutnya. aku telah melemah dan tidak ada banyak kondisi untuk membuka perjanjianku jadi aku tidak dapat bertarung dengan baik.
+
+sambil berfikir seperti itu, aku sadar ermenhilde tidak mengatakan apapun sampai saat ini.
+
+"oi, ada apa?"
+
+aku memukul kocekku dengan tangan kiriku.
+
+[.....maafkan aku.]
+
+ntah mengapa, dia meminta maaf dengan suara yang berat.
+
+aku pun memiringkan kepalaku dan bingung. apakah sesuatu yang aneh terjadi? aku tidak dapat menemukan maksudnya. apakah dia hanya khawatir tentang serangan dari monster itu? tapi itu tidak ada hubungannya dengan ermenhilde kan?
+
+"Hm?"
+
+[walaupun aku tetap mengatakan sesuatu seperti aku akan berguna untukmu, inilah hasil yang didapatkan.]
+
+"tidak, ini bukan salahmu."
+
+akulah yang terlalu lemah.
+
+faktanya, suatu keajaiban kami dapat selamat setelah menghadapi sesuatu seperti itu. mururu dan ermenhilde tidak bisa disalahkan juga.
+
+"jangan khawatir partner. kita akan menang berikutnya."
+
+[........yeah.]
+
+dia masih depresi. sekarang gimana caranya aku menghibur partnerku ini yang depresi hanya karena sesuatu yang aneh? ketika aku berfikir, aku merasakan jubahku di tarik pelan.
+
+ketika aku berbalik melihat, mururu melihatku dengan mata yang keatas. SHIT!!! Dia sagat IMUT!!!
+
+"ada apa ?"(renji)
+
+"kamu berbiaca dengan siapa?"
+
+Ah.
+
+"setelah kupikir, aku belum membiarkanmu mendengarkannya, ayo ermenhilde, sapa dia."
+
+[ada apa dengan itu......... tidak... well... sudahlah...mungkin tidak apa-apa.]
+
+biasanya dia akan membentakku tap kurasa mentalnya down sekali dari yang kubayangkan.
+
+menurutku, tidak apa-apa selama aku masih hidup. seperti biasanya, dia keras kepala.
+
+melihat kebawah, aku melihat pisau besiku yang kupakai sebelumnya. pisau itu benar-benar rusak. aku mengambil ganggangnya tapi itu tidak dapat digunakan juga. aku memasukkan ganggangnya ke tempatnya. kurasa sekarang aku akan bergantung pada ermenhilde.
+
+[Hm Hm, bisakah kau mendengarku BeastWoman?]
+
+"!?!"
+
+bahu kecilnya terangkat karena terkejut. sepertinya dia dapat mendengarkan ermenhilde.
+
+[Namaku Ermenhilde. sebuah pedang pahlawan dan senjata pembunuh dewa yang diberikan kepada Yamada Renji oleh Dewi Astrarea.]
+
+"itro seperti apa itu. aku tidak cocok sebagai hero."
+
+sudah berapa banyak aku mengatakan itu, idiot.
+
+aku menghela nafasku.
+
+"un, senang bertemu denganmu."(mururu)
+
+tapi, rekasi mururu simpel sekali dari yang kubayangkan. dia mungkin sudah mendengar tentangku dari aya atau nona francesca sebelumnya. dia pasti sudah dijelaskan sebelumnya ketika pahlawan besar seperti aya mengambil permintaan ini.
+
+[Mu......]
+
+tapi sepertinya, ermenhilde lebih suka kalau dia lebih kaget karena sepertinya dia tidak menerima reaksinya.
+
+dia kaget ketika kamu berbicara pertama kali kan? puaslah dengan itu.
+
+"perkenalan telah selesai, sekarang mari kita bergabung dengan aya dan lainnya secepatnya."
+
+jika ini tetap berlanjut, kami akan diserang lagi, mururu mungkin akan baik-baik saja tapi aku pasti akan mati.
+
+aku mulai berjalan sambil melihat pohon-pohon yang mungkin saja ada tandaku. mungkin ini berkah kecil karena sekitar lebih mudah dilihat karena pertarungan tadi. aku memutuskan untuk melihat sekitar dengan tempat ini sebagai pusatnya.
+
+aku berharap kami dapat berganbung dengan yang lainnya sebelum matahari terbenam.
+
+ketika aku berfikir optimis kalau kami dapat meninggalkan hutan ini besok, hal ini terjadi. hal ini benar-benar menghancurkan hatiku tapi aku tidak boleh menyerah.
+
+ada seseorang yang lebih muda 10 tahun dariku. aku tidak boleh menyerah sebelum dia. ayo kita lakukan yang terbaik dan tetap berjalan. aku akan mengantarkan anak ini ke ibukota dengan selamat. PASTI!!.
