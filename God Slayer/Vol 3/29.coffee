@@ -198,3 +198,76 @@ tapi keraguan itu hanya sebentar dan dia menyerangku. dengan melihat kembali goy
 
 tapi kemudian, mururu lari kearah yang sama. tidak sepertiku, dia dapat dengan cepat mendekati musuh dan menebas dengan cakar cantiknya. suara sesuatu hancur yang keras berbunyi melalui hutan. tapi tidak ada darah.
 
+melihat itu, kami pun menjaga jarak dari musuh. tempat musuh berada sekarang semakin mulai terlihat. pasti karena serangan mururu.
+
+yang pertama kali kulihat adalah , semuanya putih. tidak begitu murni, atau putih yang indah seperti mururu, tapi agak kusam, kotor--- itu adalah tulang. ukurannya seperti gajah dewasa. memiliki 4 kaki, seperti laba-laba tapi badannya panjang dan langsing seperti lipan. kepalanya seperti orc dengan satu tanduk. dan yang paling mencurigakan adalah kecepatannya dalam bergerak dengan ukuran besar begitu; sangat cepat sampai-sampai nampak seperti lebih dari 1.
+
+"mu-"
+
+tubuhku bergerak cepat daripada aku mengingatkan mururu.
+
+aku menangkis serangan, yang bisa kulakukan dengan mengikuti, intuisiku. pedang yang kupegang terpelanting dan badanku terbang tidak dapat menahan serangannya.
+
+kemudian, badanku jatuh ke tanah dan aku berguling dan aku menabrak pohon. semua udara keluar dari tubuhku dan pandaganku sedikit kabur karena kekurangan oksigen. tubuhku tertatih-tatih ke tanah tak berdaya tapi itu hanya beberapa saat saja. aku memaksakan tubuhku untuk bergerak lagi, aku berdiri dengan memegang pohon yang barusaja aku tabrak. mungkin akan lebih mudah jika aku tertidur disini tapi aku tau jika aku melakukan itu, aku tidka akan bisa bangun lagi.
+
+[RENJI!!! RENJI!!]
+
+"aku dapat mendengarkanmu. jangan berteriak di telingaku...."
+
+kemudian, ada rasa yang tidak asing berada di tanganku. aku memegang itu dengan kedua tanganku, aku melakukan kuda-kuda seigan yang sering dilihat di kendo. (T/N : silahkan google seigan untuk melihat bentuknya.)
+
+badanku menegang dan aku mendengar suara kaku berjalan. kemudian, aku memotong ekornya dengan counterku. gampangnya, itu sangat susah tapi aku masih memegang pedang dengan penuh percaya diri.
+
+tapi, tidak ada serangan yang datang padaku lagi. hanya nafas berat yang terdengar ditelingaku.
+
+berapa lama aku berdiri seperti ini? akhirnya, sesuatu menyentuh pedangku dan aku pun menggerakkan pedangku kedepan dan....
+
+
+"tidak apa-apa sekarang."
+
+mendengar suara itu, keteganganku berkurang. itu adalah suara yang sudah terbiasa kudengar.
+
+"--mururu?"
+
+"Un."
+
+"Haaah..."
+
+suara yang tenang itu pasti suaranya. dan itu menandakan bahwa pertarungan telah berakhir. menyadari bahwa yang menyentuh ujung pedangku adalah jarinya, semua keteganganku hilang dari tubuhku.
+
+dan aku pun jatuh kembali ke tanah dan menghela nafas sedalam dalamnya.
+
+"apa yang terjadi pada monster itu?"
+
+"dia lari."
+
+"....benarkah?"
+
+"Un."
+
+padahal itu adalah kesempatan bagus untuk membunuhku. mungkin dia merencanakan untuk membunuhku dengan mudah setelah aku melemah?
+
+iya mungkin seperti itu. aku mulai merasa depresi. mengetahui bahwa dia tau kapan waktunya mundur, mungkin dia sudah biasa diburu. atau terlepas dari penampilannya, dia adalah pecundang. apapun itu, itu tidak mengubah fakta bahwa sangat susah dilawan. hampir tidak nampak, dan sangat kuat juga. itu benar benar curang! aku memakinya dikepalaku.
+
+kemudian aku merasakan sakit di tangan kananku. ketika aku melihatnya, tedapat tebasan yang dalam di bahuku ke siku. menerima serangan seperti itu, aku sangat beruntung hanya luka ini saja yang kudapat. pada kasus terburuk, mungkin seluruh tanganku akan putus.
+
+aku sangat lelah hanya dengan menahan luka ini tapi aku harus segera menghentikan pendarahannya juga.
+
+"kamu baik-baik saja?"(mururu)
+
+dia bertanya dan khawatir ketika melihat tanganku.
+
+merasa senang karena dia khawatir kepadaku, pipiku mengendur tanpa sadar. walaupun itu sakit, untung saja kami selamat dari cobaan ini. aku merasa lebih baik dengan berfikir seperti itu.
+
+"ya, aku baik-baik saja."
+
+tapi kita tidak dapat tetap seperti ini. mengingat yang lain tidak datang kemari sampai saat ini berarti ada sesuatu yang terjadi di sisi mereka juga.
+
+aku berdiri dengan bantuan pohon lagi dan mulai berjalan kearah yang kuanggap arah ke tenda.... dan aku pun berhenti.
+
+"kemaana arah ketenda?"(mururu)
+
+".....maafkan aku."
+
+karena pertarungan ini, aku benar-benar kehilangan arah kami. pohon-pohon yang sudah kutanda sebagai tanda sudah hancur karena pertarungan tadi. aku tidak dapat memberitahu dimana barat dan timur.
+
