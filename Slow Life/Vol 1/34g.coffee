@@ -25,7 +25,7 @@ Lit meletakkan dagunya di pundakku dan merilekskan tubuhnya.
 g"Oh iya, ada sesuatu yang ingin kutunjukkan."
 
 l"Apa itu?"
-
+"
 g"Al menerima shotel dari antek Big Hawk. aku sudah menyelidikinya sedikit tetapi aku ingin Lit juga melihatnya."
 
 l"ok, aku masih memiliki sedikit kekuatan untuk menggunakan Detect Magic."
@@ -154,4 +154,4 @@ g"Kalau begitu, kita akan bersama selamanya."
 
 Aku melihat ekspresi Lit sekali lagi sebelum masuk ke dapur, tetapi dia tetap tampak gelisah.
 
-<gamber> vol2 8
+<gamber> vol2 8"

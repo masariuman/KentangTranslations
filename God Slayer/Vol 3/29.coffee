@@ -48,4 +48,57 @@ tapi karena dia menganggap ini 'normal' baginya untuk melakukan ini, itu sangat 
 
 "haha-- benar juga."
 
-walaupun itu terdengar kasar, aku setuju dengannya
+walaupun itu terdengar kasar, aku setuju dengannya.
+
+dari pejalanan sebelumnya, akulah yang memasak. itu karena nona francesca adalah seorang bangsawan, jadi dia tidak tahu cara memasak.
+
+itu mungkin penilaian satu sisi hanya dariku saja tapi itu benar. makanan kemarin disiapkan oleh aya tapi... yaah, kalian dapat mengetahui hasilnya.
+
+itu adalah makanan yang membutuhkan keberanian untuk memakannya.
+
+aya sepertinya sudah berlatih banyak 1 tahun ini. dia membuat makanan dengan gembira sampai-sampai aku kebingungan bagaimana menghindarinya. yah itu jauh lebih baik dari pada satuh tahun lalu. yaah walaupun aku tetap di marahi padahal aku sudah memujinya. sudah kuduga, itu pasti karena aku memberi tahu ke yang lain betapa buruknya dia memasak dulunya.
+
+"yaah, itu menyenangkan juga."(renji)
+
+"kekerasan terhadap bahan makanan tidak dapat dimaafkan."
+
+[...., sampai sejauh itu, eh ?]
+
+haaa~~ aku tersenyum kecut di pikiranku.
+
+sepertinya anak ini bukan hanya tukang makan, tapi dia juga memiliki perasaan yang dalam terhadap makanan.
+
+itu tidak uruk juga---- tapi bukan juga sesuatu yang dapat di puji. karena yang berbicara seperti itu adalah teman kami sendiri, aku tidak dapat menentukan mau merespon seperti apa.
+
+aku akan kalah apapun respon yang kuberikan. yaaah, aku hanya bisa berharap keahlian memasak nona francesca meningkat. kurasa dia akan bisa lebih baik segera karena dia menyukai belajar.
+
+walaupun demikian, kebanyakan makanan kami pada perjalanan hanya daging kering dan kerupuk. aku ragu akan mudah untuk memasak selain itu. walaupun aku, feirona atau mururu dapat mencari daging dengan menangkap binatang liar juga. daging itu akan terasa baik dengan membakarnya. itu akan sangat bagus kalau kami bisa merebus daging itu dan rumpul liar.
+
+aku mulai menjadi lapar hanya dengan berfikir seperti itu. sambil memegang perutku, suara keroncongan kecil keluar.
+
+<gambar> vol3 116
+
+"renji... bisakah kamu..."
+
+"Hmm?"
+
+tidak beberapa lama setelah mengumpulkan ranting, mururu berbicara.
+
+ketika aku melihatnya, dia telah mengumpulkan banyak rating di tangannya. ntah itu dia atau feirona, aku bukan tandingan mereka dalam menyiapkan perkemahan.
+
+"ada apa?"(renji)
+
+"kamu bisa memasak?"
+
+aku melihatnya dengan ekpresi tercengang karena pertanyaannya yang mendadak seperti itu. yaaa, mungkin bukan sesuatu mendadak mengingat kami berbiaca tentang makanan.
+
+"normal saja menurutku. aku bisa membuat sesuatu paling tidak bisa dimakan."
+
+yaaah, aku tidak berfikir aku tidak bisa masak juga.... aku membuat banyak makanan dan tidak pernah di komplain sama souchi dan lainnya.
+
+"benarkah?"
+
+"laki-laki biasanya pada level normal. yaah mungkin feirona... di level yang tinggi."
+
+[benar. elf itu sepertinya dia pandai memasak.]
+
