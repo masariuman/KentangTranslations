@@ -102,3 +102,57 @@ yaaah, aku tidak berfikir aku tidak bisa masak juga.... aku membuat banyak makan
 
 [benar. elf itu sepertinya dia pandai memasak.]
 
+athmosfer disekitar feirona mengatakan dia dapat melakukan apapun. apa karena dia ganteng ?
+
+gambaran dia memasak akan terlihat seperti lukisan atau semacamnya juga. pada kasus itu, bukankah itu membuat nona francesca menjadi cantik secara natural?
+
+ini mungkin terdengar aneh mengingat aku yang berfikir semua ini, tapi itu hanya penilaian secara kasar. aku tentu saja tidak bisa mengatakan itu didepan nona francesca. pada dasarnya, dia wanita bangsawan, dia mungkin tidak pernah memasak dalam hidupnya. aku pikir itu hebat dia masih dapat menghasilkan sesuatu yang dapat dimakan. aku ingin melihat masa depannya.
+
+"bagaimana denganmu? pernahkah kamu memasak sebelumnya?" (renji)
+
+"apakah membakar daging dapat dihitung?"
+
+apa-apaan itu. ini pertama kalinya seseorang mengatakan itu.... yaaah tidak juga sih...
+
+dulu, aya dan utano juga sama seperti itu. itu benar-benar kesalahpahaman bahwa semua perempuan dapat memasak. itulah khayalan terbesar disini. yaaah, itu masuk akan juga. kamu tidak dapat mengharapkan orang yang tidak pernah memasak sebelumnya dapat membuat sesuatu yang enak.
+
+"lain kali, mungkin kamu dapat belajar dari aya atau feirona?"
+
+"aku lebih suka hanya makan saja."
+
+balasan langsung. aku tidak dapat membalasnya kembali.  aku pun menghindari pandanganku dan melanjutkan mengumpulkan ranting.
+
+itu benar-benar seperti mururu karena dia mengatakan itu. aku khawatir dengan masa depan anak ini.
+
+"katakan, mururu..."
+
+"apa?"
+
+"apa rencanamu ketika selesai dari perjalanan ini ?"
+
+"kembali ke hutanku.. mungkin."
+
+"begitu..."
+
+"aku tidak yakin tapi, aku ingin mencoba makanan-makanan lain---"
+
+ketika dia mengatakan itu, dia membuang semua rantingnya ke tanah dan dengan cepat mendekatiku.
+
+jibah putihnya kotor tapi dia tidak peduli akan hal itu dan menatap ke tempat dia berdiri sebelumnya. kerena sikap tiba-tibanya, aku juga membuang rantingku dan memegang pisau besiku.
+
+"ada apa!?"
+
+"ada sesuatu disitu!!"
+
+kemudian, dengan instant mururu menebas udara dengan cakarnya. terdapat suara clank yang besar, dan percikan api muncul.
+
+[musuh!?!]
+
+"aku tidak tau!!"
+
+karena mendengarkan sedikit suara angin terbelah, aku pun lompat mundur. ketika aku melakukannya, tempatku berdiri sebelumnya meledak.
+
+"magic!?"
+
+debu-debu pun bertaburan, senjata penyerang yang tidak terlihat menjadi terlihat. senjata itu disembunyikan menggunakan magic tapi itu tidak nampak dan tidak bersuara. sambil berjaga-jaga untuk suara angin terbelah lainnya, aku melihat ketempat dimana kabut seperti racun itu sedikit bergoyang. mungkin disitulah tubuh utama dari musuh. itu sangat jauh. itu bisa saja menggunakan sesuatu seperti tentakel untuk menyerang. dan itu juga serangan yang jauh dari jarak serang kami. itu sangat pintar.... aku bisa menyimpulkan kalau itu bukan hantu atau zombie. dan jika itu dapat menggunakan magic, itu mungkin adalah monster yang merepotkan. tapi apakah ada monster seperti itu di hutan ini? sebelum aku menjawab pertanyaanku, sekali lagi aku mendengar suara angin terbelah. keringat dingin mengalir di punggungku.
+
