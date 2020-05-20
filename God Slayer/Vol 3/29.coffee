@@ -156,3 +156,45 @@ karena mendengarkan sedikit suara angin terbelah, aku pun lompat mundur. ketika 
 
 debu-debu pun bertaburan, senjata penyerang yang tidak terlihat menjadi terlihat. senjata itu disembunyikan menggunakan magic tapi itu tidak nampak dan tidak bersuara. sambil berjaga-jaga untuk suara angin terbelah lainnya, aku melihat ketempat dimana kabut seperti racun itu sedikit bergoyang. mungkin disitulah tubuh utama dari musuh. itu sangat jauh. itu bisa saja menggunakan sesuatu seperti tentakel untuk menyerang. dan itu juga serangan yang jauh dari jarak serang kami. itu sangat pintar.... aku bisa menyimpulkan kalau itu bukan hantu atau zombie. dan jika itu dapat menggunakan magic, itu mungkin adalah monster yang merepotkan. tapi apakah ada monster seperti itu di hutan ini? sebelum aku menjawab pertanyaanku, sekali lagi aku mendengar suara angin terbelah. keringat dingin mengalir di punggungku.
 
+lokasi musuh tidak pasti, dan juga tujuan serangannya juga tidak pasti. karena aku panik dengan sesuatu yang tidak dapat kulihat aku pun telat menentukan aku harus menangkis atau menghindar.
+
+"kuh!?"
+
+[renji, mundur sekarang !]
+
+aku menangkis serangan itu dengan pisau besiku tapi tangan kiriku menjadi mati rasa dan aku melepaskannya.
+
+aku bisa menahan teriakanku yang hampir kulakukan karena serangannya. aku pun mengikuti kata ermenhilde dan mundur untuk membuat jarak dan bersembunyi di belakang pohon. di lain sisi, mururu memotong serangan musuh yang tidak terlihat tanpa menunjukkan kelemahan.
+
+mungkin karena insting liarnya, atau mungkin saja dia mendeteksi arah serangannya. yang pastinya, skillnya hebat sekali.
+
+"Aya! Feirona!!"
+
+tanpa malu, aku memanggil temanku dengan berteriak nyaring.
+
+aku menggigit lidahku. apakah monster ini menunggu kami berpisah? monster ini sangat cerdas dalam gerakannya, dia pasti percaya diri kalau dia bisa mengalahkan kami berdua.
+
+insting seperti itu muncul lebih sering pada monster atau beastmen daripada manusia seperti kami. itu juga menjengkelkan. aku ingin memanggil mururu tapi ragu. sampai yang lainnya datang, aku tidak ada pilihan lain tapi membiarkan mururu menghadapi monster ini dengan semua kekuatannya. aku tidak ingin menghancurkan konsentrasinya.
+
+"ermenhilde."
+
+[OK]
+
+dengan kata itu, pedang panjang perak muncul di tanganku.
+
+dari 7 batu giok yang ada di ganggangnya, 2 bersinar. aku tidak tahu kondisi apa yang telah tercapai tapi hanya 2 saja tidak cukup kuat untuk menjadi senjata. aku mengklik lidahku karena jengkel tapi itu tidak dapat mengubah situasi. senjata untuk melindungiku hanya berubah dari pisau ke pedang panjang, itu saja. aku sekali lagi mengkonfirmasi pada kabut itu. dari yang kulihat itu sepertinya asa bergoyang, seperti tentakel, mencambuk sesuatu dan menyerang mururu. gerakannya benar-benar cepat. itu sangat tidak mungkin untukku untuk mengikuti gerakannya hanya dengan 2 perjanjian saja yang dipenuhi. aku hanya bisa mengkonfirmasi bahwa kabut itu bergoyang.
+
+jika terus seperti ini, mururu akan berada dalam bahaya. tidak peduli seberapa kuat dia, aku tidak tau berapa lama dia dapat melawan musuh yang tidak terlihat. mururu lebih ke serangan cepat. hanya dengan berdiri di satu tempat dan menerima serangan musuh itu bukan cara dia bertarung. dia mungkin tidak bergerak karena dia tidak bisa mengetahui dimana musuhnya. jika kamu tidak dapat melihat musuhmu lebih baik diam di tempat dan fokus bertahan saja, dia pasti berfikir seperti itu.
+
+haruskah aku menunggu yang lainnya atau haruskah aku bergerak? aku membuka dan mengepalkan tanganku terus menerus untuk menghilangkan mati rasanya.
+
+"kita akan menyerangnya."
+
+[OK.]
+
+aku melompat keluar dari pohon besar tempatku sembunyi dan berlari ketempat dimana yang aku perkirakan bahwa itu sumber dari lokasi musuh. karena gerakanku yang tiba-tiba datang ketika serangannya di tangkis mururu, gerakan musuh berhenti sebentar. dia pasti ragu mau menyerang siapa diantara kami.
+
+tapi keraguan itu hanya sebentar dan dia menyerangku. dengan melihat kembali goyangan di kabut, aku memprediksikan tempat dan timing dimana serangan akan datang. pendang silver di tanganku berderit karena terkena serangannya dan tubuhku serasa kaku untuk sesaat. seberapa kuat monster ini sih? aku berteriak di dalam kepalaku.
+
+tapi kemudian, mururu lari kearah yang sama. tidak sepertiku, dia dapat dengan cepat mendekati musuh dan menebas dengan cakar cantiknya. suara sesuatu hancur yang keras berbunyi melalui hutan. tapi tidak ada darah.
+
