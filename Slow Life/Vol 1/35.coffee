@@ -64,5 +64,65 @@ l"Tidak Mungkin !?"
 
 bahkan orang seperti pahlawan lit memiliki celah pada pengetahuan dan rencananya.
 
-namun, dia tidak pernah menyangkan bahwa ada "bomb bunuh diri" yang tertanam padanya yang mana membutuhkan skill alchemy lebih lanjut di tempat seperti zoltan.
+namun, lit tidak pernah menyangkan bahwa ada "bomb bunuh diri" yang tertanam padanya yang mana membutuhkan skill alchemy lebih lanjut di tempat seperti zoltan.
+
+tubuh pria itu hancur karena ledakan dan menyebabkan cairan hijau berserakan di sekitar.
+
+l"Tch!?"
+
+meskiput lit dengan cepat mundur, lit tidak bisa menghindari cairan yang mengenai tangan dan kakinya.
+
+l"bom lengket!"
+
+bom lengket memiliki kelekatan seperti pulut dan adalah skill unik dari perlindungan ilahi alchemist.
+
+mereka memiliki skill untuk mengatur daya ledaknya, mereka dapt membuat formula khusus menggunakan alchemy untuk membuat bom legket seperti ini.
+
+zat lengket ini ada di tangan dan kaki lit dan tidak dapat di hilangkan dengan mudah dan gerakannya menjadi terbatas.
+
+(aku lengah!)
+
+pria itu memiliki lubang besar di dadanya dan diapun jatuh ke tanah. dia pasti langsung mati.
+
+(seseorang datang!)
+
+bersamaan dengan suara sesuatu yang bergerak cepat, 3 orang dengan mukanya yang tertutup bakaian datang dari bayangan bangunan.
+
+mereka pasti mendengar ledakan sebelumnya. dan mereka datang untuk menghilangkan bukti.
+
+lit menggerakkan kedua tangannya yang tidak dapat bergerak bebas karena zat lengket ini dan mencoba memegang shotel tapi,
+
+(bomb lengket juga mengenai sarung shotelku!)
+
+sayangnya, zat lengket mengenai pedangnya dan membuat pedang dan sarungnya menyatu. dia tidak dapat menarik shotelnya walaupun dia menariknya dengan keras.
+
+l"Shi..."
+
+3 orang bertopeng berlari kemari.
+
+dia tidak punya waktu untuk spirit magic. lit melompat kesamping walaupun seluruh tubuhnya dipenuhi zat lengket.
+
+l"Gua!?"
+
+ketika melompat kesamping, lit meluruskan kakinya dan menendang satu orang bertopeng dan orang tersebut terpelanting.
+
+orang itu berguling-guling di tanah dan menabrak dinding dari rumah orang miskin.
+
+l"...orang biasa pasti akan mati."
+
+orang yang dia tendang menggerakkan kepalanya dan berdiri.
+
+"perlindungan ilahi dari pembunuh... pasti itu."
+
+mereka sepertinya bergerak karena perlindungan ilahi dari pembunuh tapi sepertinya ada yang salah.
+
+(apakah mereka menambah perlindungan ilahi dengan obat dewa palsu? tapi sepertinya mereka tidak memakai kapak.)
+
+lit melihat ke tangan kirinya yang berdarah.
+
+pada saat tendangan tadi, pisau musuh menepis kedua tangannya. itu bukan luka yang serius tapi...itu berarti musuhnya bukan orang sembarangan dan mempunyai skill untuk melukai lit.
+
+(aku mungkin bisa melawan mereka jika aku dalam kondisi yang bagus tapi bahkan aku saja tidak dapat memakai pedangku.)
+
+lit bisa saja menghilangkan zat lengket dibadannya dengan spirit magic tapi dia berfikir musuhnya tidak akan membiarkannya begitu saja.
 
