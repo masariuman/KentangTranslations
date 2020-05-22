@@ -126,3 +126,196 @@ pada saat tendangan tadi, pisau musuh menepis kedua tangannya. itu bukan luka ya
 
 lit bisa saja menghilangkan zat lengket dibadannya dengan spirit magic tapi dia berfikir musuhnya tidak akan membiarkannya begitu saja.
 
+(mereka ini palint tidak dibawah petualangan tingkat B kan? bukankah ini artinya mereka lebih kuat daripada albert ?)
+
+jika saja dia memakai pedang
+
+lit frustasi dengan kelalaiannya.
+
+(tidak hanya itu, andai saja musuhku menggunakan pedang.)
+
+senjata yang dipakai oleh musuh adalah claw(cakar pisau). senjata itu adalah senjata yang dipakaikan di tangan dan lit belum pernah menggunakannya sebelumnya.
+
+lit mengambil pisau lempar dari bajunya.
+
+normalnya pisau ini dignakan untuk serangan jarak jauh tapi dia hanya bisa menggunakan itu untuk bertarung saat ini.
+
+mata pria bertopeng mengecil seperti mereka sedang tertawa dan mgengerti kalau mereka sedang memiliki keuntungan.
+
+kemudian, ada bayangan besar melompat ke kepala pria bertopeng itu.
+
+"Uge!?"
+
+tinju yang menghancurkan tengkorak pria bertopeng itu.
+
+pria bertopeng itu mati seketika dan jatuh ketanah.
+
+"bajingan sekali berani mengambil keuntungan dari seorang wanita."
+
+seorang pria mengancam mereka dengan menunjukkan tinjunya yang penuh darah.
+
+lit tanpa sadar mengedipkan mata dan memastika dia tidak salah melihat pria yang didepannya.
+
+tidak mungkin, mengapa dia disini..kata-kata itu berteriak di hati lit.
+
+l"Danan...!"
+
+"Yo, Lit. aku tidak percaya aku bisa bertemu denganmu lagi disini. tapi kita harus menunda reuni kita sampai kita selesai mengurus mereka."
+
+sisa pria bertopeng mentap pria besar dan berotot dengan niat membunuh yang kuat.
+
+"...kenapa kamu!"
+
+tapi, sebelum mereka selesai berbicara, pria bertopeng ditinju langsung oleh danan.
+
+begitulah.
+
+setelah selesai, para pria bertopeng hanyalah gumpalan daging yang tidak lagi berbentuk seperti manusia.
+
+☆☆
+
+l"O Roh Air, Bersihkan Tubuhku."
+
+Lit menggunakan magic dan membuat roh air datang dengan bentuk ikan tanpa sisik dan memberihkan zat lengket yang ada pada lit. luka di tangan kirinya dan juga kotoran.
+
+tubuhnya bersih dan pikirannya masih resah.
+
+l"Danan, kenapa kamu disini?"
+
+"aku berfikir sama denganmu tapi yah. hanya saja. aku sudah memberitahu pahlawan-sama kalau aku akan mencari gideon."
+
+hati lit berdetak sakit. tentu saja, itu bukan luka fisik.
+
+luka tebasan yang dia rasakan sekarang tidak dapat dibandingkan dengan luka yang dia rasakan sekarang.
+
+l"kemudian, kamu berencana membawa gideon ?"
+
+"itu rencananya sih, tapi..."
+
+danan menggaruk belakang kepalanya.
+
+"aku sudah di zoltan belum seminggu tapi aku sudah mendapatkan kesimpulan dari situasi yang ada... aku tida menyangkan gideon sekarang bersama lit."
+
+danan tersenyum lebar. tapi dia kemudian diam kembali.
+
+"aku tidak menemukan apapun. itu rencanaku sekarang."
+
+l"Eh?"
+
+"bukankah gideon sudah menemukan tempat untuk kembali? kalau begitu tidak apa apa. aku tidak akan memaksanya untuk mengikutiku."
+
+l"benarkah!?"
+
+danan mengangguk dengan mukanya yang penuh dengan bekas luka itu.
+
+"sebenarnya, aku tidak ingin lit melihatku. aku ingin segera pergi.. tapi... tch, ada sesuatu yang busuk juga terjadi disini ya."
+
+danan berbicara sambil melepaskan topeng dari mayat musuh.
+
+"itu...!!"
+
+lit tidak bisa berbicara apa-apa ketika melihat apa yang dibalik topeng itu.
+
+ada tanduk dikepala mayat itu. tidak sepert manusia, dan kepalanya tanpa rambut dan memiliki 2 tanduk melingkar.
+
+l"iblis pemantau! iblis pembunuh! mengapa iblis rank-menengah ada di zoltan!?"
+
+"ntahlah.... tapi insiden ini lebih gelap dari yang kubayangkan."
+
+l"...!"
+
+"ini sangat berbahaya jadi menjauhlah...well, aku ingin berkata seperti itu tapi, jujur, untukku sulit juga. aku akan senang kalau kalian berdua membantu tapi...mungkin bukan ide yang bagus untuk menunjukkan diriku ke gideon. dia memiliki rasa tanggung jawab yang besar."
+
+l"iya...."
+
+"karena itu aku ingin berbagi informasi denganmu, lit. aku akan tinggal di pavilion black cat di daerah marsh selatan."
+
+l"oke."
+
+setelah itu, kami berdua berbagi informasi tentang situasi sekarang.
+
+setelah berbagi informasi, mereka menemukan bahwa pejalan kaki di atap adalah orang dari guiild pencuri, seseorang dari bawahan big hawk.
+
+l"itu agak sedikit klise melihat bagaimana guild pencuri merencanakannya."
+
+"bukankah itu kasus biasa?"
+
+l"yeah."
+
+danan menggosok janggutnya sambil merenungkan sesuatu.
+
+lit mempertimbangkan keadaan yang berhubungan dengan ini dan merekapun memutuskan tidak ada perkembangan jadi lit kembali.
+
+l"ok, aku akan pulang sekarang."
+
+"baiklah, jangan lengah seperti sebelumnya."
+
+l"akan kuingat itu."
+
+lit pergi tanpa bersuara.
+
+danan merasakan kehadiran lit semakin jauh dan berkata dalam hati....
+
+"aku tau gideon disini tapi tidak terpikirkan olehku lit juga disini. dunia ini bekerja dengan cara yang menarik."
+
+bentuk itu, sesuatu yang menyerupai danan. mulai berjalan ke penginapan.
+
+"aku hanya memakan satu tangan jadi ingatannya tidak lengkap. ini akan sangat tidak bagus jika aku muncul didepan gideon yang mengetahui danan sangat dekat. sangat bagus jika aku tetap bersembunyi sampai mereka menghancurkan rencana iblis itu."
+
+sesuatu itu menunjukkan senyum yang berbeda dari danan dan dia berjalan di gelapnya jalanan.
+
+(T/N: danan tangannya dimakan ?? EHHH ????)
+
+☆☆
+
+di waktu yang sama.
+
+di desa tepi laut.
+
+"Oo, dia bangun!"
+
+danan membuka matanya.
+
+sepertinya dia hanyut ke suatu desa.
+
+(T/N: yay danan hidup)
+
+dia terjebak dengan kelaparan dan berbicara dengan lemah.
+
+"Ma- Makanan.. tolong."
+
+"sabarlah, kamu harus minum air hangat terlebih dahulu."
+
+danan meneguk segelas air panas dengan instant.
+
+perutnya tiba-tiba terasa kejang dan dia merasa ingin muntah .... tapi,
+
+"ENAK SEKALI!"
+
+"WHOA !! biasanya perut normal tidak mampu bahkan di tegukan pertama."
+
+orang desa sangat takjub dengan danan yang meneguk air panas.
+
+"orang yang hebat, walaupun dia tidak sadar selama seminggu penuh."
+
+"SEMINGGU!?"
+
+danan melihat tangan kanannya yang hilang.
+
+rasa malukarena kelalaiannya membuat wajahnya menjadi ungu.
+
+"DASAR SIALAN! aku tidak tau bagaimana kau selamat tapi nanti berikutnya ketika aku bertemu denganmu, aku akan membunuhmu!"
+
+itu harusnya udah mati. danan yakin melihat gideon memotong kepalanya dengan pedangnya.
+
+iblis asura shisadan.
+
+jendral dari pasukan raja iblis yang menyamar sebagai kapten gaius dari kerajaan logavia dan hampir menghancurkan kerajaan dari bayangan.
+
+tidak diragukan lagi yang menyerang danan adalah dia, shisandan.
+
+"bahkan lebih bagus lagi, walaupun kamu dapat hidup kembali tanpa batas, paling tidak biarkan aku membunuhmu 10 kali! OK SUDAH KUPUTUSKAN!"
+
+danan bersumpah akan dendamnya dengan tinjunya.
+
+para penduduk desa bingung kepada siapa orang yang memiliki kekuatan super dan yang aneh ini.
