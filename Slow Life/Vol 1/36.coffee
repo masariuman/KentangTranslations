@@ -164,3 +164,93 @@ lihatlah, ketika mogurim ingin melanjutkan ceritanya, mink menendang belakang ke
 
 terdapat perbedaan fisik jadi mogurim terjatuh ke lantai.
 
+"pelanggan datang bukan untuk mendengarkan cerita anehmu! mereka datang karena bocah al itu ingin membuat pedang pertamanya! Pastikan membuat sesuatu yang mendapatkan pujian darinya"
+
+"Ouch, kau tidak perlu menendangku."
+
+"Cepatlah!"
+
+"ya ya."
+
+megurim berdiri dan membersihkan debu dari janggutnya.
+
+"baiklah, untuk anak elf itu kan? Shotel huh, itu pesnan yang agak sulit tapi tidak perlu khawatir ! aku ada banyak senjata di gudangku dibelakang jadi kamu bisa memilih keseimbangan apa yang kamu mau."
+
+"y-ya!"
+
+l"aku akan ikut juga. aku agak paham tentang shotel."
+
+mogurim mengedipkan matanya ketika lit mengatakan itu.
+
+"kamu beruntung sekali hero lit ikut denganmu untuk membuat senjata."
+
+"aku juga berfikir demikian!"
+
+al menjawab dengan senang.
+
+☆☆
+
+mereka bertiga pergi kebelakang dan aku melihat-lihat senjata ditoko.
+
+mogurim memiliki divine protection yg sangat tinggi untuk tipe penempa yaitu rune blacksmith.
+
+biasanya, daripada toko di pusat kota, itu tidak akan aneh untuknya membua toko didekat tempat bangsawan atau petualang level tinggi tapi sepertinya sifatnya memiliki masalah dengan perlindungan ilahinya dan dia memiliki kesulitan menempelkan magic pada barang tempaannya.
+
+tapi hasi tempaanya sempurna jadi dia mendapatkan respek sebagai pandai besi di pusat kota.
+
+... lihatlah, sekarang aku keluar dari topik utama.
+
+pintu toko terbuka.
+
+"selamat datang."
+
+mink berbicara dari konter.
+
+"Oya, bukankah itu red. kenapa kamu bbermalas-malasan di tempat seperti ini?"
+
+g"oh, Gonz dan stothun dan dokter newman? sungguh trio yang tidak biasa."
+
+ketiga orang yg kukenal dekat masuk kedalam toko.
+
+setengah-elf tukang kayu gonz, setengah-orc pemilik toko furnitur stormthunder dan dokter manusia newman.
+
+"dokter newman dan aku berencana pergi kesini bersama-sama. aku ingin memesan alat tukang. dokter ingin pisau bedah untuk medis."
+
+gonz membalas. newman juga mengangguk.
+
+"aku sebelumnya memesan untuk memperbaiki canna dan pisauku untuk mengukir furnitur. aku tidak sengaja bertemu mereka berdua."
+
+tiga orang yang berbeda, dengan wajah yang berbeda.
+
+gonz memiliki wajah tampan, stothun memiliki wajah menyeramkan. dan newman dengan kepala botak dan senyum ramah.
+
+mereka mengobrol tentang hal-hal yang ada di pusat kota.
+
+g"inilah zoltan."
+
+"apa yang kamu katakan red?"
+
+g"maksudku biarkan aku ikut bergabung mengobrol dengan kalian."
+
+"oooo, baiklah, sekarang kamu sudah hidup tidak sendirian lagi, bagaimana kalau kamu memberitahu kami bagaimana kisah cintamu."
+
+"aku juga tertarik dengan itu. red-kun, gimana perkembangannya?"
+
+mereka bertiga melihat kearahku dengan senyum di muka mereka.
+
+g"OK!, aku akan memberitahu yang kalian inginkan. tapi bersiaplah. ketika aku berbiaca tentang lit, itu mungkin akan membuat pesanan kalian menjadi berkarat lagi."
+
+mereka bertiga tertawa dengan gurauanku yang lemah dan stothun memukul belakangku.
+
+"haaaa~~~~, kamu sangat beruntung."
+
+"tapi istriku hebat juga."
+
+"andai saja aku bisa menemukan wanita yang baik."
+
+g"bagaimana dengan wanita di klinik?"
+
+"dia sudah punya pacar. dan juga pacarnya petualang rank-c."
+
+g"yang benar? dokter tidak bisa menang kalau begitu."
+
