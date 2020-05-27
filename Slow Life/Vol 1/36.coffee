@@ -254,3 +254,14 @@ g"bagaimana dengan wanita di klinik?"
 
 g"yang benar? dokter tidak bisa menang kalau begitu."
 
+"seorang petualang rank-d tidak berhak mengatakan itu."
+
+"aku sih punya lit."
+
+setelah aku dengan bangga mengatakan itu, mereka bertiga melihat sesama mereka dan mengangguk sebelum mereka memukul kepalaku.
+
+aku dengan cepat lari ke konter dimana mink berada.
+
+"hah, sungguh kekanak-kanakan."
+
+mink jengkel tapi dia tersenyum seperti menikmatinya.
