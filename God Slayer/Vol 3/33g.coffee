@@ -201,3 +201,137 @@ sangat tidak jelas apa yang aya dan aku inginkan diantara kami. jika aku ingin m
 
 aku, tidak sepertimu, tidak cukup kuat untuk percaya pada diri sendiri. aya... aku tidak tahu apa yang dia pikirkan.
 
+langsung to the point atau berterus terang dan kemudian gagal, itu bukan hal yang lucu. yaaah, itu hanya alasan saja sih. faktanya, sepertinya yang utano-san katakan, aku memang tidak kompeten. aku tahu perasaan aya padaku. tapi, aku tetap menghindarinya.
+
+jika aya tidak tahu apa yang dia inginkan dariku, yaaaa kami dengan simpel mencarinya bersama. dia masih 18 tahun, dia hanya anak 16 tahun ketika dia mendapatkan perasaan itu. sangat salah menanyakan jawaban untuk sesuatu seperti itu dari anak seperti dia. tapi tetap saja, aku melakukannya. dan aku dimanjakannya juga. walaupun jawabanku........sudah ada setahun lalu.
+
+"dia menangis setelah kamu pingsan lho"(utano)
+
+"begitu....."
+
+"membuat wanita menangis. kamu benar-benar yang terburuk."
+
+"aku tahu."
+
+ketika aku mengangkat bahuku, dia hanya menghela nafas.
+
+apakah aku menjadi terburuk karena aku lemah atau karena aku tidak menerima aya? pasti kedua-duanya. yeah, aku benar benar tidak kompeten. diomeli orang lain selain ermenhilde, aku malu akan diriku sendiri.
+
+"dan, aku juga------"(utano)
+
+"Hm?"
+
+kata-katanya berikutnya dikatakan dengan suara kecil jadi aku tidak bisa mendengarnya dengan jelas.
+
+aku melihatnya agar dia mengulanginya lagi tapi dia melihatku dengan mata dingin dari sang penyihir.
+
+"jadi aku dengar kamu mengamuk di hutan jiwa membusuk?"(utano)
+
+"tidak, aku hanya lari dari monster. aya yang melakukannya."
+
+"apa-apaan itu? itu berbeda sekali dengan apa yang kudengar."
+
+sepertinya dia tidak akan mengulangi apa yang dia katakan jadi aku memutuskan untuk menjawab pertanyaan dia berikutnya.
+
+ketika aku melakukannya, dia tertawa sambil menutupi mulutnya. sikap itu benar-benar seperti wanita, tapi terasa beda dari aya atau nona francesca. dia kalah dengan mereka masalah dada tapi dia benar-benar dewasa.
+
+"itu benar."(renji)
+
+"itu mungkin kamu tapi sepertinya aya berfikir berbeda. yaaah, orang-orang akan meninggikan setiap yang dilakukan orang itu jika dia suka dengan orang itu."
+
+"pada dasarnya, aya tidak berada disitu juga."
+
+aku mengingat tengkorak sialan itu. aya tidak disitu tapi sudah pasti aya yang membunuhnya. kekuatan yang dia tembakkan dari bawah tanah menghilangkan setengah dari tubuh iblis itu.
+
+melihat serang seperti itu benar-benarn membuatku sadar betapa lemahnya aku. dia pintar, cantik, dam punya kepribadian yang baik juga. satu hal yang bermasalahnya denganku hanya umurnya. sungguh hal yang menyedihkan.
+
+"kalau begitu, sudah pasti, untuk anak ini, kamu sangat spesial."(utano)
+
+"itu merepotkan. aku buka orang spesial."
+
+ketika kami berbiaca dengan suara kecil agar aya tidak bangun, kami melihat kemuka tidur aya lagi.
+
+"jadi, kenapa aku disini?"(renji)
+
+"kamu tidak ingat?"
+
+"sayangnya, aku tidak ingat apapun setelah mengalahkan iblis dihutan."
+
+"ara ara~ sepertinya kamu melewat wajah tangisan aya"
+
+"jujur aku lega aku tidak melihatnya."
+
+jika aku melihat sesuatu seperti itu, aku akan dipenuhi rasa bersalah.
+
+wajah menangis adalah salah satu---yang paling tidak mau aku lihat. kalau tangisan bahagia sih tidak apa-apa. tapi aku tidak mau melihat tangisan kesedihan..... sama sekali.
+
+"aku juga cengeng. jika aku melihat seseorang menangis, aku akan menangis juga."(renji)
+
+"itu benar"
+
+cukup, jangan dilanjutkan lagi, aku mengalihkan pandanganku dari pandangannya. kenapa dia menunnjkkan ekpresi yang lembut? aku benar-benar tidak bisa melawan utano-san. dia enak diajak bicara tapi aku merasa dia bisa melihat apa isi hatiku.
+
+"yui membawamu dari hutan kesini."(utano)
+
+"yui?"
+
+aku bertanya lagi karena menengarkan nama yang tidak asing.
+
+yui-chan. hiyuu yui. satu dari 13 orang yang dipanggil didunia ini, seperti kami. seorang gadis penjinak monster. aku tidak tau dia ada dimana sekarang tapi apakah itu beruntung dia ada disekitar hutan?
+
+"dia sebenarnya ada benua elfreim tapi sepertinya koutarou-kun yang membawanya. dia melihat ke masa depan dimana kamu akan mati. kamu harus berterima kasih pada mereka."(utano)
+
+darimana aku harus memulainya? aku sudah kaget dengan nama yui-chan dan koutarou dan sekarang kamu memberitahu kalau aku diprediksikan akan mati?..... koutarou sialan, jika dia melihat sesuatu seperti itu, langsung beritahu aku!
+
+well, aku juga salah karena bersembunyi selama setahun juga.
+
+kenapa setiap kali dia melihatku dimasa depan, aku selalu akan mati? apakah aku begitu lemah? aku pikir aku paling tidak lebih kuat dari petualang normal di dunia ini tapi apakah itu juga salah? aku benar-benar ingin menangis sekarang.
+
+melihatku seperti itu, utano-san tertawa lagi. aya tetap tidur seperti biasa.
+
+"yui-chan dan koutarou.....apakah kamu berusaha mengumpulkan semuanya keibukota?"(renji)
+
+"well, acara akan dimulai dalam waktu dekat tapi aku tidak ada niat untuk melakukannya."
+
+dia mengatakan tidak ada niat untuk melakukannya berarti seseorang merencanakannya dibalik layar.
+
+sebagai contoh, orang yang membuat dunia ini, atau mungkin hanya takdir yang aneh. tapi, orang itu bukan manusia tapi dewi. aku harap intuisiku yang mengatakan bahwa ada masalah lain datang benar-benar salah. semua yang dia katakan berada di masalah dengan level yang berbeda. dan juga ntah kenapa itu selalu berhubungan denganku. apakah aku sendiri yang berfikir dia hanya bermain-main denganku saja?
+
+utano-san sepertinya sudah membaca pikiranku dan memberikan senyum karena tertarik.
+
+"bekerja keraslah."(utano)
+
+"aku menolak. aku sudah bekerja keras sepanjang hidupkan dari setahun lalu."
+
+"itu tidak ada hubungannya. dia seorang dewi, dan itu adalah tugasmu untuk menerima permintaannya."
+
+logika seperti apa itu?! itu sangat tak masuk akal. aku harus berurusan dengan wanita itu sepanjang hidupku?(TN: disini renji manggil dewi sebagai wanita, bkn dewi dengan cara sopan.)
+
+utano-san berdiri sambil mengabaikanku yang menjatuhkan bahu karena kecewa.
+
+"tapi pasti, ini sepertinya semuanya berkumpul bersama. itu seperti takdir."(utano)
+
+"oh tolonglah jangan. raja iblis sudah mati. masalah yang paling besar sudah hilang.......aku hanya tidak mau bertarung lagi."
+
+"aku setuju. aku memiliki banyak hal yang harus aku lakukan di negara ini."
+
+nadanya, sangat dalam sebelum dia mengatakan kata terakhir itu. dia pasti sangat depresi sambil memikirkan semua pekerjaannya.
+
+dia tidak menunjukkannya pada ekpresinya seperti biasa tapi, hanya disaat seperti ini dia benar-benar dapat dimengerti.
+
+".......kamu sepertinya bekerja keras juga. dengan semuanya."(renji)
+
+"yes, terima kasih untuk seseorang yang langsung hilang ntah kemana."
+
+aku memutuskan untuk mengabaikannya dan melihat muka aya yang lagi tidur.
+
+aku benar-benar minta maaf akan hal itu. untuk lari dari semua masalah, dari aya dan menyembunyikan diriku dari teman lainnya.....untuk meninggalkan semuanya ke utano-san.
+
+tapi walaupun begitu, utano-san tidak pernah menyalahkanku dengan serius untuk semuanya dan masih berbicara denganku seperti biasa. aku penasaran jika wanita ini tahu kalau hal itu membuatku senang. walaupun aku berada di posisi tidak bisa melawan dia apapun yang dia katakan padaku.
+
+"fufufu,  untuk sekarang, sembuhkan dulu lukamu. disini aman kok."(utano)
+
+"tolonglah, bolehkan aku pindah ke penginapan di kota palint tidak?"
+
+jika aku berada disini, aku pasti akan bertemu beberapa orang yang mengetahuiku. bagaimana aku akan menghadapi mereka setelah aku bersembunyi dari mereka selama setahun?
+
