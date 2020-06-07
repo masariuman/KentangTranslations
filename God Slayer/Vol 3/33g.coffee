@@ -335,3 +335,116 @@ tapi walaupun begitu, utano-san tidak pernah menyalahkanku dengan serius untuk s
 
 jika aku berada disini, aku pasti akan bertemu beberapa orang yang mengetahuiku. bagaimana aku akan menghadapi mereka setelah aku bersembunyi dari mereka selama setahun?
 
+walaupun tahu akan hal itu, pandangan utano-san tetap dingin. sangat dingin di level 0 derajat yang mengarah kepadaku.
+
+"itu tidak mungkin. semua orang sudah tahu kamu disini."(utano)
+
+"---apa?!"
+
+"eru adalah jaminannya, tanpa eru, kamu tak bisa sembarangan kabur dari istana juga. iya kan?"
+
+aku melihat utano-san.
+
+dan dia melihatku dengan senyuman seperti anak kecil yang berhasil dengan prank nya. walaupun itu adalah ekpresi yang langka darinya, aku hanya bisa merasa dingin dari itu.
+
+"utanosan, bolehkah aku bertanya sesuatu?"
+
+"ada apa, yamada-kun?"
+
+"aku, berapa lama aku..... tidur?"
+
+"hari ini adalah hari kelima, jadi kukira sekitar 100 jam ?"
+
+aku menutupi mukaku dengan tangan kiriku. pantas saja tubuhku terasa lesu. aku pasti langsung dibawa ke ibukota tapi aku tidak berfikir aku akan tidur sangat lama.
+
+"aya ada disini, bagai mana dengan mereka.....feirona dan yang lainnya?"(renji)
+
+"aku bertemu mereka. anak bangsawan, elf, dan beast woman. kamu sekali lagi berkelana dengan orang yang menarik, eh?"
+
+"jadi mereka selamat. baguslah..."
+
+itu melegakan. aku berfikir juga kalau mereka selamat karena aya disni tapi aku khawatir karena itu sudah 5 hari.
+
+mereka mungkin tidak di istana jadi mereka pasti di kota, beristirahat di penginapan. jika aku bisa kabur nanti, aku harus bertemu mereka. yaah pertama-tama aku harus menemukan penginapan mana tempat mereka menginap.
+
+"kamu tenang saja. aku akan mengirim pesan besok dan mengundang mereka ke istana nanti."(utano)
+
+"ah, begitu..."
+
+dia benar-benar membaca pikiranku, kan? atau apakah aku mudah dibaca? aku harap aku mudah dibaca.
+
+"tapi tetap saja, kamu membawa masalah lagi denganmu."(utano)
+
+"hm?"
+
+dari koceknya, dia mengeluarkan kristal hitam. aku tidak memiliki ingatan tentang ini tapi aku ragu kalau itu sesuatu yang bagus. jangankan warnanya-- itu mengingatkanku pada monster sialan itu. mungkin karena aku memimpikan masa lalu, aku merasa sangat tidak enak sekarang. dari tampilannya saja, itu terlihat seperti kristal yang indah yang belum dibentuk.
+
+"dan apa itu?"(renji)
+
+"ini yang dibawa beast woman yang dipanggil mururu dari benua elfreim."
+
+"....Mururu?"
+
+atau lebih tepatnya, jadi dia dari benua elfreim? bagaimana dia bisa mendapatkan kapal untuk melewati lautan untuk ke benua ini? apalagi bagaimana dia tidak mengetahui cara uang bekerja.
+
+aku harus menanyakannya nanti ketika kami bertemu. aku tidak bisa menemukan jawabannya seperti ini.
+
+"lalu, isi dari perimntaan dewa roh apa?"(renji)
+
+"ara~ kamu tidak tahu?"
+
+"karena dia menolak menunjukkan itu kepada siapapun kecuali utano-san. dan aku merasa lebih baik mengetahuinya bersamamu juga."
+
+lebih tepatnya, aku hanya ingin menghindari pertanggungjawaban saja. tapi lebih baik aku diam saja. jujur mungkin mungkin bagus tapi terlalu jujur juga bodoh.
+
+"jadi, apa itu?"(renji)
+
+"pecahan dari hati dewa iblis."
+
+ah, jadi itulah kenapa aku merasa tidak enak tiba-tiba. walaupun setelah mendengarkan itu, aku tidak merasa terganggu sedikitpun. faktanya, aku merasa lebih lega dan puas. jika ermenhilde bersamaku, aku mungkin akan menghancurkan pecahan itu. utano-san berkata dia mengambil ermenhilde agar aku tidak kabur tapi pasti karena ini alasan utamanya. untuk berfikir lebih lanjut, sangat merepotkan.
+
+"apakah raja iblis akan hidup kembali?"(renji)
+
+"tidak, kita tidak akan membiarkan itu."
+
+aku mengingat kembali yang dikatakan iblis di kota magic.
+
+tapi utano-san menolaknya dengan kuat. itu benar-benar membuatku semangat juga.
+
+"itulah alasan mengapa kita berada disini, yamada-kun."
+
+jauh dari jendela, dia berbicara sambil duduk disebelah kasur. mata kemerahannya melihatku bahkan lebih dekat dari jarak sebelumnya.
+
+sangat dekat, terlalu dekat, atau mungkin aku terlalu memikirkannya.
+
+"aya masih belum bangun?"(renji)
+
+mengalihkan pandanganku, aku melihat ke aya.
+
+tidak peduli seberapa lama kami berbicara, dia masih tidak menunjukkan tanda bangun.
+
+"yes, aku membuatnya tidur dengan magicku."(utano)
+
+"apa-----"
+
+'apa yang kamu katakan?' sebelum aku mengatakan itu, bibirku diblok, dengan bibir lembut dari seorang wanita. (TN : WOOOOOO UTANO-SAAAN OTP WOOOO WOOOO WOOOOOO WOOOOOOOOOOO!!!!!)
+
+itu hanya bersentuhan, seperti ciuman  anak kecil... tu juga, hanya sebentar sebelum dia bergerak lagi. tapi walaupun begitu, itu manis dan wangi.
+
+ketika aku membuka mataku, yang aku tutup ntah kapan itu, pandanganku bertemu dengan pandangan utano-san yang sedikit lembab (TN : Seperti menahan nangis). itu juga hanya sesaat. dia langsung berdiri lagi dan langsung berjalan ke pintu. dia pasti malu. walaupun dia biasanya tegas, pada akhirnya, hatinya masih seperti anak yang polos. sepertinya tidak berubah juga darinya.
+
+"aku akan membiarkan aya padamu, yamada-kun."
+
+dia menjentikkan jarinya.
+
+ketika dia melakukan itu, seperti tidak ada yang terjadi, aya bangun dari tidurnya. karena dia tidur di meja, dia merenggangkan badannya sambil duduk dengna mata ngantuk.
+
+"selamat pagi, aya."(utano)
+
+"Eh, ah----Yu..."
+
+dia akhirnya sadar kalau aku sudah bangun dan badannya kaku. ekpresinya berubah bermacam-macam. aku tidak pernah bosan dengan ini berapa kalipun aku melihatnya. sekarang jika aku mengatakan aku melihat wajah tidurmu sekarang, aku penasaran muka seperti apa yang akan dia tampilkan?
+
+"aku akan menyiapkan makanan, kamu lapar kan?"(utano)
+
+perempuan itu pergi dan meninggalkan masalahnya untukku sambil berkata demikian.
