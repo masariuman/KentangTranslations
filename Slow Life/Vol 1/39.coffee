@@ -191,3 +191,75 @@ ademi menangis ketakutan ketika melihat itu.
 "Ademi!?"
 
 "tidak ada gunanya. akan kukatakan kondisi untuk membuat orang dengan perlindugan ilahi iblis mengamuk. stelah meminum obat, perlindungan ilahi iblis akan mengubah level dari perlindungan ilahi bawaan dari lahir, semakin banyak pengaruh perlindungan ilahinya menurut, akan menyebabkan eurofia dan rasa kebebasan yang pengguna inginkan. akan tetapi, dengan level perlindungan ilahi iblis yang menguasai perlindungan ilahi bawaan dair lahir, pengguna akan merasakan ketergantungan dan kepribadian mereka akan menjadi ganas."
+
+"Ademi, tahan dirimu!"
+
+"secara khusus, itu buruk jika semua level dari perlindungan ilahinya dikonversi. pengaruh dari bahan utama obat, iblis kapak, akan muncul dan akan memberikan dorongan untuk membunuh setiap kali pengguna melihat kapak. itulah kebenaran dari insiden yang muncul akhir-akhir ini. walaupun begitu, itu adalah hal yang bagus untuk kami."
+
+ademi berlari kearah al.
+
+percakapan diatas balkon tidak terdengar oleh penonton yang dibawah tapi mereka bisa mengatakan kalau ada yang aneh terjadi.
+
+para penonton cemas sambil melihat kearah balkon.
+
+"al-kun, kamu adalah seorang pahlawan. walaupun ademi mencoba membunuh keluargamu, kamu masih memilih jalan berbicara. akan tetapi, ademi yang tercela telah menginjak-injak perasaanmu dan membalasmu dengan tragedi pembantaian dengan kapak. ini adalah sesuatu yang tidak dapat dimaafkan. mayat al-kun akan menunjukkan kami bahwa berbicara itu tidak ada gunanya."
+
+big hawk menggerakkan bahunya.
+
+"skenarionya akan menjadi seperti itu, bagaimana menurutmu? aku menerima permintaan apapun yg kau inginkan tapi....kamu harus segera mengatakannya. sebelum kamu terbunuh oleh ademi."
+
+kapak yang dipegang alchemist dilempar ke ademi.
+
+al menyerah kepada perasaan tidak berdayanya tapi walaupun begitu, dia tetap percaya akan pedangnya
+
+"apa!?"
+
+akan tetapi, kapak tiba-tiba terbelah menjadi dua dan alchemist tersebut mengeluarkan darah dari bahunya dan jatuh.
+
+g"'pahlawan lit mungkin berfikir dia dapat menahan kami tapi...membuat dia berfikir seperti itu adalah pilihan yang aman?' kah itu? hebat sekali pemikiran itu. membuat kalian berfikir seperti itu adalah pilihan yang terbaik."
+
+bodyguard yang berpakaian dengan jubah yang membawa al mempunyai pedang tembaga di tangannya.
+
+dia membelah 2 kapak yang terbuat dari besi dan menebas pria alchemist.
+
+g"kita akan melompat, berpeganganlah, Al!"
+
+pria berjubah membawa ademi dan memanggil al.
+
+al memeluk lehernya.
+
+"Ti-Tidak mungkin!? Webley! Apakah kamu sudah gila!"
+
+Bodyguard yang dia maksud sebagai webley berbalik dan melihat muka dari big hawk dan membuka topi jubahnya dan tersenyum sebelum memeluk kedua anak itu dan melompat dari balkon lantai 3.
+
+☆☆
+
+ada alat magic seperti jubah penyamaran, magic ilusi, dan teknik perubahan yang dimaksudkan untuk mengubah penampilan seseorang.
+
+itu adalah pengetahuan yang umum untuk memperhatikan seperti penyamaran.
+
+normalnya, big hawk tidak gagal melihat penyusup dengan menggunakan magic deteksi.
+
+g"itu memiliki celah."
+
+skill biasa : menyamar
+
+baju, makeup, akting. hanya ada sedikit orang yang memiliki teknik itu ketika menyamar. hanya idiot yang menghabuskan skill point untuk skill yang dapat di batalkan dengan magic.
+
+karena itulah aku percaya diri penyamaranku tidak akan terungkap.
+
+untuk alasan itu, aku meninggalkan lit untuk investigasi sedangkan aku mengikuti musuhku dan melihat pergerakan mereka.
+
+"hey, kamu red-san kan!? walaupun mukamu agak berbeda! apakah kamu yakin kita akan baik-baik saja terjatuh dari ketinggian ini!?"
+
+g"acrobatic skill mastery : Jatuh Melambat!"
+
+aku secara berturut turut menendang dinding ketika kami terjatuh untuk mengurangi momentum kami.
+
+jatuh melambat adalah skil penguasaan yang memberikanku untuk mendarat sambil memanfaatkan dinding untuk melambat.
+
+itu dapat diatasi dengan sihir 'terbang' jadi ares komplain tentang itu dengan kasar tapi itu adalah skill yang cukup menguntungkan untukku karena aku selalu maju duluan.
+
+setelah aku mendarat dengan selamat, aku melambai kepada big hawk yang melihat kami dari ujung balkon dan masih tidak paham apa yang terjadi. kemudian, aku lari dari tempat kejadian sambil membawa kedua anak.
+
+big hawk sudah sangat jauh ketika aku mendengar big hawk berteriak agar aku kembali.
