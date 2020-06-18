@@ -111,4 +111,86 @@ g"itulah ketika albert, orang luar dengan situasi yang sama, menarik perhatianmu
 
 albert sangat dekat dengan guild pencuri adalah fakta yang sudah diketahui semua orang.
 
-ada beberapa testimoni yang 
+ada beberapa saksi yang mengatakan big hawk adalah media pada interaksinya dengan guild dan karena itulah dia adalah penolongnya.
+
+iblis kontrak tidak dapat menggunakan kekuatan yang big hawk tidak miliki menurut dari kontrak tapi di kekuatan kontrak yang sama juga dapat memberikan keajaiban bahkan dari dalam big hawk.
+
+iblis kontrak tidak dapat lagi menghindari fakta apa yang aku katakan dan dia setuju dengan perkataanku.
+
+"tidak semua orang dapat terpilih sebagai kontraktor. kecuali kalau mereka memiliki keinginan yang cukup kuat dan masih memiliki kegelapan didalam hatinya. untuk memenuhi poin itu, zoltan benar-benar lokasi yang buruk. bahkan walaupun mereka semua memiliki ketidakpuasan, mereka semua menyerah, berfikir ya mau bagaimana lagi. dosa pemalas memiliki nilainya sendiri tapi mereka tidak cocok sebagai kontraktor. nasib baik aku bertemu albert yang datang kesini."
+
+perlindungan ilahi albert adalah sang juara.
+
+pahlawan dari lahir. tapi, dia tidak mendapatkan banyak prestasi.
+
+walaupun dia tidak lemah, dia hanya orang yang biasa-biasa saja dan tidak dapat melewati petualang rank b secara sendiri jadi dia harus memiliki tim untuk menolong dia pada aktivitasnya dan dia terdaftar sebagai tim rank b.
+
+banyak faktor untuk itu; dia tidak memiliki seseorang disekotarnya yang dapat mengajarinya cara mendapatkan skill dari perlindungan ilahi sang juara. dia kekurangan bakat juga dan juga dengan semangatnya yang rendah.
+
+tapi, poin itu penting untuk momen seperti ini, yaitu dia tidak puas akan situasi sekarang.
+
+yaaah dia adalah sang juara.
+
+"di zoltan, albert dapat melewati petualang rank b. ketika albert datang, petualang rank b di kota ini adalah walikota sebelumnya, mistome-shi, si petualang guild eksekutif, garadin, cien si bishop dari gereja suci, dan kapten penjaga moen. keempat orang itu membentuk tim dan menentukan waktu mereka di sela kesibukan mereka untuk menghadapi situasi yang membutuhkan mereka. terdapat sangat kekurangan orang pada hal ini. walaupun dia kurang dalam kekuatan, mereka menutup mata sebelah mereka sebagai dia memiliki kekuatan yang dekat dengan rank b."
+
+muka albert berubah seketika mendengar ucapan dari iblis kontrak tersebut.
+
+walaupun itu benar, kata-kata itu sangat tidak enak didengar oleh albert.
+
+aku juga mendengar dari moen kalau situasinya saat itu sangat buruk.
+
+selain sibuk dengan pekerjaan utamanya, kesampingkan moen yang masih aktif sebagai penjaga, ketiga sisanya berada pada umur yang tidak aneh untuk mereka untuk pensiun dan mereka kekurangan latihan bertarung pada pekerjaan keseharian mereka. ada beberapa insiden mereka menghadapi bahaya bahkan ketika mereka bertarung melawan musuh lemah.
+
+albert menjadi pahlawan zoltan.
+
+"akan tetapi, aku sama sekali benci zoltan ini."
+
+albert meludah.
+
+"daripada menghadapi masalah dihadapan mereka yang menbutuhkan petualang untuk menyelesaikannya, sampah itu memutuskan untuk mengabaikannya hanya karena itu merepotkan. yang tidak bisa apa-apa akan mengelh tanpa henti ketika kamu meluhat kelain. mereka adalah rekanku? mereka adalah petualang rank-b sepertiku? aku tidak akan mengakui itu! dan aku sendiri hidup disekitar sampah itu! kota yang hanya ribut hanya karena pemusnahan beruang burung hantu! dan kenapa aku merasa pahlawan dengan hal seperti itu! untuk apa aku hidup jika aku berhenti di kota ini!!"
+
+mungkin banyak orang di zoltan menyambut albert sebagai pahlawan dan semakin banyak dia melihat partnernya menikmati hidup tanpa masalah, semakin banyak dia melihat itu maka semakin banyak pula sumber kegelapan di hati albert tumbuh.
+
+dan saat itulah iblis ini mengambil keuntungan darinya.
+
+"...tapi jangan khawatir, rank d. aku adalah pria yang akan menjadi pahlawan. walaupun aku melakukan kontrak dengan iblis kontrak, aku tidak akan melakukan hal jahat."
+
+g"kamu mengatakan itu setelah banyak insiden terjadi? sudah banyak korban."
+
+"sebuah pengorbanan diperlukan. harapanku untuk zoltan ini bersatu dan ikut bertarung melawan pasukan raja iblis jadi aku butuh kota dengan kekuatan bertarung dan semangat yang kuat untuk itu. pengorbanan diperlukan untuk melakukan revolusi."
+
+g"melawan pasukan raja iblis?"
+
+"setelah mendengarkan ini red, kamu harusnya mengerti kalau kami dan kamu bukanlah orang jahat."
+
+iblis kontrak lanjut berbicara.
+
+"pertama-tama, pasukan raja iblis yang sekarang berbeda dengan raja iblis sebelumnya yang paling sering menyerang benua avalon ini...kami menyebutnya benua yang mempesona...beberapa kali. karena raja iblis ini banyak menaklukkan bangsa-bangsa, semuanya patuh padanya. bangsa ibis yang tidak ditaklukkan dan bangsa dwarf yang masih mempertahankan kekuatannya berkolusi untuk membentuk pasukan bertahan dan ingin bertarung dengna pasukan raja iblis...tapi situasinya tidak tampak bagus."
+
+g"terus?"
+
+"aku disini untuk mengabulkan permintaan setengah orc ini tapi pada saat yang sama, aku juga mau zoltan yang berada di barisan belakang aktif melawan pasukan raja iblis juga."
+
+apa-apaan itu? percakapan telah mengarah ke arah yang luar biasa.
+
+"permintaan albert adalah menjadi pahlawan yang mengalahkan raja ibls dengan pahlawan lainnya. kompensasi dari kontrak itu bukan jiwanya tapi umurnya sampai dia mengalahkan raja iblis jadi aku akan mendukung dia sampai pertarungan dengan raja iblis. bagaimana menurutmu? apakah kamu pikir itu dapat disebut kontrak dengan maksud jahat?"
+
+g"apakah itu benar, albert?"
+
+"yeah, itu benar."
+
+albert menjawab sambil menatapku.
+
+matanya dipenuhi ambisi yang membara.
+
+"dengan kekuatan yang aku dapatkan dari iblis ini, sekarang aku mempunyai pedang magic vorpal blade yang dapat membutuh monster apapun! sebagai tambahan, perlindungan ilahi iblis dapat memberikan kemampuan bertarung bahkan untuk mereka yang memiliki perlindungan ilahi sampah! aku akan mengontrol zoltan dan menjadi jendral. kemudian, aku akan mengubah zoltan ini menjadi negara militer dan ikut bertarung bersama pahlawan!"
+
+albert berteriak.
+
+pada saat itu, albert pasi melihat dirinya sebagai orang yang menghadapi pasukan raja iblis yang bersebelahan dengan pahlawan ruti, seniman bela diri danan, dan pasukan-pasukan yang mengacungkan tombaknya yang merespon teriakannya.
+
+"akulah sang juara albert! pada momen ini, aku bukan petualang albert yang hanya dapat bersinar di kota pinggiran, tapi seseorang yang cocok dengan perlindungan ilahi pahlawan! aku akan menjadi pahlawan yang melawan raja iblis! aku akan mengubah diriku menjadi diriku yang sebenarnya!"
+
+aku, yang menjauh dari tim pahlawan, dan albert, yang ingin berada di tim pahlawan.
+
+kami berdua adalah orang buangan karena kemampuan bertarung kami tapi kamu benar-benar berbeda dalam aspek kami satu sama lainnya.
