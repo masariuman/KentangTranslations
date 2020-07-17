@@ -80,3 +80,6 @@ ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas. ana
 
 "......kamu masih mengingat itu?"(aya)
 
+karena terkejut, aya menutup mukanya karena malu.
+
+dulu ketika dalam perjalanan kami, mereka selalu bertengkar di penginapan dan berakhir dengan pertarungan magic didalam ruangan. aku tidak ingat alasan mereka bertengkar tapi aku masih ingat betapa merepotkan untuk mengurus apa yang terjadi setelahnya. kami harus membayar itu dengan sangat mahal hanya untuk memperbaiki yang dihancurkan.
