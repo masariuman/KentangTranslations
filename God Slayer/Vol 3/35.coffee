@@ -51,3 +51,18 @@ apakah itu aya atau utano-san yang tertawa seperti itu? mood anastasia speertiny
 "anastasia, kamu benar-benar akrab dengan yamada-kun..."(utano)
 
 "tentu saja. tapi jangan khawatir, aku tidak mencambuk orang sakit jadi aku tidak akan melakukan hal seperti itu."
+
+"tunggu dulu, kalau aku tidak terluka, kau akan mencambukku !?"(renji)
+
+"atau~~~~ aku akan mengantungmu di jendela~~"
+
+itu sama saja menakutkan! sangat tidak manusiawi! aku akan mati lho....
+
+"abaikan hal itu, Utano-san.."(renji)
+
+"Hoh??? 'abaikan hal itu'...???"(ana)
+
+"utano-san, bawa ini bersamamu, dia benar-benar mulai menakutiku."(renji)
+
+"tenang saja. aku tidak menakutkan, aku tidak menakutkan sama sekali."
+
