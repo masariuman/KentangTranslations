@@ -83,3 +83,11 @@ ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas. ana
 karena terkejut, aya menutup mukanya karena malu.
 
 dulu ketika dalam perjalanan kami, mereka selalu bertengkar di penginapan dan berakhir dengan pertarungan magic didalam ruangan. aku tidak ingat alasan mereka bertengkar tapi aku masih ingat betapa merepotkan untuk mengurus apa yang terjadi setelahnya. kami harus membayar itu dengan sangat mahal hanya untuk memperbaiki yang dihancurkan.
+
+tapi itu sagat mudah waitu itu. negara akan membayar untuk semua tindakan kami. yaaah, aku dan utano-san hanya perlu menunduk dan meminta maaf kepada komandan ksatria o'brien yang juka ikut berkelana bersama kami dengan ksatria order. yah mau gimana lagi. itu semua salah kami. yaaah, lebih tepatnya salah aya dan koutarou.
+
+"sungguh nostalgia. dan juga... kamu sepertinya mengingat semuanya kalau tentang aya eh yamada-kun?"(utano)
+
+"Yuuko-san!"(aya)
+
+""
