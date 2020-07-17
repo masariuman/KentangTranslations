@@ -72,4 +72,4 @@ caramu berbicara seakan-akan inging membujuk binatan peliharaan membuat itu sema
 
 "eh, darimananya ???"(renji)
 
-ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas.
+ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas. anastasia hanya diam saja dan menarik telingaku. itu tidak terasa sakit tapi agak geli jadi kumohon, berhentilah.
