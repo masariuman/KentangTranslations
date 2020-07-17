@@ -76,3 +76,7 @@ ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas. ana
 
 "jangan berkelahi dan menghancurkan ruangan oke?"(aya)
 
+"tidak perlu khawatir. kami tidak perlu meniru kamu dan koutarou."(renji)
+
+"......kamu masih mengingat itu?"(aya)
+
