@@ -66,3 +66,10 @@ itu sama saja menakutkan! sangat tidak manusiawi! aku akan mati lho....
 
 "tenang saja. aku tidak menakutkan, aku tidak menakutkan sama sekali."
 
+caramu berbicara seakan-akan inging membujuk binatan peliharaan membuat itu semakin menakutkan!
+
+"kalian berdua benar-benar akrab."(utano)
+
+"eh, darimananya ???"(renji)
+
+ketika aku bertanya seperti itu, utano-san tersenyum dan aya menghela nafas.
