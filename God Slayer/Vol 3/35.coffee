@@ -90,4 +90,22 @@ tapi itu sagat mudah waitu itu. negara akan membayar untuk semua tindakan kami. 
 
 "Yuuko-san!"(aya)
 
-""
+"tidak perlu bereaksi seperti itu. jangan menjatuhkan piring yang kamu bawa, oke ?"(utano)
+
+"hm?"
+
+"datang ke kamarku nanti malam, aku akan menunggumu."
+
+dia pergi sambil berbicara seperti itu. aya terlihat terkejut, atau lebih tepatnya, mukanya memerah kuat. yaaah, karena itu utano-san, dia pasti ingin berbicara tentang sesuati, dia pasti hanya ingin berbicara apa yang akan kami lakukan berikutnya. ada juga masalah tentang jantung dewa iblis juga. aku tidak terlalu tertarik tentang ini. ekpetasiku sudah berkali-kali dihancurkan olehkan seperti ini. walaupun aku akan mempelajari sesuati setiap kegagalan yang kudapatkan.
+
+tapi dalam kasus aya, aku tidak tahu apa yang dia bayangkan... aku akan mengerjainya tentang ini nanti.
+
+"apa yang dia maksud ?"(ana)
+
+"yaaah, pembicaraan orang dewasa, kamu tidak perlu khawatir tentang itu."(renji)
+
+"...."
+.
+.
+.
+.
