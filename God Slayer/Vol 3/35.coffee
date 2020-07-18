@@ -164,3 +164,5 @@ walaupun aku tidak akan lari dari mereka sekarang..... mungkin. aku agak khawati
 
 yaaah, karena aku tidak punya tujuan mau pergi kemana, aku memutar dan pergi kearah tempat latihan. 3 tahun lalu, walaupun tidak begitu lama, tapi aku tinggal disini. aku ingat kemana arahnya. berbelok kekanan, aku turn melalui tangga dimana aku menemukan beberapa penjaga sedang berjaga. aku akhirnya bertemu orang didalam istana tapi ketika aku menyapa mereka, mereka hanya melakukan sikap hormat. mereka dididik dengan baik. aku tiba-tiba mengagumi mereka. walaupun itu lebih baik jika mereka membalas sapaanku tadi. aku hanya seorang petualang sekarang.
 
+aku mungkin dipanggil didunia ini sebagai pahlawan dulunya tapi alasan mengapa aku dipanggil sudah selesai. untuk seseorang sepertku yang hanya bertarung dengan kekuatan petuhnya kepada dewa iblis, aku tidak berfikir aku memiliki nilai yang tinggi lagi. tapi, tatapan para penjaga yang kulewati menatap seperti mereka melihat sesuatu yang suci, dipenuhi dengan semnagat dan gairah. di duniaku, aku tidak akan mendapatkan hal seperti ini dan aku akan berakhir kebingungan bagaimana aku harus menyikapinya.
+
