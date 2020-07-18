@@ -312,3 +312,31 @@ ketika aku melihat kesekitar, pandanganku bertemu dengan beberapa tentara algi. 
 
 ketika menyapa mereka dengan menunduk sedikit, aku berjalan kearah naga yang tertidur itu---kearah fafnir. disekitar mulai sedikit ribut tapi aku tidak peduli.
 
+sadar akan keberadaanku, naga itu sedikit bergerak.
+
+"lama tidak berjumpa, bodoh."
+
+"woow, itu menyakitkan."(renji)
+
+wajahku menciut dengan ucapatnnya. yaah benar juga, nyatanya aku memang bodoh. seseorang yang bodoh yang memilih ermenhilde daripada dunia, daripada temanku. tapi tetap saja, itu bukanlah caramu untuk memulai percakapan.
+
+naga itu membuka matanya dan mata emasnya melihat tajam kearahku. tubuhnya lebih dari 30 meter, bahkan kepalanya lebih besar daripada aku. kepalanyha tiba-tiba mendekatiku dan nafasnya membuat rambutku bergerak. tekanan itu saja sudah membuat tubuhku membeku.
+
+"kau telah berubah."
+
+"Hm?"
+
+aku mundur sedikit. aku mungkin tidak menghabiskan banyak waktu dengannya sebagai teman tapi aku tau kepribadiannya. dia tidak begitu marah, tidak juga senang. pada dasarnya, dia tidak peduli apapun yang dilakukan oleh seorang manusia. alasanku bergerak mundur karena kepalanya begitu dekat kepadaku dan nafasnya begitu merepotkan. anastasia hampir terbang melayang karena itu. anastasia memeluk mukaku dengan kuat tapi itu membuatku merasa sesuatu yang lembut jadi tolong hentikan.
+
+hanya satu kata bersuara keseluruh tubuhku seperti petir. inilah naga. keberadaan yang bisa dibilang terkuat di dunia ini. nafasnya saja dapat membakar tanah dan dapat menghancurkan atmosfer dengan sayapnya. cakarnya sangat tajam dari besi dan sekali tebas dari ekornya dapat membuat seekor ogre menjadi pasta daging. dia adalah keberadaan yang tidak normal bahkan bagiku pengguna cheat. inilah fafnir. raja naga terkuat.
+
+ngomong-ngomong, alasan dia menjadi teman kami---berkotnrak dengan yui-chan sangat konyol.
+
+tombak tertancap ke kakinya dan dia tidak dapat melepaskannya sendiri. dia pun mengamuk karena sakit itu, kami mengalahkannya dan yui-chan yang mengetahui alasan dibalik amukannya melepaskan tombaknya dan menyelamatkannya. benar benar alasan yang konyol.
+
+yaah, walaupun alasannya begitu konyol, kami hampir mati menghadapi amukan fafnir. aku masih memiliki sedikit trauma dari hal itu. souichi, masaki-chan, aya, kuuki; semuanya bertarung dengannya dan hanya bisa membuat naga itu jatuh ke tanah.
+
+"kamu kehilangan ambisimu. kamu menjadi pengecut, pembunuh dewa."(faf)
+
+"yaah mau bagaimana lagi. aku melakukan sesuatu yang sangat hebat seperti emmbunuh dewa walaupun aku hanya seorang manusia. normal saja aku kehilangan energe setelah itu."
+
