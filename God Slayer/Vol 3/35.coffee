@@ -483,3 +483,9 @@ terlepas dari pandagan mata emas, aku menghela nafas. untuk beberapa alasan, ana
 "aku akan mencoba melakukannya."
 
 aku mengangkat bahuku. tapi fafnir tidak melihatku.
+
+
+
+--------------------------
+
+TN : setelah menerjemahkan dan membaca ini saya berfikir, apa mungkin eru itu cewe yang mati dulu terus di reinkarnasi sebagai ermenhilde ? tapi kan ermenhilder udah didapat ketika renji ke dunia ini ? berarti kemungkinan ermenhilde sebelumnya tidak bersuara dan setelah kematian eru, renji mungkin meminta dewi atau dewinya sendiri mungkin yang memasukkan arwah eru ke dalam senjata renji yaitu ermenhilde. bisa saja setelah mereka mengalah dewa iblis, mereka diberikan 1 permintaan yang akan dikabulkan oleh dewi. dan renji meminta itu. saya berfikir seperti ini juga ada kaitannya dengan ketika renji bilang dia lebih memilih ermenhilde daripada dunia dan teman-temannya. berarti permintaan itu renji hanya minta hidupkan kembali eru atau sejenisnya, yang harusnya dia meminta untuk ketenangan dunia atau diskusi sama teman-temannya dulu. yah itulah pemikiran saya, bagaimana dengan pemikiran kalian setelah membaca sejauh ini ? silahkan komentar yak :D :D
