@@ -432,5 +432,54 @@ ayo kita cari kuuki sekarang. aku berbalik dari arah fafnir dan mulai berjalan.
 
 aku tidak ingin bertemu komandan O'brien walaupun tidak sengaja. pria itu berfikir dengan OTOTnya jadi jika dia menemukan aku yang lari ke desa, itu akan berakhir dengan pembicaraan secara fisik. karen itulah aku ingin menghindarinya. aku masih dalam pemulihan. aku akan menghindarinya walaupun aku tidak dapat menghindarinya.
 
-"renji."'
+"renji."
 
+ketika aku memikirkan itu, raja naga memanggilku. dia memanggilku dengan namaku, seperti dulu. aku senang karena tidak dipanggil dengan gelar memalukan itu, aku pun membalik badanku dan melihat mata emas yang melihat tajam kearahku lagi.
+
+"apa yang kamu lakukan, dala setahuin ini?"(faf)
+
+"berkelana.....dengan ermenhilde?"
+
+itu tidak dapat dipungkiri bahwa jawabanku seperti sebuah pertanyaan. aku hanya bermalas-malasan di desa juga.
+
+"bukan."(faf)
+
+tapi, sepertinya dia tidak puas dengan jawabanku. raja naga melihatku dengan mata tajamnya. suaranya yang tajam mengenaiku. dan mata tajamnya melihat kedalam diriku. hanya karena itu, tubuhku menjadi tegang.
+
+yeah pastinya, dia adalah keberadaan yang melampaui manusia. kelemahanku, sakit, luka, bahkan tanpa memikirkan semua itu, dia tetap melebihiku.
+
+"kenapa, kamu terlalu terobsesi kepada ermenhilde?"(faf)
+
+"karena dia partnerku. dan, aku berjanji padanya....ketika kami sudah mendapatkan kedamaian didunia ini, kami akan melihat dunia bersama."
+
+itu benar. aku berjanji padanya. janji ku yang berharga--sangat berharga seharga nyawaku.....
+
+"bukan itu, yamada renji."
+
+anastasia berdiri di bahuku dan menarik bajuku. dia sepertinya mengatakan sesuatu tapi aku tidak dapat mendengarnya.
+
+aku tidak dapat bergerak dari mata fafnir. daripada mengatakan aku tidak dapat menggerakkan mataku, rasanya sama saja aku akan kalah ketika aku memalingkan mataku.
+
+"janji itu dibuat dengan Eru, bukan ermenhilde."(faf)
+
+"yeah, itu benar. karena itulah aku berusaha memenuhi janjinya."
+
+ketika aku mengatakan itu--
+
+"begitu..."(faf)
+
+hanya mengatakan itu, dia menutup kembali matanya.
+
+terlepas dari pandagan mata emas, aku menghela nafas. untuk beberapa alasan, anastasia menghela nafas juga. normalnya, mereka akan berbicara santai tapi seperti yang kukira, levelnya berbeda diantara seekor naga dan peri. bahkan aku hanya bisa berbisik pada diriku sendiri kalau dia benar-benar naga yang akan serius bahkan pada temannya.
+
+"ayo pergi. selanjutnya kita akan mencari kuuki."(renji)
+
+"ye-yeah. ayo kita cari dia. karena yui sedang mencari kita juga, kita akan menemuinya juga nanti."(ana)
+
+"baiklah kalau begitu, sampai jumpa lagi, fafnir."(renji)
+
+"ya, lain kali, aku ingin bertemu dengan dirimu yang bukan pengecut, renji."(faf)
+
+"aku akan mencoba melakukannya."
+
+aku mengangkat bahuku. tapi fafnir tidak melihatku.
