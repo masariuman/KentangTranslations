@@ -137,3 +137,23 @@ walaupun aku terbaring di tempat tidur sampai sekarang, aku bisa berjalan hanya 
 "kamu tidak seharusnya berbicara seperti itu lho..."
 
 yaaah, itu benar, anastasia benar-benar wanita yang cantik. dengan rambut hijaunya yang ikal dan sayap dibelakangnya. seorang peri, yang hanya ada di dalam dongeng dan lagenda di dunia kami, ada disini seperti sudah biasa saja. dan untuk berbagai alasan juga duduk di bahuku. dia hanya setinggi 15 cm tapi kecantikannya sungguh luar biasa. wanita lain disekitarku-- seperti aya atau utano-san juga cantik tapi kecantikan anastasia hampir tidak nyata. tubuhnya memiliki kurva dan ditutupi dengan kain tipis baju putih, bisa dibilang dia racun untuk mata pria, bahkan di ukurannya. walaupun seperti ini, dia imut seperti boneka. yaaah, dia adalah peri. seperti yang kukira, aku tidak akan memiliki pikiran aneh kepada peri dengan ukuran seperti boneka. aku tidak akan berfikir terlalu jauh, tidak juga begitu bernafsu. faktanya, jika aku berakhir berfikir untuk si pendek ini seperti itu, aku pikir aku akan kalah. dan entah bagaimana, anastasia juga mengerti pikiranku jadi dia kadang mengerjaiku dengan sikapnya. dulu, koutarou dan yang lainnya bersemangat tentang di panggil ke dunia lain dan berkata "ini adalah dunia fantasy!" ketika mereka bertemu dia tapi sepertinya dimata anastasia, reaksi itu tidak menarik. walaupun menurutku orang seperti mereka akan lebih menyenangkan dikerjai seperti ini. tapi untuk berbagai alasan, dia memutuskan kalau akulah yang menjadi orang yang hanya dikerjainya. aku tidak mengerti dasar dibalik semua ini.
+
+dia juga terlibat banyak pertengkaran dengan ermenhilde juga. aku rasa ya seperti itulah, seperti 'semakin banyak mereka bertengkar, semakin dekatlah mereka'.
+
+"jika saja sifatmu tidak seperti itu..."(renji)
+
+"oh? apa maksudmu?"
+
+"entahlah..."
+
+mengapa aku masih tidak melihat satu orangpun padahal ini sangat cerah diluar sana? rasanya seperti kami saja yang ada didalam istana.
+
+"kemana kamu pergi?"(ana)
+
+"kemanapun."
+
+aku pergi karena aku bosan didalam ruanganku. aku tidak memiliki tujuan ketika aku pergi.
+
+dan untuk beberapa alasan, anastasia, aya dan utano-san, tidak ada satupun dari mereka memberi tahu dimana ermenhilde.
+
+walaupun aku tidak akan lari dari mereka sekarang..... mungkin. aku agak khawatir dengan feirona dan yang lainnya juga. aku ingin pergi menemui mereka.
