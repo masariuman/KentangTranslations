@@ -212,3 +212,7 @@ ketika aku membiarkan mereka lewat duluan, mereka melihatku kebingungan.
 
 yaah, kurasa mereka pun pasti begitu. aku berpakaian tidak lebih dari jubah bagus dan celana panjang. itu bukanlah cara orang berpakaian dengan normal ketika didalam istana. penjaga mungkin mengingatku karena aku sering ke tempat pelatihan 3 tahun lalu tapi aku ragu untuk bangsawan akan mengingatku. aku juga tidak pernah kembali setelah membunuh dewa iblis. jadi aku tidak pernah memiliki kesempatan untuk bertemu bangsawan itu secara langsung seperti temanku yang lain. aku benci sesuatu seperti pesta jadi walaupun aku berada dalam hal itu aku hanya berdiri di dekat dinding saja. ada beberapa sedikit bangsawan yang mengingatku.
 
+mereka merasa makin aneh karena manusia sepertiku bersama ratu peri anastasia, yang dikontrak oleh pahlawan hiyuu yui, di bahuku. mereka pasti berfikir itu salah satu keanehan tingkah anastasia karena mereka tidak menanyakanku apapun.
+
+"normalnya, mereka harusnya yang membiarkanmu lewat terlebih dahulu lho..."(ana)
+
