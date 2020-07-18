@@ -424,3 +424,13 @@ langsung dijawab. cobalah untuk menjawab dengan panjang.....kalau percakapan dip
 
 "bisakah kamu berhenti menarik rambutku dengan diam. tolonglah.."
 
+bagaimana kalau aku jadi botak? si bodoh ini.
+
+tapi tetap saja, dimana mereka menyimpan ermenghilde? dia tidak dapat digunakan oleh mereka. dan juga dia banyak bicara.
+
+ayo kita cari kuuki sekarang. aku berbalik dari arah fafnir dan mulai berjalan.
+
+aku tidak ingin bertemu komandan O'brien walaupun tidak sengaja. pria itu berfikir dengan OTOTnya jadi jika dia menemukan aku yang lari ke desa, itu akan berakhir dengan pembicaraan secara fisik. karen itulah aku ingin menghindarinya. aku masih dalam pemulihan. aku akan menghindarinya walaupun aku tidak dapat menghindarinya.
+
+"renji."'
+
