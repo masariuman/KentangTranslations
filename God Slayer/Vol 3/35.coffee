@@ -304,3 +304,11 @@ untuk beberapa alasan, hatiku mulai berdetak keras. aku agak sedikit bersemangat
 
 anastasia mengatakan sesuatu dengan suara kecilnya tapi aku mengabaikan itu dan mansuk ke tempat latihan dan para tatapan para tentara mengarah kepadaku. itu sangat nostalgia juga. aku juga melihat beberapa muka yang kukenal.
 
+lantai yang berbentuk persegi sangat besar; walaupun ada beberapa ratus tentara yang berlatih pada saat yang sama, masih ada beberapa tempat yabng kosong.
+
+sekarang, ditengah-tengah terdapat naga merah tua yang sedang beristirahat melingkar. sinar matahari pasti terasa enak karena naga itu tidak bergerak dan terlihat seperti tertidur. tapi aku ragu kalau naga itu tertidur. naga itu sangat sensitif dengan keberadaan orang. tapi entah mengapa naga itu tetap diam dan menutup matanya walau aku masuk ke tempat ini.
+
+ketika aku melihat kesekitar, pandanganku bertemu dengan beberapa tentara algi. kali ini, mereka melambaikan tangan mereka kepadaku dengan senyum. bagiku, reaksi itu lebih baik daripada pandangan kagum yang kudapat.
+
+ketika menyapa mereka dengan menunduk sedikit, aku berjalan kearah naga yang tertidur itu---kearah fafnir. disekitar mulai sedikit ribut tapi aku tidak peduli.
+
