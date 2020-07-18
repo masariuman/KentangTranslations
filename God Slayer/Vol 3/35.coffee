@@ -188,3 +188,27 @@ ketika aku berkata seperti itu, anastasia agak terkejut.
 
 bagi mereka, aku mungkin adalah seorang pahlawan yang menyelamatkan dunia. tapi aku memilih ermenhilde daripada dunia. daripada mendukung dunia, aku memilih untuk mendukung partnerku. aku tidak memiliki keputusan sebagai seorang pahlawan, dan jangan lupa aku juga memiliki masalah lain yaitu aku harus membuat orang lain dalam bahaya hanya untuk bertarung dengan benar. tidak mungkin kamu dapat memanggil orang seperti itu adalah seorang pahlawan. itulah mengapa---tatapan itu, dari penjaga itu, yang tidak kuketahui namanya, terasa berat.
 
+"ini adalah istana manusia dan kamu adalah pahlawan dari para manusia itu. bersikaplah lebih percaya diri...kamu tidak keren sekarang."(ana)
+
+"aku merasa aku tidak akan pernah bisa bersikap keren..."
+
+aku tidak hiduh pada kehidupan yang bisa disebut 'keren'. aku  hanya putus asa. dan beruntung dapat bertahan sampai saat itu, itu saja.
+
+anastasia sepertinya mengerti itu sambil dia tersenyum dan mencolek pipiku. jari kecilnya terasa sedikit mengelitik dan aku mengkerutkan mukaku karena itu. reaksiku pasti lucu karena anastasia mulai tertawa di suara kecilnya.
+
+"yaaah, menurutku benar juga."(ana)
+
+"bukankah kamu seharusnya menyangkalku ?"(renji)
+
+"kamu ingin aku menyangkalmu walaupun kamu sendiri yang mengatakan itu duluan?"
+
+"yeah."
+
+"aku benar-benar tidak mengerti kamu."
+
+ketika kami berbicara, beberapa bangsawan muncul dan lewat didepan kami.
+
+ketika aku membiarkan mereka lewat duluan, mereka melihatku kebingungan.
+
+yaah, kurasa mereka pun pasti begitu. aku berpakaian tidak lebih dari jubah bagus dan celana panjang. itu bukanlah cara orang berpakaian dengan normal ketika didalam istana. penjaga mungkin mengingatku karena aku sering ke tempat pelatihan 3 tahun lalu tapi aku ragu untuk bangsawan akan mengingatku. aku juga tidak pernah kembali setelah membunuh dewa iblis. jadi aku tidak pernah memiliki kesempatan untuk bertemu bangsawan itu secara langsung seperti temanku yang lain. aku benci sesuatu seperti pesta jadi walaupun aku berada dalam hal itu aku hanya berdiri di dekat dinding saja. ada beberapa sedikit bangsawan yang mengingatku.
+
