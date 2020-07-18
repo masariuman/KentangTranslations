@@ -157,3 +157,10 @@ aku pergi karena aku bosan didalam ruanganku. aku tidak memiliki tujuan ketika a
 dan untuk beberapa alasan, anastasia, aya dan utano-san, tidak ada satupun dari mereka memberi tahu dimana ermenhilde.
 
 walaupun aku tidak akan lari dari mereka sekarang..... mungkin. aku agak khawatir dengan feirona dan yang lainnya juga. aku ingin pergi menemui mereka.
+
+"Haaah..... kalau begitu mungkin kita akan pergi ke tempat latihan? yui dan yang lainnya mungkin disana."(ana)
+
+"begitu..."
+
+yaaah, karena aku tidak punya tujuan mau pergi kemana, aku memutar dan pergi kearah tempat latihan. 3 tahun lalu, walaupun tidak begitu lama, tapi aku tinggal disini. aku ingat kemana arahnya. berbelok kekanan, aku turn melalui tangga dimana aku menemukan beberapa penjaga sedang berjaga. aku akhirnya bertemu orang didalam istana tapi ketika aku menyapa mereka, mereka hanya melakukan sikap hormat. mereka dididik dengan baik. aku tiba-tiba mengagumi mereka. walaupun itu lebih baik jika mereka membalas sapaanku tadi. aku hanya seorang petualang sekarang.
+
