@@ -178,3 +178,13 @@ apa yang bernilai untuk manusia seperti itu. tanpa itu, aku tidak lebih dari seo
 
 ....dan jujur, aku tidak masalah dengan itu apakah ermenhilde juga berfikir seperti itu? apakah dia akan tetap memintaku untuk menganggapnya sebagai senjata? atau....aku ingin ermenhilde menemukan jalan dimana dia bukanlah sebuah senjata lagi. karena itu aku ingin menunjukkan dunia kepada ermenhilde untuk membuka pilihannya. --aku inin menemukan jalan itu bersama. itulah alasan perjalananku. walaupun aku pikir itu adalah tujuan yang kurang dewasa. yaah, aku pikir utano-san mungkin sudah sadar akan hal itu. intuisinya sangat tajam.
 
+"apa yang terjadi, menghela nafas seperti itu. ada masalah?"(ana)
+
+"hanya merasa sedikit malu..."
+
+"haah?"
+
+ketika aku berkata seperti itu, anastasia agak terkejut.
+
+bagi mereka, aku mungkin adalah seorang pahlawan yang menyelamatkan dunia. tapi aku memilih ermenhilde daripada dunia. daripada mendukung dunia, aku memilih untuk mendukung partnerku. aku tidak memiliki keputusan sebagai seorang pahlawan, dan jangan lupa aku juga memiliki masalah lain yaitu aku harus membuat orang lain dalam bahaya hanya untuk bertarung dengan benar. tidak mungkin kamu dapat memanggil orang seperti itu adalah seorang pahlawan. itulah mengapa---tatapan itu, dari penjaga itu, yang tidak kuketahui namanya, terasa berat.
+
