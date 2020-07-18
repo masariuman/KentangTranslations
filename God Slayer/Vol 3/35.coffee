@@ -257,3 +257,33 @@ sekali lagi, aku melewati beberapa tentara. kali ini, mereka lewat dan menunduk 
 "oh, itu bagus. dulu dia selalu bersembunyi dibelakangkku atau belakang kuuki."
 
 "haaaa~ master kami benar-benar orang pemalu."
+
+aku menganggap itu sebagai sisi bagusnya. sebagai seorang pria, kamu akan ingin melindunginya apapun caranya ketika dia bersikap seperti itu. bagaimana aku mengatakannya,, dia seperti binatang kecil. seperti itulah yui-chan. suara kecilnya, bahkan tingginya--yaaah dia yang paling muda diantara kami.
+
+ketika aku sedang mengingat masa lalu, anastasia kali ini mencubit pipiku. tetap tidak terasa sakit juga.
+
+"seperti yang kubilang, jangan memikirkan wanita lain ketika kamu sedang bersama orang secantik diriku."
+
+"wanita lain katamu.... dia mastermu lho..."
+
+"TETAP SAJA! kamu benar-benar tidak mengerti hati seorang wanita, Renji."
+
+"yaah, aku kan seorang pria."
+
+"disitulah kamu salah. walaupun kamu tidak mengerti, cobalah untuk memperhatikan dan mengkhawatirkan seorang wanita dan itu akan membuatmu menjadi pria baik, renji."
+
+itu benar-benar terdengar susah. aku pun mengangkat bahuku, pipiku dicubit lagi. jika aku memperlakukan dia seperti seorang wanita, aku hanya akan dikerjai olehnya jadi aku tidak akan melakukannya....kupikir aku  sedikit kasar.
+
+sepertinya dia juga mengerti pikiranku karena dia tidak begitu marah. dia tersenyum. bagaimana hati seorang wanita bekerja? aku benar-benar tidak akan mengerti itu sampai akhir hidupku.
+
+"begitukah cara kerjanya?"(renji)
+
+"begitulah."
+
+sudah berapa banyak aku melewati percakapan seperti ini? walaupun partnerku berubah dari utano-san, aya dan sekarang anastasia. pada dasarnya, aku diberitahu untuk mengerti hati wanita. walaupun aku sudah berusaha menjadi lebih baik.
+
+hanya ada 1 orang saja yang memberitahu kalau itu tidak begitu penting untuk mengerti hati wanitanya. ketika aku berfikir begitu, aku mengangkat kepalaku. pada saat yang sama, kepalaku di pukul oleh anastasia lagi.
+
+"maaf."(renji)
+
+"karen"
