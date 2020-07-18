@@ -344,3 +344,35 @@ aku bahkan ragu aku pernah memiliki sesuatu seperti ambisi pada diriku.
 
 "kamu membunuh dewa itu dengan kebencian murni. tidak, mungkin karena itulah kamu menjadi pengecut sekarang."(faf)
 
+"...pengecut, pengecut. kamu benar-benar tidak bisa menahan diri eh ?"
+
+"tapi benar. kamu benar-benar berbeda dengan dirimu setahun lalu."(ana)
+
+"kamu berubah dari pria yang dicintai serangga kecil ini."(faf)
+
+"siapa yang kamu panggil serangga???!!!?"(ana)
+
+tunggu, kamu marah karena itu ?
+
+"eh, apa?? apakah kamu menyukaiku?"(renji)
+
+"jangan sombong, dasar kamu sibodoh yang tidak kompeten!!"(ana)
+
+"wow, itu benar-benar menyakitkan."(renji)
+
+walaupun fafnir yang mengatakan itu, kenapa aku yang dimarahi? dan juga, dia lebih marah daripada ketika aku bergurau tentang tingginya.
+
+"hanya ketika aku berfikir agak sedikit tenang, semua ini menjadi berisik lagi."
+
+ketika aku mengatakan itu, fafnir menutup matanya lagi. dia meletakkan lehernya kembali kelantai dan itu terasa seperti lantainya sedikit bergetar. itulah tekanan yang diberikan oleh seekor naga. hanya gerakan kecil membuatku gugup. apakah ini watak dari seorang raja? sudah kuduga dari sebuah keberadaan yang bahkan dianggap tinggi oleh raja iblis, yang menguasai semua monster.
+
+"yui mengkhawatirkanmu. jangan membuat dia lebih khawatir lagi, PembunuhDewa. dia cengen...ketika dia menangis, dia sangat merepotkan daripada serangga ini."(faf)
+
+"aku benar-benar tidak ingin bermaksud seperti itu."(renji)
+
+aku benar-benar tidak suka membuat wanita menangis. ketika aku mengatakan itu, aku merasa tekanan dari naga didepanku sedikit berkurang. dia berkata kasar tapi khawatir tentang yui-chan. aku dapat merasakan koneksi diantara mereka tidak hanya penjinak monster dan naga tapi lebih dari itu. bahkan anastasia, yang berisik, menjadi diam ketika nama yui-chan disebutkan. aku merasakan adanya seperti....ikatan dan emosi pada fafnir. ketika pipiku melebar karena tersenyum, fafnir membuka matanya lagi.
+
+"ada apa?"(faf)
+
+"kamu sudah berubah."(renji)
+
