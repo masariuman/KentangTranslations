@@ -286,4 +286,21 @@ hanya ada 1 orang saja yang memberitahu kalau itu tidak begitu penting untuk men
 
 "maaf."(renji)
 
-"karen"
+"karena kamu meminta maaf, aku akan memaafkanmu kali ini."(ana)
+
+"terima kasih."
+
+"berbahagialah, oke?"
+
+"oh aku sangat senang sekali, anastasia-sama."
+
+ketika berbicara dengan bergurau, dia memukul kepalaku lagi. setelah berjalan beberapa saat, aku akhirnya sampai di tempat latihan. terdapat pedang besi, tombak, kapak, dan perisai di dinding. aku merasa tenang melihat pemandangan yang nostalgia ini.
+
+disinilah tempatnya. tempat dimana aku memulai semuanya. tempat dimana aku, memiliki cheat yang lemah, pertama kali mendapatkan kekuatan untuk bertarung. tempat dimana aku belajar menggunakan senjata.
+
+untuk beberapa alasan, hatiku mulai berdetak keras. aku agak sedikit bersemangat. aku sendiri tidak menyadari bahwa suara kakiku mulai nyaring ketika melewati pintu.
+
+"pada dasarnya dia adalah seorang pria."
+
+anastasia mengatakan sesuatu dengan suara kecilnya tapi aku mengabaikan itu dan mansuk ke tempat latihan dan para tatapan para tentara mengarah kepadaku. itu sangat nostalgia juga. aku juga melihat beberapa muka yang kukenal.
+
