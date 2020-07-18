@@ -376,3 +376,51 @@ aku benar-benar tidak suka membuat wanita menangis. ketika aku mengatakan itu, a
 
 "kamu sudah berubah."(renji)
 
+"--Mu."(faf)
+
+"dia menjadi tsundere. dia mencoba bersikap dingin dan tidak peduli tapi juga khawatir tentangmu renji."(ana)
+
+"kata tsundere itu tidak cocok jadi tolong berhentilah, anastasia."(renji)
+
+jangan mengatakan hal seperti 'tsundere' ketika berada di dunia fantasy. tolong pikirkanlah tentang mimpi dan harapanku juga.
+
+"apa arti dari akta itu? aku tidak mengerti kata itu tapi itu terasa tidak enak."(faf)
+
+"kalau kamu ingin komplain, komplainlah pada koutarou. aku juga berencara melakukannya."(renji)
+
+"dasar...bocah itu sungguh merepotkan. mengajarkan kata-kata aneh kepada wanita berisik ini."(faf)
+
+yui-chan, kuuki, dan knight. kemanakah mereka ?
+
+yaah, kuuki pasti sibuk dengan pekerjaannya.
+
+"dimana yui-chan?"(renji)
+
+"pergi mencarimu dan serangga itu. knight pergi dengannya."(faf)
+
+"huh, kami pun tidak bertemu mereka."(ana)
+
+"aku tidak peduli. kalian pasti kelewatan satu dan lainnya."(faf)
+
+yaaah, itu tidak baik. aku harusnya bermalas-malasan di ruanganku. yup, mari bermalas-malasan disekitar ruanganku ketika aku kembali.
+
+aku sudah bekerja terlalu keras juga akhir-akhir ini, aku harus relaks sedikit.
+
+"kesampingkan hal itu, fafnir..."(renji)
+
+"hm?"
+
+"tahu dimana ermenhilde?"
+
+"aku tidak tahu."
+
+langsung dijawab. cobalah untuk menjawab dengan panjang.....kalau percakapan dipotong seperti ini, aku tidak dapat tetap berbicara lho...
+
+"siapa juga yang peduli dengan perempuan medal itu?"(ana)
+
+"itu tidak baik, dia mudah kesepian lho..."(renji)
+
+"...."
+
+"bisakah kamu berhenti menarik rambutku dengan diam. tolonglah.."
+
