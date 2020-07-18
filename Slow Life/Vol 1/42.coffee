@@ -22,4 +22,15 @@ mereka mengepung mansion big hawk dengan seketika dan para penjaga menyusun diri
 
 mereka tidak berpakaian biasa pada saat patroli.
 
-mereka menggunakan armor berat yang disebut setengah-tertutup, dengan penutup dada yang menutupi badan atas mereka dan baju besi chainmail yang melindungi tangan dan kaki mereka
+mereka menggunakan armor berat yang disebut setengah-tertutup, dengan penutup dada yang menutupi badan atas mereka dan baju besi chainmail yang melindungi tangan dan kaki mereka, bersama dengan pedang dan panah di baju mereka.
+
+sebagai tambahan, mereka memiliki tombak yang tongkatnya sepanjang 2 meter, di tangannya.
+
+mereka adalah penjaga dengan perlengkapan yang lengkap yang hanya digunakan pada situasi darurat seperti perang atau kerusuhan.
+
+melawan penduduk marsh selatan yang tidak memiliki senjata apapun.
+
+ada beberapa yang memiliki pisau, tongkat pendek atau pedang pendek untuk perlindungan diri dan armir ringan biasa tapi fakta bahwa mereka kenal dengan perlengkapan membuat banyak dari mereka memiliki perbedaan dalam kemampuan bertarung mereka dibanding penjaga yang memakai perlengkapan penuh. mereka pun memiliki firasat kalau mereka pasti kalah.
+
+☆☆
+
