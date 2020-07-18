@@ -166,3 +166,15 @@ yaaah, karena aku tidak punya tujuan mau pergi kemana, aku memutar dan pergi kea
 
 aku mungkin dipanggil didunia ini sebagai pahlawan dulunya tapi alasan mengapa aku dipanggil sudah selesai. untuk seseorang sepertku yang hanya bertarung dengan kekuatan petuhnya kepada dewa iblis, aku tidak berfikir aku memiliki nilai yang tinggi lagi. tapi, tatapan para penjaga yang kulewati menatap seperti mereka melihat sesuatu yang suci, dipenuhi dengan semnagat dan gairah. di duniaku, aku tidak akan mendapatkan hal seperti ini dan aku akan berakhir kebingungan bagaimana aku harus menyikapinya.
 
+dia pasti merasakan sesuatu karena anastasia mulai mencolek pipiku ketika kami tidak dipandangan para penjaga lagi.
+
+"kenapa kamu tiba-tiba gugup?"(ana)
+
+"aku tidak benar-benar gugup kok."
+
+jika harus memilih, yang kurasakan lebih ke rasa bersalah daripada gugup. dalam perjalanan kami, aku hanya dipakai pada saat akhir. dan kekuatan itu juga menggunakan banyak pengorbanan. tapi dewa iblis tidak ada lagi. dan keturunannya dapat dikalahkan bahkan tanpa bantuanku. dan ketika semuanya hilang-----kekuatan cheatku akan menjadi sangat tidak berguna. sebuah senjata pembunuh dewa hanya berguna sampai ada dewa yang harus dibunuh.
+
+apa yang bernilai untuk manusia seperti itu. tanpa itu, aku tidak lebih dari seorang petualang dan ermenhilde tidak lebih dari medal yang dapat berbicara. yaaah, itu juga sangat langka juga.
+
+....dan jujur, aku tidak masalah dengan itu apakah ermenhilde juga berfikir seperti itu? apakah dia akan tetap memintaku untuk menganggapnya sebagai senjata? atau....aku ingin ermenhilde menemukan jalan dimana dia bukanlah sebuah senjata lagi. karena itu aku ingin menunjukkan dunia kepada ermenhilde untuk membuka pilihannya. --aku inin menemukan jalan itu bersama. itulah alasan perjalananku. walaupun aku pikir itu adalah tujuan yang kurang dewasa. yaah, aku pikir utano-san mungkin sudah sadar akan hal itu. intuisinya sangat tajam.
+
