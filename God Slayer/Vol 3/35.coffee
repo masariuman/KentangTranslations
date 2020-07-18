@@ -340,3 +340,7 @@ yaah, walaupun alasannya begitu konyol, kami hampir mati menghadapi amukan fafni
 
 "yaah mau bagaimana lagi. aku melakukan sesuatu yang sangat hebat seperti emmbunuh dewa walaupun aku hanya seorang manusia. normal saja aku kehilangan energe setelah itu."
 
+aku bahkan ragu aku pernah memiliki sesuatu seperti ambisi pada diriku.
+
+"kamu membunuh dewa itu dengan kebencian murni. tidak, mungkin karena itulah kamu menjadi pengecut sekarang."(faf)
+
