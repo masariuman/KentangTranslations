@@ -216,3 +216,44 @@ mereka merasa makin aneh karena manusia sepertiku bersama ratu peri anastasia, y
 
 "normalnya, mereka harusnya yang membiarkanmu lewat terlebih dahulu lho..."(ana)
 
+"tidak juga."
+
+aku tidak mengerti bagaimana administrasi atau lainnya bekerja, tapi aku tau kalau bangsawan itu yang mengurus negara. mereka lebih berguna daripada aku, yang hanya tapi mengayunkan pedangnya. sekarang dunia itu bebas dari dewa iblis.
+
+"kamu ini........ kenapa kamu selalu menganggap dirimu dibawah dari yang lain?"(ana)
+
+anastasia bertanya ketika aku berjalan ke arah tempat latihan. entah itu anastasia atau ermenhilde, mengapa mereka bertanya hal yang sama padaku? dibandingkan souichi atau lainnya, prestasi dan kekuatanku dibawah mereka.
+
+"itulah aku..."(renji)
+
+"itu bukan sebuah 'sifat' tapi penyakit... ubah itu, itu tidak keren."
+
+dia berkata seperti itu tidak dengan suaranya yang biasanya tapi agak sedikit serius dan benar-benar seperti ratu dari semua peri.
+
+"aku tak masalah dengan diriku sekarang. jujur aku bahkan melihat diriku yang sekarang sudah mendapatkan lebih dari yang harus aku dapatkna."(renji)
+
+"kamu mungkin mengatakan kesopanan adalah suatu kebajikan tapi dari sudut pandangku, terlalu sopan malah seperti budak. itu tidak enak dilihat. itu tidak cocok untukmu yamada renji."
+
+".....kamu mengatakan hal yang sama dengan ermenhilde."
+
+"tidak mungkin!!!"
+
+tekanannya yang seperti ratu tiba-tiba hilang. betapa rapuhnya karaktermu. akupun menghela nafas. 
+
+"kamu tidak berubah sama sekali."(renji)
+
+"renji, kamu menjadi semakin bejat. dulu, kamu sangat energik."(ana)
+
+"yaah, aku kehilangan tujuanku datang ke dunia ini. tentu saja aku menjadi malas."
+
+dewa iblis sudah diaklahkan. selama dewa iblis masih hidup, banyak nyawa melayang. kami tidak dapat memaafkan itu yang mana kami ingin membunuhnya dalam waktu 2 tahun. meletakkan nyawa kami di barisan depan, setelah membuat banyak pengorbanan, mendapatkan banyak kepercayaan, dan berdiri diatas ekpetasi seluruh dunia.
+
+sekali lagi, aku melewati beberapa tentara. kali ini, mereka lewat dan menunduk padaku....tolong berhentilah. aku benar-benar tidak suka di posisi seperti ini. anastasia menghela nafas karena sepertinya dia telah membaca pikiranku.
+
+"dunia akhirnya mulai damai, bukankah aku boleh hidup dengan santai?"(renji)
+
+"yaah, aku juga berfikri sama. kita berkelana ke semua tempat didunia dengan fafnir. yui menjadi mulai sedikit dapat berbicara dengan orang-orang dengan dirinya sendiri."
+
+"oh, itu bagus. dulu dia selalu bersembunyi dibelakangkku atau belakang kuuki."
+
+"haaaa~ master kami benar-benar orang pemalu."
