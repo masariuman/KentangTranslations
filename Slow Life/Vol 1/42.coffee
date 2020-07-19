@@ -98,3 +98,67 @@ dan kami bukanlah seorang pahlawan.
 
 ☆☆
 
+walaupun mereka mengerti kalau mereka tidak ada kesempata untuk menang, dengan rasa amarah terhadap para penjaga dan ditambah lagi adanya big hawk, penduduk marsh selatan ingin zontan tahu murkanya marsh selatan walaupun mereka kalah dan menunjukkan penolakan mereka sampai akhir hayat.
+
+pada kenyataannya, dorongan tersebut banyak dilakukan oleh anak buah big hawk yang tercampur dalam kerumunan jadi kebanyakan kerumunan massa ini mengambil senjata yang diberikan dari mansion big hawk dan memiliki ekpresi gugup.
+
+kapten penjaga moen memperhatikan keaadan mereka.
+
+"mereka memiliki jumlah yang lebih banyak dari kita tapi tidak memiliki senjata atau armor."
+
+kata moen.
+
+sambil ketakutan, massa dari aris depan memegang tombak panjang dan menatap padanya.
+
+mungkin karena barisan pertama, setengah dari mereka tidak menggunakan armor.
+
+"yaah kupikir itu wajar, mereka bukan tentara dan ini bukan perang juga."
+
+"....yeah."
+
+moen merespon dengan nada lelah setelah anak buahnya mengatakan itu. mereka bukan tentara, hanya warga biasa.
+
+alasan mereka datang dengan perlengkapan hanya untuk membuat musuh kehilangan niat bertarung.
+
+faktanya, itu memberikan efek tapi itu tidak sampai ke tahap diamna mereka menjatuhkan senjata mereka.
+
+mereka pasti didorong dari sumber lain.
+
+"kapten!"
+
+penjaga tergesa-gesa datang ke moen.
+
+"ada apa."
+
+"ini tentang tuan Ademi!"
+
+"apa!? kamu menemukannya!?"
+
+setlah beberapa saat, 2 anak dibawa oleh seorang pria berkulit gelap.
+
+dia byuui.
+
+walaupun moen hampir melihat semua penduduk zoltan, dia belum pernah melihat pria itu sebelumnya tapi dia tidak ada waktu untuk memikirkan hal itu. dia dengan cepat melupakan semua itu.
+
+"ademi!"
+
+"Ayah!"
+
+mereka berdua berpelukan dengan bahagia.
+
+"maafkan aku ayah.. aku..."
+
+"tidak apa-apa asalkan kamu baik-baik saja. jika ada seseorang yang harus kamu minta maaf, aku akan pergi meminta maaf denganmu; jika ada gantinya, aku akan menggantinya untukmu. kamu tidak perlu meminta maaf kepadaku karena kamu anakku."
+
+"ayah...!"
+
+"bukannya aku mau menganggu reuni kalian tapi.."
+
+byuui menghentikan mereka.
+
+"ayo kita selesaikan ini."
+
+moen dan ademi mengangguk dengan sedikit wajah memerah.
+
+☆☆
+
