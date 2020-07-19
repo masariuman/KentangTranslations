@@ -162,3 +162,17 @@ moen dan ademi mengangguk dengan sedikit wajah memerah.
 
 ☆☆
 
+penjaga dan penduduk marsh selatan saling berhadapan.
+
+terdapat perbedaan besar diantara persenjataan dan keahlian tapi sisi marsh selatan memiliki benteng yang terbentuk dari pagar big hawk.
+
+itu membuat mereka yakin kalau mereka bisa menang.
+
+"tch, sungguh situasi yang tidak baik."
+
+seorang pria dari marsh selatan yang memegang tombak komplain.
+
+tidak seperti yang dibelakagnya, melihat ke armor para penjaga yang berada di depan yang memantulkan cahaya matahari terbenam, dia benar-benar tidak dapat melihat kesempatan untuk menang.
+
+dia mencoba untuk berfikir bagaimana cara lari dari tempat itu tapi die benar-benar terkeping. walaupun dia ingin menyerah, dia pasti diserang warga marsh selatan yang berada di belakangnya.
+
