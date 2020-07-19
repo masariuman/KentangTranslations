@@ -72,6 +72,8 @@ mau gimana lagi. aku tidak punya pengalaman memberikan senyum ketika aku mau. ak
 
 "Un."
 
+<gamber> vol3 180.png
+
 [kalian benar-benar kurang tegang...]
 
 "aku tidak akan tegang hanya karena bahaya dari level seperti ini."
