@@ -76,4 +76,25 @@ g"pahlawan huh?"
 
 ketika berteriak, albert tanpa sadar mulai tersenyum.
 
-dia akhirnya menjadi sesuatu yang dia inginkan.
+dia akhirnya menjadi sesuatu yang dia inginkan. walaupun tu hanya kepuasan pribad tanpa makna dibalik itu...
+
+g"sudah saatnya ya?"
+
+"apa maksudmu!?"
+
+g"maaf albert."
+
+terdengar langkah kaki mendekati kami.
+
+ekpresi albert berubah dan terkejut.
+
+"ka-kamu.... mengapa? bukankah ini harusnya pertarungan untuk menentukan siapa pahlawan diantara kita..."
+
+g"aku tidak tertarik menjadi seorang pahlawan."
+
+tempat ini bukanlah tempat untuk menentukan suati insiden.
+
+dan kami bukanlah seorang pahlawan.
+
+☆☆
+
