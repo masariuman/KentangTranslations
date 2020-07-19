@@ -250,7 +250,7 @@ aku ingin segera menyerangnya ketika dia masih nampak, tapi ekornya menganggu se
 
 "aku lambat. jika saja aku lebih cepat..."
 
-"aku bilant tidak apa-apa. kamu menyelamatkanku."
+"aku bilang tidak apa-apa. kamu menyelamatkanku."
 
 [.....kamu begitu baik dengan beastwoman ini ya.]
 
