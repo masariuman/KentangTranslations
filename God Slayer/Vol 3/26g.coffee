@@ -36,7 +36,7 @@ Aku merasa seperti Ermenhilde tertawa di dalam sakuku. Pasti imajinasiku.
 
 "Bahkan jika kamu berkata begitu padaku ..."
 
-<gambar>
+<gambar> vol3 77.png
 
 Mereka hanya kebetulan ada dilokasi makanya mereka juga ikut. Bukannya aku memilih kasih, jika kebetulan itu muncul aku akan menyelesaikan permintaan dengan Aya juga. Yah, memang benar aku tidak mengundangnya. Penampilan cemberutnya terlihat sangat lucu, tetapi jika aku tahu semuanya akan berakhir seperti ini, aku akan mengundangnya saat itu.
 
