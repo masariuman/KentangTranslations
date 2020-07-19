@@ -176,3 +176,109 @@ tidak seperti yang dibelakagnya, melihat ke armor para penjaga yang berada di de
 
 dia mencoba untuk berfikir bagaimana cara lari dari tempat itu tapi die benar-benar terkeping. walaupun dia ingin menyerah, dia pasti diserang warga marsh selatan yang berada di belakangnya.
 
+"apa yang bisa kita lakukan, aku sangat bodoh percaya sama omongan muka babi itu."
+
+"kamu benar."
+
+mereka berharap untuk sebuah kesempatan.
+
+kesempatan untuk membuang senjata mereka sebelum keseimbangan kacau dan perkelahian tidak dapat lagi dihentikan.
+
+"semuanya!"
+
+suara anak kecil menggema.
+
+barisan depan penjaga menjadi 2 bagian dan anak kecil muncul dari tengah.
+
+mereka berdua gugup tapi mata mereka bersinar dengan tujuan yang jelas.
+
+"oh ? bukankah itu Al!? dan disampingnya itu Ademi!"
+
+sisi marsh selatan berantakan.
+
+"terbang."
+
+Byuui menggunakan sihir untuk membuat mereka terbang dengan sayap tidak terlihat.
+
+mereka berdua melayang dan bergerak kearah dimana semua orang dapat melihat.
+
+"semuanya!"
+
+al berteriak sekali lagi.
+
+"al! apa yang terjadi! bukankah penjaga menangkapmu!?"
+
+"tidak, aku disini karena keinginanku. sama juga dengan ademi."
+
+"ya, aku disini karena keinginanku."
+
+kerumunan mulai kebingungan.
+
+(sebelum datang kemari, aku sudah memikirkan apa yang akan aku ucapkan.)
+
+peran al dan ademi adalah untuk mencegah pertarungan.
+
+dua orang yang terlibat dengan insiden harusnya bisa menghentikan pertarungan. byuui memberitahukan mereka seperti itu.
+
+(beri tahu mereka kebenaran? menyuruh ademi untuk meminta maaf? memberi tahu kalau big hawk menipu semuanya?)
+
+untuk berjaga-jaga, al memiliki tulisan yang byuui berikan kepadanya di koceknya.
+
+Al yang kebingungan memasukkan tangannya ke kocek dan menyentuh tulisan itu...
+
+(tidak..)
+
+dia menghancurkannya dengan tangannya.
+
+dan memegang shotelnya yang di pinggangnya.
+
+dia menutup matanya sebentar....
+
+"semuanya."
+
+al berteriak.
+
+"ayo pulang saja, tidak ada yang terjadi disini, tidak ada yang terluka, ayo kita pulang saja kerumah."
+
+"apa!?"
+
+"aku berteman dengan ademi. aku berencana ingin bermain dengannya lagi besok. jadi ayo kita pulang."
+
+"jangan bicara omong kosong! ademi itu mencoba membunuh keluargamu!"
+
+"tidak, itu bukan ademi tapi itu iblis dalam wujud ademi. jika kalian semua tetap meminum obat itu, kalian akan menjadi iblis yang akan menyakiti teman dan keluarga kalian jadi ayo kita pulang saja sebelum semua itu terjadi."
+
+al berbicara dan memegang tangan ademi.
+
+melihat mereka berdua, moen mulai mengangkat tangan kanannya untuk memberi sinyal.
+
+penjaga bergerak dan membuka jalan yang mengarah ke matahari terbenam.
+
+"....Al, apa kamu memaafkan anak itu?"
+
+"aku memaafkan mereka."
+
+suara besi berbunyi. para pria yang berada di barisan depan membuang tombak mereka.
+
+para pria tersebut berjalan dengan ekpresi tegang.
+
+"he-hey."
+
+"pertarungan ini untuk membalaskan dendam Al, yaaah, dia pun tidak mati. jika dia memaafkannya akupun tidak alasan lagi untuk bertarung lagi."
+
+laki-laki dibelakangnya berusaha untuk menghetikannya tapi,
+
+clang, clang, clang clang clang...
+
+suara dari senjata yang dibuang berbunyi satu satu dan orang-orang mulai berjalan pulang kerumahnya masing-masing.
+
+pertarungan telah berhenti.
+
+penduduk marsh selatan juga berupaya mencari cara untuk lari dari faktor utama. jika red, lit, moen dan yang lainnya tidak merencanakan semuanya dari awal, pilihan ini tidak akan terjadi.
+
+akan tetapi, memang benar kalau al dan ademi yang mencegah pertarungan sebelum semuanya terjadi.
+
+al dan ademi berdiri untuk melihat penduduk marsh selatan melewati para penjaga dengan tegang sebelum pulang kerumah mereka dengan ekpresi lega.
+
+☆☆
+
