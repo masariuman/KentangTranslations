@@ -264,4 +264,4 @@ aku tidak membutuhkan Wizard yang terlalu banyak bicara denganku, tetapi akan le
 
 Cepatlah dan datang ke Ibukota Yamada-kun. aku menunggumu dengan banyak pekerjaan.
 
-<gambar> 005.png
+<gambar> vol3 005.png
