@@ -239,3 +239,5 @@ Besok, kita akan melewati hutan yang dipenuhi hantu dan mayat hidup. aku tidak a
 Aku benci bagian diriku yang lari dari pikiranku sendiri.
 
 Orang dewasa benar-benar kotor. Mereka hanya melarikan diri sepanjang waktu.
+
+<gambar> vol3 102.png
