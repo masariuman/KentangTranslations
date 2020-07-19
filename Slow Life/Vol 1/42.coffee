@@ -282,3 +282,88 @@ al dan ademi berdiri untuk melihat penduduk marsh selatan melewati para penjaga 
 
 ☆☆
 
+"kenapa, KENAPAA!!!"
+
+albert berteriak dengan suara yang membuatku berfikir apakah tenggorokannya akan terbelah.
+
+matanya merah dan terbuka lebar dan menarik rambutnya.
+
+albert dan grupnya di kepung oleh penjaga.
+
+walaupun ada 9 iblis rank menengah, iblis penguntit adalah pembunuh. mereka kuat pada kasus dimana mereka memiliki keuntungan dalam pertarungan yang langsung seperti ini tapi musuh mereka memiliki keuntungan dalam jumlah yang banyak.
+
+lagi pula,
+
+"kamu terlalu meremehkan kota kami."
+
+pria tinggi maju dengan gaya kuda-kuda yang mengesankan dengan tangannya menyilang di depan dadanya dan melihat rendah mereka.
+
+salah satu anggota terkuat di zoltan yang dulunya ada di tim petualang terkuat, eksekutif guild petualang, garadin juga disini.
+
+"ini..."
+
+iblis kontrak yang didalam badan big hawk tidak dapat menyembunyikan kekecewaannya.
+
+dia bertanya lagi kepada red dengan ekpresi suram.
+
+"red, apa kamu yakin dengan metode ini? akan ada pengirbanan diantara penjaga lho... walaupun tidak ada yang akan terluka kalau kamu yang bertarung."
+
+g"aku adalah petualang rank-D. lagi pula, aku hanya menjalankan apotik ... sudah menjadi tugas penjaga untuk menangkap kalian, bukan aku. mereka dilatih untuk hal seperti ini."
+
+"KENAPAA!"
+
+albert berteriak.
+
+teriakannya membuat penjaga disekeliling secara tidak sadar mundur 1 langkah.
+
+"albert."
+
+"tahukah kamu dapat menjadi pahlawan? ini harusnya menjadi pertarungan yang menentukan takdir di zoltan! dan dari semua itu, mengapa! mengapa kamu membuangnya walaupun kamu memiliki kekuatan seperti itu!"
+
+g"....aku sebenarnya tidak tertarik menjadi pahlawan. aku leih tertarik tinggal bersama lit dan menjalankan apotik."
+
+"aku benci itu! paling tidak! paling tidak berikan aku musuh yang hanya bisa dikalahkan oleh seorang pahlawan! berikan aku alasan untuk hidupku! aku sang juara albert! aku-aku tidak akan menerima akhir dimana aku ditangkap oleh penjaga layaknya seperti kriminal busuk seperti ini!!"
+
+"hentikanlah, albert!"
+
+iblis kontrak memanggilnya untuk menghentikannya tapi albert mengangkat pedangnya dan berlari kearahku.
+
+albert mengayunkan pedang magic vorpal , mengarah ke leherku.
+
+aku menarik pedang tembagaku dan langsung mengayunkannya juga.
+
+Clang!
+
+suara pedang saling betabrakan. pedang magic jatuh dibelakangku.
+
+albert menatap dengan linglung pada tangan kanannya yang memegang pedang magic sampai pergelangan tangannya hilang.
+
+"sudah kuduga."
+
+g"..."
+
+"aku tahu kau dapat mengalahkanku kapanku kau mau..."
+
+air mata merah membanjiri mata merah albert.
+
+"kau dapat menghancurkan konspirasi kami secara instant jika kau mau....ini keterlaluan... ini KETERLALUAN..."
+
+albert terjatuh pada lututnya dan menutup mukanya dengan tangan kirinya.
+
+g"albert, seorang pahlawan bukanlah seseorang yang hanya dengan kekuatan saja."
+
+"apakah kau juga akan menasihatiku?"
+
+g"tidak. aku bukanlah orang yang tepat...albert. aku ingin kamu menjadi seseorang yang menyelamatkan zoltan dari krisis. kamu, orang yang menginginkan menjadi pahlawan lebih dari yang lain di kota ini dan selalu menderita karenanya. bukan aku, tapi kamu."
+
+aku mengatakan kebenaran.
+
+aku menilai albert. tentu saja, dia memiliki banyak kekuarangan. kepribadiannya saja sudah buruk. pada dasarnya, dia kekuarangan kemampuan juga.
+
+tapi karena itulah, aku menilai albert yang berusaha walaupun dia kekuarangan kemampuan, yang membawa rekannya yang tidak dapat diandalkan menjadi baik, yang bekerja keras untuk mendapatkan identitas yang sesuai dengan dirinya yang dipaksa pada posisi yang tidak layak untuk dirinya.
+
+g"untukku, sebanyak apapun kesalahanmu, kamu tetap pahlawan zoltan."
+
+aku tidak tahu apa yang albert pikirkan setelah mendengarkan ucapan itu. aku tidak memiliki kemampuan untuk membaca hati seseorang.
+
+albert hanya menggantung lemah kepalanya dan membiarkan dirinya ditangkap para penjaga tanpa melawan.
