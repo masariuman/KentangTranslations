@@ -367,3 +367,5 @@ g"untukku, sebanyak apapun kesalahanmu, kamu tetap pahlawan zoltan."
 aku tidak tahu apa yang albert pikirkan setelah mendengarkan ucapan itu. aku tidak memiliki kemampuan untuk membaca hati seseorang.
 
 albert hanya menggantung lemah kepalanya dan membiarkan dirinya ditangkap para penjaga tanpa melawan.
+
+<gambar> vol 2 10.png
