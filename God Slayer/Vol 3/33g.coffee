@@ -28,7 +28,7 @@ tapi, merah darah, sumber dari kehidupan, hanya membuatnya semakin cantik dan in
 
 aku membelai pipinya dengan lembut. tapi aku tidak mendengar suara apapun. hanya multnya saja yang bergerak.
 
-<gambar>
+<gambar> vol 3 187.png
 
 aaaaah, kenapa aku selalu seperti ini? tidak dapat melindungan yang ingin kulindingi. selalu dilindungi oleh orang lain, pahlawan paling terlemah. pahlawan gagal yang tidak bisa menggunakan kekuatannya dengan baik. mengapa? mengapa? mengapa? ---- mengapa aku meminta kekuatan seperti ini? jika harus berakhir seperti ini, harus sesakit ini.....
 
