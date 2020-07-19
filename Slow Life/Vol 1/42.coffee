@@ -34,3 +34,46 @@ ada beberapa yang memiliki pisau, tongkat pendek atau pedang pendek untuk perlin
 
 ☆☆
 
+tanpa aku sadar matahari sudah terbenam setengah.
+
+"apakah kau paham dengan situasi sekarang, D-rank ?"
+
+g"begitulah."
+
+albert berbicara sambil mengarahkan pedangnya padaku.
+
+aku memegang pedang tembagaku dan bersiap sambil mendengarkannya.
+
+"...apakah kamu ingat kalau aku mengajakmu untuk masuk ke timku sebelumnya?"
+
+g"tentu saja, itu baru saja terjadi beberapa saat lalu."
+
+"pada saat itu, kamu bersikap sebagai orang lemah. aku tau pandanganku tidak salah."
+
+g"....mungkin saja, jadi mau apa sekarang?"
+
+"aku akan bertanya sekali lagi. jadilah rekanku, red. kamu adalah orang yang bisa menjadi pahlawan...speertku."
+
+albert menurunkan pedangnya dan mengulurkan tangannya.
+
+jarak kami sekitar 15 langkah. itu adalah jarak yang mana kami dapat menebas jika kami menyerang secara bersamaan.
+
+diskusi kami masih berlanjut tapi terdapat ketegangan yang membara diantara kami.
+
+"red, aku tidak tahu alasan kamu menyembunyikan kemampuanmu. tapi mereka yang memiliki kemampuan memiliki tugas untuk memanfaatkan kekuatannya. perlindungan ilahiku adalah sang juara dan perlindungan ilahi yang berada pada tubuhmu tidak seharusnya disia-siakan di kota seperti ini."
+
+g"itu bukan sesuatu yang hebat juga."
+
+"CUKUP! KEKUATANMU ITU NYATA!"
+
+albert berteriak.
+
+"putuskan sekarang, D-rank! ikut aku dan menjadi pahlawan untuk melawan raja iblis! atau mengalahkanku dan menjadi pahlawan yang menyelamatkan zoltan! pilih sekarang!"
+
+g"pahlawan huh?"
+
+"ya, seorang pahlawan! pilihanmu akan menentukan nasib zoltan! kamu mingkin bisa memilih nasib dunia! bukankah itu sangat mengembirakan! pada momen ini, pusat dunia berada pada daerah terpencil bernama zoltan!"
+
+ketika berteriak, albert tanpa sadar mulai tersenyum.
+
+dia akhirnya menjadi sesuatu yang dia inginkan.
