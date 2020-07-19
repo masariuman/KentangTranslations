@@ -286,6 +286,8 @@ untuk dapat menghadapi kami berdua sendirian, itu benar-benar keturunan dari dew
 
 karena suara ermenhilde, aku juga melihat kearah mururu. dia agak mundur dari tempat dia mulai bertarung dengan tengkorak itu. dengan fisik kecilnya, beban dari serangan ekor pasti lebih besar dari yang kuduga.
 
+<gambar> vol3 149.png
+
 tapi karena bola magic yang berlebihan, aku tidak dapat mendekat juga. darah dari zombie terlempar tercampur dengan kabut dan menjadi asap merah. dan ditengah pertarungan itu terdapat 3meter seperti laba-laba, ular dan tengkorak.
 
 ini seperti aku menghadapi iblis. aku berguman sendiri.
