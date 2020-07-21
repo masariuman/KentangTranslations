@@ -368,7 +368,7 @@ hanya sebentar saja, aku menutup mataku.
 
 hitam, hitam, hitam, hitam--- aku membunuh dewa iblis itu, yang memiliki kulit berwaran kegelapan, dengan temanku, bersama dengan mereka... dengan ermenhilde.
 
-"AKU AKAN MEMBUNUHMU, DASAR KAU TENGKORAK SIALAN!!"
+"KUBUNUH KAU, DASAR KAU TENGKORAK SIALAN!!"
 
 ketika aku membuka mataku, aku mengatakan apa yang aku sumpahkan.
 
