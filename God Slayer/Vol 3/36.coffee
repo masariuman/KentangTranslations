@@ -246,3 +246,68 @@ suara kaget dan khawatirnya benar-benar enak didengar.
 
 "Guh...."
 
+ketika aku mengatakan itu, anastasia mengerang dengan suara yang tidak seperti wanita. kenapa para peri tidak masalah kalau dia menjadi rati mereka ?
+
+ketika aku mengganggu anastasia seperti itu, yui-chan tertawa bahagia.
+
+"yui-chan, kamu akan tinggal diibukota untuk beberapa waktu juga?"(renji)
+
+"iya. turnamen juga sudah dekat."(yui)
+
+".....oh iya."
+
+sekarang baru aku ingat, sekarang sudah saatnya ya. di dunia ini, setahun hanya ada 9 bulan. setiap tahunnya di bulan kedelapan, contohnya pada awal musim dingin, festival terbesar di benua imnesia akan dilaksanakan. festival tersebut lebih mirip sebagai kejuaraan olympic juga. isinya banyak hal hal berbahaya juga. isi turnamen adalah pedang dan kapak dan magic dan lain-lain.
+
+karena aku tidak punya ingatan baik untuk itu, aku hanya bisa merespon ketus seperti itu.
+
+"sepertinya souichi-oniichan dan yang lainnya akan ikut juga."(yui)
+
+"oh iya, aku juga ada mendengar sesuatu seperti itu dari dia juga..... mungkin...."
+
+tapi tetap sajam souichi akan ikut juga. pada tahun pertama kami dipanggil didunia ini, souichi dan masaki-chan menang sebagai pemenang laki-laki dan pemenang perempuan dalam turnamen. sekarang sudah 2 tahun dari kejadian itu. sungguh nostalgia.
+
+"renji-san, apakah kamu akan ikut juga?"(yui)
+
+"aku belum mendengarkan sesuatu yang seperti itu, tidak."(renji)
+
+"kamu pasti ikut. atau lebih tepatnya, orang tua itu atau yuuko yang akan membuatmu ikut, benar kan?"(ana)
+
+"jangan bicara sesuatu yang sangat nyata.....itu pertanda buruk."(renji)
+
+orang tua yang dibicarakan anastasia adalah O'brien-sna, jika itu dia, dia pasti akan mencoba membuatku ikut kedalam turnamen juga. atau lebih tepatnya, dia akan memaksaku. aku berhutang sama laki-laki itu lebih dari nyawaku jadi jika dia memaksaku.....yeah.
+
+tolonglah, tidak. aku tidak ingin terlalu menonjol seperti itu. yaah, karena souichi ikut juga, aku hanya bersembunyi di bayangannya saja. seseorang yang selalu bersembunyi dalam setahun dan seseorang brave yang tampan. tentu saja itu akan menarik perhatian.
+
+untuk sekarang, mari kita lupakan saja hal itu karena aku juga belum mendengar apapun tentangku untuk ikut dalam pertandingan, sekarang. tidak baik untuk terlalu khawatir.
+
+"kalau begitu, kita harus kembali juga, yui."(ana)
+
+"i,iya...ummm,kalau begitu... sampai jumpa lagi?"(yui)
+
+ketika anastasia mengatakan itu, yui-chan malu-malu berbicara juga.
+
+"yeah. aku akan ada di ibukota untuk beberapa waktu juga. bagaimana kalau kita jalan-jalan nanti kalau ada waktu?"(renji)
+
+"iya. aku akan menunggu waktu itu!"(yui)
+
+senyumnya sungguh menyilaukan. itu membuatku sekali lagi sadar kalau dia sudah tumbuh. dulu, dia lebih suram dan selalu lebih tertutup walaupun ada orang yang berusaha mengajaknya seperti ini. melihatnya menjadi lebih dewasa seperti ini, aku merasa hangat dihatiku. dia dengan cepat berjalan ke pintu yang yang terbuka dan pergi, dia juga berbalik sekali dan memberikan lambaian tangan sebelum pergi. itu mungkin agak kekanak-kanakan mengingat dia masih 16 tahun, tapi itu hanya membuatnya makin imut dan lucu.
+
+KNIGHT, dengan anastasia dibahunya mengikutinya dibelakang dan pergi juga dengan membungkuk. karena tingginya 2 meter, aku pikir yah mau gimana lagi. aku tertawa kecil.
+
+"sekarang...."(renji)
+
+setelah melihat yui-chan pergi, aku kembali tidur di kasurku. tidak lama setelah itu, aku menutup mataku dan tertidur.
+
+ketika mataku mulai menutup, aku mengingat kembali masa lalu. sekarang setelah kupikir-pikir, dulu yui-chan biasa memanggilku [onii-chan] juga. mengapa sekarang dia memanggilku seperti itu. perasaan aneh tumbuh di hatiku. aku merasa bahagia melihatnya tumbuh dan di saat yang sama, fakta bahwa banyak waktu yang terlewatkan membuatku sedikit sedih. ketika berfikir hal itu, kesadaranku perlahan memudar.
+
+pada akhirnya, hanya kata fafnir yang tersisa.
+
+[kenapa kamu terlalu terobsesi kepada ermenhilde ?]
+
+kata kata yang sama juga diucapkan keadaku oleh astraera dan shelfa juga, setahun lalu.
+
+naga, dewa, dan raja iblis. mengapa mereka yang melampaui manusia ini selalu menganggu pikiranku dengan mudah?
+
+.....tapi, aku tahu maksud dari dibalik kata itu. ermenhilde. eru. seseorang yang tidak dapat aku lindungi. seseorang yang benar-benar ingin kulindungi.
+
+akupun tertidur. berharap, hanya hari ini saja, aku tidak ingin bermimpi apa-apa.
