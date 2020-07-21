@@ -121,3 +121,8 @@ aku tahu api itu tidak benar-benar menyebar tapi melihat sosok manusia terbakar 
 "tidak tidak, kami tidak bertengkar. ini,, yaah, itu, benarkan renji?"(ana)
 
 "kami hanya bergurau, yui-chan. jadi tolong, tahan KNIGHT sebentar."(renji)
+
+energi magic api biru menandakan KNIGHT memasuki mode bertarung. walaupun itu tidak serius tapi tekanan yang diberikan berlebihan juga aku merasa nyawaku terpotong banyak hanya dekat dengannya.
+
+karena dia adalah hantu dari pada ksatria, kemampuan bertarungnya benar-benar ada di level yang berbeda. setara dengan level souichi dengan cheatnya, bahkan bisa lebih kuat. tentu saja, aku yakin sekali kalau aku kalah melawannya dalam 1 lawan 1. walaupun anastasia menolongku, di situasi sekarang, dia akan dihancurkan bahkan sebelum dia mencoba menggunakan magic, dan kemudian aku akan pelan-pelan dimasak sampai mati. yaaaaah, aku yakin dia hanya mencoba untuk mengancam dan tidak serius.
+
