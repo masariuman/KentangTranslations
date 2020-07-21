@@ -237,3 +237,12 @@ ketika aku mengatakan itu, aku menguap.
 "kamu.... baik-baik saja?"(yui)
 
 suara kaget dan khawatirnya benar-benar enak didengar.
+
+"yui-chan, kamulah hanya satu-satunya orang yang khawatir denganku."(renji)
+
+"...Ahn?"(ana)
+
+"apa, kamu tadi bilang kamu tidak mengkhawatirkanku kan?"
+
+"Guh...."
+
