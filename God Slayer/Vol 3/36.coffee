@@ -33,3 +33,27 @@ ketika aku pikir ini tidak begitu beralasan, aku mulai berjalan kembali ke ruang
 "eh?"
 
 "bukankah kamu ingin mengatakan sesuatu padaku?"
+
+ketika aku bertanya lagi, dia menepuk kedua tangannya seperti dia baru ingat. seperti biasa, dia melupakan semuanya ketika dia marah.
+
+"apa janji yang faf omongkan?"(ana)
+
+"oh itu, itu hanya janji yang kubuat dengan Eru."(renji)
+
+setelah kuingat-ingat, anastasia tidak tahu tentang itu ya? sebenarnya, hanya ada beberapa orang saja yang tahu diantara kami. yaah, sebuah janji dengan seseorang bukanlah sesuatu yang bisa kau omongkan kesiapa saja. aku ragu eri sendiri akan memberitahu tentang itu juga.
+
+"itu rahasia."(renji)
+
+"......rasanya menjijikkan kalah pria yang berkata seperti itu."(ana)
+
+"seperti biasa, kamu memiliki lidah yang tajam juga, wahai ratu."
+
+"hanya kepadamu saja, renji"
+
+"oho, sebuah kehormatan untukku."
+
+"haaah."
+
+ketika aku menjawabnya dengan omongan yang tak karuan, dia menghela nafas.
+
+""
