@@ -204,3 +204,29 @@ karena anstasia sudah tenang, aku menghela nafas. yaah, salahku juga. tapi keban
 
 "yaaah, aku tidak boleh tidur setiap saat juga."(renji)
 
+ketika aku mengatakan itu, yui-chan mulai tertawa kecil. rambutnya bergoyang ketika dia tertawa dan bertambahnya tingginya membuatku sadar sekali lagi sudah berapa lama aku tidak bertemu dengannya.
+
+"senang bisa melihatmu energik juga, yui-chan."(renji)
+
+"iya."
+
+"KNIGHT juga, terima kasih karena selalu melindungi yui-chan."
+
+ketika aku mengatakan itu, KNIGHT memberikan anggukan dengan diam. helem dan armor saling bersentuhan menghasilkan suara. sosoknya yang menjawab dengan gerakan karena dia tidak bisa berbicara benar-benar keren seperti biasanya. tapi karena aku memiliki kebiasaan untuk selalu berbicara, aku tidak bisa seperti dia. suatu hari, aku ingin menjadi pria yang benar-benar bicara dengan aksinya. yah, aku tidak akan bisa menjadi seperti itu. aku pasti akan ditertawai karena mencoba menjadi cool dan keren.
+
+"ngomong-ngomong, yui-chan, kamu tau dimana ermenhilde ?"(renji)
+
+"eru-san?"(yui)
+
+"yeah, utano dan aya tidak memberi tahuku. tentu saja anastasia tidak juga."
+
+"apa yang kau maksud dengan 'tentu saja'.... Mouuuu."(ana)
+
+aku melihat kearah yui-chan sambil mengabaikan anastasia yang merajuk dengan muka masamnya. tapi sepertinya dia tidak tahu juga karena dia menggelengkan kepalanya. aku melihat ke arah KNIGHT juga dan dia juga menggelengkan kepalanya.
+
+"menyerah sajalah. kamu diundang sama yuuko nanti malam kan? angsung tanya dia saja nanti."(ana)
+
+"sepertinya begitu. yaah, paling tidak aku menggerakkan tubuhku."(renji)
+
+ketika aku mengatakan itu, aku menguap.
+
