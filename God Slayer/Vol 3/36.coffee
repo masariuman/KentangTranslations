@@ -230,3 +230,10 @@ aku melihat kearah yui-chan sambil mengabaikan anastasia yang merajuk dengan muk
 
 ketika aku mengatakan itu, aku menguap.
 
+"kamu seharusnya tidak banyak bergerak setelah lama tidur...... bagaimana kalau kamu tidur lagi ?" (ana)
+
+"kupikir aku harus tidur lagi juga. aku sudah kehabisan stamina juga."(renji)
+
+"kamu.... baik-baik saja?"(yui)
+
+suara kaget dan khawatirnya benar-benar enak didengar.
