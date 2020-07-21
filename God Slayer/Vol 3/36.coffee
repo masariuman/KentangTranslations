@@ -102,3 +102,22 @@ seperti binatang kecil, gerakannya benar-benar imut. sangat imut dan lucu bahkan
 
 tingginya bertambah, dan badannya bukan badan anak kecil lagi. bahkan rambutnya yang polos dan tidak ada gaya sekarang diikat dengan kepang 2. dulu, dia hanya setinggi pinggangku tapi sekarang sedadaku. melihatnya gelisah karena malu, dia tidak hanya imut tapi juga agak menjadi seperti wanita. dengan baju kelas tinggi yang dia pakai sekarang, dia benar-benar terlihat seperti gadis bangsawan.
 
+karena aneh rasanya berbicara sambil berdiri, aku duduk di kursi langsung didepan yui-chan. masih terbayang dibenakkan penampilan yui-chan yang lemah dan muka pucatnya tapi sekarang dia benar-benar terlihat seperti gadis pada seusianya. bahkan rambut putih albinonya yang dulunya tidak biasa kulihat, sekarang menjadi sangat indah. ini pasti karena aku dekat dengan wanita berambut perak seperti mururu atau astraera. keta memandang yui-chan, anastasia, sekali lagi, memukul kepalaku. dia mencoba menusuk mataku dengan jari kecilnya. untuk seorang ratu, dia benar-benar kasar.
+
+"tunggu, aku tidak tahu dan tidak masuk akal untuk kali ini."(renji)
+
+"menatap seorang gadis seperti itu, apakah kamu seorang yang mesum?"(ana)
+
+"aku tidak menatapnya. aku hanya bahagia melihat bagaimana yui telah tumbuh."
+
+"tapi tatapanmu rasanya seperti orang mesum."
+
+ketika kami bertengkar, KNIGHT mengeluarkan tekanan kekuatan secara diam. dengan tingginya dan karena dia benar-benar hantu, itu terasa aneh. atau bisa dibilang, melihat energi magic muncul dari armor seperti api benar-benar menakutkan.
+
+aku tahu api itu tidak benar-benar menyebar tapi melihat sosok manusia terbakar sekarang didepanmu pasti benar-benar menyeramkan. sepertinya anastasia merasakan hal yang sama karena dia mendadak diam.
+
+"ummm, tolong jangan bertengkar...."(yui)
+
+"tidak tidak, kami tidak bertengkar. ini,, yaah, itu, benarkan renji?"(ana)
+
+"kami hanya bergurau, yui-chan. jadi tolong, tahan KNIGHT sebentar."(renji)
