@@ -126,3 +126,81 @@ energi magic api biru menandakan KNIGHT memasuki mode bertarung. walaupun itu ti
 
 karena dia adalah hantu dari pada ksatria, kemampuan bertarungnya benar-benar ada di level yang berbeda. setara dengan level souichi dengan cheatnya, bahkan bisa lebih kuat. tentu saja, aku yakin sekali kalau aku kalah melawannya dalam 1 lawan 1. walaupun anastasia menolongku, di situasi sekarang, dia akan dihancurkan bahkan sebelum dia mencoba menggunakan magic, dan kemudian aku akan pelan-pelan dimasak sampai mati. yaaaaah, aku yakin dia hanya mencoba untuk mengancam dan tidak serius.
 
+"ah, KNIGHT-san, tidak apa-apa."(yui)
+
+ketika dia mengatakan itu, KNIGHT mundur satu langkah. tekanannya juga langsung hilang dan api biru pun padam. dia benar-benar patuh padanya. aku tersenyum kepada KNIGHT. dia benar-benar tidak berubah. aku tidak tahu apakah aku merasa bahagia atau hanya merasa nostalgia.
+
+"fuuuu, itu menakutkan."(ana)
+
+"ma, maaf....ana"(yui)
+
+"tidak apa apa, tidak apa apa. salahku juga terlalu mengganggu renji. bukan salah yui kok."(ana)
+
+anastasia terbang ke sisi yui-chan dan, dia duduk di bahu KNIGHT. perbedaan antara putih dan hitam seperti itu benar-benar indah seperti biasa.
+
+"yaah, mungkin sudah terlalu lama juga, jadi aku bermain-main terlalu berlebihan."(ana)
+
+"fufu. ana benar-benar kesepian karena tidak bertemu renji-san terlalu lama."(yui)
+
+"tidak mungkin. aku hanya berfikir kalau dia mungkin hilang dan mati disuatu tempat di jalan. kenapa aku harus khawatir dengan orang seperti dia?"(ana)
+
+kenapa kau melihatku seperti meminta persetujuan? aku hanya bisa memalingkan wajahku dan menggarik pipiku.
+
+"eh, tunggu, ada apa dengan reaksi itu !?"(ana)
+
+ketika aku mencoba bertingkah seperti aku malu, kamu juga malu eh? aku tetap diam dan menikmati melihat reaksi anastasia. sudah kuduga, sekarang dia berusaha membuat alasan yang tak berdasar. aku tidak berfikir kalau situasi sekarang membutuhkan alasan dari sisimu lho.
+
+dan pandangan yui-chan melihat anastasia dengan hangat sagat menggoda juga. seperti biasa, anastasia benar-benar lucu.
+
+"anastasia."(renji)
+
+ketika aku memanggilnya dengan namanya dengan suara lembut dan manis, dia menjadi diam dengan instant.
+
+"tunggu, aku tidak akan malu hanya karena itu, aku bukan anak-anak!!"(ana)
+
+kemudian, tinjunya yang mengarah padaku ditangkap oleh tangan KNIGHT. pandangan yui yang dari hangat menjadi khawatir lagi. atau bisa dibilang, dia kebingungan dengan situasi yang mendadak berubah.
+
+"lepaskan aku, KNIGHT. tidak apa apa, aku tidak akan membunuhnya."(ana)
+
+"jangan berkata perkataan kasar sambil tersenyum, wahai ratu."(renji)
+
+"aku shearusnya mencambukmu dengna benar, anak bodoh?"(ana)
+
+"Waaaaaa, jangan lepaskan dia, KNIGHT-san. ana juga, kamu harusnya sudah terbiasa dengan sikap renji sekarnag....."(yui)
+
+karena KNIGHT menahan anastasia, aku mereasa bebas tapi perkataan yui memberikanku rasa sakit yang tak terduga. pasti karena bangun dari luka yang besar. melihatku seperti itu, yui-chan mulai kebingungan. dia benar-benar imut. aku merasa seperti orang tua yang menyayanginya.
+
+"kesampingkan itu, yui-chan-"(renji)
+
+"apa yang kamu maksid dengan 'itu'!?! berani sekali kamu memperlakukan kemurnian seorang gadis sebagai hal sepele!?"(ana)
+
+siapa yang gadis? kamu lebih tua daripadaku sialan.
+
+"renji-san juga, jangan mengerjai ana keterlaluan."(yui)
+
+"reaksinya lucu sih, jadinya aku tidak bisa menahan diriku."(renji)
+
+tapi tunggu, karena para peri semuanya perempuan, mungkin dia benar-benar gadis perawan ?
+
+ketika aku berfikir sesuatu yang bodoh seperti itu, anastasia mengamuk dengan wajah merah. melihat ekpresi yui-chan yang tidak memahami situasinya, aku merasa bersalah. aku benar-benar harus berhenti dengan canddan ini didepan yui-chan dan aya.
+
+"maaf, maaf. aku akan mendengarkanmu apapun yg ingin kau katakan nanti jadi maafkanlah aku untuk sekarang."(renji)
+
+"beraninya kamu berbicara masalah ini dengan entengnya ?! aku tidak akan memaafkanmu, idiot!"(ana)
+
+"kamu yakin?"
+
+"eh?"
+
+"aku akan mendengarkan apapun itu okay? apapun, aku serius."
+
+"......uuuu..."
+
+yaaah, karena itu anastasia... paling tidak didepan yui-chan, dia tidak akan mengatakan apapun secara gegabah. pasti. yaaah, aku hanya perlu pergi kearah yui-chan kapanpun apabila anastasia mengingatkan ini nantinya. tapi jika dia tetap meminta sesuatu yang aneh dariku.... yah, aku akan memikirkannya nanti. nanti saja aku memikirkannya.
+
+karena anstasia sudah tenang, aku menghela nafas. yaah, salahku juga. tapi kebanyakan juga salah anastasia karena memberikan reaksi yang lucu ketika dikerjai.
+
+"entah bagaimana, kamu terlihat agak energik, renji-san."(yui)
+
+"yaaah, aku tidak boleh tidur setiap saat juga."(renji)
+
