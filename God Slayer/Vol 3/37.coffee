@@ -136,3 +136,15 @@ karen aitulah tidak banyak orang di sore hari.
 
 "kamu sepertinya sibuk."(renji)
 
+"iya, sangat sibuk. akhir-akhir ini, monster sepertinya agak aktif."(kuuki)
+
+"ksatria order juga kekuarang orang sekarang. orde rpertama sampai order keempat sangat sibuk sekarang. terutama yuuta-kun, karena dia spesialis sebagai [perisai]."(utano)
+
+"kamu sangat diandalkan eh?"(renji)
+
+"aku senang mendengarkannya tapi, benar-benar, aku ingin istirahat sekarang."(kuuki)
+
+aku hanya bisa tersenyum kecut saat mendegarkan permintaan yang putus asa itu. cheat kuuki adalah [the shield of protection](perisai perlindungan). tidak ada yang bisa menggantikannya.
+
+karena dengan adanya kuuki disini, semuanya akan selamat walaupun monster sekelas naga muncul. kuuki yuuta meminta [perisai yang dapat melindungan siapapun]. dengan itu dia dapat membuat pembatas(barrier) sebagai dia pusatnya. itu bahkan memiliki kemampuan untuk memutuskan apa yang akan dilindungi oleh barrier nya. apakah itu hembusan nafas naga, magic iblis rank tinggi, dan bahkan magic aya atau koutarou yang tidak dapat menentukan dimana musuh dan teman, perisainya melindungi kami dari semua itu.
+
