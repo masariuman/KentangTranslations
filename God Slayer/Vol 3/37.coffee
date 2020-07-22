@@ -124,3 +124,15 @@ mendengar suara sarkas kuuki, utano san datang dan duduk disampingku tapi terdap
 
 "hanya pecahan saja sih. tunggu, kuuki kau belum melihatnya sampai sekarang?"(renji)
 
+"iya, hanya raja, o'rien-dono, aya dan temanmu yang bernama mururu yang sudah melihatnya sampai saat ini."(utani)
+
+ada apa dengan pilihan itu. jika aya diperbolehkan untuk melihat, kenapa dia tidak boleh? kuuki mengangkat tangannya dan tersenyum kecut ketika melihatku kebingungan. aku pikir kamu tidak perlu izin untuk berbicara....
+
+"aku sedang dalam ekpedisi tadinya. aku baru saja pulang."(kuuki)
+
+"Ah, begitu rupanya."(renji)
+
+karen aitulah tidak banyak orang di sore hari.
+
+"kamu sepertinya sibuk."(renji)
+
