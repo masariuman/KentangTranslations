@@ -166,3 +166,11 @@ ketika aku mengatakan itu, dia menggaruk pipinya karena malu. melihat dia sepert
 
 "RENJI-SAN JUGA!"
 
+melihat pria tinggi dan tampan tersipu malu seperti itu, aku menjadi cemburu. sialan. dia mendapatkan seorang putri sebagai pacarnya, betapa beruntungnya dia? tapi tetap saja, dia bisa melakukannya eh. segera setelah kami dipanggil didunia ini, dia dengan cepat akrab dengan putri. sebelum semuanya mulai akrab. benar-benar, hanya karena kami lengah sedikit, dia langsung dekat dengan putri dari negeri ini. tidak seperti mukanya, dia bergerak cepat dalam bekerja. seperti itulah dia. ini mungkin hanya pendapatku saja, karena setiap kali aku mengatakan itu, dia selalu membantahkanya.
+
+"jadi kapan kalian akan menikah?"(renji)
+
+"aku belum bisa sekarang!?"(kuuki)
+
+"hmmmm, 'belum' eh?"(renji)
+
