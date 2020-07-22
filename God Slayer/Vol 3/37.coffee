@@ -100,3 +100,7 @@ ketika dia selesai dia kembali menatapku.
 
 "tidak ada, aku hanya berfikir sofa ini sangat enak."(renji)
 
+"orang-orang jarang datang kesini tapi ini tetap istalan. jika aku tidak menyiapkan benda paling tidak dengan kualitas seperti ini, yang lain akan komplain."
+
+yaah mereka tidak datang pasti karena takut dengannya. didalam dirinya terdapat kepribadian baik tapi tatapan matanya menakutkan. aku bisa tahu karena aku sudah terbiasa tapi untuk orang lain sepertinya tidak semudah itu.
+
