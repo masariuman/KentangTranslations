@@ -58,3 +58,15 @@ itu benar. tinggiku 180cm. akan merepotkan juga kalau aku tambah tinggi lagi.
 
 ketika kami tertawa bersama, ketika kami melihat kearah sumber suara itu, pemilik ruangan ini melihat kami bersalaman. sekarang dia menggunakan jubah yang biasa dia pakai tapi dengan tampilan yang enak dilihat dengan daster putih yang terlihat dari bahan yang lembut. dia juga menggunakan selendang tebal. rambut kuning mudanya terburai dan memberikan atmosfer yang berbeda dari sebelumnya. disinari cahaya lampu magic, kecantikannya bahkan semakin menonjol. bahkan aku, yang sudah terbiasa melihat wanita ini yang dipanggil utano yuuko, benar-benar terlena sebentar.
 
+tapi yah,,, walaupun dia melipat tangannya, tidak ada perubahan di area dada. aku melihat sebentar dan langsung mengalihkan pandanganku agar tidak ketahuan. sebagai pria, ya bukan salahku mataku akan liar seperti itu.
+
+buku di rak buku ruangannya sepertinya bertambah lagi dari sebelumnya terakhir aku disini. dia ada banyak juga dulu tapi hanya 2 rak. sekarang, seluruh dinding dipenuhi rak...kecuali jendela karena aga ada cahaya masuk, ada 8 rak yang berderetan. dan setiap rak dipenuhi catatan dan buku.
+
+bahkan meja kerjanya, terdapat banyak buku. aku pikir dia dengan cepat membersihkan ruangannya ketika aku datang tadi. walaupun aku pikir itu sudah terlambat karena kuuki sudah disini. dia benar-benar tidak pandai dalam membersihkan. kalau dulu, mungkin akan ada buku yang berantakan di lantai.
+
+akhirnya, aku bisa menatapnya langsung.
+
+"selamat datang, kamu terlambat."(utano)
+
+"aku mimpi buruk, jadi aku tertidur lagi dari yang aku rencanakan."
+
