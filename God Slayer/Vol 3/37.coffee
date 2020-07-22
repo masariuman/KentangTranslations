@@ -74,3 +74,11 @@ aku bergerak sambil menggaruk pipiku. sepertinya aku tidak bisa bilang kalau dia
 
 "ada yang salah?"
 
+"Hm.. tidak.. tidak ada."
+
+sepertinya dalam 1 tahun terakhir, dia agak menjadi sedikit feminim juga. tidak, yaaa, aku memandang dia sebagai wanita dulu tapi dia memiliki kebiasaan tidak disiplin dan ceroboh ketika sendirian walaupun dia bertingkah sempurna di depan yang lainnya jadia ku agak terkejut melihat dia memakai sesuatu seperti parfum. aku menjadi agak menyadari utano-san sebagai seorang wanita dan dia pun kebingungan melihatku.
+
+mengingat apa yang terjadi sore tadi, alasan lain mungkin aku hidup tanpa wanita untu 1 tahun terakhir. ketika aku memikirkan itu, tiba-tiba perutku berbunyi karena lapar. memikirkan makanan ketika mencium bau bunga.......sepertinya aku lebih suka pangsit daripada bunga, perut atau makanan adalah yang utama, romatik masalah kedua. perkataan itu benar-benar cocok untukku.
+
+"ara, bukankah kamu sudah makan tadi?"(utano)
+
