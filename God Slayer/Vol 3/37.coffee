@@ -56,4 +56,5 @@ itu benar. tinggiku 180cm. akan merepotkan juga kalau aku tambah tinggi lagi.
 
 "apa kalian selesai berbicara?"
 
-ketika kami tertawa bersama, 
+ketika kami tertawa bersama, ketika kami melihat kearah sumber suara itu, pemilik ruangan ini melihat kami bersalaman. sekarang dia menggunakan jubah yang biasa dia pakai tapi dengan tampilan yang enak dilihat dengan daster putih yang terlihat dari bahan yang lembut. dia juga menggunakan selendang tebal. rambut kuning mudanya terburai dan memberikan atmosfer yang berbeda dari sebelumnya. disinari cahaya lampu magic, kecantikannya bahkan semakin menonjol. bahkan aku, yang sudah terbiasa melihat wanita ini yang dipanggil utano yuuko, benar-benar terlena sebentar.
+
