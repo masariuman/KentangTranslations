@@ -70,3 +70,7 @@ akhirnya, aku bisa menatapnya langsung.
 
 "aku mimpi buruk, jadi aku tertidur lagi dari yang aku rencanakan."
 
+aku bergerak sambil menggaruk pipiku. sepertinya aku tidak bisa bilang kalau dialah yang membuatku menunggu diluar tadi. ketika aku berfikir seperti itu, sebuah cahaya, bau wangi bunga datang padaku. walaupun bau ini mirip dengan parfum yang dipakai bangsawan di dunia ini juga, utano-san sepertinya tidak tertarik dengan itu jadi aku agak sedikit terkejut juga. aku akan tertawa terbahak-bahak kalau kuuki bilang dialah yang paki parfum itu tapi sepertinya bukan dia.
+
+"ada yang salah?"
+
