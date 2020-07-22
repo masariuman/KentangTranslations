@@ -104,3 +104,7 @@ ketika dia selesai dia kembali menatapku.
 
 yaah mereka tidak datang pasti karena takut dengannya. didalam dirinya terdapat kepribadian baik tapi tatapan matanya menakutkan. aku bisa tahu karena aku sudah terbiasa tapi untuk orang lain sepertinya tidak semudah itu.
 
+sebaliknya, kuuki memiliki muka yang lembut. tingginya yang terlalu berlebihan mungkin sedikit mengurangi tampilannya tapi karena mata kecilnya dan ekpresi lembutnya, dia menjadi orang yang dapat diandalkan di setiap desa yang kami datangi.
+
+"sepertinya sage memiliki masalahnya sendiri, eh?"(renji)
+
