@@ -188,3 +188,44 @@ dia masih belum berada di guild manapun, dia adalah ahli pedang misterius yang t
 
 "aku penasaran berapa banyak dari itu benar."
 
+yang berbicara barusan adalah eksekutif dari guild petualang. dan juga walikota tornado yang  membelai janggutnya.
+
+"tapi hal seperti itu bukan masalah. dalam kasus terburuk, tidak masalah walaupun byuui adalah buronan dari suatu tempat."
+
+kata tornado.
+
+ada beberapa eksekutif guild petualang yang mengkerutkan keningnya tapi mereka tidak keberatan.
+
+"Byuui adalah kasus spesial dan akan dianggap sebagai petualang rank C. selanjutnya, dia akan membuat tim dan ketika mereka mengalahkan terror pisau hiu, timnya akan dianggap sebagai petualang rank b dan setelah itu, dia akan membantu zoltan secara keseluruhan. aku anggap tidak ada yang keberatan untuk itu."
+
+mereka mencoba bertanya kepada lit tapi dia tidak setuju dan lit menolak negoisasi.
+
+akan tetapi, tidak mungkin mereka meminta mantan walikota mistome-shi yang sudah tua, seorang archmage, untuk menjadi petualang sekali lagi. kapten penjaga Moen juga sibuk dengan masalah perlindungan ilahi iblis yang masih ada sampai sekarang.
+
+tidak ada pilihan lain selain membuat byuui menggantikan albert sebagai petualang rank B.
+
+"dan juga, byuui adalah murid dari rekan pahlawan, seniman bela diri Danan kan?"
+
+"iya, pahlawan lit juga berkata begitu. tapi kami belum mengkonfirmasinya."
+
+"tidak mungkin kita dapat menemukan darimana dia berasal di tempat terpencil seperti ini. lit juga tau akan hal itu. cara dia menjelaskan juga ambigu, kan ? singkatnya, statuslah yang membuat nyaman untuk kita mempercayakan dia sebagai petualang rank B."
+
+tornado juga tahu kalau ahli pedang muda Lit juga seorang yang cerdas dalam tawar-menawar politik.
+
+penerus tornado sebagai walikota, eksekutif guild petualang, goran, tidak dapat diandalkan jadi tornado memutuskan kalau dia harus mempertahankan pondasi di zoltan selama masa jabatannya.
+
+mistome-shi adalah pengguna magic yang hebat tapi dia walikota yang biasa saja.
+
+penilaian yang buruk itu sangat buruk daripada buruknya situasi bertarung langsung di garis depan. apa yang akan terjadi kalau mistome-shi pensiun?
+
+peran walikota adalah untuk membangun sistem yang bisa melancarkan penyelesaian masalah apapun tanpa harus walikotanya terlibat. karena itulah tornado yang menjalankan pekerjaannya.
+
+"jadi, kita akan memproses sesuai yang direncanakan?"
+
+"iya, seharusnya tidak ada masalah. hanya 1 berbanding 1 juta saja dia akan kalah untuk musuh selevel pisau hiu. berikan otoritas untuk petualang rank B ketika dia kembali. disisiku, sambil menggelar upacara peringatan untuk korban insiden ini, aku berencana untuk memberi tahu warga kelahiran pahlawan baru."
+
+pada akhirnya, pertemuan ini hanya untuk mengkonfirmasi rencana yang mereka tentukan untuk berikutnya.
+
+petualang rank B Byuui. jika dia tetap berada di zoltan, mungkin suatau hari dia akan menjadi walikota.
+
+dia adalah pahlawan muda yang bisa membawa zoltan kepada era yang baru.
