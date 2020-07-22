@@ -148,3 +148,21 @@ aku hanya bisa tersenyum kecut saat mendegarkan permintaan yang putus asa itu. c
 
 karena dengan adanya kuuki disini, semuanya akan selamat walaupun monster sekelas naga muncul. kuuki yuuta meminta [perisai yang dapat melindungan siapapun]. dengan itu dia dapat membuat pembatas(barrier) sebagai dia pusatnya. itu bahkan memiliki kemampuan untuk memutuskan apa yang akan dilindungi oleh barrier nya. apakah itu hembusan nafas naga, magic iblis rank tinggi, dan bahkan magic aya atau koutarou yang tidak dapat menentukan dimana musuh dan teman, perisainya melindungi kami dari semua itu.
 
+karena dia memiliki kekuatan seperti itu, dia pasti sellau berada di barisan depan.
+
+"kamu sekarang sudah berada di knight order ketiga kan?"(renji)
+
+"walaupun aku kurang berpengalaman, aku akhirnya bisa menjadi wakil komandan juga."
+
+"itu prestasi yang hebat sekali."(renji)
+
+ketika aku mengatakan itu, dia menggaruk pipinya karena malu. melihat dia seperti itu seperti biasanya, aku merasa senang juga.
+
+"dia berkencan dengan putri juga. walaupun sibuk, sepertinya dia bahagia."(utani)
+
+"TUNGGU-!"(kuuki)
+
+".....hou. kamu akrab dengannya dulu juga sih."(renji)
+
+"RENJI-SAN JUGA!"
+
