@@ -108,3 +108,19 @@ sebaliknya, kuuki memiliki muka yang lembut. tingginya yang terlalu berlebihan m
 
 "sepertinya sage memiliki masalahnya sendiri, eh?"(renji)
 
+"kamu akan segera mengerti, oh pahlawan yang hebat."(utano)
+
+melihat dia mengatakan kata itu dengan percaya diri, aku hanya bisa mengangkat bahuku. aku benar-benar ingin tidak mengerti dia, jika bisa. ketika aku melihat kedepan, kuuki juga mengangguk kepalanya untuk omongan utano-san. karena dia hidup di dalam istana juga, aku pikir dia harus ikut andil dalam beberapa hal juga.
+
+"aku benar-benar tidak cocok sebagai pahlawan."(renji)
+
+"benar, aku juga tidak cocok dipanggil sage."(utano)
+
+"oh tidak, tidak."(kuuki)
+
+mendengar suara sarkas kuuki, utano san datang dan duduk disampingku tapi terdapat beberapa jarak diantara kami. dia menaruh pecahan hati dewa iblis yang berwana hitam seperti permata di meja.
+
+"jadi ini hati dewa iblis, eh?"(kuuki)
+
+"hanya pecahan saja sih. tunggu, kuuki kau belum melihatnya sampai sekarang?"(renji)
+
