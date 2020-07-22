@@ -82,3 +82,21 @@ mengingat apa yang terjadi sore tadi, alasan lain mungkin aku hidup tanpa wanita
 
 "ara, bukankah kamu sudah makan tadi?"(utano)
 
+"....aku tertidur tadi. yaah, aku tidak begitu lapar, aku akan baik-baik saja."(renji)
+
+"tidak boleh begitu renji-san. kamu masih tahap pemulihan, kamu harus mendapatkan nutrisi yang baik juga."(kuuki)
+
+"yeah, yeah."
+
+aku duduk disofa di tengah ruangan. rasanya aneh duduk di sofa empuk setelah beberapa lama. pasti karena aku sudah sering duduk di kursi kayu sampai sekarang. aku tersenyum kecut dan kuuki duduk di depanku. aku akan mengabaikan perutku berbunyi sekarang. memalukan rasanya memikirkan itu.
+
+melihat aku sudah duduk, utano-san membunyikan bel yang ada dimejanya. dan, seorang wanita dengan pakaian pelayan muncul. dia sepertinya lebih muda dariku dan utano-san.
+
+aku diam melihat utano-san yang memesan beberapa minuman dan makanan ringan. melihat dia memesan seperti itu, seperti dia sudah terbiasa, ntah bagaimana cocok untuknya. dia benar-benar terlihat keren pada saat seperti ini. aku merasa aku akan diomeli kalau aku mengatakan 'keren' kepadanya karena itu bukan pujian untuk wanita.
+
+ketika dia selesai dia kembali menatapku.
+
+"ada apa?"(utano)
+
+"tidak ada, aku hanya berfikir sofa ini sangat enak."(renji)
+
