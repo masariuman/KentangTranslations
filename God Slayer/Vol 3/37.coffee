@@ -489,3 +489,5 @@ itu terasa sedikit menakutkan jadi aku mempercepat langkahku. langkah kaki diamk
 
 tujuanku adalah kapel di akhir koridor ini. utano-san berkata ermenhilde ada ditempat yang ingin aku tuju. berarti itu adalah kapel. terdapat patung perak dari sang dewi, tempat dimana kami dipanggil dari dunia lain. tempat dimana aku mendapatkan ermenhilde dari astraera.
 
+setelah datang kedunia ini pertama kali, dikelilingi oleh raja dan yang lainnya, hanya bocah di usia remaja dan orang berusian 20tahunan muncul. tapi tetap saja negara ini memperlakukan kami dengan baik. mendukung kami semua yang tidak memiliki kemampuan bertarung dan pengetahuan dunia ini. dan mereka bertarung disisi kami.
+
