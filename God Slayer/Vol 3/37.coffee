@@ -457,3 +457,17 @@ bahkan aku bisa merasakan mukaku mulai keram.
 
 utano-san pun cemberut mengembungkan pipinya karena tidak senang dengan sikapku. melihat ekpresi langkanya, aku meletakkan daguku diatas meja. betapa seriusnya dia? sambil memikirkan itu, aku pun berdiri menggelengkan kepalaku.
 
+"baiklah kalau begitu, ayo kita bersih-bersih."(renji)
+
+"iya, ayo."(kuuki)
+
+tapi, ketika aku ingin mulai bersih-bersih, lenganku dicengkram. ketika aku melihat kearah lenganku, jari kecil yang imut memegangku. aku melihat kearah pemilik jari itu.
+
+kuuki, berpura-pura tidak melihatnya, dengan cepat membersihkan semuanya dan dia sudah didekat pintu.
+
+"baiklah kalau begitu, sampai juga lagi nanti."(kuuki)
+
+sambil mengatakan itu, tanpa ragu, kuki meninggalkan ruangan.
+
+dasar tidak punya hati.
+
