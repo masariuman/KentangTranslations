@@ -218,3 +218,5 @@ mengatakan hal itu, utano-san menunjukkan 3 jarinya. dan kemudian, dia menutup 1
 
 "tapi, hanya mereka berdua saja tidak dapat mendukung dunia ini. itu karena dunia ini dibuat seperti itu dan membutuhkan 3 tiang untuk menopangnya."
 
+"yeah, aku tahu itu juga."
+
