@@ -319,4 +319,17 @@ mengalihkan pandanganku dari utano-san, aku mengambil cemilan untuk dimakan. cem
 
 pipi wanita yang duduk disampingku menjadi merah dan dibawah mata merahnya terdapat kacamata yang berembun. apakah dia selalu cepat mabuk seperti ini? atau hanya karena dia stress dari pekerjaannya? karena aku sadar kalau itu sangat kasar untuk mengatakan kalau dia minum terlalu cepat, aku tetap minum dengan kecepatanku saja. yaah, pingsan di kamar wanita pada tengah malam akan merepotkan juga.
 
-kuuki, tidak seperti penampilannya, bisa menahan minuman kerasnya.
+kuuki, tidak seperti penampilannya, bisa menahan minuman kerasnya. mungkin karena dia memiliki badan yang besar, atau mungkin karena dianya juga tahan. bahkan ketika kami berkelana bersama, aku tidak pernah melihatnya benar-benar mabuk.
+
+"serius, akan sangat baik kalau masalah dengan monster ini berhenti."(kuuki)
+
+"bahkan setelah dewa iblis terbunuh, mungkin beberapa tidak akan berubah, eh? dunia ini benar-benar dunia yang sibuk."
+
+ketika aku minum lagi, kuuki mulai menuangkan air ke dalam gelasku lagi, sebagai gantinya aku menuangkan ke gelasnya dan kami memberikan terima kasih kecil ke sesama kami.
+
+"tapi tetap, karena itulah aku ingin menggunakan kekuatan ini untuk orang lain sebisaku."(kuuki)
+
+"ou, berjuanglah. hanya dengan seperti itu, kamu bisa mencuri hati putri juga."(renji)
+
+"sudah cukup untuk itu...."
+
