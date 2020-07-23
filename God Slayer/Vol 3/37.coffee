@@ -399,3 +399,11 @@ dan aku tahu apa yang dipegangnya. itu adalah pedang mithril yang aku jual dulu 
 
 "yaah, sedikit."(renji)
 
+"pria ini menjualnya dengan sangat murah di sebuah desa karena desa itu tidak ada uang. aku harus dengan cepat menghabiskan banyak uang untuk membelinya kembali."(utano)
+
+tanpa mengatakan apapun, aku tetap meneguk minumanku. yaaah, aku kehabisan uang jadi aku menjualnya, tapi aku tidak akan mengatakan itu. demi nyawaku. jika aku mengatakan itu, dia pasti menguburku.
+
+"sampai kamu melunasinya, kamu tidak boleh lari, okay?"(utano)
+
+"okay."
+
