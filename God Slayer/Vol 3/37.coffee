@@ -182,4 +182,19 @@ ketika aku mengerjai kuuki dengan muka merahnya, aku mengambil pecahan hitam dia
 
 "bukankah lebih baik kita hancurkan saja?"
 
-""
+"tidak semudah seperti yang kau lihat. dewa roh juga terlibat dalam hal ini."
+
+"yaah benar juga."
+
+"......dan sekarang kita kembali ke topik utama, bisakah kalian berhenti ?"(kuuki)
+
+ketika mendengarkan keluhan kuuki, aku mengembalikan pecahan itu ke atas meja. jantung raja iblis. karena akulah yang menghancurkannya sebelumnya, aku mengetahuinya. dewa roh juga memiliki kekuatan untuk menghacurkan pecahan seperti ini. mungkin lebih baik daripada aku. tapi karena dia mengirimkannya kepada utano-san tanpa menghancurkannya, mungkin ada alasan dibalik itu. pada dasarnya, aku menghancurkan itu setahun lalu di benua abenelm. bagaimana bisa itu sampai kesini ?
+
+"jujur aku ingin menghancurkannya secepat mungkin."(renji)
+
+"kau tidak bisa melakukannya. mungkin ini dibutuhkan untuk dunia ini mulai sekarang."(utano)
+
+pada perkataannya, pandanganku sekali lagi melihat ke pecahan itu.
+
+"jantung dari dewa iblis yang ingin menghancurkan dunia?"(renji)
+
