@@ -493,3 +493,6 @@ setelah datang kedunia ini pertama kali, dikelilingi oleh raja dan yang lainnya,
 
 mereka semua dalah orang-orang yang  baik. semuanya. karena itulah, aku berfikir aku akan bekerja keras untuk dunia ini. untuk orang-orang di negeri ini, aku memutuskan untuk bertarung. aku takut melukai dan terluka dan benar, untuk membunuh dan untuk terbunuh juga menyeramkan. tapi tetap saja, aku mengambil senjataku. aku mencoba melakukan apa yang aku inginkan. berharap aku bisa membayar orang-orang ini.
 
+berapa lama aku berajalan di koridor gelap ini? akhirnya, didepanku, ada pintur besar. tampilannya sama dengan sebelumnya dan tempatnya juga belum berubah dari ingatanku. aku tidak senang ataupun sedih tapi aku membuka pintu itu dengan seluruh kemampuanku.
+
+dulu, nafasku akan terengah-engah dan aku langsung lelah hanya dengan membukan pintu ini tapi sekarang aku bisa membukanya dengan mudah.
