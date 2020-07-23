@@ -491,3 +491,5 @@ tujuanku adalah kapel di akhir koridor ini. utano-san berkata ermenhilde ada dit
 
 setelah datang kedunia ini pertama kali, dikelilingi oleh raja dan yang lainnya, hanya bocah di usia remaja dan orang berusian 20tahunan muncul. tapi tetap saja negara ini memperlakukan kami dengan baik. mendukung kami semua yang tidak memiliki kemampuan bertarung dan pengetahuan dunia ini. dan mereka bertarung disisi kami.
 
+mereka semua dalah orang-orang yang  baik. semuanya. karena itulah, aku berfikir aku akan bekerja keras untuk dunia ini. untuk orang-orang di negeri ini, aku memutuskan untuk bertarung. aku takut melukai dan terluka dan benar, untuk membunuh dan untuk terbunuh juga menyeramkan. tapi tetap saja, aku mengambil senjataku. aku mencoba melakukan apa yang aku inginkan. berharap aku bisa membayar orang-orang ini.
+
