@@ -391,3 +391,11 @@ mungkin suatau hari nanti aku akan memutuskan apa yang akan aku lakukan tentang 
 
 setelah menatapku beberapa saat, utano-san berdiri. dia mendekati mejanya, dia kembali dengan sesuatu yang tetap tersembunyi di mejanya. mukanya merah tapi jalannya tetap lurus sempurna.
 
+dan aku tahu apa yang dipegangnya. itu adalah pedang mithril yang aku jual dulu di desa itu. bagaimana itu bisa ada disini? aku memiringkan kepalaku karena bingung.
+
+"ini, bukan barang untuk dijual. kamu seharusnya tidak melepaskan ini dengan mudah, yamada-kun."(utano)
+
+"apa sesuatu terjadi dengan pedang itu?"(kuuki)
+
+"yaah, sedikit."(renji)
+
