@@ -228,3 +228,7 @@ iblis itu berkata mereka ingin menghidupkan kembali dewa iblis. aku tidak tahu m
 
 "fakta bahwa bagaimana dewi membuat manusia, dewa roh membuat ras setengah manusia (demi-human) dan manusia setengah monster(beastmen seperti mururu) serta dewa iblis membuat monster dan iblis?"
 
+"iya, menurut dugaanku, pasti ada sesuatu yang terjadi di benua abenelm."
+
+begitu. sepertinya memang tempat itulah yang akan terkena efek pertama kali. tapi karena itu hanya berhubungan dengan monster dan iblis, aku tidak terlalu memikirkannya. karena dia mengatakan dia sedang menyelidikinya, dia mengirim orang ke abenelm. itu terdengar seperti sesuatu yang merepotkan. monster, monster iblis, dan raksasa yang ada di benua itu merajalela disitu.
+
