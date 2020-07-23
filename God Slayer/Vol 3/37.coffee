@@ -481,3 +481,5 @@ aku ingin dipuji karena aku tidak berteriak kepadanya seperti tu.
 
 .
 
+aku berjalan melewati koridor ditengah malam. udara dingin menyentuh kulitku membuatku menggigil tapi tubuhku hangat karena alkohol. lantai koridor terbuat dari batu tapi karena diberi karpet, langkah kakiku tidak nyaring, hampir tidak bersuara. ketika aku melewati beberapa tentara yang berjaga di malam hari, mereka menunduk kepadaku setiap kali mereka melihatku.
+
