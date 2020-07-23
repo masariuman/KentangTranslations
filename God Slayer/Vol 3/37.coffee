@@ -252,3 +252,66 @@ aku membengkokkan lidahku karena tidak puas. tiba-tiba ada yang mengetuk pintu. 
 
 "yaaaah, mari tinggalkan omongan yang merepotkan untuk nanti."(renji)
 
+pelayan dengan cepat menyiapkan semuanya diatas meja. alkohol yang berada diatas meja adalah alkohol kelas tinggi, aku bisa tahu hanya dengan sekali lihat.... yaaah, sudah kuduga juga sih.
+
+menyuruh pelayan keluar, utano-san menuangkannya untukku. sebagai gantinya, aku menuangkan alkohol untuknya dan kuuki. 3 gelas dipenuhi dengan cairan berwarna merah tua dan bau dari minuman keras dicampur dengan bau bunga sebelumnya. tiba-tiba aku mengingat sesuatu. ketika kami mulai minum dan kami benar-benar berhenti berbicara tentang hal penting.
+
+"utano=san, dimana ermenhilde?"
+
+"eh?"
+
+tunggu, ini akan menjadi masalah kalau kamu melihatku kebingungan lho...
+
+"kamu belum bertemu dengannya?"
+
+"yaaah, yui-chan dan anastasia tidak tahu dimana dia. fafnir juga."
+
+sebagai gantinya, aku dilihat langsung oleh fafnir karena itu.
+
+"dia berada di tempat yang paling ingin kamu tuju sekarang."(utano)
+
+".....aaah."
+
+aku langsung tahu dimana tempat itu hanya dengan kata-katanya. aku pun menghela nafas.
+
+aku penasaran bagaimana dia melihat reaksiku, utano-san mulai minum 
+sambil melihatku sambil tersenyum.
+
+"benar juga, kupikir aneh sekali kenapa dia diam. rupanya eru-san tidak bersamamu."(kuuki)
+
+"aku akan memberi tahu ermenhilde nanti kalau kuuki bilang dia bersiik, pasti."
+
+"mengapa jadi seperti itu!?"
+
+entah bagaimana, ketika aku mengerjadi kuuki untuk melampiaskan frustasiku, utano-san melihatku dengan senang.
+
+"aku beryukur kamu selamat."(utano)
+
+"hm?"
+
+"bahkan aku juga khawatir sedikit lho... aku pikir kamu akan benar-benar mati."
+
+utano-san mengatakan itu dengan mata hangatnya. menggunakan ekpresi seperti itu sungguh curang. biasanya dia bahkan tidak tertawa tapi dia menggunakan ekpresi ini kalau kami berdua saja. mengingat ciuman tadi lagi, aku tersadarkan lagi.
+
+pada dasarnya, diajak ke kamar wanita di malam hari saja sudah terdengar aneh, yeah.. yaaah, aku tetap datang juga sih. sambil memikirkan tentang ermenhilde dan situasi sekarang, aku minum dari gelasku. aku mencium sesuati seperti wiski tapi tidak begitu kuat.
+
+"itu benar, yuuko-san dan aya-chan tidak tidur karena khawatir lho..."(kuuki)
+
+"aku bahkan tidak menyangka bertemu monster seperti itu di benua ini."(renji)
+
+jika aku tahu tentan gitu, walaupun membutuhkan waktu, aku pasti memilih menghindari hutan. tengkorak sialan itu. jujur, aku pasti akan mati kalau bukan karena mururu. dia kuat.
+
+"tapi untuk seekor monster bisa memojokkan renji-san seperti itu..."(kuuki)
+
+"itu tidak seperti itu. tanpa perjanjiannya terpenuhi, yamada-kun hanya sekuat ksatria biasa."(utano)
+
+".....benar, tapi bukankah kamu sedikit kasar?"(renji)
+
+"aku membuat penilaian sempurna menurut pendapatku. kamu memiliki kebiasaan menghadapi musuh yang diatas dari kemampuanmu. tolong ubah kebiasaan itu."(utano)
+
+aku tidak punya kebiasaan seperti itu. aku ingin memprotesnya tapi aku tahan untuk saat ini.
+
+kenyataannya, aku melawan musuh yang lebih kuat dariku terlalu banyak. didukung oleh temanku, diselamatkan dan dilindungi oleh mereka juga. sama juga untuk sekarang. aku selalu sadar kalau faktanya tanpa temanku aku tidak bisa bertarung. dan pasti mati tanpa mereka.
+
+"aku ingin menghindari bertarung kalau bisa. luka itu sakit dan aku takut mati juga."(renji)
+
