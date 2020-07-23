@@ -471,3 +471,13 @@ sambil mengatakan itu, tanpa ragu, kuki meninggalkan ruangan.
 
 dasar tidak punya hati.
 
+aku ingin dipuji karena aku tidak berteriak kepadanya seperti tu.
+
+.
+
+.
+
+.
+
+.
+
