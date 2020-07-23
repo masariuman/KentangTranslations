@@ -174,3 +174,12 @@ melihat pria tinggi dan tampan tersipu malu seperti itu, aku menjadi cemburu. si
 
 "hmmmm, 'belum' eh?"(renji)
 
+yaaah, kesampingkan perasaan mereka, mereka juga memikirkan posisi mereka juga. putri dan pahlawan. ada jug astatus didalam istana, ketika dia menjadi komandan dari order knight, tidak akan ada masalah.
+
+"aaaaaah, ayolaah. percakapan ini sudah keluar jauh dari topik utama. yuukoo-saan!!"(kuuki)
+
+ketika aku mengerjai kuuki dengan muka merahnya, aku mengambil pecahan hitam diatas meja. aku menggenggamnya dengan seluruh kekuatanku tapi tidak hancur. mungkin aku bukan apa-apa tanpa ermenhilde.
+
+"bukankah lebih baik kita hancurkan saja?"
+
+""
