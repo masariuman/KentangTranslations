@@ -437,3 +437,23 @@ karena jumlah yang menakjubkan, kepalaku tidak bekerja dengan baik.
 
 melihat gurauan kami, utano-san tertawa sedikit. dia benar-benar mabuk. melihat dia seperti itu yang normalnya bahkan tidak tersenyum, aku berhenti peduli dengan hutang 10 perak. yaaah, itu tidak membuatku menjadi lebih baik juga.
 
+karena aku tidak bisa memikirkan apapun sekarang, aku memutuskan untuk nanti saja memikirkannya. aku merasa aku akan diomeli ermenhilde nanti. ketika aku menuangkan minuman keras lagi, aku sadar kalau botolnya sudah kosong.
+
+"aku rasa ini sudah saatnya."(renji)
+
+"ah, sudah selesai?"(kuuki)
+
+"itu, aku punya sesuatu yang harus aku depresikan sekarang."
+
+"yaah, bukankah itu tidak apa-apa? itu akan lebih baik untuk tinggal di tempat yang sama untuk beberapa waktu lho.."
+
+"dengan hutang sebesar itu, aku merasa aku akan tinggal disini sampai akhir hidupku."
+
+bahkan aku bisa merasakan mukaku mulai keram.
+
+"ara, aku bahkan makin tidak masalah kalau begitu..."(utano)
+
+"yeah yeah. orang mabuk harus segera tidur."
+
+utano-san pun cemberut mengembungkan pipinya karena tidak senang dengan sikapku. melihat ekpresi langkanya, aku meletakkan daguku diatas meja. betapa seriusnya dia? sambil memikirkan itu, aku pun berdiri menggelengkan kepalaku.
+
