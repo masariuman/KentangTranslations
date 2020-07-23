@@ -385,4 +385,9 @@ ketika aku menjawab kuuki, utano-san melihat kearahku. sepertinya pipi merahnya 
 
 ketika kami bertiga tertawa, aku meneguk minuman lagi. seperti yang kuuki katakan, aku tidak merasa jarak diantara diriku dan utanosan menciut sedikitpun. aku tahu perasaannya. dan utano-san tahu kalau aku tahu tentang perasaannya juga. dia selalu mendekatiku tapi akulah yang selalu mundur. kami juga sudah melakukan hubungan intim bersama, kami juga saling mencari kehangatan. sebagai orang dewasa denga umur yang sama yang dipanggil didunia ini, akur asa itu normal untuk kami memiliki sesuatu sama yang dinginkan. itu adalah hubungan yang berbeda dengan aya, itu terasa enak.
 
-mungkin suatau hari nanti aku akan memutuskan 
+mungkin suatau hari nanti aku akan memutuskan apa yang akan aku lakukan tentang hubungan kami nanti, tapi untuk sekarang, aku hanya ingin dimanja dengan kebaikannya. mungkin itulah alasan mengapa aku selalu dipanggil tidak kompeten. mengingat kata anastasia, pikiranku kembali ke kenyataan. mungkin karena dia mabuk, pandangan dinginnya agak kabur.
+
+"sekarang aku ingat-"
+
+setelah menatapku beberapa saat, utano-san berdiri. dia mendekati mejanya, dia kembali dengan sesuatu yang tetap tersembunyi di mejanya. mukanya merah tapi jalannya tetap lurus sempurna.
+
