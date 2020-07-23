@@ -483,3 +483,9 @@ aku ingin dipuji karena aku tidak berteriak kepadanya seperti tu.
 
 aku berjalan melewati koridor ditengah malam. udara dingin menyentuh kulitku membuatku menggigil tapi tubuhku hangat karena alkohol. lantai koridor terbuat dari batu tapi karena diberi karpet, langkah kakiku tidak nyaring, hampir tidak bersuara. ketika aku melewati beberapa tentara yang berjaga di malam hari, mereka menunduk kepadaku setiap kali mereka melihatku.
 
+rak-rak yang didekorasi, bunga-bunga cantik, ksatria dengan set armor perak, dan lampu magic kecil. semua diatur di sepanjang koridor dan bersinar dalam kegelapan malam.
+
+itu terasa sedikit menakutkan jadi aku mempercepat langkahku. langkah kaki diamku mulai sedikit berbunyi.
+
+tujuanku adalah kapel di akhir koridor ini. utano-san berkata ermenhilde ada ditempat yang ingin aku tuju. berarti itu adalah kapel. terdapat patung perak dari sang dewi, tempat dimana kami dipanggil dari dunia lain. tempat dimana aku mendapatkan ermenhilde dari astraera.
+
