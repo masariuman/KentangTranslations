@@ -198,3 +198,23 @@ pada perkataannya, pandanganku sekali lagi melihat ke pecahan itu.
 
 "jantung dari dewa iblis yang ingin menghancurkan dunia?"(renji)
 
+"baru-baru ini, monster bertingkah aneh. kamu juga sadar akan hal itu kan?"(utano)
+
+fumu, aku meletakkan jariku ke daguku.
+
+aku bisa mengingat beberapa contoh. ogre yang muncul di sebuah desa entah darimana, keturunan dari dewa iblis, pasukan goblin dan iblis yang mengontrol mereka.
+
+kuuki sepertinya sibuk karena pergerakan monster yang tak menentu juga bahkan dewa roh yang malas juga beraksi. pasti ada sesuatu yang terjadi yang tidak bisa kami lihat sekarang.
+
+"sekarang aku ingat, iblis yang menyerang kota magic mengatakan sesuatu tentang menghidupkan kembali dewa iblis."(renji)
+
+"iya, aku juga mendengar hal itu. sepertinya itu salah satu alasannya."(utano)
+
+"apa maksudmu?"
+
+"yang membuat dunia ini adalah dewi, dewa roh dan raja iblis, 3 tiang utama itu kan?"
+
+mengatakan hal itu, utano-san menunjukkan 3 jarinya. dan kemudian, dia menutup 1 jarinya. kami membunuh dewa iblis. artinya, dunia ini hanya di dukung oleh dewi dan dewa roh.
+
+"tapi, hanya mereka berdua saja tidak dapat mendukung dunia ini. itu karena dunia ini dibuat seperti itu dan membutuhkan 3 tiang untuk menopangnya."
+
