@@ -355,3 +355,34 @@ ahh, kaki kiriku sakit. ketika aku melihat kekiri ke utano-san, dia masih meminu
 
 kami lanjut berbicara sambil minum. akhirnya aku bebas dari kaki utano-san.
 
+"tetaplah di ibukota untuk sekarang, aku ada banyak hal yang ingin kau lakukan untukku."(utano)
+
+"iya."
+
+memberikan dia jawaban dengan satu kata saja. aku minum lagi. entah itu karena kemanisannya atau keseramannya, aku gugup hanya menjawab dengan 1 kata saja. ketika dia sedikit menggigil, aku dengan cepat menyembunyikan senyumku yang datang darinya.
+
+"jadi, renji-san, kamu tidak akan berpegian lagi?"(kuuki)
+
+"yaah, aku masih memikirkan hal itu. aku memiliki hal yang ingin kulakukan tapi untuk sekarang paling tidak aku akan tetap di ibukota."(renji)
+
+ketika aku menjawab kuuki, utano-san melihat kearahku. sepertinya pipi merahnya bukan hanya karena alkohol.
+
+"sesuatu yang ingin dilakukan?"(utano)
+
+"iya, aku ingin memperlihatkan dunia kepada ermenhilde dan kemudian diam-diam menetap disebuah desan dan bersantai disitu. ada hal lain juga sih."(renji)
+
+"sungguh mimpi yang bagus. ketika kamu menetap di sebuah desa, maukah kamu mengajakku juga?"(utano)
+
+"yaaah, kalau kamu belum menemukan laki-laki yang baik sampai saat itu."(renji)
+
+"um....bisakah kalian berdua berhenti saling menggoda seperti ini?"(kuuki)
+
+"padahal kami tidak seperti itu"(ranji)
+
+"nyatanya, seharusnya itu kalimatku, yuuta-kun. setiap kai kamu berada di tempat latihan kamu langsung berbicara dengan putri. aku bisa melihat langsung dari jendela kamarku lho.."
+
+"....Ehh..."
+
+ketika kami bertiga tertawa, aku meneguk minuman lagi. seperti yang kuuki katakan, aku tidak merasa jarak diantara diriku dan utanosan menciut sedikitpun. aku tahu perasaannya. dan utano-san tahu kalau aku tahu tentang perasaannya juga. dia selalu mendekatiku tapi akulah yang selalu mundur. kami juga sudah melakukan hubungan intim bersama, kami juga saling mencari kehangatan. sebagai orang dewasa denga umur yang sama yang dipanggil didunia ini, akur asa itu normal untuk kami memiliki sesuatu sama yang dinginkan. itu adalah hubungan yang berbeda dengan aya, itu terasa enak.
+
+mungkin suatau hari nanti aku akan memutuskan 
