@@ -333,3 +333,25 @@ ketika aku minum lagi, kuuki mulai menuangkan air ke dalam gelasku lagi, sebagai
 
 "sudah cukup untuk itu...."
 
+kesampingkan fisiknya, dia tidak terbiasa dengan percakapan seperti ini. yaaah, mungkin karena itulah dia populer, ada celah di kepribadiannya. aku pikir putri memiliki mata yang bagus. kuuki benar-benar pria yang baik.
+
+"kesampingkan aku, renji-san juga harus berbicara tentang dirimu sendiri."(kuuki)
+
+"aku?"
+
+"apa yang kamu lakukan 1 tahun terakhir ini?"
+
+"aku bersantai di sebuah desa dengan ermenhilde."
+
+"kalian akrab seperti biasanya,"
+
+"...tidak sesimpel itu.."
+
+ahh, kaki kiriku sakit. ketika aku melihat kekiri ke utano-san, dia masih meminum dari gelasnya dengan muka yang sangat merah. melihatnya memegang gelas dengan kedua tangannya sangat manis. tapi kaki kanannya yang menginjak kaki kiriku semakin kuat saja. kuuki mungkin tidak bisa melihatnya karena dibawah meja. dia masih tersenyum seperti biasanya. Aah, itu benar-benar sakit.
+
+"yaaah, masih banyak yang aku ingin lakukan. jika aku akan mati, aku aka mati setelah 50 tahun nanti ketika bersantai di tempat tidur."(renji)
+
+"itu benar, kupikir paling tidak ancaman monster akan berkurang secara perlahan."(kuuki)
+
+kami lanjut berbicara sambil minum. akhirnya aku bebas dari kaki utano-san.
+
