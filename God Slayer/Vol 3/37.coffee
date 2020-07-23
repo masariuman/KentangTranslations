@@ -315,3 +315,8 @@ kenyataannya, aku melawan musuh yang lebih kuat dariku terlalu banyak. didukung 
 
 "aku ingin menghindari bertarung kalau bisa. luka itu sakit dan aku takut mati juga."(renji)
 
+mengalihkan pandanganku dari utano-san, aku mengambil cemilan untuk dimakan. cemilan ini pasti daging orc yang diasapi, benar-benar cocok dengan minuman keras. aku meminum sekali lagi untuk membasahi tenggorokanku. sudah lama sekali aku tidak minum dengan mereka berdua. aku tidak bisa tidak mabuk hari ini. sepertinya mereka berdua juga sama karena kecepatan minum mereka juga meningkat.
+
+pipi wanita yang duduk disampingku menjadi merah dan dibawah mata merahnya terdapat kacamata yang berembun. apakah dia selalu cepat mabuk seperti ini? atau hanya karena dia stress dari pekerjaannya? karena aku sadar kalau itu sangat kasar untuk mengatakan kalau dia minum terlalu cepat, aku tetap minum dengan kecepatanku saja. yaah, pingsan di kamar wanita pada tengah malam akan merepotkan juga.
+
+kuuki, tidak seperti penampilannya, bisa menahan minuman kerasnya.
