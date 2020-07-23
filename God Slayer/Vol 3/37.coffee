@@ -521,3 +521,48 @@ mengambil ermenhilde yang berputar diudara, aku membuka tanganku. itu adalah kep
 
 [....waah.]
 
+mengambil nafas dalam-dalam, aku mulai menghembuskan nafas. udara dingin terasa enak ditubuhku yang hangat karena minuman keras.
+
+[bagaimana lukamu?]
+
+"aku baik-baik saja. apa aku membuatmu khawatir?"
+
+[Tentu saja.]
+
+"begitu..."
+
+aku menggenggam ermenhilde di tanganku dan berdiri.
+
+"apa kamu ingat, disinilah tempat kita pertama bertemu."
+
+[begitukah? maaf. seperti yang kukatakan sebelumnya tapi mungkin karena bertarung melawan dewa iblis, aku tidak bisa begitu mengingat hal-hal sebelumnya.]
+
+"tidak, tidak apa-apa. itu tidak begitu wow juga."
+
+pada perkataan ermenhilde, aku memberikan balasan yang tidak peduli. bahkan walaupun kamu tidak mengingatnya, walaupun kamu melupakannya, bahkan kalau begitu, aku akan mengigat semuanya---
+
+aku mulai berjalan. sebelum meninggalkan kapel, aku kembali ke patung dewi.
+
+"aku pulang."
+
+aku tidak tahu jika itu hal yang benar untuk dikatakan tapi aku mengatakan itu kepada dewi.
+
+<selamat datang kembali kerumah.>
+
+apakah aku berhalusinasi? tapi,a ku merasa kalau suara itu memberikanku sedikit dorongan dibelakang.
+
+[ada apa renji?]
+
+"tidak, ada sesuatu yang harus kukatakan padamu."
+
+[apa?]
+
+"aku memiliki hutang."
+
+[.......]
+
+"10 koin silver untuk utano-san."
+
+[..........................Apa??]
+
+sambil slah mengira caraku menggunakan keberanianku, walaupun begitu, aku akan melunasinya...
