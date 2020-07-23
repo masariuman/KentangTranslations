@@ -407,3 +407,33 @@ tanpa mengatakan apapun, aku tetap meneguk minumanku. yaaah, aku kehabisan uang 
 
 "okay."
 
+dan sudah kuduga, aku tidak ada pilihan lain selain mengambil pedang mithrilku kembali dari utano-san yang duduk disebelahku. batu kecubung yang berada di ganggangnya adalah bukti kalau itu punyaku. karena aku tidak memiliki energi magic, aku tidak dapat menggunakannya tapi jika kamu menggunakannya, lambang kerajaan akan muncul, membuktikan kalau itu adalah pedang yang bagus.
+
+"kamu menjual pedang yang kamu dapatkan dari raja?"(kuuki)
+
+"dan juga, itu sangat-sangat murah."(utano)
+
+hentikanlah, telingaku sakit. mari lanjut minum saja. ketika mendengarkan mereka berdua berbicara, aku tetap minum sambil merasa sedikit malu.
+
+"10 perak. kamu harus membayarnya dengan itu, okay?"(utano)
+
+"......Eh?"(TN: untuk pengingat, perak di dunia ini sangat mahal daripada emas dan tembaga. jadi 10 perak itu sangat mahal.)
+
+ada apa dengan jumlah yang menakutkan itu!? tangan kuuki, yang memegang gelas juga berhenti. ketika aku melihat kesebelahku, mata mabuknya melihat langsung padaku.
+
+"10?"(renji)
+
+"perak, iya."(utano)
+
+100 emas setara 1 perak... jadi 1000 emas. jika dijadikan tembaga, itu berarti 100,000 koin tembaga. ngomong-ngomong, aku hanya punya 10 koin tembaga sekarang.
+
+aku melihat kembali ke pedangku. karena dia membelinya seharga 10 perak, aku bisa menjualnya lagi dengan 10 perak, kan? aku dengan cepat berfikir seperti itu dan mabuk pada diriku langsung hilang juga. tidak, tunggu, tapi dia akan membelinya lagi dan aku akan berhutang padanya lagi!?
+
+karena jumlah yang menakjubkan, kepalaku tidak bekerja dengan baik.
+
+"aku turut bersedih denganmu."(kuuki)
+
+"Oi. berhenti menggabungkan tanganmu seperti itu, sialan."(renji)
+
+melihat gurauan kami, utano-san tertawa sedikit. dia benar-benar mabuk. melihat dia seperti itu yang normalnya bahkan tidak tersenyum, aku berhenti peduli dengan hutang 10 perak. yaaah, itu tidak membuatku menjadi lebih baik juga.
+
