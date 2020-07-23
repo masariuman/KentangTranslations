@@ -232,3 +232,23 @@ iblis itu berkata mereka ingin menghidupkan kembali dewa iblis. aku tidak tahu m
 
 begitu. sepertinya memang tempat itulah yang akan terkena efek pertama kali. tapi karena itu hanya berhubungan dengan monster dan iblis, aku tidak terlalu memikirkannya. karena dia mengatakan dia sedang menyelidikinya, dia mengirim orang ke abenelm. itu terdengar seperti sesuatu yang merepotkan. monster, monster iblis, dan raksasa yang ada di benua itu merajalela disitu.
 
+dan jika benar-benar seperti yang dia katakan, aku ada hubungannya dengan masalah ini. alasan dibalik aksi monstre yagn aneh adalah....yang membunuh dewa iblis adalah aku. karma benar-benar bekerja dengan cara yang aneh, akupun menghela nafas. dan juga, jika dewa iblis dibutuhkan didunia ini artinya kita harus menghidupkan dia lagi, orang sialan itu.
+
+"untuk masalah itu, aku pikir kita harus menunggu apa yang akan dikatakan oleh dewi astraera tentang ini. apakah kamu ada mendengar sesuatu?"(utani)
+
+"kenapa kamu bertanya kepadaku? aku tidak ada mendengar apapun darinya 1 tahun terakhir ini."(renji)
+
+"......yaag, kamu adalah orang yang paling mungkin dihubunginya. dia hanya menghubungimu dan memberikanmu tugas yang aneh juga."
+
+"jangan buat aku mengingat itu. itu membuatku depresi."
+
+"bukankah itu hal yang bagus? kamu disukai oleh astraera-sama. bukankah itu bisa dianggap sebagai kehormatan lho..."(kuuki)
+
+"diamlah. perempuan itu tidak sama sekali terdengar baik seperti yang dibicarakan."
+
+dia tidak menganggu tapi dia terkadang merepotkan. contohnya, dia selalu merepotkanku dengan semua permintaannya. normalnya, itu akan menjadi tugasnya brave, souichi. tapi aku pikir realita tidak bekerja seperti fantasi. karakter sampingan apaan yang mendapatkan banyak masalah dari pahlawan utama?
+
+aku membengkokkan lidahku karena tidak puas. tiba-tiba ada yang mengetuk pintu. ketika utano-san menjawab ketukan pintu, pelayan sebelumnya datang dengan nampan besar dengan alkohol dan beberapa cemilan. walaupun lantai ini memakai karpet, sudah kuduga dari seorang pelayan dapat berjalan tanpa menghasilkan suara.
+
+"yaaaah, mari tinggalkan omongan yang merepotkan untuk nanti."(renji)
+
