@@ -220,3 +220,11 @@ mengatakan hal itu, utano-san menunjukkan 3 jarinya. dan kemudian, dia menutup 1
 
 "yeah, aku tahu itu juga."
 
+pada perjalanan kami, aku memikirkan itu beberapa kali juga. karena mereka bertiga yang membangun dunia ini, apakah ada efek kalau satu dari mereka dibunuh? apakah utano-san berfikir kalau karena itulah para monster menjadi seperti ini?
+
+iblis itu berkata mereka ingin menghidupkan kembali dewa iblis. aku tidak tahu mengapa atau bagaimana mereka menggunakan keturunan raja iblis untuk itu. para keturunan keturunannya lahir langsung dari kekuatan dewa iblis. monster lahir dari dewa iblis juga tapi keturunannya memiliki kekuatan jauh lebih kuat daripada monster jadi mereka berdiri diatas monster normal dan bahkan iblis. karena itulah normalnya, keturunan dewa iblis lah yang mengendalikan para iblis dan monster untuk kebutuhan mereka.
+
+"aku masih memikirkannya tapi aku pikir, karena kita membunuh 1 dari 3 tiang, keseimbangan dari dunia ini hancur."(utano)
+
+"fakta bahwa bagaimana dewi membuat manusia, dewa roh membuat ras setengah manusia (demi-human) dan manusia setengah monster(beastmen seperti mururu) serta dewa iblis membuat monster dan iblis?"
+
