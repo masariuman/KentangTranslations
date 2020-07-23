@@ -495,4 +495,4 @@ mereka semua dalah orang-orang yang  baik. semuanya. karena itulah, aku berfikir
 
 berapa lama aku berajalan di koridor gelap ini? akhirnya, didepanku, ada pintur besar. tampilannya sama dengan sebelumnya dan tempatnya juga belum berubah dari ingatanku. aku tidak senang ataupun sedih tapi aku membuka pintu itu dengan seluruh kemampuanku.
 
-dulu, nafasku akan terengah-engah dan aku langsung lelah hanya dengan membukan pintu ini tapi sekarang aku bisa membukanya dengan mudah.
+dulu, nafasku akan terengah-engah dan aku langsung lelah hanya dengan membukan pintu ini tapi sekarang aku bisa membukanya dengan mudah. mungkin karena aku sudah tumbuh sedikit juga.
