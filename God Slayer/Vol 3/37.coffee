@@ -505,3 +505,19 @@ ketika aku bergumam, suaraku bergema di dalam kapel yang kosong. diantara keinda
 
 [kau terlambat.]
 
+suaranya seperti suara marah, tapi aku merasa lega.
+
+partnerku yang kucari berada di tangan patung dewi.
+
+"maaf, aku terlambat."
+
+[serius, aku harus menunggu sangat lama.]
+
+mengambil ermenhilde dengan tanganku, aku duduk di salah satu kursi kayu. *ping*, aku menjentikkan medal dengan jempolku. suaranya terdengar keseluruh kapel. dan setelah itu suara diam terjadi kembali. tapi, aku tidak peduli tentang itu.
+
+mengambil ermenhilde yang berputar diudara, aku membuka tanganku. itu adalah kepala.
+
+"hmmmm, sepertinya bagus."
+
+[....waah.]
+
