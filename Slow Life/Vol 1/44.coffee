@@ -106,7 +106,7 @@ nama dari iblis diberikan alami dari bangsanya. itu tidak sesimpel seperti nama 
 
 Byuui...Shisandan meraih leher dari iblis kontrak yang ingin memanggil namanya untuk mendiamkannya.
 
-"kalian bertindak tanpa memikirkan konsekuensinya. kamu bahkan membawa-bawa 'perlindungan ilahi iblis'. apa yang akan terjadi kalaumanusia sadar obat itu tidak membutuhkan jantung iblis? obat itu dapat membuka potensi sebenarnya yang tertidur dari dalam diri manusia. walau para dewa melarangnya.
+"kalian bertindak tanpa memikirkan konsekuensinya. kamu bahkan membawa-bawa 'perlindungan ilahi iblis'. apa yang akan terjadi kalaumanusia sadar obat itu tidak membutuhkan jantung iblis? obat itu dapat membuka potensi sebenarnya yang tertidur dari dalam diri manusia. walau para dewa melarangnya."
 
 "un-untuk menghancurkan kesesatanmu....para dewa akan memaafkan dosaku."
 
@@ -135,4 +135,40 @@ wujud asli iblis kontrak terlihat. bermuka manusia dan memiliki tanduk dan juga 
 iblis itu menyebarkan api dan langsung megarah ke pintu.
 
 "apa yang terjadi!?"
+
+penjaga penjara bertanya dibalik pintu ketika mendengar suara aneh dari dalam ruangan...
+
+iblis itu menggunakan kekuatan manusia supernya untuk menendang pintu.
+
+pintu besi hancur dan terbang.
+
+penjaga penjara yang berdiri didepan pintu juga terkena dan terpelantin gbeberapa meter.
+
+tulang di lehernya patah dan karena ledakannya dia langsung mati.
+
+akan tetapi, dia tidak merasakan ketakutan atau sakit karena hal tersebut terjadi tiba-tiba.
+
+iblis itu meraung dan lari.
+
+penjaga penjara dilatih untuk melawan penjahat yang mencoba kabur tapi yang kabur kali ini adalah iblis rank senior, mereka tidak dapat menahannya.
+
+tidak ada yang dapat menghentikan iblis itu tapi iblis itu tidak pergi keluar penjara.
+
+iblis  itu pergi kearah sel penjara lain.
+
+"Albert!"
+
+mendegar namanya, pria dengan perban di tangan kanannya, berambut kusut dan mata kabur menatap iblis itu melalui celah.
+
+"albert! buatlah keinginan baru! untuk pergi dari sini dan menuju ketempat para pahlawan!"
+
+".....aku tidak peduli lagi."
+
+"Tidak! kau berjanji untuk memberikan nyawamu untuk mengalahkan raja iblis! kontrak tidak akan membiarkanmu membusuk seperti ini! sekarang, buatlah permintaan!"
+
+inilah alasan iblis kontrak tetap tenang.
+
+walaupun jika kontraknya tidak membutuhkan jiwanya, jika tidak ada cara lain untuk mengalahkan raja iblis, albert tidak ada pilihan lain selain memberikan jiwanya kepada pemilik kontrak.
+
+jiwa albert lebih bagus dibandingkan jiwa big hawk.
 
