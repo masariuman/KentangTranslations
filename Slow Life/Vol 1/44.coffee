@@ -172,3 +172,9 @@ walaupun jika kontraknya tidak membutuhkan jiwanya, jika tidak ada cara lain unt
 
 jiwa albert lebih bagus dibandingkan jiwa big hawk.
 
+hukuman karena memutuskan kontrak besar tapi iblis kontrak memperhitungkan kalau dia bisa mengimbanginya.
+
+"...baiklah, lakukan sesukamu."
+
+albert merasa dipaksa dan dia mengangguk tanpa melawan.
+
