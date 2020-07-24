@@ -116,3 +116,23 @@ keringat muncul di muka iblis kontrak.
 
 (sialan, orang ini tahu cara membunuhku bahkan aku bersembunyi didalamnya...!)
 
+"aku, inmanu! membatalkan kontrak dengan big hawk!"
+
+iblis kontrak menyatakan itu dengan suara serak karena lehernya dicekik.
+
+dokumen kontrak muncul di udara. kemudian dokumen itu koyak.
+
+"otto."
+
+tornado magic munjul disekitar iblis kontrak.
+
+shisandan mundur kebelakang sedikit.
+
+"Chiiii !!!!!"
+
+wujud asli iblis kontrak terlihat. bermuka manusia dan memiliki tanduk dan juga kaki kambing.
+
+iblis itu menyebarkan api dan langsung megarah ke pintu.
+
+"apa yang terjadi!?"
+
