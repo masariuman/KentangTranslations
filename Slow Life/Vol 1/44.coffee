@@ -84,3 +84,14 @@ kunci dimasukkan ke pintu dan pintupun terbuka.
 
 "....baiklah. panggil aku kalau kalian sudah selesai."
 
+kedua penjagapun keluar dan pintu dikunci.
+
+pria muda itu...petualang byuui menghadapi big hawk sambil tersenyum.
+
+"Yo beriel."
+
+ekpresi tenang big hawk menjadi terkejut.
+
+beriel adalah nama asli dari iblis kontrak, nama aslinya.
+
+nama dari iblis diberikan alami dari bangsanya. itu tidak sesimpel seperti nama manusia dan elf yang menamainya sendiri.
