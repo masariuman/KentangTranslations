@@ -178,3 +178,21 @@ hukuman karena memutuskan kontrak besar tapi iblis kontrak memperhitungkan kalau
 
 albert merasa dipaksa dan dia mengangguk tanpa melawan.
 
+"bagus! aku, inmanu! melakukan kontrak dengan albert disini!"
+
+normalnya, akan ada beberapa prosedur untuk memastikan tidak adanya masalah tapi tidak ada waktu untuk melakukannya.
+
+dia harus lari dari sini dengan cepat.
+
+dia harus memberikan data operasional dari 'perlindungan ilahi iblis' dari zoltan ke pemberontak.
+
+kontrak magic aktif walaupun tidak selesai, membuat dokumen kontrak, sebuah pen, dan pisau keluar.
+
+"Cepatlah!"
+
+iblis kontrak memaksanya untuk cepat tapi albert dengan pelan mengambil pen dan menuliskan namanya dan mengambil pisau...
+
+"tidak apa-apa menggunakan tangan kiriku?"
+
+"tidak apa-apa jadi cepatlah!"
+
