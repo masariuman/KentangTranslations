@@ -14,3 +14,11 @@ dan uga, mereka tidak dapat menanggung semua biaya makanan kebanyakan dari penja
 
 penjahat yang masih disini adalah mereka yang memiliki aset berharga atau seseorang yang anak buah william yang memiliki tekad untuk menjadi pejuang yang kuat yang mana sangat disayangkan untuk dijual.
 
+"oi, big hawk."
+
+suara dari penjaga penjara dengan tongkat di pinggangnya terdengar.
+
+penjaga penjara melihat pemandangan aneh big hawk yang duduk dengan kaki menyilang.
+
+"waktunya introgasi."
+
