@@ -307,3 +307,9 @@ kemudian, hujan perak muncul.
 
 "U, ah...Hi, hiiii!!!"
 
+oblis kontrak ketakutan. dalam hidupnya, itu pertama kalinya dia menghadapi sesuatu yang sangat menakutkan.
+
+apa yang dia lihat adalah terdapat banyak pedang suci yang tidak terhitung jumlahnya di dimana-mana yang tertancap ke tanah. sebagai iblis yang membuat tempat ini, itu adalah hujan pedang suci yang tak terhingga yang muncul darilangit untuk memusnahkan mereka.
+
+"Ti-Tidak Mungkin! tidak mungkin ini terjadi! untuk bisa membuat artifak dengan jumlah tidak terbatas! aku tidak pernah mendengar seorang pahlawan atau raja iblis bisa melakukan ini!!"
+
