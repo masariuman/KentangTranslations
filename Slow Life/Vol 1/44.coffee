@@ -253,3 +253,35 @@ ruti memiringkan kepalanya sedikit.
 
 "pahlawan ruti-dono, senang bisa bertemu denganmu pertama kali. aku iblis pengontrak, kamu bisa memanggilku iblis kontrak."
 
+ruti menatap iblis kontrak yang berbicara sopan dengan mata dinginnya.
+
+ruti menarik pedang di pinggangnya tapi pedang sucinya berubah menjadi pedang tembaga.
+
+"ini adalah dunia spiritual. aku membawamu kesini karena ada yang aku ingin bicarakan denganmu. tolong maafkan ketidaksopananku."
+
+r"aku memaafkanmu. jadi, apa yang mau kamu bicarakan?"
+
+"kamu sangat tenang. jika kamu ingin mencari kesempatan untuk membalas, aku akan menjelaskannya. di dunia simulasi ini dibuat oleh rohku dan rohmu. akan tetapi, luka yang kamu dapatkan disini akan berlaku juga di tubuh aslimu jadi mohon berhati-hatilah."
+
+r"begitu..."
+
+"aku tahu kamu orang yang kuat tapi didunia ini ada batasan untuk skill dan magic. jadi kamu harus terbiasa untuk bertarung disini, sebagai contohnya."
+
+iblis kontrak berkonsentrasi.
+
+"sesuatu""seperti ini" "dapat dilakukan juga"
+
+bayangan dari iblis kontrak muncul banyak.
+
+tanpa disadari, pahlawan ruti dikepung oleh iblis kontrak dengan jumlah tak terhingga yang menutupi seluruh pandangan.
+
+"bagaimana? kamu terkejut?"
+
+r"aku tidak terkejut."
+
+"benarkah? rata-rata orang akan terkejut. yaah, aku harap ini menunjukkan kepadamu jangan menentangku di dunia ini. aku tidak membawamu kesini untuk membunuhmu. aku bermusuhan dengan pasukan raja iblis. jadi ayo kita bicara dengan damai"
+
+iblis kontrak lega kalau dia mendapatkan posisi yang dominan disini.
+
+untuk bertahan, dia harus lebih dominan juga.
+
