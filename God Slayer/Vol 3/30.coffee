@@ -344,4 +344,4 @@ sekarang aku memikirkanya, aku penasaran seberapa banyak mururu tahu tentangku. 
 
 setelah pertarungan selesai, aku akan bertanya padanya. untuk alasan itu juga, mari kita dengan cepat menghancurkan tengkorak sialan ini. aku pun menghela nafas.
 
-apakah ini bendera kematian?ππππππ  
+apakah ini bendera kematian? 
