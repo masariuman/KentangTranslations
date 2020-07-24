@@ -94,4 +94,11 @@ ekpresi tenang big hawk menjadi terkejut.
 
 beriel adalah nama asli dari iblis kontrak, nama aslinya.
 
-nama dari iblis diberikan alami dari bangsanya. itu tidak sesimpel seperti nama manusia dan elf yang menamainya sendiri.
+nama dari iblis diberikan alami dari bangsanya. itu tidak sesimpel seperti nama manusia dan elf yang menamainya sendiri. itu adalah hal umum untuk iblis hanya menggunakan namanya untuk sesama iblis dan tidak pernah mengungapkannya kepada bangsa lain.
+
+"jangan kaget. aku pernah makan iblis kotnrak di masa lalu. kami tau semua nama sebenarnya dari iblis."
+
+"ka-kau, mengapa kau disini?!"
+
+"aku senang red yang menghadapimu dan bukanlah aku. akan sangat bodoh jika aku mengungkapkan identitasmu langsung."
+
