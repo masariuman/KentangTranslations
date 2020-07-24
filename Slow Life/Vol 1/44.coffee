@@ -102,3 +102,11 @@ nama dari iblis diberikan alami dari bangsanya. itu tidak sesimpel seperti nama 
 
 "aku senang red yang menghadapimu dan bukanlah aku. akan sangat bodoh jika aku mengungkapkan identitasmu langsung."
 
+"A.....!"
+
+Byuui...Shisandan meraih leher dari iblis kontrak yang ingin memanggil namanya untuk mendiamkannya.
+
+"kalian bertindak tanpa memikirkan konsekuensinya. kamu bahkan membawa-bawa 'perlindungan ilahi iblis'. apa yang akan terjadi kalaumanusia sadar obat itu tidak membutuhkan jantung iblis? obat itu dapat membuka potensi sebenarnya yang tertidur dari dalam diri manusia. walau para dewa melarangnya.
+
+"un-untuk menghancurkan kesesatanmu....para dewa akan memaafkan dosaku."
+
