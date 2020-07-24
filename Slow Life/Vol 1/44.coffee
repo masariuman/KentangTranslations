@@ -196,3 +196,23 @@ iblis kontrak memaksanya untuk cepat tapi albert dengan pelan mengambil pen dan 
 
 "tidak apa-apa jadi cepatlah!"
 
+dia menekan jempol tangan kirinya ke pisau yang ada dilantai, membuat lika kecil dan meletakkan jempolnya ke dokumen kontrak.
+
+"kontrak telah dibuat! sebagai kompensasi dari permintaanmu! jiwamu sekarang milikku!"
+
+dia berhasil! iblis itu lega.
+
+tapi mengapa dia tidak menyusulku?
+
+walaupun ada waktu yang cukup normalnya dia bisa mengejarku.
+
+iblis itu mulai ragu tapi kekuatan magic dari kontrak membuat tornado dan semua yang berada di sel tahanan hilang.
+
+☆☆
+
+byuui mengintip ke bagian dalam dari pintu masuk dan tersenyum senang.
+
+"semua berjalan baik."
+
+memberitahu identitas aslinay sebagai asura benar-benar hal yang sangat merepotkan.
+
