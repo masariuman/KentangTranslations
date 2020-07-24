@@ -216,3 +216,15 @@ byuui mengintip ke bagian dalam dari pintu masuk dan tersenyum senang.
 
 memberitahu identitas aslinay sebagai asura benar-benar hal yang sangat merepotkan.
 
+tentu saja, normalnya dia tidak bisa dipercaya. dia bisa saja ditertawakan sebagai ocehan penjahat.
+
+akan tetapi, di kota ini, paling tidak ada satu orang yang akan sampai pada kebenaran hanya dengan kata-kata itu.
+
+shisandan mewaspadai itu.
+
+"byuui! apa kamu baik-baik saja!?"
+
+"sayangnya, dia lari."
+
+Byuui, yang dipanggil penjaga penjara, menjawab dengan ekpresi menyesal.
+
