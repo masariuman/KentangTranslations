@@ -58,4 +58,13 @@ hakim mungkin akan membuat dia mendapatkan hukuman ibukota. mereka percaya kalau
 
 malahan, mereka sepertinya merasa lega karena telah menyingkirkan sesuatu.
 
-big hawk 
+big hawk meningkatkan ranknya menggunakan seseorang yang dia percaya sebagai tangan kanannya dan menggunakan jalan yang menyimpang dari jalannya zoltan. dia bahkan dijauhi oleh temannya.
+
+penjaga penjara berpikir sampai kapan kesenangan orang ini berlanjut....dan dia harus lebih kuat dari badan besar itu jika pria ini sadar kalau dia tidak akan diselamatkan dan mengamuk.
+
+sambil memikirkan itu, penjaga penjara melihat kedepan untuk melihat ekpresi arogannya hancur tapi disisi lain, dia menjadi depresi mengingat bagaimana susahnya dia menahannya.
+
+pengetuk pintu berbunyi nyaring.
+
+"kami baik-baik saja disini."
+
