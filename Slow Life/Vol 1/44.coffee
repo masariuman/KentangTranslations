@@ -285,3 +285,25 @@ iblis kontrak lega kalau dia mendapatkan posisi yang dominan disini.
 
 untuk bertahan, dia harus lebih dominan juga.
 
+dia mungkin dapat mendapatkan pahlawan itu karena kekalahannya yang dia hadapi di zoltan.
+
+r"menentang?"
+
+ruti memiringkan kepala dan menurunkan pandangannya ke pedang dembaga.
+
+"apa!?"
+
+iblis kontrak terkejut.
+
+pedang tembaga bersinar dan sekarang dia memegang pedang suci pebunuh iblis.
+
+(ti-tidak mungkin!?dia bisa membaut barang magic tingkat artefak di dunia ini!? bahkan aku tidak bisa....)
+
+r"begitu, aku agak paham sekarang.."
+
+ruti berbicara dan mengangkat tangan kanannya yang memegang pedang itu mengarah kelangit.
+
+kemudian, hujan perak muncul.
+
+"U, ah...Hi, hiiii!!!"
+
