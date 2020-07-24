@@ -110,3 +110,9 @@ Byuui...Shisandan meraih leher dari iblis kontrak yang ingin memanggil namanya u
 
 "un-untuk menghancurkan kesesatanmu....para dewa akan memaafkan dosaku."
 
+"sebuah roh yang mengontrol dosa manusia melakukan sebuah dosa. sungguh menarik."
+
+keringat muncul di muka iblis kontrak.
+
+(sialan, orang ini tahu cara membunuhku bahkan aku bersembunyi didalamnya...!)
+
