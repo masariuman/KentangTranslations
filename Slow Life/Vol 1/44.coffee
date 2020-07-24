@@ -228,3 +228,14 @@ shisandan mewaspadai itu.
 
 Byuui, yang dipanggil penjaga penjara, menjawab dengan ekpresi menyesal.
 
+tapi dia tidak akan disalahkan karena membiarkan iblis dengan rank senior lepas.
+
+itulah zoltan, yang bahkan kekuarangan petualang rank b, dan tidak dapat berbuat apapun.
+
+ada kemungkinan kalau dia akan di evaluasi ulang karena membiarkannya kabur.
+
+ketika dia menjelaskan tentang iblis kontrak kepada penjaga penjara, byuui memikirkan tentang hal yang akan dia selidiki di kota ini.
+
+
+☆☆
+
