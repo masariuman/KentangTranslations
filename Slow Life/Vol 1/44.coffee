@@ -68,3 +68,19 @@ pengetuk pintu berbunyi nyaring.
 
 "kami baik-baik saja disini."
 
+penjaga penjara menjawab.
+
+itu adlah prosedur untuk mencegah situasi yang mana pintu terbuka dan kriminal tidak lagi ditahan.
+
+kunci dimasukkan ke pintu dan pintupun terbuka.
+
+2 pria masuk. satu dari mereka adalah penjaga penjara. satunya adalah....
+
+"bisakah kamu menunggu diluar juga? aku ingin bicara dengannya sendiri."
+
+"itu tidak bisa dilakukan."
+
+"aku memiliki izin."
+
+"....baiklah. panggil aku kalau kalian sudah selesai."
+
