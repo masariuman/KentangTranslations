@@ -22,3 +22,40 @@ penjaga penjara melihat pemandangan aneh big hawk yang duduk dengan kaki menyila
 
 "waktunya introgasi."
 
+"walaupun tidak ada jadwal introgasi hari ini?"
+
+"ada pergantian jadwal."
+
+"untuk apa?"
+
+"kau tidak perlu tahu. cepat dan berdirilah."
+
+penjaga penjara memegang tongkatnya.
+
+big hawk dengan patuh berdiri.
+
+☆☆
+
+big-hawk di borgol dan jarinya juga di borgol untuk berjaga-jaga agar tidak menggunakan magic dan bela diri serta duduk di ruang introgasi.
+
+penggunaan magic atau bela diri membutuhkan gerakan spesifik. borgol jari digunakan untuk mencegah gerakan itu.
+
+yaaah ada banyak skill yang bisa melewati situasi ini tapi peralatan magic dibutuhkan untuk menggagalkan skill itu.
+
+tapi penjara zoltan tidak dapat membeli satupun borgol yang berharga ribuan peryl.
+
+"belum lagi?"
+
+"diamlah dan jangan komplain."
+
+"ini buang-buang waktu saja bahkan untukmu. aku lebih suka kalau kamu membawaku ketika yang akan mengintrogasiku sudah ada."
+
+penjaga penjara menghela nafas.
+
+dia dengar orang ini telah berbuat kejahatan yang serius.
+
+hakim mungkin akan membuat dia mendapatkan hukuman ibukota. mereka percaya kalau guild pencuri akan datang tapi sepertinya tidak.
+
+malahan, mereka sepertinya merasa lega karena telah menyingkirkan sesuatu.
+
+big hawk 
