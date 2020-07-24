@@ -313,3 +313,8 @@ apa yang dia lihat adalah terdapat banyak pedang suci yang tidak terhitung jumla
 
 "Ti-Tidak Mungkin! tidak mungkin ini terjadi! untuk bisa membuat artifak dengan jumlah tidak terbatas! aku tidak pernah mendengar seorang pahlawan atau raja iblis bisa melakukan ini!!"
 
+tanpa dia sadari, tanah kering sekarang berubah menjadi rawa merah yang dipenuhi dara dari iblis yang mati.
+
+r"ngomong-ngomong, apa yang ingin kamu katakan?"
+
+ruti bertanya ke iblis rank seior, sambil memegang kepalanya dengan muka tanpa ekpresi dan iblis itu pun berteriak ketakutan.
