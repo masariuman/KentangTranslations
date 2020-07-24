@@ -239,3 +239,17 @@ ketika dia menjelaskan tentang iblis kontrak kepada penjaga penjara, byuui memik
 
 ☆☆
 
+setelah menekan perkumpulan pasukan raja iblis, ruti mengumpulkan hasil rampasan perang dan seorang pria yang dibebaskan....albert dan iblis kontrak muncul didepannya.
+
+iblis menggunakan skill sebelum ruti menarik pedangnya.
+
+"Pergeseran dataran Pikiran!"
+
+Ruti menemukan dirinya tidak di perkumpulan tentara raja iblis yang dihutan tapi di atas tanah kosong yang retak.
+
+pria yang berada disamping iblis itu tidak lagi disini.
+
+ruti memiringkan kepalanya sedikit.
+
+"pahlawan ruti-dono, senang bisa bertemu denganmu pertama kali. aku iblis pengontrak, kamu bisa memanggilku iblis kontrak."
+
