@@ -117,3 +117,8 @@ jujur, bukan 'banyak' yang. anggap saja 1 koin tembaga sama dengan seratus yen. 
 
 "Hm, yeah. hari ini, souichi dan yayoi-chan akan sampai ke ibukota."(renji)
 
+"brave (pemberani)?"
+
+"iya. tidak sepertiku, dia benar-benar seorang pahlawan."
+
+paling tidak, dia bukan tipe yang akan dililit hutang.
