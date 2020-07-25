@@ -49,3 +49,19 @@ ah, jadi begitu, jadi dia khawatir kalau dia tidak dapat diandalkan. jujur dia t
 
 nona francesca memeluk mururu dari belakang. karena perbedaan tinggi badan, kepala mururu tenggelam di dada nona francessca. yaaah, itu tidak terlihat senonoh sih. pokoknya, itu membuat pria sepertiku susah untuk melihat mereka secara langsung. mururu masih dengan muka tidak pedulinya juga.
 
+mengalihkan pandanganku dari mereka, aku berlutut didekat mayat kadal. aku memotong dari tangan kanannya sebagai bukti penaklukkan dan aku meletakkannya di tasku. pada saat yang sama, aku juga mengambil pedang bermata dua yang terbuat dari tulang binatang juga. karena itu terlihat seperti pedang yang langka, mungkin bisa dijual dengan harga yang mahal.
+
+"mereka sepertinya lebih akrab sekarang ketika aku tidak bersama mereka selama seminggu."(renji)
+
+"yaaah, mereka berdua perempual. aku juga kewalahan, sebagai seorang pria sendiri, sendirian tanpa mu lho."(fei)
+
+dia mengatakan itu tapi aku tidak masalah dengan itu. bibirnya tersenyum sedikit. mereka menjadi akrab hanya dalam seminggu, enaknya, aku jadi iri.
+
+"aku akan mencuci tanganku."(renji)
+
+"yeah, jangan terlalu jauh juga."(fei)
+
+kenapa aku diperlakukan seperti anak kecil?
+
+aku meninggalkan mereka dan pergi mencuci tangan di sungai. air bening dingin membuat jariku agak sedikit sakit. mengerutkan kening sedikit, aku pelan-pelan mencuci tanganku dan membersihkan dara yang lengket di tanganku.
+
