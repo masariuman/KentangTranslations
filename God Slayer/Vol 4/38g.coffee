@@ -299,3 +299,13 @@ ketika aku berbicara seperti itu, aku mengeluarkan obor dari tasku, membasahinya
 
 ketika aku mengatakan itu, nona francesca setuju juga. kami masuk dengan berbaris dengan aku didepan, kemudian mururu, francesca dan feirona di belakang. aku memegang obor dan nona francesca menggunakan magicnya untuk menyinari disekitar juga.
 
+didalam gua tidak terasa nyaman dan udara sepertinya masuk melewati dinding. mungkin gua ini terhubung dengan sesuatu di ujung sana. guanya sepertinya digali dengan ukuran yang sama. normalnya, sebuah gua tidak rata dan kasar. dinding yang membuat lubang bukan sesuatu yang muncul secara natural. ini pasti digali menggunakan magic.
+
+ketika aku masuk sambil memikirkan teori, nona francesca berteriak sedikit dari belakang. pada saat yang sama, mururu membuat suara yang tidak seperti wanita *gueeeh*. suara mereka berdua bergema di gua ini.
+
+"ada apa?"(renji)
+
+"ada serangga. aku sudah membunuhnya sih."
+
+"begitu."
+
