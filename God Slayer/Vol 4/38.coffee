@@ -91,3 +91,4 @@ itu tidak apa-apa kalau kami hanya memburu monster tapi biaya penginapan, makana
 
 ".....berat."(mururu)
 
+dibawah dada nona francesca, mururu bersuara kelelahan. entah 'berat' yang berarti berat badan nona francesca atau hanya dadanya saja.
