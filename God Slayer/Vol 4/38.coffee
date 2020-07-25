@@ -65,3 +65,15 @@ kenapa aku diperlakukan seperti anak kecil?
 
 aku meninggalkan mereka dan pergi mencuci tangan di sungai. air bening dingin membuat jariku agak sedikit sakit. mengerutkan kening sedikit, aku pelan-pelan mencuci tanganku dan membersihkan dara yang lengket di tanganku.
 
+"apa yang terjadi, kok diam sekali hari ini?"(renji)
+
+[tidak ada alasan.]
+
+ketika aku memanggil partnerku di kocekku, suaranya benar-benar suara dia marah. itu suara dia seperti biasanya tapi dia selalu begini beberapa hari belakangan ini. dia tidak mengatakan apapun tapi kupikir karena aku menggunakan pedang mithril lagi.
+
+"jangan merajuk seperti itu, ayolah."(renji)
+
+[aku tidak merajuk!]
+
+langsung dijawab olehnya. karena suaranya seperti kekanak-kanakan, aku pun tersenyum. aku penasaran apakah kekanak-kanakan bagiku untuk berfikir kalau ermenhilde imut?
+
