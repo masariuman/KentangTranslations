@@ -225,3 +225,13 @@ dalam pandanganku tetap sama hanya sungai yang bersih, pohon-pohon dan angin yan
 
 "yaah, mau gimana lagi."
 
+aku akan mengurusnya kalau sesuatu terjadi. sambil memikirkan itu, aku kembali ke dekat api. ketika aku melakukannya, feirona dan yang lainnya juga menurunkan penjagaannya dan kembali fokus makan.
+
+"......oi, satu ikanku pergi."(renji)
+
+"ngu, mugugu."
+
+aku memandang disebelahku, chibi disampingku mulai makan ikan dimulutnya dengan cepat. itu benar-benar sikap yang buru, tapi itu bukan poin utamanya. ada 3 stik didepannya. aku memanggilnya tapi dia panik dan mengalihkan pandangannya.
+
+"oi mururu, aku tidak akan marah jadi lihatlah aku."(renji)
+
