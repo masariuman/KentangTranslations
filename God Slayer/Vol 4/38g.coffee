@@ -235,3 +235,8 @@ aku memandang disebelahku, chibi disampingku mulai makan ikan dimulutnya dengan 
 
 "oi mururu, aku tidak akan marah jadi lihatlah aku."(renji)
 
+"nn..... kamu tidak akan marah?"(mururu)
+
+"mungkin."
+
+ketika aku mengatakan itu, dia membuang mukanya lagi. anak ini...
