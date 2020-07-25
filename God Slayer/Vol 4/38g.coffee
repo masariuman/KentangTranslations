@@ -211,3 +211,14 @@ setelah beberapa waktu, ikan-ikan akhirnya masak. ada 6 ikan. nona francesca dan
 
 [barusan saja, apa kau merasakan energi magic juga?]
 
+ketika aku berbalik untuk merasakan pandangan itu lagi, ermenhilde sepertinya juga merasakan energi magic.
+
+"apa yang terjadi?"
+
+"aku merasakan tatapan itu lagi."(renji)
+
+aku berdiri. tidak masalah kalau itu hanya tatapan tapi ermenhilde merasakan energi magic juga jadi aku harus berhati-hati. aku memastikan pedang mitrhil yang berada di pinggangku, aku mendekat kearah sungai.
+
+yang lain juga, walaupun mereka tidak merasakan apapun, mereka juga berjaga-jaga. tapi bahkan sampai menunggu beberapa waktu, tidak ada yang terjadi. mungkin saja penyihir lain sedang bertarung disuatu tempat jauh dari sini? mungkin saja tidak. ermenhilde hanya merasakan energi magic sekali dan tidak bisa merasakannya lagi. apa yang terjadi? aku menggaruk kepalaku.
+
+dalam pandanganku tetap 
