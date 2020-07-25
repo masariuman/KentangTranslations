@@ -189,3 +189,25 @@ aku melihat kearah tempat dimana aku merasakan tatapan itu muncul tapi tidak ada
 
 apakah itu monster?
 
+itu normal untuk berfikir seperti itu. karena kami berempat, mungkin monster itu lari. aku kembali ke api unggun tanpa memikirkannya lagi.
+
+"apakah kalian merasakan sesuatu barusan?"(renji)
+
+"sesuatu?....."(fran)
+
+"yeah. aku pikir aku merasakan tatapan aneh..."
+
+aku melihat ke arah feirona dan mururu. mereka berdua lebih sensitif daripada aku tapi mereka menggelengkan kepalanya.
+
+"berarti hanya perasaanku saja."(renji)
+
+ermenhilde tidak dapat merasakan apapun juga jadi itu pasti hanya perasaanku saja.
+
+aku memutuskan untuk melupakan itu karena aku memilih untuk menatap ikan yang lagi dibakar. untuk berbagai alasan, aku selalu merasa aku menatap ikan seperti ini. sepertinya nona francesca dan mururu juga melakukannya, jadi kami berempat diam memandang ikan yang dibakar. aku merasa feriona dan ermenhilde menghela nafas tapi aku tidak memperdulikannya.
+
+setelah beberapa waktu, ikan-ikan akhirnya masak. ada 6 ikan. nona francesca dan feirona mengambil masing-masing 1 sedangkan aku dan mururu mengambil 2. feirona, walaupun badannya berukuran sama denganku, tidak terllau banyak makan. sungguh mengejutkan, jujur, bagaimana dia bisa menahan itu. bahkan aku merasa aku bisa makan 3 ekor. yaah aku tidak akan bisa makan sebanyak itu juga. tidak terlalu kekenyangan itu baik. aku menggigit ikan. karena ikan dari air sungai yang bersih, tidak ada rasa atau bau lumpur pada ikannya. karena kita baru saja menangkapnya, ikan itu terasa segar. aku memakan ikan pertamaku dengan cepat.
+
+"Hm?"
+
+[barusan saja, apa kau merasakan energi magic juga?]
+
