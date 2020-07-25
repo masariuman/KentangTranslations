@@ -360,3 +360,18 @@ melihat manusia tidur didalam kristal; itu pertama kalinya untukku. ketika aku b
 
 didalam kristal biru muda, seorang gadis, telanjang bulat, tidur sambil memeluk kakinya. itu adalah pandangan pertamaku. karena aku bisa merasakan aura kehidupannya, aku tahu dia tidak mati.
 
+"ini tidak apa-aoa, kalian bisa masuk juga!"(renji)
+
+ketika aku berteriak ke feirona, aku pun menyerahkan obor ke mururu.
+
+"bisakah kamu beritahu aku siapa dia?"(renji)
+
+[........]
+
+aku bertanya tapi tidak mendapatkan jawaban dari ermenhilde.
+
+ketika kebingungan, aku perlahan, dengan malu-malu meletakkan tanganku ke kristal. itu sangat hangat. kristal itu tidak sedingin batu. itu terasa hangat, seperti kulit seseorang. dan----
+
+"-----!?!"
+
+mataku tiba-tiba bertemu dengan gadis didalam kristal.
