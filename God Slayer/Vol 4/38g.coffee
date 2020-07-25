@@ -257,3 +257,13 @@ benar-benar sangat dingin. yaaah, paling tidak sungainya tidak dalam.
 
 .
 
+setelah berjalan beberapa waktu di sungai, ada bukit tinggi di seberang sana. paling tidak sekitar 30 meter tingginya. dan diatas itu tidak ada apa apa, hanya daratan luas. tidak ada bunga atau pohon-pohon, hanya tanah luas. setelah dipanggil didunia ini, disinilah tempat pertama kali kami mengalahkan keturunan dewa iblis. mungkin karena efek itu, tempat itu menjadi  area mati. dan jika kamu berjalan melalui tanah itu selama seminggu, kamu akan sampai ke kota taktik.
+
+yaah, kesampingkan hal itu, ada sesuatu yang tidak aku lihat di bukit ini. bahkan walau kami sering kesini sebelumnya. ada sebuah gua. besarnya paling tidak sebesar ogre bisa masuk... gua setinggi 5 meter. aku memiringkan kepalaku kebingungan melihat pintu masuknya.
+
+"apa ini ada disini sebelumnya?"(renji)
+
+"tidak, ini tidak ada disini sepertinya."(fran)
+
+ketika melihat peta ditangannya, nona francesca berkata seperti itu. itu hanya peta biasa tapi kalau ada gua di sekitar ibukota, pasti ada tergambar di peta. itu artinya, gua ini baru saja dibuat tapi kami juga datang kesini beberapa hari waktu lalu juga. apakah gua sangat mudah dibuat?
+
