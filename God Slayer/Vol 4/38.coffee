@@ -109,5 +109,11 @@ mengumpulkan barang jarahan hari ini, aku mulai bersiap untuk kembali dengan fei
 
 "sesuatu terjadi. aku juga, sekarang, membutuhkan banyak uang."(renji)
 
-jujur, bukan 'banyak' yang. anggap saja 1 koin tembaga sama dengan seratus yen. aku sekarang sedang memiliki hutang sekitar 10,000,000 yen. seperti yang kalian kira aku belum memberi tahu ke yang lainnya kalau aku sedang dalam hutang besar. karena itu tidak akan terlihat keren. bahkan aku memilirkan bagaimana orang-orang akan melihatku.
+jujur, bukan 'banyak' yang. anggap saja 1 koin tembaga sama dengan seratus yen. aku sekarang sedang memiliki hutang sekitar 10,000,000 yen. seperti yang kalian kira aku belum memberi tahu ke yang lainnya kalau aku sedang dalam hutang besar. karena itu tidak akan terlihat keren. bahkan aku memilirkan bagaimana orang-orang melihatku.
+
+10 koin perak. jika utang itu dibuat hanya untuk membuatku bekerja keras, kupikir aku telah menari di atas tangan utano-san. yaaah, aku pasti hanya terlalu memikirkannya saja.
+
+"kita kembali sekarang?"(fran)
+
+"Hm, yeah. hari ini, souichi dan yayoi-chan akan sampai ke ibukota."(renji)
 
