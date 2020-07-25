@@ -267,3 +267,17 @@ yaah, kesampingkan hal itu, ada sesuatu yang tidak aku lihat di bukit ini. bahka
 
 ketika melihat peta ditangannya, nona francesca berkata seperti itu. itu hanya peta biasa tapi kalau ada gua di sekitar ibukota, pasti ada tergambar di peta. itu artinya, gua ini baru saja dibuat tapi kami juga datang kesini beberapa hari waktu lalu juga. apakah gua sangat mudah dibuat?
 
+atau mungkin---
+
+[aku dapat merasakan energi magic. itu sama dengan sebelumnya.]
+
+"jadi ini. ermenhilde, bisakah kau tau itu apa itu?"
+
+[aku tidak bisa. terlalu lemah....terlalu rendah levelnya.]
+
+aku mengetuk ermenhilde di kocekku.
+
+[itu bisa saja jebakan. kamu mau tetap masuk?]
+
+"kita akan masuk?"(mururu)
+
