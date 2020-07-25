@@ -125,3 +125,25 @@ paling tidak, dia bukan tipe yang akan dililit hutang. aku bahkan tidak bisa mem
 
 "makan siang hari ini..."
 
+mungkin karena dia menyadari pandanganku, dia pun berbicara. aku tidak mengerti apa yang dia katakan jadi aku mengikuti pandangannya kearah sungai hanya untuk melihat kalau dia menangkap ikan menggunakan batu. betapa bagusnya penglihatan serigala ini!?
+
+karena menyedihkan untuk membiarkan ikan yang dia bunuh hanyut disungai aku melepaskan sepatuku dan menaikkan celana panjangku.
+
+"ada apa?"(fran)
+
+"yaaah, aku tidak ingin mururu pergi kedalam air di cuaca yang dingin."(renji)
+
+aku masuk kedalam sungai. karena dinginnya air, kakiku berhenti bergerak ketika aku masuk ke sungai.
+
+"apa, apa kamu baik-baik saja?"(fran)
+
+"Di-i......DINGIN SEKALI!!"(renji)
+
+"tentu saja. ini sudah [bulan kesembilan]....setelah terluka, apakah kamu berencana untuk demam kali ini?"(fei)
+
+[dasar.]
+
+sambil mendengarkan suara feirona dan ermenhilde yang lelah, aku dengan cepat mengumpukan ikan yang mengapung di sungai. hanya nona francesca yang khawatir padaku. dan juga, mururu membunuh banyak ikan lagi dan sepertinya dia tidak peduli padaku.
+
+bahkan ikan berlarian karena aku masuk kesungai, dia masih membunuh mereka dengan santai dengan mata linglungnya. setelah aku selesai mengumpulkan sisa ikan, nona francesca dan feirona selesai berkemas.
+
