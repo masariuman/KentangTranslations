@@ -221,4 +221,7 @@ aku berdiri. tidak masalah kalau itu hanya tatapan tapi ermenhilde merasakan ene
 
 yang lain juga, walaupun mereka tidak merasakan apapun, mereka juga berjaga-jaga. tapi bahkan sampai menunggu beberapa waktu, tidak ada yang terjadi. mungkin saja penyihir lain sedang bertarung disuatu tempat jauh dari sini? mungkin saja tidak. ermenhilde hanya merasakan energi magic sekali dan tidak bisa merasakannya lagi. apa yang terjadi? aku menggaruk kepalaku.
 
-dalam pandanganku tetap 
+dalam pandanganku tetap sama hanya sungai yang bersih, pohon-pohon dan angin yang dingin. tidak ada perubahan. aku bahkan merasa akulah yang aneh.
+
+"yaah, mau gimana lagi."
+
