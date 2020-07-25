@@ -16,3 +16,4 @@ aku ingin bertemu.
 
 .
 
+"giii" terpekik menangis karena mati, monster berkulit putih yang kutebas akhirnya tumbang. seekor kadal. normalnya di game fantasi, itu adalah monster yang sering ditemui. memiliki tinggi 2 meter dan badan seperti manusia, badannya dipenuhi kulit hijau dan mereka menggunakan armor besi juga.
