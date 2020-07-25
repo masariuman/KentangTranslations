@@ -85,3 +85,9 @@ itu tidak apa-apa kalau kami hanya memburu monster tapi biaya penginapan, makana
 
 "ah, iya. renji-san, kamu juga baik-baik saja?"(fran)
 
+"ini sudah seminggu. aku baik-baik saja. terima kasih telah mengkhawatirkanku."
+
+"tidak, kamu tidak perlu berterima kasih padaku..."
+
+".....berat."(mururu)
+
