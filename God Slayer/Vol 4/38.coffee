@@ -28,3 +28,24 @@ menebas kadal ini, dan sambil menghembuskan nafas, aku memasukkan kembali pedang
 
 ketika aku melawan kadal itu 1 vs 1, feirona, yang berada disampingku mengalahkan goblin yang ada disekitar dan berkata seperti itu padaku. rambut emasnya bergoyang karena angin, benar-benar pria tampan. elf tampan ini, memiliki kemampuan untuk mengalahkan 5 goblin tanpa kelelahan.
 
+dan dibelakangnya, ada sicantik dengan rambut berwarna madu seorang berambut perak, bertelinga anjing yang indah berjalan. gadis berambut perak sepertinya tidak terganggu apapun tapi gadis berambut madu sepertnye menurunkan bahunya sedikit.
+
+"ada apa nona francesca?"(renji)
+
+"tidak, hanya saja..."
+
+"ketika nona francesca berfikir untuk menggunakan magicnya, pertarungan sudah selesai."
+
+ah, jadi begitu, jadi dia khawatir kalau dia tidak dapat diandalkan. jujur dia tidak perlu berfikir seperti itu. yaah, karena kami bertarung bersama sebagai tim juga. aku pikir dia merasa tidak berguna karena dia tidak memberikan kontribusi pada tim.
+
+"goblin yang terakhir."(mururu)
+
+
+"hm?"(fram)
+
+"kamu bisa menghancurkan keseimbangannya. itu sangat membantuku."(mururu)
+
+"Uu....Mururu-chan."(fram)
+
+nona francesca memeluk mururu dari belakang. karena perbedaan tinggi badan, kepala mururu tenggelam di dada nona francessca. yaaah, itu tidak terlihat senonoh sih. pokoknya, itu membuat pria sepertiku susah untuk melihat mereka secara langsung. mururu masih dengan muka tidak pedulinya juga.
+
