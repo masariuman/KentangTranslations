@@ -339,3 +339,15 @@ mendengar suara ermenhilde, semuanya mengeluarkan senjata mereka. mururu menguba
 
 "mururu, ikuti aku dengan beberapa jarak diantara kita."
 
+"baiklah."
+
+dikarenakan kurangnya cahaya, pasti akan susah untuk feirona menembah panah. jadi aku membawa mururu, yang memiliki kekuatan fisik yang kuat, ikut denganku ke arah cahaya.
+
+jika itu benar-benar jebakan, aku bisa menjadi target sempurna karena aku membawa obor. aku mengatakan itu tapi aku tidak merasakan keberadaan lain selain diriku. gua ini sepertinya tidak ada penghuninya. aku yakin akan hal itu.
+
+tapi ermenhilde berkata ada sesuatu disitu, berarti pasti ada sesuatu. aku tetap berjalan ke arah cahaya sambil berhati-hati.
+
+
+"-------"
+
+aku kehilangan nafasku.
