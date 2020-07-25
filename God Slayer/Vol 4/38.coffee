@@ -121,4 +121,7 @@ jujur, bukan 'banyak' yang. anggap saja 1 koin tembaga sama dengan seratus yen. 
 
 "iya. tidak sepertiku, dia benar-benar seorang pahlawan."
 
-paling tidak, dia bukan tipe yang akan dililit hutang.
+paling tidak, dia bukan tipe yang akan dililit hutang. aku bahkan tidak bisa membayangkan dia hidup sepertiku. yayoi-chan pasti akan menghentikannya sebelum dia jatuh didalam lilitan hutang. sepertinya, mururu tidak tertarik dengan hal itu dan dia hanya bermain-main melempar batu di sungai. paling tidak bantu kami mengemaskan barang.
+
+"makan siang hari ini..."
+
