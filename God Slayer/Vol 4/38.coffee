@@ -77,3 +77,11 @@ ketika aku memanggil partnerku di kocekku, suaranya benar-benar suara dia marah.
 
 langsung dijawab olehnya. karena suaranya seperti kekanak-kanakan, aku pun tersenyum. aku penasaran apakah kekanak-kanakan bagiku untuk berfikir kalau ermenhilde imut?
 
+setelah selesai mencuci tangan, aku pun kembali. perburuan hari ini- 5 monster kadal, 20 goblin. sangat bagus untuk membagi hadiah untuk kami berempat, jumlahnya tidak begitu banyak juga. berapa lama bagiku agar bisa membayar utangku ke utano-san? pendapatkanku minggu ini sekitar 4 koin emas dan 10 koin tembaga.
+
+itu tidak apa-apa kalau kami hanya memburu monster tapi biaya penginapan, makanan dan biaya perbaikan dan pemeliharaan senjata juga memerlukan uang.
+
+"nona francesca, kamu sudah tenang sekarang?"(renji)
+
+"ah, iya. renji-san, kamu juga baik-baik saja?"(fran)
+
