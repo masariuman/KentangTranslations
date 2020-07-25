@@ -247,4 +247,13 @@ nona francesca dan feirona tetap memakan ikannya sambil tersenyum cengir.
 
 "sekarang makin aneh."
 
-feirona berdiri dan mengecek senjatanya. nona francesca dengan cepat menghabiskan makanannya dan juga mengecek senjatanya. hanya mururu, yang senjatanya adalah badannya sendiri, tetap di posisi yang sama.
+feirona berdiri dan mengecek senjatanya. nona francesca dengan cepat menghabiskan makanannya dan juga mengecek senjatanya. hanya mururu, yang senjatanya adalah badannya sendiri, tetap di posisi yang sama. dia tetap menikmati rasa dari ikan itu. pada saat makan malam, aku pasti akan mencuri makanannya. aku memikirkan hal kekanak-kanakan. tapi tetap saja, mengapa feirona atau mururu masih tidak merasakanannya? aku agak sedikit khawatir.
+
+"tidak ada cara lain, ayo kita menyeberang sungai."
+
+benar-benar sangat dingin. yaaah, paling tidak sungainya tidak dalam.
+
+.
+
+.
+
