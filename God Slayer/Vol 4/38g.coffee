@@ -281,3 +281,8 @@ aku mengetuk ermenhilde di kocekku.
 
 "kita akan masuk?"(mururu)
 
+mendengar suara ermenhilde, mereka bertiga melihat langsung kepadaku. aku tidak menyembunyikan suara ermenhilde dari mereka lagi. itu sebagai bukti kalau aku mempercayai mereka. reaksi mereka berbeda dan sangat asik dilihat. sekarang, karena dia merajuk, ermenhilde tidak terlalu banyak biacara. seberapa bencinya kamu melihatku memakai pedang lain?
+
+tapi. sekarang seperti situasi saat ini, dia tidak lagi merajuk. mendengar suara ermenhilde, mururu menanyaiku untuk mengkonfirmasi juga.
+
+""
