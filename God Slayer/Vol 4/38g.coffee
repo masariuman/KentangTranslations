@@ -351,3 +351,12 @@ tapi ermenhilde berkata ada sesuatu disitu, berarti pasti ada sesuatu. aku tetap
 "-------"
 
 aku kehilangan nafasku.
+
+didepanku terdapat kristal dengan warna biru muda. kristal itu sebesar sekitar 5 meter. kristal yang benar benar seperti permata, mengambang diudara. tapi itu bukanlah masalahnya. kristal yang mengambang benar-benar langka, yaah ini adalah dunia pedang dan magic. aku sudah melihatnya beberapa kali tapi,---
+
+"seseorang tidur didalamnya?"
+
+melihat manusia tidur didalam kristal; itu pertama kalinya untukku. ketika aku berhati-hati dengan sekitarku aku mendekatinya. seperti yang mururu katakan, matanya tertutup seperti tertidur.
+
+didalam kristal biru muda, seorang gadis, telanjang bulat, tidur sambil memeluk kakinya. itu adalah pandangan pertamaku. karena aku bisa merasakan aura kehidupannya, aku tahu dia tidak mati.
+
