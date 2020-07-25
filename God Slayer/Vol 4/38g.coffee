@@ -147,3 +147,45 @@ sambil mendengarkan suara feirona dan ermenhilde yang lelah, aku dengan cepat me
 
 bahkan ikan berlarian karena aku masuk kesungai, dia masih membunuh mereka dengan santai dengan mata linglungnya. setelah aku selesai mengumpulkan sisa ikan, nona francesca dan feirona selesai berkemas.
 
+"berbagilah denganku juga."(renji)
+
+"okay."(mururu)
+
+[....haaah..]
+
+"aku akan menyalakan api jadi cepat hangatkan dirimu."(feirona)
+
+keluar dari sungai, aku mencoba membersihkan bau ikan dari tanganku. itu tidak terhindarkan. seluruh badanku jadi dingin.
+
+"sungguh perhatian dirimu. teman yang aku percayai benar-benar sesuatu yang paling hebat kumiliki."(renji)
+
+"jangan berkata sesuatu yang tidak kamu maksudkan."(fei)
+
+"tidak, aku benar-benar serius lho."
+
+feiorna mengunpulan ranting dan nona francesca menyalakan api dengan magicnya. aku membersihkan kakiku dan mengarahkan tanganku ke api, aku agak sedikit hangan.
+
+"fuu...."
+
+"ikan itu, apakah akan kamu masak?"(mururu)
+
+dengan suara pluk, mururu duduk disampingku. kemudian, nona francesca dan feiora juga duduk disekitar api.
+
+"agak telat tapi ayo kita makan siang."(renji)
+
+"iya!"
+
+nona francesca memberikan jawaban dengan senang. dia benar-benar suka sesuatu yang dilakukan diluar rumah sepertinya. tidur titenda, menyiapkan api unggun, memasak dan memakan binatang dan ikan yang ditangkap di sungai dan lain-lain. tidak seperti penampilannya, dia cukup berani.
+
+aku memberikan senyuman kecil melihat reaksinya. feirona mulai bersiap untuk memasak ikan. membuang sisiknya, membuang isi perutnya, dia menusuk ikan pada stik kayu. sambil mengagumi kehebatannya, aku juga membantu untuk bersiap. tapi aku hanya mengulang apa yang dia lakukan. pekerjaan pertama pisau besiku adalah membuka sebuah ikan.
+
+setelah selesai dengan persiapannya, aku mencucui tanganku. ikanpun dibakar di api. tiba-tiba, aku merasakan tatapan aneh memandangku.
+
+[apa yang terjadi?]
+
+"tidak........itu....."
+
+aku melihat kearah tempat dimana aku merasakan tatapan itu muncul tapi tidak ada apapun disitu. karena kami berburu disini beberapa waktu belakangan ini, aku tahu tidak ada sesuatu di arah situ.
+
+apakah itu monster?
+
