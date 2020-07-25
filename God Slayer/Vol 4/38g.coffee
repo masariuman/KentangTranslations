@@ -291,3 +291,11 @@ tapi. sekarang seperti situasi saat ini, dia tidak lagi merajuk. mendengar suara
 
 "sudah kubilang sebelumnya juga tapi siapa yang memutuskan itu!?"(renji)
 
+ketika aku berbicara seperti itu, aku mengeluarkan obor dari tasku, membasahinya dengan minyak dan meminta nona francesca untuk menghidupkannya. ini agak sedikit berbahaya tapi rasa penasaranku menang untuk kali ini. aku penasaran dengan tatapan yang aku rasakan. dan untuk beberapa alasan, bahkan sekarang, aku tidak merasakan bahaya. jika kami mengandalkan intuisiku, kami harusnya akan baik-baik saja. aku memikirkan itu tanpa bermaksud apapun.
+
+"hmmm kalau begitu ayo kita masuk."(renji)
+
+"iya."
+
+ketika aku mengatakan itu, nona francesca setuju juga. kami masuk dengan berbaris dengan aku didepan, kemudian mururu, francesca dan feirona di belakang. aku memegang obor dan nona francesca menggunakan magicnya untuk menyinari disekitar juga.
+
