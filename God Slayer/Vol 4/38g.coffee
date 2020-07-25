@@ -240,3 +240,11 @@ aku memandang disebelahku, chibi disampingku mulai makan ikan dimulutnya dengan 
 "mungkin."
 
 ketika aku mengatakan itu, dia membuang mukanya lagi. anak ini...
+
+nona francesca dan feirona tetap memakan ikannya sambil tersenyum cengir.
+
+[lagi?]
+
+"sekarang makin aneh."
+
+feirona berdiri dan mengecek senjatanya. nona francesca dengan cepat menghabiskan makanannya dan juga mengecek senjatanya. hanya mururu, yang senjatanya adalah badannya sendiri, tetap di posisi yang sama.
