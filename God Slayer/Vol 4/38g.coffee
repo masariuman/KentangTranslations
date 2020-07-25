@@ -309,3 +309,13 @@ ketika aku masuk sambil memikirkan teori, nona francesca berteriak sedikit dari 
 
 "begitu."
 
+jika ada jebakan didepan kami, suara kami pasti sudah memicunya sekarang. aku meletakkan tanganku di ganggang pedang mithril. sepertinya feirona juga berfikir sama karena aku melihatnya menjadi lebih tegang searakgn.
+
+kami diam beberapa waktu tapi sepertinya tidak ada perubahan. akupun mulai santai sedikit dan melepaskan tanganku dari pedang.
+
+"tidak ada sesuatu disini?"
+
+"ada serangga...."(fran)
+
+"itu tidak ada hubugannya."(mururu)
+
