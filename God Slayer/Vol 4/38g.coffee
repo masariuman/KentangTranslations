@@ -319,3 +319,23 @@ kami diam beberapa waktu tapi sepertinya tidak ada perubahan. akupun mulai santa
 
 "itu tidak ada hubugannya."(mururu)
 
+suara mururu terasa sedikit cemberut. pasti karena dengan serangga, nona francesca pasti memeluk lehernya dengan kuat dari belakang. suaranya terasa seperti lehernya dicekik.
+
+kami masuk semakin dalam. sudah 10 menit kami masuk dan akhirnya aku melihat ada cahaya sedikit didepan kami.
+
+"apakah itu jalan keluar?"(fran)
+
+"terlalu gelap untuk itu."(renji)
+
+[.....ada sesuatu disana...]
+
+mendengar suara ermenhilde, semuanya mengeluarkan senjata mereka. mururu mengubah tangannya menjadi cakar.
+
+[hati-hati.]
+
+"aku akan masuk pertama kali. feirona, aku akan menyerahkan bagian belakang denganmu."(renji)
+
+"itu mungkin agak sedikit susah."(fei)
+
+"mururu, ikuti aku dengan beberapa jarak diantara kita."
+
