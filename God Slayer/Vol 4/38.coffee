@@ -20,4 +20,11 @@ aku ingin bertemu.
 
 kekuatan fisiknya hebat, juga memiliki kecepatan seperti binatang buas. senjatanya berbahaya tapi yang paling berbahaya adalah serangan ekornya. pada kekuatan penuh, itu bahkan bisa menghancurkan batu.
 
-menebas kadal ini, dan sambil menghembuskan nafas, aku memasukkan kembali pedang mithrilku ke dalam sarungnya. suara dari pertarungan berakhir dan suara air disekitar terdengar di telingaku. pohon-pohon yang tumbuh dengan baik dan gunung-gungung memberikan udara dingin. tempat ini sempurna untuk berkemah kalau saja tidak ada monster. dan walaupun kita dekat dengan ibukota, jumlah musuh masih banyak. dan, mungkin karena efek pertarungan yang besar disini 2 tahun lalu, monster disini sangat kuat daripada yang ada di benua imnesia. bahkan monster kadal memiliki kekuatan fisik yang kuat daripada biasanya. sama juga untuk monster lain seperti goblin. bahkan normalnya, monster tidak akan datang ke tempat dimana manusia berkumpul
+menebas kadal ini, dan sambil menghembuskan nafas, aku memasukkan kembali pedang mithrilku ke dalam sarungnya. suara dari pertarungan berakhir dan suara air disekitar terdengar di telingaku. pohon-pohon yang tumbuh dengan baik dan gunung-gungung memberikan udara dingin. tempat ini sempurna untuk berkemah kalau saja tidak ada monster. dan walaupun kita dekat dengan ibukota, jumlah musuh masih banyak. dan, mungkin karena efek pertarungan yang besar disini 2 tahun lalu, monster disini sangat kuat daripada yang ada di benua imnesia. bahkan monster kadal memiliki kekuatan fisik yang kuat daripada biasanya. sama juga untuk monster lain seperti goblin. bahkan normalnya, monster tidak akan datang ke tempat dimana manusia berkumpul.
+
+"seperti biasa, kamu hebat."
+
+"aku merasa aku bisa mati kapan saja."(renji)
+
+ketika aku melawan kadal itu 1 vs 1, feirona, yang berada disampingku mengalahkan goblin yang ada disekitar dan berkata seperti itu padaku. rambut emasnya bergoyang karena angin, benar-benar pria tampan. elf tampan ini, memiliki kemampuan untuk mengalahkan 5 goblin tanpa kelelahan.
+
