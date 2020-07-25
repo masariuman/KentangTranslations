@@ -285,4 +285,9 @@ mendengar suara ermenhilde, mereka bertiga melihat langsung kepadaku. aku tidak 
 
 tapi. sekarang seperti situasi saat ini, dia tidak lagi merajuk. mendengar suara ermenhilde, mururu menanyaiku untuk mengkonfirmasi juga.
 
-""
+"bukankah dalam kasus ini bisa diambil dari pemungutan suara?"(renji)
+
+"kamu adalah ketua disini, renji."(fei)
+
+"sudah kubilang sebelumnya juga tapi siapa yang memutuskan itu!?"(renji)
+
