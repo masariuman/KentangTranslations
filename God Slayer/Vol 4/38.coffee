@@ -91,4 +91,5 @@ itu tidak apa-apa kalau kami hanya memburu monster tapi biaya penginapan, makana
 
 ".....berat."(mururu)
 
-dibawah dada nona francesca, mururu bersuara kelelahan. entah 'berat' yang berarti berat badan nona francesca atau hanya dadanya saja.
+dibawah dada nona francesca, mururu bersuara kelelahan. entah 'berat' yang berarti berat badan nona francesca atau hanya dadanya saja. nona francesca mengubah peralatan dan pakaiannya di ibukota dan tidak menggunakan penutup data kulitnya lagi. sekarang dia berpenampilan lebih seperti penyihir.
+
