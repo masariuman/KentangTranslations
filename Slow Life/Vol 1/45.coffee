@@ -56,3 +56,7 @@ tentu saja, tujuan iblis untuk menarik pahlawan. dia memberikan obat itu ke pahl
 
 akan tetapi, dia tidak pernah membayangkan kalau sang pahlawan akan menelan obat itu tanpa ragu di situasi seperti ini.
 
+r"karena racun, penyakit dan kutukan tidak efektif denganku. jika ini bukan obat, kekebalan tubuhku akan aktif dan benda ini tidak akan berpengaruh padaku."
+
+ruti menjelaskannya mungkin karena dia menyadari pandangan iblis tersebut.
+
