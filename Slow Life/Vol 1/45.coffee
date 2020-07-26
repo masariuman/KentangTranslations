@@ -68,3 +68,13 @@ tapi itu sudah terlambat.
 
 dia sudah memakan obat itu.
 
+dia harus membuatnya memuntahkan obat tu sebelum obat itu diserap tubuhnya tapi iblis itu tidak memiliki kebebasan atau kekuatan untuk melakukannya.
+
+iblis itu hanya bisa berdoa kepada dewa.
+
+tolong, buatlah perlindungan ilahi iblis tersebut berfungsi.
+
+☆☆
+
+keesokan harinya, ares dan theodora terkejut.
+
