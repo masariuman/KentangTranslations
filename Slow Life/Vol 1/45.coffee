@@ -100,3 +100,24 @@ dia menemukan mayat dari iblis kontrak dengan kepalanya yang terpotong.
 
 "tidak mungkin dia bisa dikelabuhi oleh iblis....sudah pasti."
 
+ada beberapa peralatan kemah dan persenjataan ditinggalkan tapi barang penting dibawa oleh sang pahlawan dengan tas barang jadi perjalanan sang pahlawan harusnya tidak ada halangan.
+
+akan tetapi,
+
+"ti-tidak mungkin!?"
+
+theodora pun terguncang dengan barang yang dia temukan dilantai.
+
+"bukti bahwa seorang pahlawan, jimat lagenda yang dibuat dengan orichalcum yang disegel di reruntuhan elf kuno!"
+
+walaupun itu terletak didalam hutan didekat ibukota kerajaan, di tempat yang sangat terdalam dari reruntuhan elf kuno yang tidak ada yang menginjakkan kakinya disana, pahlawan ruti mendapatkan jimat yangmana dia gunakan agar dunia mengenalinya sebagai seorang pahlawan.
+
+ruti tidak pernah melepaskan barang itu selama dia adalah seorang pahlawan...tapi, nyatanya, bukti dari seorang pahlawan ditemukan di lantai.
+
+"sepertinya aku akan pergi kearah dimana ada yabg melihat kapal terbang."
+
+theodora meninggalkan kemah sendirian.
+
+------------------------------------
+
+omongan penerjemah : sepertinya tim pahlawan hancur sudah disini....... bubar, pada left party semua bahahahhaha... mungkin efeknya sukses jadi dorongan sebagai pahlawan ruti berkurang dan sekarang ruti mencari abangnya? entahlah ~
