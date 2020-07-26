@@ -50,3 +50,9 @@ r"aku akan mencobanya sedikit."
 
 ruti menelan obat tanpa ragu didepan mata iblis.
 
+mata iblis terbuka lebar terkejut dan tidak dapat berkata apa-apa.
+
+tentu saja, tujuan iblis untuk menarik pahlawan. dia memberikan obat itu ke pahlawan dengan berharap ada kemungkinan obat itu akan menguatkan pahlawan untuk membantunya mengalahkan raja iblis.
+
+akan tetapi, dia tidak pernah membayangkan kalau sang pahlawan akan menelan obat itu tanpa ragu di situasi seperti ini.
+
