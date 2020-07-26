@@ -92,3 +92,11 @@ albert yang terikat menunjukkan ekpresi gelisah tanpa tahu apa yang telah terjad
 
 "dia dapat melakukannya."
 
+theodora dengan dingin menjawab dan mengabaikan ares sambil dia memeriksa tenda pahlawan yang kosong.
+
+"ini..."
+
+dia menemukan mayat dari iblis kontrak dengan kepalanya yang terpotong.
+
+"tidak mungkin dia bisa dikelabuhi oleh iblis....sudah pasti."
+
