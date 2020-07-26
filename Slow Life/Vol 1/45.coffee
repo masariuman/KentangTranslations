@@ -12,3 +12,9 @@ abangya pasti akan terheran-heran kalai dia disini, karena dia sudah beberapa ka
 
 ruti berfikir pada dirinya sendiri dan menyesalinya. bahkan ada sedikit gejolak pada perasaannya yang menyebabkan iblis kontrak gemetaran ketakutan dan menahan teriak.
 
+pada saat ini, ilis kontrak di introgasi di tenda ruti dengan kedua tangan dan jarinya di rantai.
+
+tidak ada yang terjadi selain menanyakan pertanyaan saja tapi iblis mengerti perbedaan diantara dia dan gadis muda yang duduk didepannya. dia tidak punya kemauan untuk melawan lagi dan hanya berharap bisa hidup.
+
+tim pahlawan menunggu di luar tenda dan diam-diam simpati dengan iblis yang meneripa pertanyaan di tenda dengan pahlawan didalamnya tapi iblis tidak tahu akan hal itu.
+
