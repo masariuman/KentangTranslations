@@ -78,3 +78,17 @@ tolong, buatlah perlindungan ilahi iblis tersebut berfungsi.
 
 keesokan harinya, ares dan theodora terkejut.
 
+mereka berdua melihat kapal terbang mulai terbang jauh tanpa bisa melakukan apapun.
+
+albert yang terikat menunjukkan ekpresi gelisah tanpa tahu apa yang telah terjadi.
+
+"apa yang terjadi?"
+
+"aku tidak tahu, kapal terbang tercuri...?"
+
+"jangan mengkhayal. sang pahlawan dan tise tidak ada disekitar. kita ditinggalkan."
+
+"ti-tidak mungkin! itu tidak mungkin! bagaimana mereka bertarung tanpa magicku?!"
+
+"dia dapat melakukannya."
+
