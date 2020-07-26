@@ -38,3 +38,15 @@ bagi iblis, obat perlindungan ilahi ibis bukanlah obat untuk menyangkan perlindu
 
 r"begitu...."
 
+Ruti menghancurkan bubuk obat yang ditutup kertas yang dia ambil dari iblis tersebut.
+
+r"ini akan berguna untuk mengalahkan raja iblis?"
+
+"i-iya! walaupun mungkin orang selevel pa-pahlawan-sama tidak memerlukannya."
+
+r"aku akan mencobanya sedikit."
+
+"ha?"
+
+ruti menelan obat tanpa ragu didepan mata iblis.
+
