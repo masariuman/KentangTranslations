@@ -60,3 +60,7 @@ r"karena racun, penyakit dan kutukan tidak efektif denganku. jika ini bukan obat
 
 ruti menjelaskannya mungkin karena dia menyadari pandangan iblis tersebut.
 
+tapi iblis tersebut mundur dengan keringat dingin diseluruh tubuhnya mendegar kata itu.
+
+(kutukan? KUTUKAN!? dia benar-benar kebal dengan kutukan!? ini buruk, ini buruk! obat itu dibuat dengan menggabungkan dendam dari iblis kapak yang terbunuh yang berubah menjadi kutukan bersamaan dengan perlindungan ilahi iblis yang secara normal harusnya hilang ketika mati! jika kutukan itu tidak aktif, ada kemungkinan perlindungan ilahi iblis kapak tidak akan muncul!!)
+
