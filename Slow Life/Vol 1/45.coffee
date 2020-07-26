@@ -64,3 +64,7 @@ tapi iblis tersebut mundur dengan keringat dingin diseluruh tubuhnya mendegar ka
 
 (kutukan? KUTUKAN!? dia benar-benar kebal dengan kutukan!? ini buruk, ini buruk! obat itu dibuat dengan menggabungkan dendam dari iblis kapak yang terbunuh yang berubah menjadi kutukan bersamaan dengan perlindungan ilahi iblis yang secara normal harusnya hilang ketika mati! jika kutukan itu tidak aktif, ada kemungkinan perlindungan ilahi iblis kapak tidak akan muncul!!)
 
+tapi itu sudah terlambat.
+
+dia sudah memakan obat itu.
+
