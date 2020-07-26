@@ -18,3 +18,16 @@ tidak ada yang terjadi selain menanyakan pertanyaan saja tapi iblis mengerti per
 
 tim pahlawan menunggu di luar tenda dan diam-diam simpati dengan iblis yang meneripa pertanyaan di tenda dengan pahlawan didalamnya tapi iblis tidak tahu akan hal itu.
 
+albert juga di ikat dan diintrogasi oleh ares tapi ares menganggap dia tidak tahu apa-apa jadi ares meninggalkannya sendirian.
+
+r"jadi, ini adalah obat 'perlindungan ilahi iblis' huh?"
+
+"ini adalah obat yang dibuat dari jantung iblis kapak jadi itu akan menghasilkan perlindungan ilahi palsu dari iblis kapak. kekuatan dari obat ini dapat mengubah level dari perlindungan ilahi bawaan seseorang."
+
+r"mengubah?"
+
+"iya! meminum satu dosis dari obat ini akan memindahkan 1 level ke perlindungan ilahi iblis. dan juga, tidak meminum obat ini dalam 1 minggu akan mengakibatkan perlindungan ilahi iblis mengembalikan satu level ke perlindungan ilahi bawaan."
+
+r"terus?"
+
+""
