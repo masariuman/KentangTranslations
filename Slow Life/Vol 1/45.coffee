@@ -30,4 +30,5 @@ r"mengubah?"
 
 r"terus?"
 
-""
+"keuntungan dari obat ini adalah bukan efek itu tapi mengurangi level maksimal dari perlindungan ilahi orang tersebut. seperti yang kau tahu, level perlindungan ilahi orang dapat bertambah dengan mengalahkan sesuatu dengan perlindungan ilahi yang sama atau lebih tinggi. tapi perlindungan ilahi iblis tidak akan bertambah hanya dengan satu pertarungan....dengan menggunakan obat ini, obat ini bisa memberikan efek sementara mengurangi level perlindungan ilahi bawaan seseorang jadi orang itu dapat merasakan pertumbuhan yang efisian dan kemampuan bertarungnya tidak akan berkurang juga karena perlindungan ilahi iblis!"
+
