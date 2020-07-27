@@ -33,120 +33,80 @@ pahlawan-sama pernah berkata bahwa aku akan baik-baik saja meskipun aku ada di d
 Saat ini, saya sedang bermanuver dengan kapal terbang.
 
 Menurut legenda yang dikatakan teman dekatku di guild pembunuh, ada Orc di sisi keadilan dengan nama Pahlawan taring putih yang bertarung bersama manusia dan mengkhianati Raja Iblis atau Raja Iblis sebelumnya sebelum itu dan mencuri sebuah kapal terbang.
-----------------------------
+
 Tentu saja, dia juga tidak percaya cerita itu, tetapi dia adalah narator yang hebat.
 
-Ketika saya bertanya, dia mengatakan bahwa Perlindungan Ilahinya adalah Pelacur yang Mematikan, dengan kata lain, seorang pelacur pembunuh. Kemungkinan besar pidatonya menyenangkan di telinga karena itu.
+Ketika aku bertanya, dia mengatakan bahwa Perlindungan Ilahinya adalah Pelacur yang Mematikan, dengan kata lain, seorang pelacur pembunuh. Kemungkinan besar pidatonya enak didengar karena itu. (masariuman: wtf ada job pelacur mematikan ? wtf ada apa dengan dewi didunia situ..)
 
- 
+Dan dalam kisah yang diceritakannya, ada sebuah adegan di mana taring putih mengajar budak perempuannya yang tercinta tentang metode untuk menyetir kapal terbang.
 
-Dan dalam kisah yang diceritakannya, ada sebuah adegan di mana White Fang mengajar budak perempuannya yang tercinta tentang metode untuk mengarahkan kapal terbang.
+Itu adalah metode untuk manuver kapal terbang yang diajarkan melalui lagu seperti lagu penghitungan tetapi aku tidak pernah membayangkan bahwa itu dapat digunakan untuk menyetir sebuah kapal terbang.
 
-Itu adalah adegan di mana metode untuk manuver kapal terbang diajarkan melalui lagu seperti lagu penghitungan tetapi saya tidak pernah membayangkan bahwa pengetahuan dapat digunakan untuk benar-benar mengarahkan sebuah kapal terbang.
+Ada beberapa perbedaan kecil tetapi setelah mengalokasikan poin skill yang telah aku simpan untuk keadaan darurat ke dalam skill umum 『Penanganan』, skill itu secara intuitif mengajariku bagian-bagian yang tidak aku pahami ketika aku mengemudikan kapal.
 
-Ada beberapa perbedaan kecil tetapi setelah mengalokasikan poin keterampilan yang telah saya tinggalkan untuk keadaan darurat ke dalam keterampilan umum 『Penanganan it, itu secara intuitif mengajari saya bagian-bagian yang tidak saya miliki ketika saya mengemudikan kapal.
-
-Berkat itu, meskipun ada beberapa fungsi yang saya tidak tahu untuk apa mereka, saya entah bagaimana bisa mengoperasikannya untuk bergerak secara normal.
-
- 
-
-Meskipun itu telah menggigitku di belakang saat aku diseret oleh Pahlawan-sama untuk mengarahkan kapal terbang.
-
- 
+Berkat itu, meskipun ada beberapa fungsi yang tidak kuketahui fungsinya, entah bagaimana aku bisa mengoperasikannya untuk bergerak secara normal.
 
 "E-er ...."
 
-"Apa itu?"
+r"ada apa?"
 
-"A-tidak apa-apa jika kamu tidak ingin mengatakannya tapi mengapa Zoltan?"
+"ti-tidak apa-apa jika kamu tidak ingin mengatakannya tapi mengapa Zoltan?"
 
- 
-
-Saya sebenarnya ingin bertanya mengapa dia meninggalkan teman-temannya tetapi saya terlalu takut untuk bertanya.
+aku sebenarnya ingin bertanya mengapa dia meninggalkan teman-temannya tetapi aku terlalu takut untuk bertanya.
 
 Selamatkan aku, Ugeuge-san.
 
- 
-
 "?"
 
- 
+Aku melihat Ugeuge-san untuk meminta bantuan tapi dia memiringkan kepalanya seperti kebingungan.
 
-Aku mencari bantuan Ugeuge-san dan memiringkan kepalanya seperti sedang bermasalah.
+Imutnya.
 
-Imut.
+Pahlawan-sama tampak seperti ragu-ragu untuk beberapa saat sebelum dia mengeluarkan kertas kecil dari sakunya dan menunjukkannya padaku.
 
- 
-
-Pahlawan-sama tampak seperti dia ragu-ragu untuk beberapa saat sebelum dia mengeluarkan paket kertas kecil dari sakunya dan menunjukkannya padaku.
-
- 
-
-“Meskipun saya memiliki resep untuk meracik obat ini, saya tidak tahu keterampilan yang diperlukan untuk melakukannya. Itu sebabnya kami menuju ke Zoltan ke tempat orang yang membuatnya berada. "
+r"Meskipun aku memiliki resep untuk meracik obat ini, aku tidak tahu skill yang diperlukan untuk membuatnya. Itu sebabnya kita menuju ke Zoltan ke tempat orang yang membuatnya berada."
 
 "Obat?"
 
-"Iya."
+r"Iya."
 
 "………"
 
-"………"
-
- 
+r"………"
 
 "Er-erm, obat apa itu?"
-
- 
 
 Pada saat itu, sesuatu yang mengerikan terjadi.
 
 Pahlawan-sama menatap tajam ke mataku ... dan dia membentangkan ujung bibirnya dan tersenyum.
 
- 
+aku mendengar dari seseorang, Senyum itu awalnya merupakan ekspresi ganas.
 
-Saya mendengar dari seseorang. Senyum itu awalnya merupakan ekspresi ganas.
+aku merasakan ketakutan dari lubuk hatiku.
 
-Saya merasakan ketakutan dari lubuk hati saya.
+"ma-maaf …"
 
- 
+r"Obat ini adalah harapanku. Tetapi hanya ada tiga yang tersisa. Efeknya akan habis dalam satu minggu. Itu sebabnya aku harus bisa mengisi ulang secara berkala ... karena itu, aku ingin mencapai Zoltan sesegera mungkin. "
 
-"Sangat menyesal …"
+"ba-baiklah! Aku akan melakukan yang terbaik!"
 
-“Obat ini adalah harapanku. Tetapi hanya ada tiga yang tersisa. Efeknya akan habis dalam satu minggu. Itu sebabnya saya harus bisa mengisi ulang secara berkala ... karena itu, saya ingin mencapai Zoltan sesegera mungkin. "
+Ah! aku seharusnya tidak bertanya!
 
-"Kamu-ya! Aku akan melakukan yang terbaik!"
+Aku seharusnya membawa Pahlawan-sama tanpa memikirkan apapun. Benar, aku bagian dari kapal terbang. aku adalah gear. 《Guru guru guru guru》(masariuman: ini anak pembunuh tapi kok lucu amat sikapnya)
 
- 
+Ugeuge-san melompat-lompat di bahuku. dia mencoba menghiburku.
 
-Ah! Saya seharusnya tidak bertanya!
-
-Aku seharusnya memindahkan Pahlawan-sama tanpa memikirkan apapun. Benar, saya bagian dari kapal terbang. Saya seorang gear. 《Guru guru guru guru》
-
- 
-
-Ugeuge-san melompat-lompat di bahuku. Itu memberitahuku untuk menghibur.
-
-Yup, aku akan melakukan yang terbaik. Aku berjanji pada Ugeuge-san bahwa aku akan menganggapnya pasangan yang imut.
-
- 
+Yup, aku akan melakukan yang terbaik. Aku berjanji pada Ugeuge-san bahwa aku akan mencarinya pasangan yang imut.
 
 Gerakan Ugeuge-san adalah penyokong hatiku.
 
- 
+r"Cuaca bagus sekali."
 
-"Cuaca bagus sekali."
+Pahlawan-sama berbicara sambil melihat ke atas langit.
 
- 
+aku adalah gear. 《Guru guru guru guru》
 
-Pahlawan-sama berkata ketika dia melihat ke atas ke langit.
-
-Saya seorang gear. 《Guru guru guru guru》
-
- 
-
-☆☆
-
- 
+☆☆ 
 
 "Aku sudah dalam perawatanmu!"
 
