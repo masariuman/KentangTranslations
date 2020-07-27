@@ -206,32 +206,24 @@ g"Semoga beruntung, petualang Al."
 
 "Iya!"
 
-Al menunjukkan senyum berwajah penuh dan ekspresi yang sedikit sedih ...
+Al menunjukkan senyum penuh dan ekspresi yang sedikit sedih ...
 
-Dan meninggalkan Apoteker Red dan Lit.
+Dan meninggalkan Apotek Red dan Lit.
 
- 
+l"Dia telah pergi."
 
-"Dia telah pergi."
+g"Ya, benar."
 
-"Ya, benar."
+l"Entah bagaimana rasanya seperti punya anak."
 
-"Entah bagaimana rasanya kita punya anak."
-
-"Ya, aku juga merasakan hal yang sama."
-
- 
+g"Ya, aku juga merasakan hal yang sama."
 
 Kami berdua saling memandang.
 
- 
+g"Anak-anak ya, itu tidak terlalu buruk."
 
-"Anak-anak ya, itu tidak terlalu buruk."
-
-"Itu tidak buruk."
-
- 
+l"Itu tidak buruk."
 
 Kami berdua tersenyum bersama.
 
-Itu benar, mari kita kembali ke kehidupan Zoltan yang bahagia setiap hari juga.
+Itu benar, ayo kita kembali ke kehidupan Zoltan yang bahagia setiap hari juga.
