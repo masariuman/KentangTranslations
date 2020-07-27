@@ -108,39 +108,27 @@ aku adalah gear. 《Guru guru guru guru》
 
 ☆☆ 
 
-"Aku sudah dalam perawatanmu!"
-
- 
+"terima kasih karena telah menjagaku!"
 
 Al menunduk rendah.
 
-Itu sore.
+sekarang sudah malam.
 
 Hari ini, Al membantu di toko sepanjang hari dan berlatih dengan Lit di malam hari.
 
 Kemudian, dia dengan senang hati makan malam bersama kami ... dan meninggalkan toko.
 
- 
-
-"Hei, kamu bisa pergi besok pagi juga?"
-
- 
-
-Lit bertanya.
+l"Hei, kamu bisa pulang besok pagi lho... "
 
 Al tersenyum senang tetapi dia menggelengkan kepalanya.
 
- 
-
 "Tidak, tempat ini nyaman jadi ... jika aku tinggal sampai besok pagi, aku akan berakhir tinggal sampai sore, lalu sampai malam juga."
 
-"Apakah begitu."
+g"begitu..."
 
- 
+Di pinggang Al ada shotel yang kuberikan padanya.
 
-Di pinggang Al adalah shotel yang saya berikan padanya.
-
-Di bahunya adalah jubah seorang musafir yang kokoh yang dipilih Lit. Tubuh bagian atasnya ditutupi oleh lempengan dada perak yang diberikan Big Hawk padanya, lempengan dada itu tampaknya dipilih oleh Albert.
+Di bahunya terdapat jubah pengelana yang kuat yang dipilih Lit. Tubuh bagian atasnya ditutupi oleh pelindung dada perak yang diberikan Big Hawk padanya, pelindung dada itu tampaknya dipilih oleh Albert.
 
 Meskipun mereka belum pernah bertemu secara langsung, fakta bahwa pelindung dada cocok dengan tubuh Al dengan sempurna menunjukkan bagaimana Albert bahkan memberikan saran peralatan kepada teman-temannya yang tidak memiliki kemampuan sehingga mereka tidak akan mati selama permintaan peringkat-B.
 
