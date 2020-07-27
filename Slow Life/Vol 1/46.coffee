@@ -227,3 +227,9 @@ l"Itu tidak buruk."
 Kami berdua tersenyum bersama.
 
 Itu benar, ayo kita kembali ke kehidupan Zoltan yang bahagia setiap hari juga.
+
+----------
+
+masariuman: yay ini akhir dari volume 1 untuk web novel. untuk ilustrasi saya ambil dari light novel yang seharusnya ini sudah di akhir volume 2. jadi mohon maaf kalau daftar isi nya masih vol 1 tapi covernya sudah vol 2 yaa... hehee
+
+gula volume 1 selesai, sekarang ruti otw ke zoltan :D :D !! ga sabar nunggu dedek ruti ketemu babang GIDEON :D << untuk yang lupa gideon siapa, gideon nama asli red.
