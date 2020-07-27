@@ -130,19 +130,13 @@ Di pinggang Al ada shotel yang kuberikan padanya.
 
 Di bahunya terdapat jubah pengelana yang kuat yang dipilih Lit. Tubuh bagian atasnya ditutupi oleh pelindung dada perak yang diberikan Big Hawk padanya, pelindung dada itu tampaknya dipilih oleh Albert.
 
-Meskipun mereka belum pernah bertemu secara langsung, fakta bahwa pelindung dada cocok dengan tubuh Al dengan sempurna menunjukkan bagaimana Albert bahkan memberikan saran peralatan kepada teman-temannya yang tidak memiliki kemampuan sehingga mereka tidak akan mati selama permintaan peringkat-B.
+Meskipun mereka belum pernah bertemu secara langsung, fakta bahwa pelindung dada cocok dengan tubuh Al dengan sempurna menunjukkan bahwa Albert bahkan memberikan saran perlengkapan kepada teman-temannya yang tidak memiliki kemampuan sehingga mereka tidak akan mati selama mengerjakan permintaan rank-B.
 
-Di punggungnya ada ransel. Di dalamnya ada makanan yang diawetkan, batu asahan, tali, dan sabun. Lentera dan oilcan. Batu api. Hemostatik, antidot, dan tiga ramuan obat yang saya pilih. Panci besi dan peralatan makan serta kantong tidur.
+Di punggungnya ada ransel. Di dalamnya ada makanan yang diawetkan, batu asahan, tali, dan sabun. Lentera dan botol minyak. Batu api. Hemostatik, penawar racun, dan tiga ramuan obat yang kupilih. Panci besi dan peralatan makan serta kantong tidur.
 
- 
-
-Peralatan yang tidak akan mempermalukan seorang petualang di mana pun dia berada.
-
- 
+perlengkapan yang tidak akan mempermalukan seorang petualang di mana pun dia berada.
 
 "Terima kasih sudah menyiapkan makan malam untukku juga."
-
- 
 
 Perempuan itu mengenakan pakaian saudara perempuan membungkuk.
 
