@@ -1,53 +1,39 @@
-Saya seorang pembunuh yang berafiliasi dengan Assassin's Guild. Nama saya Tise‧Garland dan saya memiliki Perlindungan Ilahi dari Assassin.
+aku adalah seorang pembunuh yang berafiliasi dengan guild pembunuh. Namaku Tise Garland dan aku memiliki Perlindungan Ilahi dari pembunuh.
 
-Saya dijual oleh pedagang budak ketika saya masih muda dan dibeli oleh Assassin's Guild dan telah bekerja untuk memberi makan diri saya sebagai seorang pembunuh selama yang saya ingat. Makanan favorit saya adalah pasta ikan oden.
+aku dijual oleh pedagang budak ketika aku masih muda dan dibeli oleh guild pembunuh dan telah bekerja untuk memberi menghidupi diri sendiri sebagai seorang pembunuh selama ini. Makanan favoritku adalah pasta ikan oden.
 
-Banyak hal terjadi dan saya akhirnya berpartisipasi dalam pesta Pahlawan-sama.
+Banyak hal terjadi dan aku akhirnya berpartisipasi dalam tim Pahlawan-sama.
 
-Aku bermimpi berumur pendek, mungkin seorang pembunuh seperti diriku juga bisa menjadi pahlawan, tetapi atasanku Sage Ares-sama memberitahuku dengan jelas bahwa aku hanya seorang penunggu sampai dia dapat menemukan anggota lain. Sayang sekali.
+Aku memiliki mimpi kecil, mungkin seorang pembunuh seperti diriku juga bisa menjadi pahlawan, tetapi atasanku Sage Ares-sama memberitahuku dengan jelas bahwa aku hanya seorang pengganti sementara sampai dia dapat menemukan anggota lain yang dapat menggantiku. sungguh menyedihkan.
 
- 
+Hewan peliharaanku adalah laba-laba pelompat bernama Ugeuge-san. 'san' termasuk dalam namanya bukan sapaan.(masariuman: jadi kalau pakai sapaan jepang jadinya ugeuge-san-san dong.. bahahhaaha)
 
-Hewan peliharaan saya adalah laba-laba pelompat bernama Ugeuge-san. Namanya termasuk 'san'.
+gerakan mengangkat kaki depan dan bergoyang-goyangnya sangat lucu. aku senang bahwa ada skill 『Spider Empathy』 yang memungkinkan pembunuh menggunakan laba-laba beracun.
 
-Tindakannya mengangkat kaki depan dan bergoyang-goyang sangat lucu. Saya senang bahwa ada keterampilan 『Spider Empathy』 yang memungkinkan pembunuh menggunakan laba-laba beracun.
+Bahkan dalam keadaan yang menakutkan, Ugeuge-san masih dengan gembira berdiri di pundakku dan melambaikan kaki depannya yang kecil seolah-olah menghiburku. Terima kasih. aku akan membeli makananmu hari ini.
 
-Bahkan dalam keadaan yang menakutkan ini, Ugeuge-san masih dengan gembira berdiri di pundakku dan melambaikan kaki depannya yang kecil seolah-olah untuk menghiburku dan menghiburku. Terima kasih. Saya akan berbelanja makanan Anda hari ini.
+aku merasa hangat dan lembut ketika melihat Ugeuge-san dengan polos bergembira.
 
-Saya mendapat perasaan hangat dan lembut dari melihat Ugeuge-san dengan polos bersukacita.
+r"Berapa jauh lagi sampai Zoltan?"
 
- 
+suara dingin terdengar yang bisa menembus ke dalam tubuh.
 
-"Berapa jauh sampai Zoltan?"
+"Aku yakin itu akan memakan waktu sekitar tiga hari lagi ..."
 
- 
-
-Datang suara dingin yang menembus ke dalam tubuh seseorang.
-
- 
-
-"Aku percaya itu akan memakan waktu sekitar tiga hari lagi ..."
-
-“Luar biasa. Meskipun itu akan memakan waktu hingga satu minggu bagi kapal cepat untuk melakukan itu. ”
-
- 
+r“Luar biasa. bahkan itu akan memakan waktu hingga satu minggu untuk kapal cepat melakukan itu. ”
 
 Dia mungkin senang. Meskipun ekspresinya tidak berubah sama sekali.
 
-Detak jantungku berdetak 1,5 kali lipat. Tangan saya gemetar dan keringat dingin keluar dari seluruh tubuh saya.
+Detak jantungku berdetak 1,5 kali lipat. Tanganku gemetar dan keringat dingin keluar dari seluruh tubuhku.
 
-Secara alami, itu adalah jeritan yang berasal dari naluri kelangsungan hidup tubuhku.
+Secara alami, itu adalah teriakan yang berasal dari naluri bertahan hidup tubuhku.
 
- 
-
-Hero-sama pernah berkomentar bahwa aku baik-baik saja meskipun aku ada di dekatnya. Dan dia menepuk pundakku tapi itu mengerikan! Itu hanya karena latihan saya untuk memisahkan ekspresi wajah dan perasaan saya ... Saya menangis di dalam.
-
- 
+pahlawan-sama pernah berkata bahwa aku akan baik-baik saja meskipun aku ada di dekatnya Dan dia menepuk pundakku tapi itu mengerikan! karena aku sudah berlatih untuk memisahkan ekspresi wajah dan perasaanku, aku menangis di hatiku.
 
 Saat ini, saya sedang bermanuver dengan kapal terbang.
 
-Menurut legenda yang dikatakan teman dekatku di Assassin's Guild, ada Orc di sisi keadilan dengan nama Pahlawan Putih Fang yang bertarung bersama manusia dan mengkhianati Raja Iblis atau Raja Iblis sebelumnya sebelum itu dan mencuri seorang kapal terbang.
-
+Menurut legenda yang dikatakan teman dekatku di guild pembunuh, ada Orc di sisi keadilan dengan nama Pahlawan taring putih yang bertarung bersama manusia dan mengkhianati Raja Iblis atau Raja Iblis sebelumnya sebelum itu dan mencuri sebuah kapal terbang.
+----------------------------
 Tentu saja, dia juga tidak percaya cerita itu, tetapi dia adalah narator yang hebat.
 
 Ketika saya bertanya, dia mengatakan bahwa Perlindungan Ilahinya adalah Pelacur yang Mematikan, dengan kata lain, seorang pelacur pembunuh. Kemungkinan besar pidatonya menyenangkan di telinga karena itu.
