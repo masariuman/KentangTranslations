@@ -200,15 +200,11 @@ Kedengarannya bagus, orang-orang seperti dia akan pergi jauh.
 
 Aku menepuk rambut keriting Al. Itu mungkin terakhir kali aku bisa memperlakukannya seperti anak kecil seperti itu.
 
-Rasanya agak kesepian.
+aku merasa agak kesepian.
 
- 
-
-"Semoga beruntung, Adventurer Al."
+g"Semoga beruntung, petualang Al."
 
 "Iya!"
-
- 
 
 Al menunjukkan senyum berwajah penuh dan ekspresi yang sedikit sedih ...
 
