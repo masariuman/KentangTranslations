@@ -138,87 +138,63 @@ perlengkapan yang tidak akan mempermalukan seorang petualang di mana pun dia ber
 
 "Terima kasih sudah menyiapkan makan malam untukku juga."
 
-Perempuan itu mengenakan pakaian saudara perempuan membungkuk.
+Perempuan itu mengenakan pakaian biarawati membungkuk.
 
-Dia adalah pendeta wanita yang berasal dari partai Albert. Namanya Leah.
+Dia adalah priest wanita yang berasal dari tim Albert. Namanya Leah.
 
-Betul sekali. Dia dan sejumlah petualang lainnya telah membentuk pesta dengan Al untuk menandai awal perjalanan petualangan mereka.
+Dia dan sejumlah petualang lainnya telah membentuk tim dengan Al untuk menandai awal perjalanan petualangan mereka.
 
-Mereka membentuk pesta petualang peringkat-E dengan Al disertakan.
+Mereka membentuk tim petualang rank-E dengan Al didalamnya.
 
- 
+Setelah kejadian itu, ada gangguan lain juga.
 
-Setelah kejadian itu, ada gangguan lain.
-
-The Demon Kontrak dan Albert melarikan diri dari penjara.
+The iblis kontrak dan Albert melarikan diri dari penjara.
 
 Yang tersisa adalah Big Hawk yang telah kehilangan lemaknya dan menjadi anak muda setengah Orc yang kurus dan lusuh.
 
-Biasanya, Big Hawk tidak akan dapat melarikan diri dari eksekusi karena apa yang telah ia lakukan tetapi para ahli Studi Demon Central menyatakan minat pada korban yang masih hidup yang memiliki kontrak dengan Kontrak Demon sehingga ia dikawal ke Ibukota Kekaisaran baru kemarin.
-
- 
+normalnya, Big Hawk tidak akan dapat lari dari eksekusi karena apa yang telah ia lakukan tetapi para ahli iblis pusat menyatakan minat pada korban yang masih hidup yang memiliki kontrak dengan iblis kontrak sehingga ia dikawal ke Ibukota Kekaisaran kemarin.
 
 Pada akhirnya, itu adalah insiden yang cukup besar.
 
-Peternak pencuri nomor dua dan petualang nomor satu di kota berkolusi, para penduduk menyebabkan kerusuhan, ada manuver rahasia oleh iblis, obat misterius yang tidak diketahui dan ada juga korban.
+nomor 2 dari guild pencuri dan petualang nomor satu di kota berkolusi, para penduduk menyebabkan kerusuhan, ada pergerakan rahasia oleh iblis, obat misterius yang tidak diketahui dan ada juga korban.
 
 Meskipun demikian, hari ini, Zoltan telah kembali ke rutinitas hariannya.
 
 Penduduk Marsh Selatan tidak puas, ada prasangka di kelas atas dan kelas bawah dan mereka membenci para penjaga.
 
-Albert hilang tetapi Byuui diterima sebagai petualang B-rank di tempatnya dan tampaknya dia baik-baik saja.
-
- 
+Albert hilang tetapi Byuui diterima sebagai petualang rank-B dan tampaknya dia baik-baik saja.
 
 Namun, sesuatu yang aneh terjadi.
 
- 
-
-"Saya telah pindah! Ketika kata-kata Al-kun mencegah perkelahian sebelum itu terjadi, aku berpikir bahwa mungkin itulah peran sebenarnya dari seorang pahlawan! ”
-
- 
+"aku tersentuh! Ketika kata-kata Al-kun mencegah perkelahian sebelum itu terjadi, aku berpikir bahwa mungkin itulah peran sebenarnya dari seorang pahlawan! "
 
 Teman-teman Albert juga ada di tempat kejadian.
 
-Setelah keributan, imam wanita Leah ini menawarkan diri untuk mengadakan pesta dengan Al dan Ademi karena dia tersentuh oleh pidato mereka. Tampaknya ada pelamar lain juga.
+Setelah keributan, wanita biarawati Leah ini menawarkan diri untuk membuat tim dengan Al dan Ademi karena dia tersentuh oleh pidato mereka. Tampaknya ada orang lain juga yang ingin bergabung.
 
 Al langsung setuju setelah mendengar tawaran Leah.
 
- 
-
 "Aku masih pemula level 1 tapi ... aku berharap bisa bekerja sama denganmu!"
 
- 
-
-Alih-alih anak muda yang takut akan Perlindungan Ilahi-nya sendiri ketika pertama kali bertemu dengan saya, sekarang, dia memiliki pandangan yang kuat dari seorang petualang yang telah menerima Perlindungan Ilahi mereka dan berusaha untuk bergerak maju.
-
- 
+dulu al adalah anak yang takut akan Perlindungan Ilahi-nya sendiri ketika pertama kali bertemu denganku. sekarang, dia memiliki pandangan yang kuat dari seorang petualang yang telah menerima Perlindungan Ilahi mereka dan berusaha untuk bergerak maju.
 
 Kejadian ini telah mengubah Al.
 
- 
-
 "Sampai jumpa!"
-
- 
 
 Al mengulurkan tangan kanannya.
 
 Lit dan aku menjabat tangannya dengan erat.
 
- 
+l"Lakukan yang terbaik."
 
-"Lakukan yang terbaik."
+g"Kamu bisa datang kapan saja jika membutuhkan obat. aku akan memberimu diskon. "
 
-“Kamu bisa datang kapan saja jika membutuhkan obat. Saya akan memberi Anda diskon. "
+"Tidak! Aku akan menemukan harta karun yang hebat dan menjadi kaya sehingga aku bisa membayar cukup untuk Red-san dan Lit-san mendapatkan cincin perak mithril sebagai hadiah!"
 
-"Tidak! Aku akan menemukan harta yang luar biasa dan menjadi kaya sehingga aku bisa membayar obat yang cukup untuk Red-san dan Lit-san untuk mendapatkan cincin perak mithril sebagai hadiah! ”
+l"Itu luar biasa!"
 
-"Itu akan luar biasa!"
-
-"Mithril silver ya, itu adalah mimpi besar."
-
- 
+g"perak Mithril ya, itu adalah mimpi besar."
 
 Kedengarannya bagus, orang-orang seperti dia akan pergi jauh.
 
