@@ -34,9 +34,9 @@ aku mencoba berbicara dengan Kuuki tetapi dia membuat wajah tidak senang secara 
 
 Dulu, dia sering mendengarkanku dengan senyum bahagia. Dia pasti merasa puas setelah menjadi pasangan sang putri. aku kira itu juga termasuk pertumbuhan. aku jadi iri. Sudahlah menikah saja. Kemudian, aku akan memberikan semua berkat (kutukan) ku kepadamu.
 
-"Aku membantu seseorang dan akhirnya memperburuk suasana hati Utano-san."(Renji)
+"Aku membantu seseorang dan berakhir memperburuk suasana hati Utano-san."(Renji)
 
-"Diam-diam minta maaf padanya."
+"minta maaf sajalah padanya."
 
 “…… ..”
 
