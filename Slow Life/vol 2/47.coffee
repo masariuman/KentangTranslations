@@ -177,3 +177,8 @@ l"Terima kasih untuk makanannya!"
 Setelah kami berdua selesai makan, Lit tersenyum puas di wajahnya.
 
 Dari lubuk hatiku, aku merasakan bahwa upaya yang dilakukan untuk membuat makanan mewah hari ini sepadan hanya dengan melihat senyum itu.
+
+
+--------
+
+masariuman: tolong.... saya ga kuat... sama... gulanya....
