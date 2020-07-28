@@ -196,7 +196,7 @@ aya berubah total dari ekspresinya sebelumnya dan tersenyum lebar. Ya, ini pasti
 
 aku meninggalkan pekarangan. Aya pasti akan diganggu oleh Souichi dan yang lainnya tapi itu hanya membuatku merasa lebih ringan. Tempat yang aku tuju adalah tempat yang menyedihkan sehingga aku ingin berada dalam suasana hati setinggi mungkin. Sebagai hadiah untuk diriku sendiri, aku juga akan pergi untuk makan malam dengan sicantik seperti Aya nanti. Jadi ayo kita kuatkan diri.
 
-[Kamu benar-benar mengerti cara bicara.]
+[Kamu benar-benar jago berbicara.]
 
 “Tidak juga, aku juga tidak punya niat buruk. Aku hanya tidak ingin membuatnya merasa sedih, itu saja. ”
 
