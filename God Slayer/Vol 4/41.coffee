@@ -242,11 +242,11 @@ aku mulai merasa agak sedih lagi. untung aku tidak membawa Aya ke sini. Masih te
 
 "Bagaimanapun juga, ini adalah penjara."
 
-Itulah tempat penjara. Mau bagaimana lagi. Saya merasa seperti suara Ermenhilde yang mencoba menyiratkan kepada saya bahwa dia ingin kembali secepat mungkin. Yah, bahkan saya tidak akan berada di sini jika saya tidak memiliki sesuatu untuk dilakukan.
+Itulah tempat penjara. Mau bagaimana lagi. aku merasa suara Ermenhilde mencoba memberi tahuku bahwa dia ingin kembali secepat mungkin. Yah, bahkan aku tidak akan berada di sini jika aku tidak memiliki sesuatu untuk dilakukan.
 
-Ketika saya terus berjalan melewati koridor sambil mengabaikan teriakan permohonan dari para penjahat, sebuah penjara yang jauh lebih terlihat kokoh muncul di depan mata saya. Ada lima di antaranya. Batang-batang sel itu tidak terbuat dari besi melainkan dari Mithril. Dan jeruji ini diukir dengan pola dan huruf yang terlihat rumit membentuk mantra. Saya tidak bisa membacanya tetapi saya pikir itu adalah surat yang digunakan oleh Elf. Keajaiban yang terukir adalah [Sealing]. Di dalam itu, penggunaan sihir tidak mungkin. Itu adalah tempat untuk menyimpan sihir menggunakan penjahat. Mereka cukup besar untuk memiliki sepuluh orang di dalam satu sel pada saat yang sama. Saya juga bisa melihat salah satu sel itu saat ini ditempati oleh beberapa orang juga. Ketika saya mendekat, mereka menyadari keberadaan saya dan seorang tentara membuka gerbang sel untuk saya.
+Ketika aku terus berjalan melewati koridor sambil mengabaikan teriakan permohonan dari para penjahat, sebuah penjara yang jauh dan terlihat kokoh muncul di depan mataku. Ada lima di antaranya. Batang-batang sel itu tidak terbuat dari besi melainkan dari Mithril. Dan jeruji ini diukir dengan pola dan huruf yang terlihat rumit membentuk mantra. aku tidak bisa membacanya tetapi aku pikir itu adalah tulisan yang digunakan oleh Elf. sihir yang terukir adalah [penyegelan]. Di dalam penjara itu, penggunaan sihir tidak dapat dilakukan. Itu adalah tempat untuk menyimpan penjahat yang menggunakan sihir. ruangannya cukup besar karena bisa memuat sepuluh orang di dalam satu sel pada saat yang sama. aku juga bisa melihat salah satu sel itu saat ini ditempati oleh beberapa orang juga. Ketika aku mendekat, mereka menyadari keberadaanku dan seorang tentara membuka gerbang sel untukku.
 
-“…… Yamada-kun ..”
+"…… Yamada-kun .."
 
 "Halo, Utano-san."
 
