@@ -96,11 +96,11 @@ dia Mengabaikan pertanyaanku dan berkata seperti itu. Ungu, maksudnya warna peti
 
 "tentu saja Untuk turnamen seni bela diri." (Yuuko)
 
-Aku hendak berdoa untuknya mendengar suaranya yang letih tetapi kemudian tiba-tiba berhenti. Tunggu, tunggu, tunggu sebentar.
+Aku ingin mendoakannya mendengar suara lelahnya tetapi kemudian tiba-tiba terhenti. Tunggu, tunggu, tunggu sebentar.
 
-"Tapi aku tidak masuk?"
+"Tapi aku tidak ikut kan?"(renji)
 
-"Berusahalah untuk hutangmu."
+"Berusahalah demi hutangmu."
 
 Jadi saya bahkan tidak diizinkan memiliki pendapat. Ya, itu salah saya untuk jatuh ke dalam hutang. Sebenarnya, itu buruk bagiku untuk menjual pedang yang aku dapatkan dari raja sendiri hanya karena aku kekurangan uang, kurasa? Jika itu adalah permainan, itu akan menjadi salah satu barang yang tidak bisa Anda jual atau akan dihentikan sendiri oleh pedagang, atau sesuatu seperti itu.
 
