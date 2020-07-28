@@ -82,7 +82,7 @@ Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang me
 
 "Bisakah aku mendapatkan obat flu ini?"
 
-Seorang gadis Half-Elf muda membayar 10 koin tembaga biasa dan bertanya dengan suara meriah.
+Seorang gadis Half-Elf muda membayar 10 koin tembaga dan bertanya dengan suara meriah.
 
 Itu adalah obat yang dibuat menggunakan jahe yang akan meningkatkan metabolisme tubuh dan bukan obat yang akan menunjukkan efek langsung tidak seperti obat yang dibuat dengan menggunakan keterampilan tetapi ... obat jenis ini juga diperlukan.
 
