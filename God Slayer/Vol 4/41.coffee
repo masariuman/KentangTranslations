@@ -102,11 +102,11 @@ Setelah beberapa saat, para prajurit kembali ke pelatihan mereka karena bersemna
 
 "Muuu."
 
-Dengan menggembungkan pipinya, dia, Hisaki Masaki, dengan cepat kembali menunjukkan senyum energik yang manis. Pengguna Pedang Iblis yang menginginkan dewi untuk [Pedang yang dapat merobek nasib bahkan]. Jika diingat dengan benar, rumahnya adalah kuil tetapi dia sendiri tidak memiliki sopan santun seperti wanita. Jika saya harus mengatakan, dia lebih seperti tipe kakak perempuan. Bahkan sekarang, dia hanya menertawakan kehilangannya pada Souichi. Di dalam, dia pasti berencana membalas dendam atas kehilangannya nanti.
+Dengan menggembungkan pipinya, dia, Hisaki Masaki, dengan cepat kembali menunjukkan senyum energik yang manis. Pengguna Pedang Iblis yang memohon dewi untuk [Pedang yang  bahkan dapat merobek nasib]. Jika diingat lagi, rumahnya dulu adalah kuil tetapi dia sendiri tidak memiliki sopan santun seperti wanita. dia lebih seperti tipe kakak perempuan. Bahkan sekarang, dia hanya menertawakan kekalahannya pada Souichi. Di dalam hatinya dia pasti berencana membalas dendam atas kekalahannya nanti.
 
-Dia pecundang yang kuat tapi berkemauan keras. Saya pikir waktu itu dia biasa mengatakan "Saya seorang Miko!" banyak. Yah dengan rambut hitam panjangnya, gaun miko pasti akan sangat cocok untuknya. Tetapi kepribadiannya adalah kasus lain sama sekali. Dia tipe wanita yang ide kesenangannya adalah bertarung dengan Souichi dengan pedang. Dan dia mudah dibaca. Untuk berbicara secara spesifik, dia adalah tipe orang yang cepat bertindak dan melompat langsung ke gerombolan monster dan mulai mengayunkan pedangnya. Dia sebenarnya lebih jantan daripada aku, dalam arti tertentu.
+Dia adalah pecundang tapi berkemauan keras. aku pikir waktu itu dia sering mengatakan "aku seorang Miko!". Yah dengan rambut hitam panjangnya, gaun miko pasti akan sangat cocok untuknya. Tetapi kepribadiannya berbeda sama sekali. Dia tipe wanita yang berfikir menyenangkan bertarung dengan Souichi. Dan dia mudah dibaca. secara spesifik, dia adalah tipe orang yang cepat bertindak dan melompat langsung ke gerombolan monster dan mulai mengayunkan pedangnya. Dia sebenarnya lebih jantan daripada aku, dalam arti tertentu.
 
-“Huh, Renji-niichan. Kapan kamu datang ke sini? "(Souichi)
+"Huh, Renji-niichan. Kapan kamu datang ke sini? "(Souichi)
 
 Dan Souichi terkejut, akhirnya menyadari aku ada di sini. Seberapa berkonsentrasi Anda dalam pertarungan? Yah, itu adalah bagian dari kekuatannya. Tapi tetap saja, melihatnya berdiri di samping Masaki-chan, apakah orang ini benar-benar tidak tumbuh banyak dalam hal ketinggian dalam satu tahun terakhir? Dia sebenarnya sedikit lebih pendek darinya. Belum lagi ia memiliki wajah androgini yang menyerupai wajah saudara perempuannya. Mungkin lucu membuatnya crossdress kapan-kapan.
 
