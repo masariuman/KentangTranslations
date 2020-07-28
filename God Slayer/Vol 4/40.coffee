@@ -130,7 +130,7 @@ utano-san Memesan beberapa minuman dan makanan ringan darinya dan Utano-san dudu
 
 aku tidak bisa merasa bahagia sama sekali. aku sadar berapa banyak orang yang bekerja keras hanya untuk memasuki turnamen ini tetapi ketika dia mengatakannya seperti itu, aku mengerti apa yang dia maksud dengan turnamen itu.
 
-Meskipun dewa iblis sudah mati, baru satu tahun setelah itu. Sama seperti ada orang-orang dengan harapan, ada juga yang terluka dan ada yang masih putus asa. Bagaimana saya harus mengatakan ini, tetapi orang-orang di dunia ini benar-benar membutuhkan sesuatu yang dapat mereka andalkan sekarang. Dan itu akan menjadi Dewi Astraera dan para rasulnya, 13 pahlawan. Itu kita. Muncul di turnamen, dia pada dasarnya meminta kita untuk hadir dan menonjol bagi orang-orang. Melihat orang-orang yang menyelamatkan dunia, massa juga akan merasa lebih termotivasi. Atau semacam itu.
+Meskipun dewa iblis sudah mati, baru saja setahun setelah itu terjadi. Sama seperti ada orang-orang dengan harapan, ada juga yang terluka dan ada yang masih putus asa. Bagaimana saya harus mengatakan ini, tetapi orang-orang di dunia ini benar-benar membutuhkan sesuatu yang dapat mereka andalkan sekarang. Dan itu akan menjadi Dewi Astraera dan para rasulnya, 13 pahlawan. Itu kita. Muncul di turnamen, dia pada dasarnya meminta kita untuk hadir dan menonjol bagi orang-orang. Melihat orang-orang yang menyelamatkan dunia, massa juga akan merasa lebih termotivasi. Atau semacam itu.
 
 Saya ragu itu akan berjalan dengan mudah tapi itu benar, mungkin ada efeknya.
 
