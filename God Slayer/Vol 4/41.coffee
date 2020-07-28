@@ -136,7 +136,7 @@ Reaksiku pasti lucu karena Yayoi-chan tertawa elegan. Meskipun dia bukan wanita 
 
 Aya-chan juga bergabung dengan percakapan kami. Dia tidak menunjukkan tanda-tanda takut, bahkan senyumnya hampir terasa seperti racun. Yah, dia pasti tahu bahwa Kudou sengaja mencoba mengacaukan mereka ketika dia berpegangan pada Souichi. Tetapi jika kamu tahu, mengapa kamu masih terpancing? sampai bisa terpancing, kurasa 'cinta itu buta'.
 
-Ketika saya melihat anak-anak berbicara dengan senyum, saya merasa seperti bertambah tua. Meskipun saya sudah terbiasa dengan adegan ini. 3 tahun yang lalu, setelah dipanggil di sini, ini hanya percakapan normal antara kawan-kawan saya. Betapa nostalgia rasanya ini. Pasti karena saya tinggal jauh dari mereka selama satu tahun terakhir. Sementara aku memikirkan itu, aku mengeluarkan Ermenhilde dari sakuku dan dengan lembut membelai medali itu. Tepat setelah dipanggil, tidak ada yang memikirkan bahaya yang akan kami hadapi dan hanya menikmati saling berhadapan dengan pedang. Betapa sangat nostalgia.
+Ketika aku melihat anak-anak berbicara dengan tersenyum, aku merasa seperti bertambah tua. Meskipun aku sudah terbiasa dengan adegan ini. 3 tahun yang lalu, setelah dipanggil di dunia ini, ini hanya percakapan normal antara kawan-kawanku. Betapa nostalgia rasanya ini. Pasti karena aku tinggal jauh dari mereka selama satu tahun terakhir. aku mengeluarkan Ermenhilde dari sakuku dan dengan lembut membelai medali itu. Tepat setelah dipanggil, tidak ada yang memikirkan bahaya yang akan kami hadapi. Betapa sangat nostalgia.
 
 [Apa yang terjadi?]
 
