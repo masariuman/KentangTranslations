@@ -345,3 +345,10 @@ Ada apa dengan helaan nafas berat itu!
 Tidak, serius, aku bahkan tidak melihat Solnea sebagai benar-benar wanita. aku Memberikan senyum masam pada reaksi Utano-san. aku minum teh lagi sambil menyembunyikan bibirku dengan cangkir teh.
 
 Jika aku mengatakan ini kepada Aya, apakah aku akan mendapatkan reaksi yang sama juga?
+
+
+
+--------------
+
+
+masariuman: renji bilang souichi cocok memiliki maslah dengan perempuan karena pahlawan, padahal dia sendiri juga sellau bermasalah dengan perempuan awkwakkwkwa.. pantas jadi MC
