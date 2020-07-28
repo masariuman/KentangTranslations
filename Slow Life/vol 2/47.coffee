@@ -1,58 +1,58 @@
 Bab 47: Red dan Lit merebus masakan hospot
 
-Zoltan dikelilingi oleh hamparan luas padang rumput.
+Zoltan dikelilingi oleh hamparan padang rumput yang luas.
 
-Selama musim ini, para petani dari distrik utara biasanya menuju di luar benteng setinggi dua meter, atau lebih seperti dinding batu, yang mengelilingi Zoltan untuk memotong rumput dari padang rumput luar untuk mengumpulkan pakan ternak mereka dalam persiapan untuk musim dingin.
+Selama musim ini, para petani dari distrik utara biasanya menuju di luar benteng setinggi dua meter, atau seperti dinding batu, yang mengelilingi Zoltan untuk memotong rumput dari padang rumput luar untuk mengumpulkan pakan ternak mereka dalam persiapan untuk musim dingin.
 
-Orang-orang dari Downtown juga ingin memberi makan hewan sehingga ada banyak peserta.
+Orang-orang dari pusat juga ingin memberi makan hewan sehingga ada banyak orang yang melakukannya.
 
-Petualang miskin di bawah D-rank juga berpartisipasi sebagai pekerjaan sampingan. Frekuensinya rendah tetapi mereka bertugas memusnahkan monster setiap kali mereka muncul. Imbalan untuk pekerjaan itu rendah tetapi mereka bisa menerima makanan seperti sayuran dan tepung gandum dari petani.
+Petualang miskin di bawah rank-d juga berpartisipasi sebagai pekerjaan sampingan. Frekuensinya rendah tetapi mereka bertugas memusnahkan monster setiap kali mereka muncul. Imbalan untuk pekerjaan itu rendah tetapi mereka bisa menerima makanan seperti sayuran dan tepung gandum dari petani.
 
-Mereka dapat dengan mudah mencari nafkah dengan mengumpulkan obat-obatan herbal tetapi sifat pekerjaan ini berarti bahwa mereka akan dikelilingi oleh teman dan akan segera dibawa ke kota jika mereka menderita cedera serius. Bagi mereka, penting bahwa hampir tidak ada kebutuhan untuk mempertaruhkan nyawa mereka.
+Mereka dapat dengan mudah mencari nafkah dengan mengumpulkan obat-obatan herbal tetapi dari pekerjaan ini berarti bahwa mereka akan dikelilingi oleh teman dan akan segera dibawa ke kota jika mereka menderita cedera serius. Bagi mereka, penting bahwa tidak mempertaruhkan nyawa mereka untuk hal yang tidak mereka butuhkan.
 
 Rumput yang dikumpulkan akan ditumpuk di gudang distrik utara untuk menjadi jerami dan dijual dengan harga yang wajar begitu musim dingin tiba.
 
-"Ini akan segera musim dingin."
+g"sebentar lagi musim dingin."
 
-Langit cerah dan cerah.
+Langit yang cerah.
 
 Suhunya agak dingin.
 
-Saya mengenakan mantel di baju biasa yang saya kenakan.
+aku memakai jas di baju yang biasa aku gunakan.
 
-Dengan tangan kiri saya simpan di saku, saya dalam perjalanan kembali ke toko memeluk dengan tangan kanan saya sebuah paket yang berisi sejumlah besar kentang dan keju serta kastanye sebagai bonus yang saya terima dari petani dengan imbalan obat-obatan .
+Dengan tangan kiri di simpan didalam saku, aku dalam perjalanan kembali ke toko dengan memeluk paket dengan tangan kananku yang berisi sejumlah besar kentang dan keju serta chestnut sebagai bonus yang aku terima dari petani dengan imbalan obat-obatan .
 
-"Masih hangat dibandingkan dengan Logavia."
+l"ini Masih hangat dibandingkan dengan Logavia."
 
-Lit berkata ketika dia memasukkan tangannya ke dalam saku mantelku juga.
+Lit berbicara sambil dia memasukkan tangannya ke dalam saku jasku juga.
 
-Dia memegang tangan kiriku erat-erat untuk menghangatkan tangan yang sedikit dingin.
+Dia memegang tangan kiriku erat-erat untuk menghangatkan tangannya yang sedikit dingin.
 
-"Bukankah kamu hanya berkomentar bahwa itu masih hangat?"
+g"Bukankah kamu barusan bilang kalau itu masih hangat?"
 
-"Musim dingin masih musim dingin."
+l"Musim dingin tetap musim dingin."
 
-Mungkin dia sedikit malu ketika Lit mengangkat bandana yang melilit lehernya sedikit untuk menutupi mulutnya.
+Mungkin dia sedikit malu karena Lit mengangkat bandana yang melilit lehernya sedikit untuk menutupi mulutnya.
 
-Ketika aku mencengkeram tangannya dengan erat, aku menemukan melalui celah bandana-nya bahwa Lit sedang nyengir.
+Ketika aku mencengkeram tangannya dengan erat, aku menemukan melalui celah bandana-nya bahwa Lit sedang tersenyum nyengir.
 
-Itu agak imut jadi aku akhirnya nyengir juga.
+Itu agak imut jadi aku akhirnya tersenyum nyengir juga.
 
-"Ah, Red menyeringai."
+l"Ah, Red tersenyum nyengir."
 
-Jadi, Lit menertawakanku.
+Lit menertawakanku.
 
 Sungguh tidak masuk akal.
 
 ☆☆
 
-Kami kembali ke toko sebelum tengah hari.
+Kami kembali ke toko sebelum tengah siang hari.
 
 Masih terlalu dini untuk makan siang.
 
 Lit mengeluarkan tiga kaleng susu 10 liter dari kotaknya yang ia terima dari para petani dengan cara bertukar obat.
 
-Anda mungkin berpikir bahwa akan baik-baik saja bagi saya untuk menyimpan kentang di dalam kotak barang juga, tetapi meskipun kotak barang akan mengenali susu yang disimpan di dalam kaleng, itu tidak akan mengenali tas tempat kentang disimpan dan akan menyimpan tas tersebut dan kentang di ruang alternatif yang terpisah.
+kamu mungkin berpikir apakah tidak apa-apa untuk menyimpan kentang di dalam item box juga, tetapi meskipun item box akan mengenali susu yang disimpan di dalam kaleng, itu tidak akan mengenali tas tempat kentang dan akan menyimpan tas tersebut dan kentang di dimensi berbeda.
 
 Kemudian, saya harus membayangkan mereka secara terpisah ketika saya ingin mengeluarkannya, tanpa pilihan selain mengambil kentang dan keju satu demi satu.
 
