@@ -30,7 +30,7 @@ Secara alami, itu adalah teriakan yang berasal dari naluri bertahan hidup tubuhk
 
 pahlawan-sama pernah berkata bahwa aku akan baik-baik saja meskipun aku ada di dekatnya Dan dia menepuk pundakku tapi itu mengerikan! karena aku sudah berlatih untuk memisahkan ekspresi wajah dan perasaanku, aku menangis di hatiku.
 
-Saat ini, saya sedang bermanuver dengan kapal terbang.
+Saat ini, aku sedang bermanuver dengan kapal terbang.
 
 Menurut legenda yang dikatakan teman dekatku di guild pembunuh, ada Orc di sisi keadilan dengan nama Pahlawan taring putih yang bertarung bersama manusia dan mengkhianati Raja Iblis atau Raja Iblis sebelumnya sebelum itu dan mencuri sebuah kapal terbang.
 
