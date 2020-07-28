@@ -102,7 +102,7 @@ Aku ingin mendoakannya mendengar suara lelahnya tetapi kemudian tiba-tiba terhen
 
 "Berusahalah demi hutangmu."
 
-Jadi saya bahkan tidak diizinkan memiliki pendapat. Ya, itu salah saya untuk jatuh ke dalam hutang. Sebenarnya, itu buruk bagiku untuk menjual pedang yang aku dapatkan dari raja sendiri hanya karena aku kekurangan uang, kurasa? Jika itu adalah permainan, itu akan menjadi salah satu barang yang tidak bisa Anda jual atau akan dihentikan sendiri oleh pedagang, atau sesuatu seperti itu.
+Jadi aku bahkan tidak diizinkan memberikan pendapat. Ya, itu salah saya untuk jatuh ke dalam hutang. Sebenarnya, itu buruk bagiku untuk menjual pedang yang aku dapatkan dari raja sendiri hanya karena aku kekurangan uang, kurasa? Jika itu adalah permainan, itu akan menjadi salah satu barang yang tidak bisa Anda jual atau akan dihentikan sendiri oleh pedagang, atau sesuatu seperti itu.
 
 Sambil memikirkan itu, aku duduk di kursi dekat meja. Tapi tetap saja, ini benar-benar kristal besar. Saya ingin tahu berapa banyak yang akan Anda dapatkan jika Anda menjualnya. Apakah saya langsung memikirkan itu semata-mata karena saya saat ini dalam utang atau hanya karena saya secara alami memiliki pikiran seorang pria dalam kemiskinan?
 
