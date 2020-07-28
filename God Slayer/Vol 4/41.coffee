@@ -42,7 +42,7 @@ Dulu, dia sering mendengarkanku dengan senyum bahagia. Dia pasti merasa puas set
 
 "Itu pasti wanita lain lagi, kan?"
 
-Dia bahkan tidak berpikir sebelum berbicara seolah itu semua salahku. Oh well, kurasa ini bukan pertama kalinya sesuatu seperti ini terjadi, jadi kurasa mereka tidak bisa disalahkan.
+Dia bahkan tidak berpikir sebelum berbicara dan seolah itu semua salahku. Oh well, kurasa ini bukan pertama kalinya sesuatu seperti ini terjadi, jadi kurasa mereka tidak bisa disalahkan.
 
 Untuk menyelamatkan seseorang, Anda membutuhkan kekuatan. Apakah itu melawan kekuatan, moneter, atau ketenaran / reputasi. Itu pasti perlu. Saat itu, saya kurang dalam semuanya namun ingin menyelamatkan orang lain jadi saya akhirnya mencoba menyelamatkan mereka semua. Sebagai hasilnya, aku akhirnya membuat Utano-san tidak senang berkali-kali. Dan saya bahkan tidak dapat menyangkal bahwa tidak satupun dari mereka adalah hal-hal yang berhubungan dengan wanita.
 
