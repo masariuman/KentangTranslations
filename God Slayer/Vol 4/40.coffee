@@ -236,13 +236,13 @@ Saat ini, [Pengguna Pedang Iblis] Masaki-chan memanifestasikan pedang iblis di t
 
 dengan warna sarungnya, itu seperti pedang tipe api. Jika dia menggunakannya, beberapa bagian dari tempat latihan akan menjadi arang.
 
-"Oh, baiklah, terserahlah."
+"yaaah, terserahlah."
 
-Saya memiliki banyak hal untuk dikatakan tetapi saya memutuskan untuk membiarkannya begitu saja. Saya yakin Souichi akan menghadapinya. Lakukan yang terbaik, Berani-sama. Adalah hak istimewa pahlawan Berani untuk memiliki masalah dengan wanita.
+aku memiliki banyak hal untuk dikatakan tetapi aku memutuskan untuk membiarkannya begitu saja. aku yakin Souichi akan menghadapinya. Lakukan yang terbaik, brave-sama. itu Adalah hak istimewa pahlawan brave untuk memiliki masalah dengan wanita.
 
-Sambil memikirkan itu, aku duduk kembali di kursiku. Aku minum seteguk teh dinginku, tapi rasanya masih enak. Seperti yang diharapkan dari istana kerajaan, daun teh yang digunakan adalah kelas atas.
+aku duduk kembali di kursiku. Aku minum seteguk teh dinginku, tapi rasanya masih enak. Seperti yang diharapkan dari istana kerajaan, daun teh yang digunakan adalah kelas atas.
 
-"Oh benar, aku juga perlu mendiskusikan sesuatu denganmu, utano-san."
+"Oh benar, aku juga perlu mendiskusikan sesuatu denganmu, utano-san."(renji)
 
 "Apa itu?"
 
@@ -250,9 +250,9 @@ Sambil memikirkan itu, aku duduk kembali di kursiku. Aku minum seteguk teh dingi
 
 "Peta? Mengapa?"
 
-“Saya menemukan gua baru. Mungkin, ini sangat baru, bahwa seseorang membuat sihir, saya pikir. ”
+"aku menemukan gua baru. Mungkin, ini sangat baru, dan sepertunya seseorang membuatnya dengan sihir."
 
-“…… Tentang apa ini?”
+"…… apa maksudnya?"
 
 Mengatakan bahwa dia berdiri dan mengeluarkan peta yang disimpan dengan rapi di salah satu laci di mejanya. Karena kristal itu menghalangi, saya mengambilnya untuk memindahkannya ke tempat lain. Melihat sekeliling, untuk saat ini, saya memutuskan untuk menyimpannya di rak buku dekat jendela.
 
