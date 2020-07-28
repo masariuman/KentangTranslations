@@ -4,25 +4,25 @@ utano-san Mengatakan bahwa dia memiliki pekerjaan yang harus dia dilakukan sekar
 
 Aku teringat ekspresi Utano-san saat dia membawaku keluar dari kamarnya. Aku merasa tatapannya 3 kali lebih dingin dari biasanya. Apakah kasus Solnea membebani pikirannya? Hampir tidak ada banyak hal yang bisa membuat Utano-san khawatir sih.
 
-aku Menghela nafas, dan memikirkan beberapa cara untuk menaikkan suasana hatinya lagi, aku menuju tempat Pelatihan dan Mungkin bertemu Souichi dan yang lainnya juga. aku harus menunjukkan wajah saya kepada O'brien-san juga. Karena dia sibuk dengan tugas-tugas Ksatria dan aku menghabiskan lebih banyak waktu di guild, kami entah bagaimana belum bertemu. Jika saya menunda lagi, saya merasa dia akan marah dan berteriak kepada saya.
+aku Menghela nafas dan memikirkan beberapa cara untuk meningkatkan suasana hatinya lagi. aku menuju tempat Pelatihan dan Mungkin bertemu Souichi dan yang lainnya juga. aku harus menunjukkan wajahku kepada O'brien-san juga. Karena dia sibuk dengan tugas-tugas Ksatria dan aku menghabiskan lebih banyak waktu di guild, entah bagaimana kami belum bertemu. Jika aku menundanya lagi, aku merasa dia akan marah dan berteriak padaku.
 
 Meskipun dia mencapai usia lima puluhan, dia masih aktif di lapangan. Aku bahkan tidak tahu apa yang akan terjadi ketika dia marah.
 
-Ketika aku muncul di tanah, Kuuki datang ke arahku dengan wajah terkejut. Aya juga datang bersamanya.
+Ketika aku muncul di lokasi, Kuuki bergerak ke arahku dengan wajah terkejut. Aya juga datang bersamanya.
 
-Ketika saya melihat Aya, saya mengingat kembali pembicaraan saya dengan Utano-san …… tentang Solnea. Untuk sesaat, aku tidak bisa memikirkan cara untuk memulai percakapan dengannya. Sementara itu, Aya datang tepat di depanku dan melihat ke arahku. Kuncir kuda sampingnya bergoyang-goyang memamerkan pesona gadisnya.
+Ketika aku melihat Aya, aku mengingat kembali pembicaraanku dengan Utano-san …… tentang Solnea. Untuk sesaat, aku tidak bisa memikirkan cara untuk memulai percakapan dengannya. Aya datang tepat di depanku dan melihat ke arahku. Kuncir kuda sampingnya bergoyang-goyang memamerkan pesona gadisnya.
 
-"Apakah terjadi sesuatu?"
+"Apakah terjadi sesuatu?"(aya)
 
 "Hm?"
 
 "Tidak, kamu terlihat khawatir tentang sesuatu." (Aya)
 
-Saya. Iya. Tunggu, bisakah saya mengatakan bahwa saya sebenarnya khawatir?
+ya, aku khawatir. Tunggu, bisakah aku mengatakan bahwa aku sebenarnya khawatir?
 
-Saya ingat bagaimana Utano-san menanyai saya tentang berbagai hal mengenai hubungan saya dengan Solnea. Serius, saya bertemu dengannya hari ini. Bahkan, saya tidak hanya 'bertemu' dia seperti orang normal juga. Akan lebih baik untuk mengatakan bahwa saya membawanya di bawah perlindungan saya untuk saat ini.
+aku ingat bagaimana Utano-san menanyaiku tentang berbagai hal mengenai hubunganku dengan Solnea. Serius, aku bertemu dengannya hari ini. faktanya, aku tidak 'bertemu' dia seperti orang normal juga. Akan lebih baik untuk mengatakan bahwa aku melindunginya untuk saat ini.
 
-Sambil memikirkan itu, aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Mendengar itu, Aya juga tersipu dan tersenyum malu. Sungguh, kesucian Aya menyembuhkanku.
+aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Aya menjadi tersipu dan tersenyum malu. Sungguh, kepolosan Aya menyembuhkanku.
 
 "Jadi apa yang terjadi?"
 
