@@ -1,6 +1,6 @@
 Bab 41 Berkumpul (3)
 
-Mengatakan bahwa dia memiliki pekerjaan yang harus dilakukan sekarang, Utano-san mengantarku keluar dari kamarnya. Ketika saya meninggalkan ruangan yang hangat, koridor terasa lebih dingin dari biasanya membuat saya menggosok-gosokkan tangan.
+utano-san Mengatakan bahwa dia memiliki pekerjaan yang harus dia dilakukan sekarang dan dia mengantarku keluar dari kamarnya. koridor terasa lebih dingin dari biasanya dan membuatku menggosok-gosokkan tangan.
 
 Aku teringat ekspresi Utano-san saat dia membawaku keluar dari kamarnya. Aku merasa tatapannya 3 kali lebih dingin dari biasanya. Apakah kasus Solnea membebani pikirannya? Hampir tidak ada banyak hal yang bisa membuat Utano-san khawatir.
 
