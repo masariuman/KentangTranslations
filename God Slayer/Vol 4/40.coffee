@@ -164,7 +164,7 @@ aku mengucapkan terima kasih kecil dan pelayan meninggalkan ruangan setelah memb
 
 dia Mengatakan itu dengan suara seperti menikmatinya dan dia menuangkan teh ke dalam cangkir. ketika Mencium aroma harum, aku baru saja akan memilih pot ketika Utano-san menuangkan secangkir untukku juga. Saat aku mengucapkan terima kasih, dia tersenyum kecil. Dia sepertinya dalam suasana hati yang baik. aku juga merasa senang melihatnya seperti ini.
 
-“Tapi tetap saja, dunia ini tidak nyaman namun nyaman di tempat-tempat aneh. Kembali ke dunia kita, kita harus membayar hanya untuk melihat pelayan. ”(Renji)
+"Tapi tetap saja, dunia ini tidak nyaman namun nyaman di tempat-tempat aneh. Kembali ke dunia kita, kita harus membayar hanya untuk melihat pelayan."(Renji)
 
 [Di duniamu, apakah uang diperlukan hanya untuk memenuhi pelayan?]
 
