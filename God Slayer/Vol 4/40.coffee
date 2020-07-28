@@ -144,7 +144,7 @@ aku ragu itu akan berjalan dengan mudah tapi itu benar, mungkin ada efeknya.
 
 "Jangan meminta hal yang mustahil."
 
-Masalahnya adalah aku sendiri. aku tidak bermaksud untuk lengah atau apa pun, tetapi ada kemungkinan besar bahwa saya benar-benar akan kehilangan petualang acak atau seorang siswa. Tidak ada yang mau melihat pahlawan seperti itu.
+Masalahnya adalah aku sendiri. aku tidak bermaksud untuk lengah atau apa pun, tetapi ada kemungkinan besar bahwa aku benar-benar akan kalah dari petualang atau seorang siswa. Tidak ada yang mau melihat pahlawan seperti itu.
 
 Itulah sebabnya ketika saya meminta Utano-san untuk menghadapi salah satu dari pahlawan di babak pertama, dia dengan cepat memberikan persetujuan. Sepertinya dia telah memikirkannya juga. Jadi saya kira itu akan menjadi satu koin perak untuk berpartisipasi. Dengan langkah ini, aku akan bebas dari hutang setelah menyelesaikan permintaan Utano-san 10 kali eh? ……… ..Aku ragu itu akan semudah itu.
 
