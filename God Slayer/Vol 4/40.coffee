@@ -260,9 +260,9 @@ dia berdiri dan mengeluarkan peta yang disimpan dengan rapi di salah satu laci d
 
 [Gunakan kedua tanganmu untuk memegangnya, bodoh!]
 
-Iya iya Memberikan jawaban setengah hati, saya memutuskan untuk meletakkannya dengan hati-hati di meja kerja pada akhirnya. Jika mahal, rak buku tidak akan berhasil, ya. Jika saya langgar di sini, hutang saya akan naik lagi. Itu normal kalau aku langsung berpikiran seperti itu.
+Iya iya. Memberikan jawaban setengah hati, aku memutuskan untuk meletakkannya dengan hati-hati di meja kerjanya. Jika mahal, rak buku tidak akan bisa melindunginya, ya. Jika aku merusaknya, hutangku akan naik lagi. Itu normal kalau aku langsung berpikiran seperti itu.
 
-“Jadi, di mana kamu menemukan gua baru ini?” (Yuuko)
+"Jadi, di mana kamu menemukan gua baru ini?" (Yuuko)
 
 "Hm, umm, mari kita lihat .." (renji)
 
