@@ -214,11 +214,11 @@ Dan para prajurit melihat mereka dari kejauhan. Di antara mereka, Kuuki dan Aya 
 
 [benarkah?]
 
-Ermenhilde menjawab dengan sebuah pertanyaan. Yah, aku cukup yakin mereka akrab. Sudah berapa lama sejak aku melihat pertengkaran tentang Souichi ini?
+Ermenhilde menjawab dengan sebuah pertanyaan. Yah, aku cukup yakin mereka akrab. Sudah berapa lama sejak aku melihat pertengkaran demi Souichi ini?
 
-Nostalgia sekali. Yah, Kudou ada di sana hanya untuk menghasut 2 lainnya. Saat aku menatap mereka melalui jendela, Utano-san mendekat ke sampingku. Itu berakhir dengan kami berdua memandangi mereka melalui jendela.
+Nostalgia sekali. Yah, Kudou ada di sana hanya untuk menghasut 2 lainnya. Saat aku menatap mereka melalui jendela, Utano-san mendekat ke sampingku. kami berdua memandangi mereka melalui jendela.
 
-"Yah, karena Yuuta ada di sana, kurasa tidak akan buruk."
+"Yah, karena Yuuta ada di sana, kurasa tidak akan berakhir buruk."
 
 “Aku ragu Kudou akan menghasut mereka begitu banyak sejak awal.” (Renji)
 
