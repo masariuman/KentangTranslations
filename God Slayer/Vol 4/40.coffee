@@ -326,7 +326,7 @@ dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di d
 
 "Orang ini, apakah dia seorang wanita?" (Yuuko)
 
-[Bagaimana kamu tahu? Seperti yang kamu katakan.]
+[Bagaimana kamu tahu?]
 
 “………….”
 
