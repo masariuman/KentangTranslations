@@ -172,9 +172,9 @@ dia Mengatakan itu dengan suara seperti menikmatinya dan dia menuangkan teh ke d
 
 “……… ..”
 
-Telepon, mobil, internet; kami tidak memiliki kenyamanan yang berasal dari peradaban maju tetapi sebaliknya memiliki sihir dan pelayan yang muncul dari satu cincin dari bel. Jika Anda bertanya mana yang lebih nyaman, saya tidak bisa menjawab.
+Telepon, mobil, internet; kami tidak memiliki kenyamanan yang berasal dari peradaban maju tetapi sebaliknya memiliki sihir dan pelayan yang muncul ketika ber berbunyi. Jika kamu bertanya mana yang lebih nyaman, aku tidak bisa menjawabnya.
 
-Sementara aku memikirkannya, tiba-tiba aku merasakan tatapan tajam dari mata Utano-san yang menyipit.
+tiba-tiba aku merasakan tatapan tajam dari mata Utano-san yang menyipit.
 
 "Apakah kamu mengunjungi toko-toko seperti itu?" (Yuuko)
 
