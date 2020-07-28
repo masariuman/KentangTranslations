@@ -22,13 +22,13 @@ ya, aku khawatir. Tunggu, bisakah aku mengatakan bahwa aku sebenarnya khawatir?
 
 aku ingat bagaimana Utano-san menanyaiku tentang berbagai hal mengenai hubunganku dengan Solnea. Serius, aku bertemu dengannya hari ini. faktanya, aku tidak 'bertemu' dia seperti orang normal juga. Akan lebih baik untuk mengatakan bahwa aku melindunginya untuk saat ini.
 
-aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Aya menjadi tersipu dan tersenyum malu. Sungguh, kepolosan Aya menyembuhkanku.
+aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Aya menjadi tersipu dan tersenyum malu. Sungguh, kepolosan Aya mengobatiku.
 
 "Jadi apa yang terjadi?"
 
-"Oh ya, Kuuki, dengarkan saja ini .." (renji)
+"Oh ya, Kuuki, tolong dengarlah.." (renji)
 
-“…… ..uwahh. Saya tidak mau. "(Kuuki)
+"…… ..uwahh. aku tidak mau. "(Kuuki)
 
 Sambil disembuhkan oleh Aya, aku mencoba berbicara dengan Kuuki tetapi dia hanya membuat wajah tidak senang secara terbuka. Sialan, bajingan tak berperasaan ini.
 
