@@ -102,17 +102,17 @@ Aku ingin mendoakannya mendengar suara lelahnya tetapi kemudian tiba-tiba terhen
 
 "Berusahalah demi hutangmu."
 
-Jadi aku bahkan tidak diizinkan memberikan pendapat. Ya, itu salah saya untuk jatuh ke dalam hutang. Sebenarnya, itu buruk bagiku untuk menjual pedang yang aku dapatkan dari raja sendiri hanya karena aku kekurangan uang, kurasa? Jika itu adalah permainan, itu akan menjadi salah satu barang yang tidak bisa Anda jual atau akan dihentikan sendiri oleh pedagang, atau sesuatu seperti itu.
+Jadi aku bahkan tidak diizinkan memberikan pendapat. Ya, itu salahku juga untuk jatuh ke dalam hutang. Sebenarnya, itu salahku juga dan itu tidak baik menjual pedang yang aku dapatkan dari raja sendiri hanya karena aku kekurangan uang, kan? Jika itu adalah permainan, itu akan menjadi salah satu barang yang tidak bisa kamu jual atau pedagang sendiri yang menolaknya.
 
-Sambil memikirkan itu, aku duduk di kursi dekat meja. Tapi tetap saja, ini benar-benar kristal besar. Saya ingin tahu berapa banyak yang akan Anda dapatkan jika Anda menjualnya. Apakah saya langsung memikirkan itu semata-mata karena saya saat ini dalam utang atau hanya karena saya secara alami memiliki pikiran seorang pria dalam kemiskinan?
+aku duduk di kursi dekat meja. Tapi tetap saja, ini benar-benar kristal besar. aku ingin tahu berapa banyak yang akan kamu dapatkan jika kamu menjualnya. Apakah aku langsung memikirkan itu semata-mata karena aku saat ini dalam utang atau hanya karena aku secara alami memiliki pikiran seorang pria dalam kemiskinan?
 
-“Jangan membuat wajah seperti itu. Aku akan memberimu hadiah yang tepat untuk itu juga. ”(Yuuko)
+"Jangan membuat wajah seperti itu. Aku akan memberimu hadiah yang tepat untuk itu juga."(Yuuko)
 
 "Eh?"
 
-“Jika kamu muncul, itu akan menjadi satu koin perak. Jika kamu menang, hadiahnya adalah 5 koin perak jadi itu bukan transaksi yang buruk bagimu, tahu? ”(Yuuko)
+"Jika kamu ikut, itu akan menjadi satu koin perak. Jika kamu menang, hadiahnya adalah 5 koin perak jadi itu bukan transaksi yang buruk bagimu, kan?"(Yuuko)
 
-Fumu, begitu. Saya pikir meletakkan jari saya di daguku. Seperti yang dia katakan, ada pahala bagi saya juga. Di atas segalanya, ada satu koin perak hanya untuk muncul. Meskipun mungkin bervariasi tergantung pada penjatahan kelompok, tapi aku ragu aku bisa memenangkan semuanya. Lagipula, aku tahu pasti bahwa Souichi, Aya dan Masaki-chan akan muncul. Aku benar-benar tidak bisa menang melawan 3 orang itu. Utano-san mungkin tidak akan ambil bagian tetapi mungkin bahkan Kuuki yang akan masuk.
+Fumu, begitu. aku meletakkan jariku di daguku. Seperti yang dia katakan, ada keuntungan untukku juga. dan dari semua itu, ada satu koin perak hanya untuk muncul. Meskipun mungkin bervariasi tergantung pada penjatahan kelompok, tapi aku ragu aku bisa memenangkan semuanya. Lagipula, aku tahu pasti bahwa Souichi, Aya dan Masaki-chan akan muncul. Aku benar-benar tidak bisa menang melawan 3 orang itu. Utano-san mungkin tidak akan ambil bagian tetapi mungkin bahkan Kuuki yang akan masuk.
 
 Aku tidak mengerti apa yang dia pikirkan tentangku ketika aku merenungkan hal-hal seperti itu, Utano-san membunyikan bel yang ada di mejanya. Dalam pemberitahuan sesaat, pintu diketuk. Seorang pelayan muncul dari balik pintu dengan, tidak seperti Kudou, senyum menyegarkan di wajahnya. Seperti yang Anda harapkan, ini adalah tentang pembantu sejati. Ya.
 
