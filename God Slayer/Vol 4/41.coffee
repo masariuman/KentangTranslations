@@ -140,9 +140,9 @@ Ketika aku melihat anak-anak berbicara dengan tersenyum, aku merasa seperti bert
 
 [ada apa?]
 
-"Tidak, tidak apa-apa."
+"Tidak, tidak ada apa-apa."(renji)
 
-Saya merasa agak sedih ketika saya memikirkannya juga. Aku bahkan tidak bisa menjawab dengan benar suara khawatir Ermenhilde. Seberapa putus asa saya? Meskipun aku telah memilih Ermenhilde di atas mereka semua dan telah membuat jarak di antara kita semua. Pada akhirnya, saya kembali ke sini lagi. Saya tidak merasa sedih tentang hal itu, sebenarnya saya juga menikmatinya. Sangat menyenangkan untuk berpetualang bersama Ms Francesca dan yang lainnya, tetapi begitu dekat dengan teman-teman tepercaya saya merasa sangat nyaman. Yang terpenting, itu mengingatkan saya bahwa tempat saya akan selalu kembali akan selalu ada di sini.
+aku merasa agak sedih ketika aku memikirkannya juga. Aku bahkan tidak bisa menjawab dengan benar suara khawatir Ermenhilde. Seberapa putus asa diriku? padahal aku telah memilih Ermenhilde daripada mereka semua dan telah membuat jarak di antara kita semua. Pada akhirnya, aku kembali ke sini lagi. aku tidak merasa sedih tentang hal itu, sebenarnya aku juga menikmatinya. Sangat menyenangkan untuk berpetualang bersama nona Francesca dan yang lainnya, tetapi begitu dekat dengan teman-teman tepercaya aku merasa sangat nyaman. Yang terpenting, itu mengingatkanku bahwa tempatku kembali akan selalu ada di sini.
 
 "Oi Kuuki, apakah kamu tahu di mana O'brien-san berada?" (Renji)
 
