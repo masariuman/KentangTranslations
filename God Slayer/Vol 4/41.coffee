@@ -120,11 +120,11 @@ Yah, jika aku melakukan itu, aku akan benar-benar dibunuh oleh Masaki-chan dan Y
 
 dia mengangkat tangannya ke udara. Di sebelahnya, Masaki-chan membuat wajah menyesal tetapi karena itu hanya akan membuat lebih banyak masalah bagiku jika mengatakan sesuatu yang bodoh, jadi aku diam saja. Lagipula, mereka akan bertarung ulang cepat atau lambat. aku juga mengangkat tangan kananku dan melakukan tosh dengan Souichi. Seperti biasa, dia tidak menahannya sama sekali membuat tanganku sakit tanpa alasan. Aku tidak menunjukkannya di wajahku tapi dia pasti menyadarinya saat Kudou menahan tawa. Terkutuklah dia. Dia luar biasa reseptif hanya pada hal-hal aneh seperti itu. Ketika aku memberi tatapan tajam pada pelayan cantik itu, dia mendatangiku dengan wajah geli yang langka. Dia pasti menikmati mengganggu Souichi karena dia tidak memiliki wajah tanpa ekspresi seperti biasanya. Kepribadian yang menyebalkan. Di sampingnya, yayoi-chan juga berjalan ke arah kami. Dengan Aya sudah di sampingku, rasanya menyenangkan dikelilingi oleh gadis-gadis cantik. Kudou, yah, seperti itu juga. Rasanya menyakitkan mengetahui kepribadian sejati seseorang juga. Meskipun wajahnya bagus. Hanya wajahnya saja.
 
-“Lama tidak bertemu, Renji-san.” (Yayoi)
+"Lama tidak bertemu, Renji-san."(Yayoi)
 
-"Yayoi-chan juga, senang melihatmu aman dan sehat lagi." (Renji)
+"Yayoi-chan juga, senang melihatmu aman dan sehat juga." (Renji)
 
-"Iya. Terima kasih telah melindungi Aya-chan seperti biasa. ”(Yayoi)
+"Iya. Terima kasih telah melindungi Aya-chan seperti biasa."(Yayoi)
 
 Ketika dia membungkuk mengatakan itu, aku merasa agak malu. Tapi akulah yang pada akhirnya dilindungi. Tapi aku ragu untuk mengatakan itu juga, dan pada akhirnya aku hanya bisa menggaruk pipiku.
 
