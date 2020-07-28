@@ -44,7 +44,7 @@ Dulu, dia sering mendengarkanku dengan senyum bahagia. Dia pasti merasa puas set
 
 Dia bahkan tidak berpikir sebelum berbicara dan seolah itu semua salahku. yaah, kurasa ini bukan pertama kalinya sesuatu seperti ini terjadi, jadi kurasa mereka tidak bisa disalahkan.
 
-Untuk menyelamatkan seseorang, kamu membutuhkan kekuatan. Apakah itu melawan kekuatan, moneter, atau ketenaran / reputasi. Itu pasti perlu. Saat itu, saya kurang dalam semuanya namun ingin menyelamatkan orang lain jadi saya akhirnya mencoba menyelamatkan mereka semua. Sebagai hasilnya, aku akhirnya membuat Utano-san tidak senang berkali-kali. Dan saya bahkan tidak dapat menyangkal bahwa tidak satupun dari mereka adalah hal-hal yang berhubungan dengan wanita.
+Untuk menyelamatkan seseorang, kamu membutuhkan kekuatan. Apakah itu kekuatan bertarung, moneter, atau ketenaran / reputasi. Itu pasti perlu. Saat itu, saya kurang dalam semuanya namun ingin menyelamatkan orang lain jadi saya akhirnya mencoba menyelamatkan mereka semua. Sebagai hasilnya, aku akhirnya membuat Utano-san tidak senang berkali-kali. Dan saya bahkan tidak dapat menyangkal bahwa tidak satupun dari mereka adalah hal-hal yang berhubungan dengan wanita.
 
 Bagaimanapun, saya seorang pria. Mau tak mau aku mengulurkan tangan ke seorang wanita dalam kesulitan. Membuat saya termotivasi juga. Terlebih lagi jika itu adalah keindahan. Tidak, saya memang menyelamatkan banyak pria juga, oke? Tapi tetap saja, kurasa bayanganku di dalam kepala Utano-san masih seperti 'sosok perempuan'. Meskipun sebagian besar tidak disengaja.
 
