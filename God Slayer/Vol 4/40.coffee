@@ -182,7 +182,7 @@ tiba-tiba aku merasakan tatapan tajam dari mata Utano-san yang menyipit.
 
 "Kamu tahu, toko-toko di mana kamu bisa bertemu pelayan dengan membayar uang, pernahkah kamu ke sana sebelumnya?"
 
-"Oh. Nah, saya tidak pernah memiliki keberanian juga. "
+"Oh. Nah, aku tidak pernah memiliki keberanian juga. "
 
 Sebenarnya aku juga tidak punya waktu. Saya tidak benar-benar fokus pada pekerjaan tetapi jika Anda bertanya apakah saya punya banyak waktu luang, jawabannya adalah 'Tidak'. Sungguh, apa yang telah saya lakukan dengan hidup saya? Saya bahkan tidak memikirkan itu saat ini. Saya sudah lupa semua tentang itu. Saya ingin tahu apakah itu karena saya telah menerima dunia ini sebagai tempat di mana saya dapat hidup.
 
