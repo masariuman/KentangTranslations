@@ -275,16 +275,16 @@ Tidak dapat menyangkal apa yang dia katakan, aku mengalihkan pandanganku dan mel
 "Untuk satu hal, aku hanya seorang petualang sekarang dan kamu, O'brien-san, adalah komandan ksatria Ordo. bukankah kamu memiliki status yang lebih tinggi dariku? "(Renji)
 
 "Dibandingkan dengan seorang ksatria tua dengan pahlawan yang menyelamatkan dunia, tentu saja kamu yang memiliki status lebih tinggi, dasar bodoh." (Ob)
-------------
-Aku merasa kasihan pada para prajurit yang berdiri di belakangnya dengan panik dan bingung dari pembicaraan kami. Untuk saat ini, saya akan lebih bahagia jika Anda mengabaikan saya dan melanjutkan penyiksaan. Tidak tunggu, itu tidak seperti saya menikmati melihat itu atau apapun juga.
+
+Aku merasa kasihan pada para tentara yang berdiri di belakangnya dengan panik dan bingung karena pembicaraan kami. Untuk saat ini, aku akan lebih bahagia jika kamu mengabaikanku dan melanjutkan penyiksaan ke iblis itu. Tidak, tunggu, itu bukan berarti aku menikmati menonton hal seperti itu ya...
 
 Aku ingin tahu apa yang dia pikirkan tentangku ketika Utano-san mendekatiku dan berbisik di telingaku.
 
-"Kenapa kamu di sini?"
+"Kenapa kamu di sini?"(yuuko)
 
-"Jika ini terkait dengan Dewa Setan, aku berada di bawah orang-orang yang peduli dengannya." (Renji)
+"Jika ini terkait dengan Dewa iblis, aku terlibat akan hal ini." (Renji)
 
-Bahkan jika saya melarikan diri dari gelar Pahlawan, saya tidak ingin melarikan diri dari Dewa Setan. Bukan karena aku seorang rasul sang dewi, juga bukan karena aku seorang dewa-pembunuh ........ hanya karena aku manusia yang dipanggil ke dunia ini. Karena itulah jalan yang dia pilih. Karena itulah yang dia harapkan. Dan karena itu adalah keinginannya, yang tidak dapat saya penuhi.
+Bahkan jika aku melarikan diri dari gelar Pahlawan, aku tidak ingin melarikan diri dari Dewa iblis. Bukan karena aku seorang utusan sang dewi, juga bukan karena aku seorang pembunuh-dewa ........ hanya karena aku manusia yang dipanggil ke dunia ini. Karena itulah jalan yang dia pilih. Karena itulah yang dia harapkan. Dan karena itu adalah keinginannya, yang tidak dapat aku penuhi.
 
 "Yamada Renji !!" (iblis)
 
