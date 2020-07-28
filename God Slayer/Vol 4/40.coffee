@@ -234,7 +234,7 @@ bisakah itu disebut bermain-main? aku pikir mereka energik tapi agak sedikit ber
 
 Saat ini, [Pengguna Pedang Iblis] Masaki-chan memanifestasikan pedang iblis di tangannya jadi aku ragu kita bisa menyebutnya 'bermain-main' lagi. Yah, dia belum menghunusnya, jadi tidak apa-apa kan?
 
-Pergi dengan warna sarungnya, itu harus menjadi pedang tipe api. Jika dia mengeluarkannya, bagian dari tempat latihan akan menjadi arang.
+dengan warna sarungnya, itu seperti pedang tipe api. Jika dia menggunakannya, beberapa bagian dari tempat latihan akan menjadi arang.
 
 "Oh, baiklah, terserahlah."
 
