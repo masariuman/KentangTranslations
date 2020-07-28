@@ -334,4 +334,4 @@ Sambil mendengarkan O'brien-san aku mengamati ekspresi iblis dengan cermat. ekpr
 
 akupun berdiri.
 
-Tidak beruntung di sini, kurasa. Sambil bermain dengan pecahan kristal dengan jari-jariku, aku berpikir tentang gadis itu. Karena sama sekali tidak ada info tentangnya, aku juga tidak akan menemukan jawaban. Aku ingin tahu apa yang dipikirkan Utano-san saat dia melirik ke arahku. Apakah dia curiga padaku lagi?
+kurasa aku tidak mendapatkan apa-apa disini. Sambil bermain dengan pecahan kristal dengan jari-jariku, aku berpikir tentang gadis itu. Karena sama sekali tidak ada info tentangnya, aku juga tidak akan menemukan jawaban. Aku ingin tahu apa yang dipikirkan Utano-san saat dia melirik ke arahku. Apakah dia curiga padaku lagi?
