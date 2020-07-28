@@ -312,11 +312,11 @@ Tapi tidak ada perubahan yang terlihat pada kristal. Setelah beberapa waktu berl
 
 "Sepertinya kristal normal bagiku." (Yuuko)
 
-“Akan lebih bagus jika itu benar. Orang tersebut saat ini tinggal bersama kami untuk saat ini. Yang terpenting, menurut mereka, mereka juga menderita amnesia. ”
+"Akan lebih baik jika itu benar. Orang tersebut saat ini tinggal bersama kami untuk saat ini. Yang terpenting, menurutnya, dia menderita amnesia."
 
-“……… Betapa merepotkan. Amnesia, eh? Saya ingin bertemu mereka sekali. "
+"……… Betapa merepotkan. Amnesia, eh? aku ingin bertemu dengannya. "
 
-“Itu akan sangat membantu. Haruskah aku datang ke sini bersama mereka besok? "
+"Itu akan sangat membantu. Haruskah aku datang ke sini bersama dia besok? "
 
 "Ya, lakukan itu. Mari kita selesaikan semua masalah seperti itu sebelum turnamen dimulai. ”
 
