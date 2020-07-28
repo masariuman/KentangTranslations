@@ -108,11 +108,11 @@ Dia adalah pecundang tapi berkemauan keras. aku pikir waktu itu dia sering menga
 
 "Huh, Renji-niichan. Kapan kamu datang ke sini? "(Souichi)
 
-Dan Souichi terkejut, akhirnya menyadari aku ada di sini. Seberapa berkonsentrasi Anda dalam pertarungan? Yah, itu adalah bagian dari kekuatannya. Tapi tetap saja, melihatnya berdiri di samping Masaki-chan, apakah orang ini benar-benar tidak tumbuh banyak dalam hal ketinggian dalam satu tahun terakhir? Dia sebenarnya sedikit lebih pendek darinya. Belum lagi ia memiliki wajah androgini yang menyerupai wajah saudara perempuannya. Mungkin lucu membuatnya crossdress kapan-kapan.
+Souichi terkejut. akhirnya dia menyadari aku ada di sini. Seberapa besar konsentrasinya dalam pertarungan? Yah, itu adalah bagian dari kekuatannya. Tapi tetap saja, melihatnya berdiri di samping Masaki-chan, orang ini benar-benar tidak tumbuh banyak dalam hal ketinggian dalam satu tahun terakhir... Dia sebenarnya sedikit lebih pendek darinya. Belum lagi ia memiliki wajah tampan yang menyerupai wajah saudara perempuannya. kapan-kapan Mungkin menyenangkan membuatnya crossdress.
 
 Yah, jika aku melakukan itu, aku akan benar-benar dibunuh oleh Masaki-chan dan Yayoi-chan.
 
-“Aku datang ke sini sekarang. Melihat pertengkaranmu. ”(Renji)
+"Aku baru saja datang ke sini. Melihat pertarunganmu."(Renji)
 
 "Ya, aku menang!"
 
