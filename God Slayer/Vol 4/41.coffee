@@ -228,7 +228,7 @@ Tapi ……. Sudah waktunya untuk bergerak maju. Sementara aku di ibukota, ketik
 
 .
 
-Orang-orang dibanjiri oleh Dewa Setan, mereka menggigil kedinginan, rumah-rumah mereka dibakar, ternak mereka terbunuh, dan mereka tidak punya pilihan selain tetap hidup dengan sangat sedikit dukungan. Dianggap beruntung hanya hidup. Banyak yang kehilangan anak-anak mereka dan anak-anak kehilangan orang tua mereka. Orang-orang akan bekerja sama dengan teman dan tetangga mereka, dan saling membantu. Ancaman monster masih ada seperti biasa. Dan bahaya bagi kehidupan mereka belum juga hilang.
+Orang-orang ditekan oleh Dewa Setan, mereka menggigil kedinginan, rumah-rumah mereka dibakar, ternak mereka terbunuh, dan mereka tidak punya pilihan selain tetap hidup dengan apa adanya. hanya hidup saja sudah dianggap beruntung. Banyak yang kehilangan anak-anak mereka dan anak-anak kehilangan orang tua mereka. Orang-orang akan bekerja sama dengan teman dan tetangga mereka, dan saling membantu. Ancaman monster masih ada seperti biasa. Dan bahaya bagi kehidupan mereka belum juga hilang.
 
 Tapi, itu tidak berarti bahwa tidak ada kejahatan di dunia ini. Pencurian, pembunuhan, pemerkosaan, dll. Kegelapan manusia selalu ada. Itu adalah fakta yang tidak bisa diubah. Jika ada orang kaya maka ada juga orang miskin. Ada orang yang menginginkan uang, darah, dan kekuasaan. Itu adalah kebenaran dunia yang tidak pernah berubah. Dan seperti halnya ada orang yang tidak kehilangan pikirannya, akan selalu ada yang melakukannya.
 
