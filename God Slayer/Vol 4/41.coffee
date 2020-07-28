@@ -176,11 +176,11 @@ Setelah berbicara dengan Kuuki, aku memutuskan untuk berjalan menjauh perlahan t
 
 Bahkan jika kamu melihatku seperti itu, aku tidak bisa membawanya ke tempat yang akan aku tuju. Jika aku melakukannya, Utano-san benar-benar akan marah padaku. Aya tampaknya mengerti ke mana aku pergi karena dia tidak mendesakku. aku belum pernah menunjukkan tempat itu kepadanya tetapi dia secara samar-samar menyadari tujuanku. Atau mungkin, dia tahu betul ke mana tepatnya aku pergi.
 
-Aya bukan anak kecil lagi. Souichi dan yang lainnya juga tidak. Waktunya tiba ketika Anda telah menunjukkan sisi gelap manusia tetapi untuk saat ini, saya ingin mereka dengan bahagia menghabiskan hidup mereka sebagai remaja. Itu mungkin hanya untuk kepuasan diri saya sendiri.
+Aya bukan anak kecil lagi. Souichi dan yang lainnya juga bukan. Waktunya sudah tiba ketika kamu menunjukkan mereka sisi gelap manusia tetapi untuk saat ini, aku ingin mereka dengan bahagia menghabiskan hidup mereka sebagai remaja. Itu mungkin hanya untuk kepuasan diriku sendiri.
 
-"Katakan, apakah kamu bebas malam ini?" (Renji)
+"apakah kamu bebas malam ini?" (Renji)
 
-"Eh? Eh, um ?? ”(Aya)
+"Eh? Eh, um ??"(Aya)
 
 "Bagaimana kalau kita pergi makan malam bersama?" (Renji)
 
