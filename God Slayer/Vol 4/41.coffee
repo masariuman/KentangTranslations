@@ -292,19 +292,19 @@ Bahkan jika aku melarikan diri dari gelar Pahlawan, aku tidak ingin melarikan di
 
 aku penasaran apakah aku populer di kalangan iblis dan memanggilku seperti itu dengan nama lengkapku. aku rasa Shelfa ....... Raja Iblis juga memanggilku dengan nama lengkapku. aku Mengabaikan tatapan penuh kebenciannya. aku mundur beberapa langkah. Dan seolah-olah bertukar posisi denganku, O'brien-san dan para tentara maju. aku merasa mual hanya memikirkan apa yang akan terjadi selanjutnya, tetapi tetap saja, aku harus menghadapinya.
 
-"Seperti biasa, kamu dibenci oleh iblis sepenuhnya, kan?"
+"Seperti biasa, kamu dibenci oleh iblis sepenuhnya, eh?"
 
-"Yah, aku memang membunuh Dewa mereka."
+"Yah, aku membunuh Dewa mereka."
 
-Saya membunuh Tuhan yang mereka sembah. Seharusnya tidak ada batasan untuk kebencian mereka pada saya. Bagi kami manusia, itu seperti iblis yang membunuh Dewi. Tidak ada yang mau menerima itu, tidak ada yang mau mengakui sesuatu seperti itu. Itu sebabnya mereka akan mengarahkan kebencian mereka pada orang yang bertanggung jawab. Meskipun kami selalu berusaha untuk saling membunuh, aku masih belum terbiasa dibenci seperti ini. Tapi tetap saja, ini baik-baik saja saya pikir. Selama kebencian itu menunjuk ke arahku dan bukan ke arah Utano-san atau Souichi dan yang lainnya.
+aku membunuh dewa yang mereka sembah. tidak akan ada batasan untuk mereka membenciku. Bagi kami manusia, itu seperti iblis yang membunuh Dewi. Tidak ada yang mau menerima itu, tidak ada yang mau mengakui sesuatu seperti itu. Itu sebabnya mereka akan mengarahkan kebencian mereka pada orang yang bertanggung jawab akan hal itu. Meskipun kami selalu berusaha untuk saling membunuh, aku masih belum terbiasa dibenci seperti ini. Tapi tetap saja. Selama kebencian itu menunjuk ke arahku dan bukan ke arah Utano-san atau Souichi dan yang lainnya, aku pikir tidak apa-apa.
 
-Utano-san menghela nafas tetapi O'brien-san tidak memedulikannya saat dia menendang iblis itu ke tanah. Tidak ada hak sipil di sini. Manusia, Demihumans, Beastmen, dan Demons saling membenci dan membunuh satu sama lain. Sudah diputuskan apa yang akan terjadi ketika Anda ditangkap seperti ini.
+Utano-san menghela nafas tetapi O'brien-san tidak memedulikannya dan dia menendang iblis itu ke lantai. Tidak ada hak sipil di sini. Manusia, Demihumans, Beastmen, dan iblis saling membenci dan membunuh satu sama lain. semua Sudah diputuskan apa yang akan terjadi ketika kamu ditangkap seperti ini.
 
-Bahkan di dunia kita, selama perang dunia, orang-orang melakukan hal-hal yang tak terkatakan dan tidak manusiawi. Dan mengingat di sini mereka bahkan bukan ras yang sama, tidak ada kendala dalam melepaskan kebencianmu. Saya bisa mengerti mengapa Dewi sangat khawatir. Akankah suatu hari tiba ketika tidak ada yang akan bekerja sama satu sama lain?
+Bahkan di dunia kami, selama perang dunia, orang-orang melakukan hal-hal yang tidak manusiawi. Dan mengingat di sini mereka bahkan bukan ras yang sama, tidak ada kendala dalam melepaskan kebencianmu. aku bisa mengerti mengapa Dewi sangat khawatir. Akankah suatu hari akan tiba ketika tidak ada yang akan bekerja sama satu sama lainnya?
 
-"Jadi, apakah kamu belajar sesuatu?"
+"Jadi, apakah kamu menemukan sesuatu?"(renji)
 
-"Tidak ada sama sekali. Mulutnya tertutup rapat. ”(Ob)
+"Tidak ada sama sekali. Mulutnya tertutup rapat."(Ob)
 
 [Tidak mengherankan kok.]
 
