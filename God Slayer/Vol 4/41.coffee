@@ -94,11 +94,11 @@ Setelah beberapa saat, para prajurit kembali ke pelatihan mereka karena bersemna
 
 "Mouu, jangan tiba-tiba muncul begitu saja, Yamada-san." (Masaki)
 
-“…… .Apakah itu salahku?” (Renji)
+"…… .Apakah itu salahku?" (Renji)
 
 "Tepat ketika aku mulai bersemangat, aku kehilangan konsentrasi."
 
-[Tapi salahmu kehilangan konsentrasi, kan?]
+[Tapi itu salahmu kehilangan konsentrasi, kan?]
 
 "Muuu."
 
