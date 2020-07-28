@@ -82,153 +82,101 @@ Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang me
 
 "Bisakah aku mendapatkan obat flu ini?"
 
-Seorang gadis Half-Elf muda membayar 10 koin tembaga dan bertanya dengan suara meriah.
+Seorang gadis Half-Elf muda membayar 10 koin tembaga.
 
-Itu adalah obat yang dibuat menggunakan jahe yang akan meningkatkan metabolisme tubuh dan bukan obat yang akan menunjukkan efek langsung tidak seperti obat yang dibuat dengan menggunakan keterampilan tetapi ... obat jenis ini juga diperlukan.
+Itu adalah obat yang dibuat menggunakan jahe yang akan meningkatkan metabolisme tubuh dan bukan obat yang akan menunjukkan efek langsung tidak seperti obat yang dibuat dengan menggunakan skill tetapi ... obat jenis ini juga diperlukan.
 
- 
-
-"Hati-hati jangan sampai menjatuhkannya baik-baik saja."
-
- 
+l"Hati-hati jangan sampai menjatuhkannya ya."
 
 Lit tersenyum lembut dan memberikan botol obat itu padanya.
 
- 
+"Terima kasih banyak! Ibu terlihat seperti menderita demam!"
 
-"Terima kasih banyak! Ibu terlihat seperti dia menderita kedinginan! ”
-
-"Aku pikir ibumu pasti akan bahagia."
-
- 
+l"Aku pikir ibumu pasti akan bahagia."
 
 Gadis muda itu menundukkan kepalanya dan meninggalkan toko dengan langkah kaki ringan.
 
- 
-
 ☆☆
 
- 
+Namaku Tise. aku seorang pembunuh tetapi sekarang aku mungkin seorang pilot kapal terbang.
 
-Nama saya Tise. Saya seorang Assassin tetapi sekarang saya mungkin seorang pilot kapal terbang.
+"kita harusnya sampai besok hari."
 
- 
+Malam telah tiba jadi kami mendarat di hutan yang jauh dari jalan raya agar aku bisa beristirahat.
 
-"Pada tingkat ini, kita harus mencapai besok."
+aku saat ini menjelaskan rute ke Hero-sama dengan peta terbuka.
 
- 
+r"begitu."
 
-Malam telah tiba sehingga kami mendarat di hutan yang jauh dari jalan raya agar aku bisa beristirahat.
+Pahlawan-sama diam-diam mendengarkan kata-katali saat aku menelusuri rute di peta.
 
-Saya saat ini menjelaskan rute ke Hero-sama dengan peta terbuka.
+Dia sesekali melihat ke arahku dan mengedutkan pipinya, tetapi aku terkejut karena aku berpikir aku melakukan sesuatu untuk membuatnya marah.
 
- 
+Ugeuge-san menepuk pundakku memberitahuku bahwa itu baik-baik saja dan menyemangatiku.
 
-"Saya melihat."
+Yup, aku akan melakukan yang terbaik.
 
- 
-
-Pahlawan-sama diam-diam mendengarkan kata-kata saya saat saya menelusuri rute di peta.
-
-Dia sesekali melihat ke arahku dan menggerakkan pipinya, tetapi aku akhirnya terkejut karena berpikir aku melakukan sesuatu untuk membuatnya marah.
-
-Ugeuge-san menepuk pundakku memberitahuku bahwa itu baik-baik saja dan mendukungku.
-
-Yup, saya akan melakukan yang terbaik.
-
-Hai Aku!? Pahlawan-sama menggerakkan pipinya lagi! Dia terus menatap ke arahku !!
+Hii!? Pahlawan-sama mengedutkan pipinya lagi! Dia terus menatap ke arahku !!
 
 Tidak apa-apa, tetap tenang, tetap tenang ...
 
- 
-
-"Besok, mendaratlah pada titik ini."
-
- 
+r"Besok, mendaratlah pada titik ini."
 
 Hero-sama menunjuk ke peta.
 
-Itu dekat dengan gunung sekitar satu hari berjalan kaki dari Zoltan.
+Itu dekat dengan gunung dan sekitar satu hari berjalan kaki ke Zoltan.
 
- 
+"Sini? Itu jarak yang cukup jauh dari Zoltan?"
 
-"Sini? Itu jarak yang cukup jauh dari Zoltan? ”
-
-“Kapal terbang itu akan menonjol. Di Zoltan, saya ingin menyembunyikan fakta bahwa saya adalah Pahlawan. Anda harus memperlakukan saya sebagai seorang musafir biasa juga. "
-
- 
+r"Kapal terbang akan menonjol. Di Zoltan, aku ingin menyembunyikan fakta bahwa aku adalah Pahlawan. kamu harus memperlakukanku sebagai seorang pengelana biasa juga. "
 
 Ehhhhhh? Tidak mungkin, tidak mungkin, tidak !!
 
-Tidak, saya tidak keberatan mendaratkan kapal terbang di lokasi yang jauh dan saya juga tidak keberatan berjalan dari sana!
-
- 
+Tidak, aku tidak keberatan mendaratkan kapal terbang di lokasi yang jauh dan aku juga tidak keberatan berjalan dari sana!
 
 Tapi mustahil bagi Pahlawan-sama untuk berpura-pura menjadi orang biasa!
 
- 
-
-Lagipula, aku berkeringat dingin hanya dengan berdiri di sampingnya! Dan punggungku menjadi basah kuyup! Dan saya harus mencuci pakaian saya setiap malam!
+Lagipula, aku berkeringat dingin hanya dengan berdiri di sampingnya! Dan punggungku menjadi basah kuyup! Dan aku harus mencuci pakaianku setiap malam!
 
 Seseorang yang memancarkan aura sangat kuat hanya bisa menjadi Pahlawan atau Raja Iblis!
 
 Meski aku belum pernah bertemu Raja Iblis sebelumnya.
 
- 
+"begitu? Maaf karena bersikap kasar tapi Pahlawan-sama tidak terlalu cocok dengan menjadi seorang pengelana biasa."
 
-"Apakah begitu? Maaf karena bersikap kasar tapi Pahlawan-sama tidak terlalu akrab dengan menjadi seorang musafir biasa. ”
+r"Kamu benar. aku selalu hidup sebagai Pahlawan. Karena itu, jika aku tidak bisa berpura-pura menjadi seorang pengelana dengan baik, aku harap kamu dapat membantuku."
 
-"Kamu benar. Saya selalu hidup sebagai Pahlawan. Karena itu, jika saya tidak bisa berpura-pura menjadi seorang musafir dengan baik, saya harap Anda dapat melindungi saya. ”
+yang benar..... 
 
- 
+"Aku tidak tahu apakah aku bisa menjadi pemandu Pahlawan-sama. Aku tidak lebih dari seorang pembunuh yang keji."
 
-Serius -
+r"Itu tidak masalah. Bahkan sekarang, kamu telah menunjukkan bahwa aku tidak cocok menjadi seorang pengelana."
 
- 
+Jadi aku dievaluasi pada titik itu ya ... tapi aku merasa bahwa siapa pun bisa menunjukkan itu ...
 
-“Aku tidak tahu apakah aku bisa menjadi pemandu Pahlawan-sama. Aku tidak lebih dari seorang Assassin yang keji. ”
+Tapi aku takut untuk keberatan lagi jadi kurasa aku tidak punya pilihan selain menyerah. tugas seorang pembunuh adalah untuk menjawab keinginan majikan mereka sebanyak mungkin.
 
-"Itu tidak masalah. Bahkan sekarang, Anda telah menunjukkan bahwa saya tidak terbiasa dengan menjadi seorang musafir. ”
+aku telah menerima pelatihan untuk berbaur dengan kerumunan dan jika Pahlawan-sama ... itu mungkin mustahil. Tetapi aku tidak bisa mengatakan itu. Untuk saat ini, aku hanya akan mengangguk dan selamat hari ini.
 
- 
+Ini juga merupakan kemampuan penting pembunuh untuk bertahan dalam situasi sulit.
 
-Jadi saya dievaluasi pada titik itu ya ... tapi saya merasa bahwa siapa pun bisa menunjukkan itu ...
+r"Baiklah, itu saja untuk rencana besok. kamu bisa istirahat. aku akan berjaga-jaga. "
 
-Tapi aku takut untuk keberatan lagi jadi kurasa aku tidak punya pilihan selain menyerah. Adalah tugas seorang Assassin untuk menjawab keinginan majikan mereka sebanyak mungkin.
+Pahlawan-sama berkata ketika dia pergi ke geladak kapal.
 
-Saya telah menerima pelatihan untuk berbaur dengan kerumunan dan jika Pahlawan-sama ... itu mungkin mustahil. Tetapi saya tidak bisa mengatakan itu. Untuk saat ini, saya hanya akan mengangguk dan selamat hari ini.
+aku Tise. pembunuh dan Pilot kapal terbang. tetapi sekarang aku bertindak sebagai pemandu untuk pahlawan-sama sebagai seorang pengelana.
 
-Ini juga merupakan kemampuan penting Assassin untuk bertahan dalam situasi sulit.
-
- 
-
-“Baiklah, itu saja untuk rencana besok. Anda bisa istirahat. Saya akan bertindak sebagai pengintai. "
-
- 
-
-Pahlawan-sama berkata ketika dia pergi ke geladak.
-
- 
-
-Saya Tise. Assassin dan Flying ship Pilot tetapi sekarang saya bertindak sebagai sampul untuk Hero-sama berpakaian sebagai seorang musafir.
-
-Saya tidak akan pernah berpikir bahwa saya akan berakhir seperti ini ketika saya masih seorang Assassin.
-
- 
+aku tidak akan pernah berpikir bahwa aku akan berakhir seperti ini ketika aku masih seorang pembunuh.
 
 Itu benar.
 
- 
-
 ☆☆
-
- 
 
 Di tengah malam, ketika seseorang sedang mencuci pakaian dalam mereka yang berkeringat, dia mendeteksi keberadaan Pahlawan-sama yang mondar-mandir seolah mencari sesuatu untuk suatu alasan.
 
 Dia berusaha mendengarkan dengan seksama.
 
-" … Tidak disini."
+r" … Tidak disini."
 
 Dia mendengar suara yang agak kecewa.
 
@@ -238,4 +186,4 @@ Apa yang dia lakukan?
 
 "?"
 
-Ugeuge-san juga memiringkan kepalanya dengan ragu.
+Ugeuge-san juga memiringkan kepalanya kebingungan.
