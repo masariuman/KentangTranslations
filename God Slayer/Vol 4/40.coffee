@@ -342,6 +342,6 @@ Ada apa dengan helaan nafas berat itu!
 
 "Tidak ada, aku hanya sedikit lelah." (Yuuko)
 
-Tidak, serius, aku bahkan tidak melihat Solnea sebagai wanita yang pantas. Memberikan senyum masam pada reaksi Utano-san, aku minum teh lagi sambil menyembunyikan bibirku dengan cangkir teh.
+Tidak, serius, aku bahkan tidak melihat Solnea sebagai benar-benar wanita. aku Memberikan senyum masam pada reaksi Utano-san. aku minum teh lagi sambil menyembunyikan bibirku dengan cangkir teh.
 
-Jika saya mengatakan ini kepada Aya, apakah saya akan mendapatkan reaksi yang sama juga?
+Jika aku mengatakan ini kepada Aya, apakah aku akan mendapatkan reaksi yang sama juga?
