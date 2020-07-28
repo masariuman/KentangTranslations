@@ -206,13 +206,13 @@ aku berdiri menuju ke arah jendela dan melihatnya. Sama seperti kamarku, tempat 
 
 Mudah menemukan Kudou. Lagipula dia mengenakan gaun pelayan. Hanya ada satu seperti itu di halaman. Dan untuk beberapa alasan, pelayan itu saat ini sedang memeluk lengan Souichi sekarang. Sungguh, apa yang dia lakukan? Dekat Souichi adalah dua wanita. Salah satunya adalah Yyayoi-chan, adik perempuan Souichi. Penglihatanku yang meningkat, karena cheat, menunjukkan padaku wajahnya yang dipenuhi senyum palsunya. sunggu menakutkan. Dari sini, aku hanya bisa melihat Souichi dan Kudou, tetapi aku cukup yakin, kakak lelaki itu saat ini membuat wajah yang sangat pucat sekarang. aku bisa dengan mudah membayangkannya.
 
-Yang lain adalah seorang wanita, sedikit lebih tua dari Souchi dan yang lainnya, dengan rambut hitam panjang diikat di daerah leher. Dia juga mengenakan blazer yang mirip dengan Souichi dan rok yang berakhir tepat di atas lututnya. Kakinya yang telanjang benar-benar menyilaukan mata. Di mana saya melihat - saya pikir seragam itu mungkin dari salah satu sekolah di Tactics City. Wanita ini sepertinya tertawa. Saya tidak bisa mendengarnya jadi saya tidak yakin. Di tangannya ada pedang di sarung merah. Itu adalah pedang melengkung, katana, yang seharusnya tidak ada di dunia ini.
+ada seorang wanita, sedikit lebih tua dari Souchi dan ada juga wanita dengan rambut hitam panjang diikat di daerah leher. Dia juga mengenakan blazer yang mirip dengan Souichi dan rok yang sepanjang tepat di atas lututnya. Kakinya yang telanjang benar-benar menyilaukan mata. Di mana aku melihat dia - aku pikir seragam itu mungkin dari salah satu sekolah di kota taktik. Wanita ini sepertinya tertawa. aku tidak bisa mendengarnya jadi aku tidak yakin. Di tangannya ada pedang dengan sarung merah. Itu adalah pedang melengkung, katana, yang seharusnya tidak ada di dunia ini.
 
-Dan para prajurit melihat mereka dari kejauhan. Di antara mereka, Kuuki dan Aya juga ada. Saya merasa mereka harus menghentikan ini, tetapi saya kira mereka tidak akan melakukannya walaupun saya ada di sana. Lagipula itu terlalu menyenangkan untuk ditonton.
+Dan para prajurit melihat mereka dari kejauhan. Di antara mereka, Kuuki dan Aya juga ada. aku merasa mereka harus menghentikan ini, tetapi aku kira mereka tidak akan melakukannya walaupun aku ada di sana. Lagipula itu terlalu menyenangkan untuk ditonton.
 
-"Orang-orang itu rukun, seperti biasa."
+"mereka akrab seperti biasa."
 
-[Betulkah?]
+[benarkah?]
 
 Dengan kata-kataku, Ermenhilde menjawab dengan sebuah pertanyaan. Yah, aku cukup yakin mereka melakukannya. Sudah berapa lama sejak aku melihat pertengkaran tentang Souichi ini?
 
