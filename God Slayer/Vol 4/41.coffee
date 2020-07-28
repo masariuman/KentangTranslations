@@ -268,9 +268,9 @@ ksatria ordo kerajaan imnesia, Komandan Kesatria O'brien Arbelia. Saat ini di us
 
 "Tidak perlu sombong. Semua orang tahu itu bukan kamu. Tapi, penting untuk percaya diri. Tidak peduli seberapa banyak kamu mencoba melarikan diri dari itu, kamu akan selalu tetap sebagai salah satu dari 13 Pahlawan."(Ob)
 
-Aku merasa mulutku sedikit kram ketika dia berkata 'melarikan diri'. Yah dia benar juga. Apakah itu Fafnir atau dia, orang yang lebih tua dariku benar-benar tidak lembut terhadapku. Tapi yah, kurasa itu akan merepotkan dengan caranya sendiri.
+Aku merasa mulutku sedikit keram ketika dia berkata 'melarikan diri'. Yah dia benar juga. entah itu Fafnir atau dia, orang yang lebih tua dariku benar-benar tidak lembut terhadapku.
 
-Tidak dapat menyangkal apa yang dia katakan, saya mengalihkan pandangan saya dan melihat ke arah iblis yang terbaring di tanah. Ekspresinya mengejutkan sesaat, lalu dengan cepat berubah menjadi ekspresi penuh kebencian dan kemarahan.
+Tidak dapat menyangkal apa yang dia katakan, aku mengalihkan pandanganku dan melihat ke arah iblis yang terbaring di lantai. Ekspresinya terkejut sesaat, lalu dengan cepat berubah menjadi ekspresi penuh kebencian dan kemarahan.
 
 "Untuk satu, aku hanya seorang petualang sekarang dan kamu, O'brien-san, adalah komandan Ordo Kesatria setelah semua. Apakah kamu tidak memiliki status yang lebih tinggi dari saya? "(Renji)
 
