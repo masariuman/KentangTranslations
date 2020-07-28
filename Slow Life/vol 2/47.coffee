@@ -54,9 +54,9 @@ Lit mengeluarkan tiga kaleng susu 10 liter dari kotaknya yang ia terima dari par
 
 kamu mungkin berpikir apakah tidak apa-apa untuk menyimpan kentang di dalam item box juga, tetapi meskipun item box akan mengenali susu yang disimpan di dalam kaleng, itu tidak akan mengenali tas tempat kentang dan akan menyimpan tas tersebut dan kentang di dimensi berbeda.
 
-Kemudian, saya harus membayangkan mereka secara terpisah ketika saya ingin mengeluarkannya, tanpa pilihan selain mengambil kentang dan keju satu demi satu.
+Kemudian, aku harus membayangkan mereka secara terpisah ketika aku ingin mengeluarkannya, jadi harus mengambil kentang dan keju satu per satu.
 
-Dan saya harus menghafal setiap jenis sayuran yang berbeda ketika meletakkannya sehingga itu adalah tugas yang cukup sulit dan menyimpannya di dalam tas dan membawa dengan tangan jauh lebih cepat.
+Dan aku harus menghafal setiap jenis sayuran yang berbeda ketika meletakkannya sehingga itu cukup sulit dan menyimpannya di dalam tas dan membawa dengan tangan jauh lebih cepat.
 
 "Susu akan memburuk jika kita tidak menggunakannya dengan cepat."
 
