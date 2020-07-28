@@ -93,6 +93,8 @@ itu tidak apa-apa kalau kami hanya memburu monster tapi biaya penginapan, makana
 
 dibawah dada nona francesca, mururu bersuara kelelahan. entah 'berat' yang berarti berat badan nona francesca atau hanya dadanya saja. nona francesca mengubah peralatan dan pakaiannya di ibukota dan tidak menggunakan penutup data kulitnya lagi. sekarang dia berpenampilan lebih seperti penyihir.
 
+<gambar> vol5 002.png
+
 jubahnya berwara biru tua, dan didalamnya dia menggunakan jaket dengan warna yang sama dan blus putih. dibagian bawah dia menggunakan rok panjang dan menggunakan kaus kaki sepanjang lutut. pakaiannya terlihat bagus tapi tidak sesuai bertentangan dari ekpetasiku, pakaian itu benar-benar memiliki pertahanan magic yang tinggi. yaaah, itu cocok untuknya dan juga memberikan pertahanan yang bagus, tidak ada yang komplain juga.
 
 masalah utamanya, bisa kubilang, kalau dada cantiknya yang ditekan oleh pelindung dada sebelumnya menjadi benar-benar menonjol sekarang. pandanganku secara otomatis langsung kearah dadanya beberapa kali. benar-benar hebat bentuk dadanya.
