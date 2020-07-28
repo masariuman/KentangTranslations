@@ -266,23 +266,23 @@ Iya iya. Memberikan jawaban setengah hati, aku memutuskan untuk meletakkannya de
 
 "Hm, umm, mari kita lihat .." (renji)
 
-Saya melihat ke peta lengkap. Itu tidak jauh berbeda dari apa yang saya lihat beberapa waktu lalu. Beberapa tempat baru telah ditambahkan juga tetapi sebagian besar adalah danau atau hutan yang kami tandai sebagai landmark saat dalam perjalanan kami saat itu. Namun peta tersebut tidak memiliki skala pengukuran yang tepat, sehingga tidak dapat diandalkan.
+aku melihat ke peta lengkap. Itu tidak jauh berbeda dari apa yang aku lihat beberapa waktu lalu. Beberapa tempat baru telah ditambahkan juga tetapi sebagian besar adalah danau atau hutan yang kami tandai sebagai landmark saat dalam perjalanan kami saat itu. Namun peta tersebut tidak memiliki skala pengukuran yang tepat, sehingga tidak dapat diandalkan.
 
-Mengesampingkan hal itu, seperti yang diharapkan, bahkan pada peta Utano-san tidak ada indikasi gua tempat kami menemukan Solnea tidur. Jadi itu benar-benar gua yang baru. Yah, itu tidak terlalu dalam dan tidak ada apa pun di dalamnya sekarang.
+kesampingkan hal itu, seperti yang diharapkan, bahkan pada peta Utano-san tidak ada indikasi gua tempat kami menemukan Solnea tidur. Jadi itu benar-benar gua yang baru. Yah, itu tidak terlalu dalam dan tidak ada apa pun di dalamnya sekarang.
 
-"Gua itu ada di sekitar sini, kurasa."
+"Gua itu ada di sekitar sini, kurasa."(renji)
 
-Sambil berdiri di samping Utano-san, yang sedang duduk di kursi, aku menunjuk ke arah lokasi gua. Di sebelah timur ibukota, di dekat [dataran kematian] tempat kami dulu bertempur dengan keturunan Dewa Setan. 2 tahun yang lalu, kami bertarung melawan Setan terkuat di benua Imnesia di sana.
+Sambil berdiri di samping Utano-san, yang sedang duduk di kursi, aku menunjuk ke arah lokasi gua. Di sebelah timur ibukota, di dekat [dataran kematian] tempat kami dulu bertempur dengan keturunan Dewa iblis. 2 tahun yang lalu, kami bertarung melawan iblis terkuat di benua Imnesia di sana.
 
 Tapi sepertinya Utano-san ingat bahwa tidak ada gua di sana sebelumnya karena dia menatapku dengan ragu.
 
-“…… ..Aku akan mengirim prajurit untuk memeriksanya, untuk jaga-jaga.” (Yuuko)
+"…… ..Aku akan mengirim prajurit untuk memeriksanya, untuk jaga-jaga." (Yuuko)
 
-“Ya, lakukan itu. Gua itu sepertinya sangat mencurigakan. ”(Renji)
+"Ya, lakukan itu. Gua itu sepertinya sangat mencurigakan." (Renji)
 
 "Mencurigakan?"
 
-"Sepertinya itu dibuat dengan sihir, itu tidak ada di sana ketika aku pergi ke sana 2-3 hari yang lalu, dan di atas semua itu ada seseorang yang hidup di dalam kristal di gua."
+"Sepertinya itu dibuat dengan sihir, itu tidak ada di sana ketika aku pergi ke sana 2-3 hari yang lalu, dan juga ada seseorang yang hidup di dalam kristal di gua."
 
 "Seseorang di dalam kristal?"
 
