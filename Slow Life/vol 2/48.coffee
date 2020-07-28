@@ -50,17 +50,13 @@ aku hanya akan melakukan yang terbaik dalam ranah apotekku.
 
 ☆☆
 
-Di malam hari, setelah saya selesai peracikan, saya mampir ke toko untuk memeriksa dan menemukan Lit menyapa pelanggan sambil tersenyum.
+Di malam hari, setelah aku selesai meracik, aku mampir ke toko untuk mengecek dan melihat Lit menyapa pelanggan sambil tersenyum.
 
 Tampaknya toko itu cukup sibuk.
 
- 
+l"Karena kerusuhan di marsh selatan, obat-obatan untuk keadaan darurat ... seperti hemostatik laris manis. dan Juga, Pengawal membeli cukup banyak obat mabuk. aku juga menjual beberapa obat penyembuh racun."
 
-"Karena kerusuhan di South Marsh, obat-obatan untuk keadaan darurat ... seperti agen hemostatik laris manis. Juga, Pengawal membeli cukup banyak obat mabuk. Saya juga menjual beberapa Ramuan Cure. ”
-
- 
-
-Ramuan Cure yang saya jual di toko berasal dari permintaan yang saya ajukan kepada para petualang Downtown untuk bekerja sama untuk mengandung mantra di dalam ramuan yang saya buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu menambahkan hingga 13 Peryl.
+obat penyembuh racun yang aku jual di toko berasal dari permintaan yang aku ajukan kepada para petualang Downtown untuk bekerja sama untuk mengandung mantra di dalam ramuan yang saya buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu menambahkan hingga 13 Peryl.
 
 Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan sihir sehingga itu adalah permintaan yang populer.
 
