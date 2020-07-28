@@ -258,17 +258,17 @@ akupun masuk. Di dalam sel, ada juga seorang ksatria tua dan 5 tentara lapis baj
 
 Tapi tetap saja, cara bicara formal seperti itu benar-benar tidak cocok untuk kita. O'brien-san pasti memikirkan hal yang sama ketika dia berbatuk sedikit ehem dan sedikit mengguncang tubuhnya. Armor mithril seluruh tubuhnya membuat suara saat bergerak. Dia satu kepala lebih pendek dariku tapi aku seratus persen yakin dibalik baju besi itu adalah tubuh yang jauh lebih berotot dan kekar daripada milikku. Armor seluruh tubuh yang dia kenakan mungkin akan membuatku tidak bisa bergerak jika aku mencoba memakainya.
 
-ksatria ordo kerajaan imnesia, Komandan Kesatria O'brien Arbelia. Saat ini di usia 48, ia masih seorang pria yang bertarung langsung di garis depan pertempuran. Dihormati bahkan oleh raja sendiri, ia juga dipuja oleh setiap tentara. bisa dibilang Dia adalah bagian pusat dari seluruh ksatria Ordo. Ngomong-ngomong dia juga seperti masterku yang mengajariku cara bertarung. aku masih ingat bagaimana dia biasa melatih diriku  dari siang hingga malam, terus menyerangku terlepas dari kenyataan bahwa aku adalah salah satu pahlawan. Souichi dan yang lainnya sudah bisa bertarung di atas tingkat tentara sejak awal, tetapi dia mengkhawatirkanku karena aku tidak bisa melakukannya. Ngomong-ngomong, pada malam hari aku akan ke perpustakaan terbesar untuk belajar tentang bahasa dan naskah dunia ini, sejarahnya, ekologi monster, dasar-dasar sihir, dll; semua itu ditanam di kepalaku ………. Sungguh menakjubkan aku benar-benar bertahan sampai akhir. Bagus, saya. Ketika saya berpikir kembali tentang hal itu, saya menyadari betapa saya terlalu banyak bekerja. Yah, terima kasih untuk itu kami bisa bertahan dalam perjalanan kami dan sekarang bisa hidup seperti ini sekalipun.
+ksatria ordo kerajaan imnesia, Komandan Kesatria O'brien Arbelia. Saat ini di usia 48, ia masih seorang pria yang bertarung langsung di garis depan pertempuran. Dihormati bahkan oleh raja sendiri, ia juga dipuja oleh setiap tentara. bisa dibilang Dia adalah bagian pusat dari seluruh ksatria Ordo. Ngomong-ngomong dia juga seperti masterku yang mengajariku cara bertarung. aku masih ingat bagaimana dia biasa melatih diriku  dari siang hingga malam, terus menyerangku terlepas dari kenyataan bahwa aku adalah salah satu pahlawan. Souichi dan yang lainnya sudah bisa bertarung di atas tingkat tentara sejak awal, tetapi dia mengkhawatirkanku karena aku tidak bisa melakukannya. Ngomong-ngomong, pada malam hari aku akan ke perpustakaan terbesar untuk belajar tentang bahasa dan naskah dunia ini, sejarahnya, ekologi monster, dasar-dasar sihir, dll; semua itu ditanam di kepalaku ………. Sungguh menakjubkan aku benar-benar bertahan sampai akhir. Ketika aku berpikir kembali tentang hal itu, aku menyadari terlalu banyak bekerja. Yah, terima kasih untuk itu kami bisa bertahan dalam perjalanan kami dan sekarang bisa hidup seperti ini.
 
-"Anda harus lebih mempertimbangkan posisi Anda, Juruselamat."
+"kamu harus lebih mempertimbangkan posisimu, sang penyelamat."(ob)
 
 [Serius.]
 
-"Tidak, well, bertindak sombong dan sombong benar-benar tidak cocok untukku, kurasa."
+"Tidak, yaaaah, kurasa bertindak percaya diri dan sombong benar-benar tidak cocok untukku."(renji)
 
-“Tidak perlu sombong. Semua orang tahu itu bukan Anda sama sekali. Tapi, penting untuk menjadi sombong. Tidak peduli seberapa banyak Anda mencoba melarikan diri dari itu, Anda akan selalu tetap sebagai salah satu dari 13 Pahlawan. ”(Ob)
+"Tidak perlu sombong. Semua orang tahu itu bukan kamu. Tapi, penting untuk percaya diri. Tidak peduli seberapa banyak kamu mencoba melarikan diri dari itu, kamu akan selalu tetap sebagai salah satu dari 13 Pahlawan."(Ob)
 
-Aku merasakan mulutku sedikit kram ketika dia berkata 'melarikan diri'. Yah dia benar juga. Apakah itu Fafnir atau dia, orang yang lebih tua dariku benar-benar tidak lembut terhadapku. Tapi yah, kurasa itu akan merepotkan dengan caranya sendiri.
+Aku merasa mulutku sedikit kram ketika dia berkata 'melarikan diri'. Yah dia benar juga. Apakah itu Fafnir atau dia, orang yang lebih tua dariku benar-benar tidak lembut terhadapku. Tapi yah, kurasa itu akan merepotkan dengan caranya sendiri.
 
 Tidak dapat menyangkal apa yang dia katakan, saya mengalihkan pandangan saya dan melihat ke arah iblis yang terbaring di tanah. Ekspresinya mengejutkan sesaat, lalu dengan cepat berubah menjadi ekspresi penuh kebencian dan kemarahan.
 
