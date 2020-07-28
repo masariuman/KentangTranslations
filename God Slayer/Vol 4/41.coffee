@@ -214,13 +214,13 @@ Apakah kata-kata itu berasal dari pengalaman pribadi? Suara Ermenhilde tampak su
 
 "Tapi, bagi orang dewasa, anak-anak akan selalu menjadi anak-anak."
 
-Persis seperti yang dikatakan Astraera bahwa Anda sangat berharga. Tapi tetap saja dia …… ..—— Aku menggelengkan kepalaku, aku tidak bisa membiarkan pikiranku pergi ke arah itu. Itulah yang seharusnya saya tanyakan padanya ketika saya kehilangan Eru dan mendapatkan Ermenhilde tetapi tidak pernah bisa. Saya benar-benar tidak memiliki keberanian untuk melakukannya. Tidak, aku tidak bisa menerima apa yang dikatakan Raja Iblis dan Dewi. Dan bahkan setelah satu tahun, Raja Naga mengatakan hal yang sama kepada saya. Saya belum tumbuh sama sekali. Saya belum mengalami kemajuan sama sekali.
+Persis seperti yang dikatakan Astraera bahwa kamu sangat berharga. Tapi tetap saja dia …… ..—— Aku menggelengkan kepalaku, aku tidak bisa membiarkan pikiranku pergi ke arah itu. Itulah yang seharusnya aku tanyakan padanya ketika aku kehilangan Eru dan mendapatkan Ermenhilde tetapi aku tidak pernah bisa menanyakannya. aku benar-benar tidak memiliki keberanian untuk melakukannya. Tidak, aku tidak bisa menerima apa yang dikatakan Raja Iblis dan Dewi. Dan bahkan setelah satu tahun, Raja Naga mengatakan hal yang sama kepadaku. aku belum tumbuh sama sekali. aku belum mengalami kemajuan sama sekali.
 
-Tapi segera ……. Sudah waktunya untuk akhirnya bergerak maju. Sementara saya di sini di ibukota, ketika ada orang yang mengenal saya di sisi saya, saya akhirnya berpikir seperti itu. Aku benar-benar orang dewasa yang tidak berguna. Aku benar-benar memikirkan itu dari lubuk hatiku. Bahkan Souichi dan yang lainnya masih memberikan segalanya saat tinggal di dunia ini.
+Tapi ……. Sudah waktunya untuk bergerak maju. Sementara aku di ibukota, ketika ada orang yang mengenalku disisiku, aku berakhir berpikir seperti itu. Aku benar-benar orang dewasa yang tidak berguna. Aku benar-benar memikirkan itu dari lubuk hatiku. Bahkan Souichi dan yang lainnya masih memberikan segalanya saat tinggal di dunia ini.
 
 [Apa yang terjadi?]
 
-"Tidak ada. Saya hanya berpikir bahwa penjara jelas bukan tempat di mana Anda membawa anak-anak. ”
+"Tidak ada. aku hanya berpikir bahwa penjara jelas bukan tempat di mana kamu membawa anak-anak."
 
 .
 
