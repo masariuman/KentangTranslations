@@ -1,76 +1,54 @@
-Kami benar-benar menjaga toko sejak sore.
+chapter 48: sang pembunuh mendapatkan pekerjaan baru
 
-Lit menjaga toko sementara saya pergi ke obat majemuk di bengkel. Hari ini saya membuat penawar racun.
+Kami menjaga toko sejak sore.
 
-Produksi Perlindungan Ilahi Iblis telah berhenti tetapi diragukan apakah pihak berwenang telah menyita semua obat yang tersisa.
+Lit menjaga toko sementara aku mencampur obat di ruang kerja. Hari ini aku membuat penawar racun.
 
-Selanjutnya, sejak saat itu, kita harus mengobati gejala penarikan obat.
+Produksi Perlindungan Ilahi Iblis telah berhenti tetapi masih diragukan apakah pihak berwenang telah menyita semua obat yang tersisa.
 
-Saya kira ada kebutuhan untuk obat untuk mengurangi gejala penarikan juga.
+sejak saat itu, kami harus mengobati efek samping dari obat itu.
 
- 
+aku pikir akan dibutuhkan obat untuk mengurangi efek sampingnya.
 
-"Aku mungkin juga memproduksi Ramuan Cure Racun secara massal."
+g"Aku mungkin juga memproduksi Ramuan penyembuh racun secara massal."
 
- 
+Keracunan obat dianggap sebagai efek keracunan yang dikarenakan magic.
 
-Keracunan obat diperlakukan sebagai efek keracunan yang diinduksi secara ajaib.
+Jika penyembuh racun digunakan, itu akan segera mengobati tidak hanya kecanduan mental tetapi bahkan gejala kecanduan dalam tubuh.
 
-Jika Cure Poison digunakan, itu akan segera mengobati tidak hanya kecanduan mental tetapi bahkan gejala kecanduan dalam tubuh.
+Namun, kesulitannya adalah obat penyembuh racun sangat mahal seharga harga 300 Peryl per botol, jadi itu adalah obat yang hanya bisa didapatkan oleh petualang, pedagang, atau bangsawan kaya.
 
-Namun, kesulitannya adalah Cure Poison Potion sangat mahal dengan harga 300 Peryl per botol, jadi itu adalah obat yang hanya bisa didapatkan oleh petualang, pedagang, atau bangsawan kaya.
+g"Semoga dapat diatasi dengan menggunakan obat penawar yang terbuat dari rumput obat yang diseduh."
 
- 
+obat penyembuh racun adalah obat magic dan mengandung mantra di dalamnya. Itu bukan sesuatu yang bisa aku lakukan karena aku tidak bisa menggunakan magic.
 
-"Semoga gejalanya dapat diatasi dengan menggunakan obat penawar yang terbuat dari rumput obat yang diseduh."
+Namun, obat penawar yang dibuat menggunakan rumput obat hanya bisa meredakan sedikit gejala saja. sebagai ahli obat, kecanduan obat-obatan berbeda dari racun.
 
- 
+tapi aku bisa menjualnya dengan harga murah dengan menggunakan obat pengganda untuk mengubah satu ramuan menjadi lima ramuan ...
 
-Ramuan Racun Cure adalah Ramuan Ajaib yang dibuat dengan mengandung mantra di dalamnya. Itu bukan sesuatu yang bisa aku, yang tidak bisa gunakan sihir, bisa lakukan.
+g"Kalau saja aku memiliki kooperator yang bungkam dan dapat dipercaya yang memiliki wewenang untuk mendistribusikannya."
 
-Namun, obat penawar yang dibuat menggunakan rumput obat hanya bisa meredakan sedikit gejala. Di apotek, kecanduan narkoba berbeda dari racun.
+Kenalanku di Zoltan cenderung warga kelas menengah ke bawah di pusat kota.
 
-Meskipun saya bisa menjualnya dengan harga murah dengan menggunakan Ramuan Multiplying untuk mengubah satu ramuan menjadi lima ramuan ...
+Koneksiku tidak ada.
 
- 
+g"Yah, aku akan membahasnya dengan Lit dan kurasa aku akan menyerah jika tidak ada yang bisa dipercaya juga."
 
-"Kalau saja aku memiliki kooperator yang bungkam dan dapat dipercaya yang memiliki wewenang untuk mendistribusikannya."
+Orang mungkin tidak akan mati bahkan jika mereka tidak memiliki obat penyembuh racun.
 
- 
+Namun, masalahnya adalah Gereja Suci akan mempertanyakan tindakan menghujat mereka yang mengambil Perlindungan Ilahi iblis sehingga gereja yang biasanya memperlakukan dan mengisolasi pecandu obat-obatan tidak akan secara aktif melakukannya untuk insiden ini.
 
-Kenalan saya di Zoltan cenderung warga kelas menengah ke bawah di Downtown.
+dibutuhkan partner untuk merawat pasien yang menderita efek samping tersebut sampai mereka tidak memerlukan obat lagi. Zoltan memiliki beberapa klinik tetapi mereka tidak memiliki kapasitas untuk perawatan pasien yang dirawat di tempat.
 
-Koneksi saya tidak ada.
+mereka hanya dapat merawat pasien yang datang ke klinik dan hanya memberi mereka durasi rawat inap singkat sebelum mereka dipulangkan untuk memulihkan diri dirumah.
 
- 
+g"Bagaimanapun juga, mereka semua adalah masalah yang terlalu besar untuk aku tangani."
 
-"Yah, aku akan membahasnya dengan Lit dan kurasa aku akan menyerah jika itu juga tidak baik."
+aku berakhir terlalu banyak berfikir tetapi itu tidak masalah karena aku bisa menarik kesimpulan.
 
- 
-
-Orang mungkin tidak akan mati bahkan jika mereka tidak memiliki Ramuan Obat Cure.
-
-Namun, masalahnya adalah bahwa Gereja Suci akan mempertanyakan tindakan menghujat mereka mengambil Perlindungan Ilahi Setan sehingga gereja yang biasanya memperlakukan dan mengisolasi pecandu narkoba tidak akan secara aktif melakukannya untuk insiden ini.
-
-Ada kebutuhan untuk pasangan untuk merawat pasien yang menderita gejala penarikan sampai mereka dapat keluar dari obat. Zoltan memiliki beberapa klinik tetapi mereka tidak memiliki kapasitas untuk perawatan pasien yang dirawat di rumah sakit.
-
-Paling-paling mereka terutama dapat merawat pasien yang datang ke klinik dan hanya memberi mereka durasi rawat inap singkat sebelum mereka dipulangkan untuk pulih.
-
- 
-
-"Bagaimanapun, mereka semua adalah masalah yang terlalu besar untuk aku tangani."
-
- 
-
-Saya akhirnya memiliki banyak pikiran tetapi itu bukan masalah bahwa saya bisa menarik kesimpulan.
-
-Saya hanya akan melakukan yang terbaik dalam ranah apoteker saya.
-
- 
+aku hanya akan melakukan yang terbaik dalam ranah apotekku.
 
 ☆☆
-
- 
 
 Di malam hari, setelah saya selesai peracikan, saya mampir ke toko untuk memeriksa dan menemukan Lit menyapa pelanggan sambil tersenyum.
 
