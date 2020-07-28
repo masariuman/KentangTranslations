@@ -254,9 +254,9 @@ aku duduk kembali di kursiku. Aku minum seteguk teh dinginku, tapi rasanya masih
 
 "…… apa maksudnya?"
 
-Mengatakan bahwa dia berdiri dan mengeluarkan peta yang disimpan dengan rapi di salah satu laci di mejanya. Karena kristal itu menghalangi, saya mengambilnya untuk memindahkannya ke tempat lain. Melihat sekeliling, untuk saat ini, saya memutuskan untuk menyimpannya di rak buku dekat jendela.
+dia berdiri dan mengeluarkan peta yang disimpan dengan rapi di salah satu laci di mejanya. Karena kristal itu menghalangi, aku mengambilnya untuk memindahkannya ke tempat lain. untuk saat ini, saya memutuskan untuk menyimpannya di rak buku dekat jendela.
 
-“Ah, hati-hati dengan itu. Ini sangat mahal, oke? ”(Yuuko)
+"Ah, hati-hati dengan itu. Ini sangat mahal, oke?"(Yuuko)
 
 [Gunakan kedua tanganmu untuk memegangnya, bodoh!]
 
