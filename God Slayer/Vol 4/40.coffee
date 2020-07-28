@@ -320,11 +320,11 @@ Tapi tidak ada perubahan yang terlihat pada kristal. Setelah beberapa waktu berl
 
 "Ya. Mari kita selesaikan semua masalah seperti itu sebelum turnamen dimulai."
 
-dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di dalam kristal. Itu saja sudah cukup mencurigakan, tapi dia juga amnesia. Dia mendapat poin penuh karena curiga. Tiba-tiba, aku merasa Utano-san menatapku lagi.
+dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di dalam kristal. Itu saja sudah cukup mencurigakan, tapi dia juga amnesia. Dia patut dicurigai. Tiba-tiba, aku merasa Utano-san menatapku lagi.
 
 "Eh, umm, apa?" (Renji)
 
-"Orang ini, dia tidak akan menjadi seorang wanita kan?" (Yuuko)
+"Orang ini, apakah dia seorang wanita?" (Yuuko)
 
 [Bagaimana kamu tahu? Seperti yang kamu katakan.]
 
