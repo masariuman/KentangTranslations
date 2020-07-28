@@ -84,57 +84,57 @@ aku mengambil tas berisi koin tembaga biasa dan sekali lagi berangkat bersama de
 
 ☆☆
 
-Ketika kami sampai di pasar, kelesuan musim panas Zoltan telah sepenuhnya berlalu ketika pemilik toko yang mengenakan pakaian yang sedikit lebih tebal mengangkat suara mereka untuk mempromosikan produk mereka.
+Ketika kami sampai di pasar, kelesuan musim panas Zoltan telah sepenuhnya hilang karena pemilik toko yang mengenakan pakaian yang sedikit lebih tebal berteriak untuk mempromosikan produk mereka.
 
-"Sekarang untuk apa kita menukarnya."
+g"Sekarang kita akan menukarnya dengan apa."
 
-Di kota-kota di Benua Avalon, pembelian koin dilakukan, tetapi masih banyak yang menukar barang.
+kota-kota di Benua Avalon, pembelian dengan koin dilakukan, tetapi masih banyak yang menukar barang.
 
 Koin tembaga biasa dengan nilai rendah setara dengan 0,01 Peryl pada dasarnya digunakan sebagai koin pelengkap saat melakukan barter barang.
 
-Sebelumnya, bahkan di klinik Newman, ada seorang wanita tua yang membayar biaya perawatan menggunakan daging dan koin tembaga biasa sehingga itu adalah pemandangan umum di benua ini.
+Sebelumnya, bahkan di klinik Newman, ada seorang wanita tua yang membayar biaya perawatan menggunakan daging dan koin tembaga biasa jadi itu umum di benua ini.
 
-Saya mendengar bahwa ekonomi uang di Benua Gelap semakin maju. Koin tembaga mereka kira-kira seukuran kelingking dan tidak seperti koin tembaga umum kita di mana bahkan ada koin tembaga buatan pribadi yang dicampur, mereka tampaknya mengukir koin tembaga mereka.
+aku dengar bahwa ekonomi uang di Benua kegelapan semakin maju. Koin tembaga mereka kira-kira seukuran kelingking dan tidak seperti koin tembaga umum seperti kami bahkan ada koin tembaga buatan pribadi yang dicampur, mereka tampaknya mengukir koin tembaga mereka.
 
-Bahkan di Benua Avalon, koin mereka berkualitas tinggi dengan harga murah sehingga ada juga negara yang mengimpor koin Benua Hitam yang dicetak untuk digunakan sebagai koin negara mereka sendiri.
+Bahkan di Benua Avalon, koin mereka berkualitas tinggi dengan harga murah sehingga ada juga negara yang mengimpor koin Benua kegelapan yang dicetak untuk digunakan sebagai koin negara mereka sendiri.
 
-Jika seseorang berencana untuk bepergian ke Benua Gelap, mereka dapat bertukar uang di negara-negara tersebut.
+Jika seseorang berencana untuk bepergian ke Benua kegelapan, mereka dapat bertukar uang di negara-negara tersebut.
 
 Harga susu di Zoltan sedikit tinggi.
 
-Karena itu lebih baik untuk memerah susu sapi di lingkungan yang sedikit lebih dingin.
+Karena lebih baik untuk memerah susu sapi di lingkungan yang sedikit lebih dingin.
 
-Itu mungkin 20% lebih mahal dibandingkan dengan daerah lain.
+mungkin 20% lebih mahal dibandingkan dengan daerah lain.
 
 Biasanya biayanya sekitar 5 Peryl untuk 10 liter tetapi di Zoltan, biayanya 6 Peryl.
 
-6 Peryl setara dengan biaya hidup selama enam hari. Alih-alih menukarnya di satu toko, kita mungkin akan menukarnya dengan bahan makanan satu demi satu.
+6 Peryl setara dengan biaya hidup selama enam hari. daripada menukarnya di satu toko, kami mungkin akan menukarnya dengan bahan makanan satu per satu.
 
 Atau untuk beberapa bahan makanan mahal yang biasanya tidak dijual.
 
 Sebagai perbandingan, daging sapi sedikit lebih murah dibandingkan dengan susu.
 
-Para petani berkomentar bahwa Zoltan memiliki lingkungan yang cocok untuk peternakan hewan sapi potong.
+Para petani mengatakan bahwa Zoltan memiliki lingkungan yang cocok untuk peternakan hewan sapi potong.
 
-Namun, dibandingkan dengan harga daging sapi di wilayah tengah, itu tidak lebih murah bahkan 10%. Itu dijual untuk 95% dari harga di wilayah tengah, sekitar 4,5 Peryl untuk 1 kilogram.
+Namun, dibandingkan dengan harga daging sapi di wilayah tengah, itu tidak lebih murah bahkan 10%. Itu dijual 95% dari harga di wilayah tengah, sekitar 4,5 Peryl untuk 1 kilogram.
 
 Itu tidak terlalu menyenangkan.
 
-"Bukankah ini musim untuk rebusan segera?"
+l"Bukankah sebentar lagi musim untuk memasak hotpot?"
 
-"Rebus ya, kalau begitu, akankah kita membeli beberapa sosis dan aku akan membuat pot-au-feu?"
+g"hotpot ya, kalau begitu, kita membeli beberapa sosis dan aku akan membuat pot-au-feu?"
 
-“Tidak bisakah kita menambahkan daging sapi secara langsung? Saya suka daging rebus! "
+"bisakah kita menambahkan daging sapi secara langsung? aku suka daging rebus! "
 
-“Itu juga berhasil, semur daging sapi. Sayurannya akan bawang, kol, lobak, dan daun bawang. Makanan pembuka akan berupa ikan yang diasinkan. Ayam goreng untuk pergi dengan rebusan. Setelah menyelesaikan rebusan, kita bisa menambahkan pasta dan biarkan mendidih. Makanan penutupnya adalah yogurt buah. ”
+"boleh saja, semur daging sapi. Sayurannya bawang, kol, lobak, dan daun bawang. Makanan pembuka berupa ikan yang diasinkan. Ayam goreng untuk dimakan dengan rebusan hotpot. Setelah selesai dengan rebusan, kita bisa menambahkan pasta dan biarkan mendidih. Makanan penutupnya adalah yogurt buah."
 
-“Wow, itu mewah! Tetapi apakah itu baik-baik saja? Untuk hari seperti itu tanpa ada kesempatan? "
+"Wow, itu mewah sekali! Tetapi apa itu tidak apa-aoa?"
 
-Mata Lit bersinar dari kata-kataku, tetapi dia bertanya dengan kepala sedikit miring.
+Mata Lit bersinar mendengar kata-kataku, tetapi dia bertanya dengan kepala sedikit miring.
 
 Aku tersenyum untuk menghindari pertanyaan itu.
 
-Terlalu memalukan untuk mengakui bahwa aku bahagia dan terlalu antusias karena Lit membuat permintaan hidangan.
+memalukan untuk mengakui bahwa aku bahagia dan terlalu antusias karena Lit membuat meminta menu makanan.
 
 ☆☆
 
