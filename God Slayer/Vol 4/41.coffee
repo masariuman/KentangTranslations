@@ -46,9 +46,9 @@ Dia bahkan tidak berpikir sebelum berbicara dan seolah itu semua salahku. yaah, 
 
 Untuk menyelamatkan seseorang, kamu membutuhkan kekuatan. Apakah itu kekuatan bertarung, moneter, atau ketenaran / reputasi. Itu pasti perlu. Saat itu, aku kurang dalam semuanya namun ingin menyelamatkan orang lain jadi aku tapi akhirnya mencoba menyelamatkan mereka semua juga. Sebagai hasilnya, aku akhirnya membuat Utano-san tidak senang berkali-kali. Dan aku bahkan tidak dapat menyangkal bahwa tidak satupun dari mereka adalah hal-hal yang berhubungan dengan wanita.
 
-Bagaimanapun juga, aku seorang pria. Mau tak mau aku mengulurkan tangan kepada seorang wanita yang dalam kesulitan. itu Membuatku termotivasi juga. apalagi kalau itu wanita cantik. Tidak, aku menyelamatkan banyak pria juga, oke? Tapi tetap saja, kurasa bayanganku di dalam kepala Utano-san masih seperti 'sosok perempuan'. Meskipun sebagian besar tidak disengaja.
+Bagaimanapun juga, aku seorang pria. Mau tak mau aku mengulurkan tangan kepada seorang wanita yang dalam kesulitan. itu Membuatku termotivasi juga. apalagi kalau itu wanita cantik. Tidak, aku menyelamatkan banyak pria juga, oke? Tapi tetap saja, kurasa bayanganku di dalam kepala Utano-san masih seperti 'mata keranjang'. Meskipun sebagian besar tidak disengaja.
 
-“……… .Apa jenis orang yang kamu anggap untukku?” (Renji)
+"……… .orang seperti apa aku ini yang kau bayangkan?" (Renji)
 
 Apa yang dia maksud dengan 'harus menjadi wanita lain' dan 'lagi', ya? Sepertinya saya hanya mencoba menyelamatkan wanita. Saya benar-benar mencoba menyelamatkan orang terlepas dari jenis kelamin mereka, Anda tahu? Pria yang kasar. Saat aku berbicara dengan Kuuki, lengan kananku ditarik dengan ringan. Itu Aya.
 
