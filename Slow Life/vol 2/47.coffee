@@ -162,18 +162,18 @@ l"Pangsit ayam ini juga enak."
 
 g"Ya, aku akhirnya membelinya karena tukang daging sangat merekomendasikannya untuk sisa jumlah koin tembaga yang aku punya, dan itu pas seharga koin tembaga yang kupunya. aku akan berterima kasih kepada tukang daging itu. "
 
-Setelah selesai makan, saya menambahkan pasta dan membiarkannya berkilau.
+Setelah selesai makan, aku menambahkan pasta dan membiarkannya berkilau.
 
-Pasta sup yang menyerap rasa bahannya juga lezat.
+sup Pasta yang menyerap rasa kuahnya juga lezat.
 
 Makanan penutup setelah makan adalah yogurt dengan potongan anggur dan pisang.
 
 Melihat si gigi manis, Lit, dengan senang hati memakannya, membuatku ingin bertanya apakah dia juga menginginkan bagianku.
 
-Yah, aku makan bagianku sendiri juga. Saya suka hal-hal manis juga.
+Yah, aku makan bagianku sendiri juga. aku suka hal-hal manis juga.
 
-"Terima kasih untuk makanannya!"
+l"Terima kasih untuk makanannya!"
 
 Setelah kami berdua selesai makan, Lit tersenyum puas di wajahnya.
 
-Dari lubuk hati saya merasakan bahwa upaya yang dilakukan untuk membuat makanan mewah hari ini sepadan hanya dengan melihat senyum itu.
+Dari lubuk hatiku, aku merasakan bahwa upaya yang dilakukan untuk membuat makanan mewah hari ini sepadan hanya dengan melihat senyum itu.
