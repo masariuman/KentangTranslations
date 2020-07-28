@@ -294,23 +294,23 @@ aku mengeluarkan pecahan kristal itu dan meletakkannya di atas meja.
 
 "Itu adalah pecahan kristal di mana orang itu tidur. Itu pecah ketika dia bangun. "
 
-"...... Kamu tidak bisa berharap aku tiba-tiba percaya ini."
+"...... Kamu tidak bisa aku tiba-tiba bisa percaya dengan semua ini."
 
-Mengatakan itu, dia mengambil kristal itu dan mendekatkannya ke matanya, memeriksanya tampak seperti seorang ahli.
+dia mengambil kristal itu dan mendekatkannya ke matanya, memeriksanya tampak seperti seorang ahli.
 
 [Bisakah kamu merasakan sesuatu? Aku bahkan tidak bisa merasakan energi sihir darinya lagi.]
 
 "Lagi? Itu memiliki energi magis sebelumnya? "(Yuuko)
 
-[Ya. Saya pasti merasakannya. Meskipun penyihir di pesta kami tidak merasakannya.]
+[Ya. aku pasti merasakannya. Meskipun penyihir di tim kami tidak merasakannya.]
 
 "Hmm .."
 
-Lembut, rambutnya yang kuning kemerahan berayun meskipun tidak ada angin di dalam ruangan. Energi ajaib Kemungkinan besar, Utano-san harus memasukkan energi magis ke dalam kristal.
+Lembut, rambutnya yang kuning kemerahan berayun meskipun tidak ada angin di dalam ruangan. Energi magic. pasti karena, Utano-san memasukkan energi magic ke dalam kristal.
 
-Tapi tidak ada perubahan yang terlihat pada kristal. Setelah beberapa waktu berlalu, Utano-san menghela nafas kecil dan perasaan energi magisnya yang sedikit menindas menghilang.
+Tapi tidak ada perubahan yang terlihat pada kristal. Setelah beberapa waktu berlalu, Utano-san menghela nafas kecil dan perasaan energi magicnya yang sedikit menghilang.
 
-“Sepertinya kristal normal bagiku.” (Yuuko)
+"Sepertinya kristal normal bagiku." (Yuuko)
 
 “Akan lebih bagus jika itu benar. Orang tersebut saat ini tinggal bersama kami untuk saat ini. Yang terpenting, menurut mereka, mereka juga menderita amnesia. ”
 
