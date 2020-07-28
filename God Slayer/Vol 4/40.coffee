@@ -351,4 +351,4 @@ Jika aku mengatakan ini kepada Aya, apakah aku akan mendapatkan reaksi yang sama
 --------------
 
 
-masariuman: renji bilang souichi cocok memiliki maslah dengan perempuan karena pahlawan, padahal dia sendiri juga sellau bermasalah dengan perempuan awkwakkwkwa.. pantas jadi MC
+masariuman: renji bilang souichi cocok memiliki maslah dengan perempuan karena pahlawan, padahal dia sendiri juga sellau bermasalah dengan perempuan awkwakkwkwa.. pantas jadi MC..
