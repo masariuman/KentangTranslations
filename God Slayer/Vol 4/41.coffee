@@ -184,7 +184,7 @@ Aya bukan anak kecil lagi. Souichi dan yang lainnya juga bukan. Waktunya sudah t
 
 "Bagaimana kalau kita pergi makan malam bersama?" (Renji)
 
-Tapi tetap saja, lalu mengapa aku harus melalui kesulitan menindaklanjuti seperti ini hanya setelah aku membuatnya merasa agak sedih. Saya agak terlalu pintar, jika saya mengatakannya sendiri. Itu karena hal-hal seperti ini sehingga hubungan saya dengan Utano-san dan Aya sangat tidak stabil. Ini tidak seperti kita masih kembali ke cara kita setahun yang lalu. Saya terus mengambil keuntungan dari kelembutan para wanita ini.
+Tapi tetap saja, lalu mengapa aku harus melalui kesulitan seperti ini hanya setelah aku membuatnya merasa agak sedih. aku agak terlalu peka. karena hal-hal seperti ini hubunganku dengan Utano-san dan Aya sangat tidak stabil. Ini tidak seperti kita masih kembali ke cara kita setahun yang lalu. Saya terus mengambil keuntungan dari kelembutan para wanita ini.
 
 Melakukan perubahan total dari ekspresinya sebelumnya, Aya tersenyum lebar. Ya, ini pasti lebih cocok untuknya. Tiba-tiba aku merasa menatapku dan saat melihat sekeliling aku melihat Souichi dan Kudou tertawa sambil menatapku. Serius, kesalahpahaman apa yang mereka miliki sekarang?
 
