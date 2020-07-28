@@ -274,7 +274,7 @@ Tidak dapat menyangkal apa yang dia katakan, aku mengalihkan pandanganku dan mel
 
 "Untuk satu hal, aku hanya seorang petualang sekarang dan kamu, O'brien-san, adalah komandan ksatria Ordo. bukankah kamu memiliki status yang lebih tinggi dariku? "(Renji)
 
-"Dibandingkan dengan seorang ksatria tua dengan pahlawan yang menyelamatkan dunia, itu kamu dengan status yang lebih tinggi, kamu bodoh." (Ob)
+"Dibandingkan dengan seorang ksatria tua dengan pahlawan yang menyelamatkan dunia, tentu saja kamu yang memiliki status lebih tinggi, dasar bodoh." (Ob)
 
 Aku merasa kasihan pada para prajurit yang berdiri di belakangnya dengan panik dan bingung dari pembicaraan kami. Untuk saat ini, saya akan lebih bahagia jika Anda mengabaikan saya dan melanjutkan penyiksaan. Tidak tunggu, itu tidak seperti saya menikmati melihat itu atau apapun juga.
 
