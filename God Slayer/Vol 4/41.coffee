@@ -240,7 +240,7 @@ aku mulai merasa agak sedih lagi. untung aku tidak membawa Aya ke sini. Masih te
 
 [Seperti biasa, ini adalah tempat yang benar-benar menyedihkan.]
 
-"Bagaimanapun, ini adalah penjara."
+"Bagaimanapun juga, ini adalah penjara."
 
 Itulah tempat penjara. Mau bagaimana lagi. Saya merasa seperti suara Ermenhilde yang mencoba menyiratkan kepada saya bahwa dia ingin kembali secepat mungkin. Yah, bahkan saya tidak akan berada di sini jika saya tidak memiliki sesuatu untuk dilakukan.
 
