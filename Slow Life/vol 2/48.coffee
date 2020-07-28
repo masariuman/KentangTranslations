@@ -1,0 +1,279 @@
+Kami benar-benar menjaga toko sejak sore.
+
+Lit menjaga toko sementara saya pergi ke obat majemuk di bengkel. Hari ini saya membuat penawar racun.
+
+Produksi Perlindungan Ilahi Iblis telah berhenti tetapi diragukan apakah pihak berwenang telah menyita semua obat yang tersisa.
+
+Selanjutnya, sejak saat itu, kita harus mengobati gejala penarikan obat.
+
+Saya kira ada kebutuhan untuk obat untuk mengurangi gejala penarikan juga.
+
+ 
+
+"Aku mungkin juga memproduksi Ramuan Cure Racun secara massal."
+
+ 
+
+Keracunan obat diperlakukan sebagai efek keracunan yang diinduksi secara ajaib.
+
+Jika Cure Poison digunakan, itu akan segera mengobati tidak hanya kecanduan mental tetapi bahkan gejala kecanduan dalam tubuh.
+
+Namun, kesulitannya adalah Cure Poison Potion sangat mahal dengan harga 300 Peryl per botol, jadi itu adalah obat yang hanya bisa didapatkan oleh petualang, pedagang, atau bangsawan kaya.
+
+ 
+
+"Semoga gejalanya dapat diatasi dengan menggunakan obat penawar yang terbuat dari rumput obat yang diseduh."
+
+ 
+
+Ramuan Racun Cure adalah Ramuan Ajaib yang dibuat dengan mengandung mantra di dalamnya. Itu bukan sesuatu yang bisa aku, yang tidak bisa gunakan sihir, bisa lakukan.
+
+Namun, obat penawar yang dibuat menggunakan rumput obat hanya bisa meredakan sedikit gejala. Di apotek, kecanduan narkoba berbeda dari racun.
+
+Meskipun saya bisa menjualnya dengan harga murah dengan menggunakan Ramuan Multiplying untuk mengubah satu ramuan menjadi lima ramuan ...
+
+ 
+
+"Kalau saja aku memiliki kooperator yang bungkam dan dapat dipercaya yang memiliki wewenang untuk mendistribusikannya."
+
+ 
+
+Kenalan saya di Zoltan cenderung warga kelas menengah ke bawah di Downtown.
+
+Koneksi saya tidak ada.
+
+ 
+
+"Yah, aku akan membahasnya dengan Lit dan kurasa aku akan menyerah jika itu juga tidak baik."
+
+ 
+
+Orang mungkin tidak akan mati bahkan jika mereka tidak memiliki Ramuan Obat Cure.
+
+Namun, masalahnya adalah bahwa Gereja Suci akan mempertanyakan tindakan menghujat mereka mengambil Perlindungan Ilahi Setan sehingga gereja yang biasanya memperlakukan dan mengisolasi pecandu narkoba tidak akan secara aktif melakukannya untuk insiden ini.
+
+Ada kebutuhan untuk pasangan untuk merawat pasien yang menderita gejala penarikan sampai mereka dapat keluar dari obat. Zoltan memiliki beberapa klinik tetapi mereka tidak memiliki kapasitas untuk perawatan pasien yang dirawat di rumah sakit.
+
+Paling-paling mereka terutama dapat merawat pasien yang datang ke klinik dan hanya memberi mereka durasi rawat inap singkat sebelum mereka dipulangkan untuk pulih.
+
+ 
+
+"Bagaimanapun, mereka semua adalah masalah yang terlalu besar untuk aku tangani."
+
+ 
+
+Saya akhirnya memiliki banyak pikiran tetapi itu bukan masalah bahwa saya bisa menarik kesimpulan.
+
+Saya hanya akan melakukan yang terbaik dalam ranah apoteker saya.
+
+ 
+
+☆☆
+
+ 
+
+Di malam hari, setelah saya selesai peracikan, saya mampir ke toko untuk memeriksa dan menemukan Lit menyapa pelanggan sambil tersenyum.
+
+Tampaknya toko itu cukup sibuk.
+
+ 
+
+"Karena kerusuhan di South Marsh, obat-obatan untuk keadaan darurat ... seperti agen hemostatik laris manis. Juga, Pengawal membeli cukup banyak obat mabuk. Saya juga menjual beberapa Ramuan Cure. ”
+
+ 
+
+Ramuan Cure yang saya jual di toko berasal dari permintaan yang saya ajukan kepada para petualang Downtown untuk bekerja sama untuk mengandung mantra di dalam ramuan yang saya buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu menambahkan hingga 13 Peryl.
+
+Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan sihir sehingga itu adalah permintaan yang populer.
+
+ 
+
+"Ooo, itu luar biasa, bukankah ini rekor penjualan tinggi?"
+
+"Saya pikir itu harus peringkat nomor satu atau dua. Padahal tokonya tutup sampai sore. Terlebih lagi, berbagai klinik tampaknya tidak memiliki cukup obat jadi saya percaya pesanan akan datang mulai besok dan seterusnya. ”
+
+ 
+
+Lit memberikan saya catatan penjualan hari ini.
+
+Saya melihat sekilas dan kami tentu saja menjual banyak.
+
+ 
+
+“Dalam hal ini, lebih baik aku meramu lebih banyak obat. Selanjutnya, pada tingkat ini, saya akan kehabisan rumput obat yang saya gunakan sebagai bahan. Saya akan pergi ke pegunungan untuk mengumpulkan rumput obat besok jadi saya kira saya akan melakukan lebih banyak pekerjaan untuk menambah sedikit hari ini. "
+
+"Mungkin lebih baik jika kita membiarkan toko terbuka sampai lalu lintas pelanggan surut juga."
+
+“Kami akan bekerja sedikit lembur. Bisakah saya serahkan pada Anda? ”
+
+"Tentu! Tampaknya ada pelanggan yang biasanya tidak membeli obat dari kami, jadi inilah saatnya untuk memberi tahu mereka tentang obat berkualitas tinggi yang dijual di Red & Lit's Apothecary. ”
+
+ 
+
+Saya bertanya-tanya apakah mereka dapat dianggap berkualitas tinggi tetapi saya yakin bahwa tidak ada obat-obatan berkualitas tinggi.
+
+Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang melawan nilai obat yang dijual oleh toko-toko di mana obat-obatan dibuat menggunakan keterampilan Senyawa Menengah atau oleh pemilik toko yang memiliki Perlindungan Ilahi yang dapat menggunakan sihir, orang-orang yang menggunakan obat-obatan bukanlah mereka yang akan mencari barang-barang berkualitas tinggi.
+
+ 
+
+"Bisakah aku mendapatkan obat flu ini?"
+
+ 
+
+Seorang gadis Half-Elf muda membayar 10 koin tembaga biasa dan bertanya dengan suara meriah.
+
+Itu adalah obat yang dibuat menggunakan jahe yang akan meningkatkan metabolisme tubuh dan bukan obat yang akan menunjukkan efek langsung tidak seperti obat yang dibuat dengan menggunakan keterampilan tetapi ... obat jenis ini juga diperlukan.
+
+ 
+
+"Hati-hati jangan sampai menjatuhkannya baik-baik saja."
+
+ 
+
+Lit tersenyum lembut dan memberikan botol obat itu padanya.
+
+ 
+
+"Terima kasih banyak! Ibu terlihat seperti dia menderita kedinginan! ”
+
+"Aku pikir ibumu pasti akan bahagia."
+
+ 
+
+Gadis muda itu menundukkan kepalanya dan meninggalkan toko dengan langkah kaki ringan.
+
+ 
+
+☆☆
+
+ 
+
+Nama saya Tise. Saya seorang Assassin tetapi sekarang saya mungkin seorang pilot kapal terbang.
+
+ 
+
+"Pada tingkat ini, kita harus mencapai besok."
+
+ 
+
+Malam telah tiba sehingga kami mendarat di hutan yang jauh dari jalan raya agar aku bisa beristirahat.
+
+Saya saat ini menjelaskan rute ke Hero-sama dengan peta terbuka.
+
+ 
+
+"Saya melihat."
+
+ 
+
+Pahlawan-sama diam-diam mendengarkan kata-kata saya saat saya menelusuri rute di peta.
+
+Dia sesekali melihat ke arahku dan menggerakkan pipinya, tetapi aku akhirnya terkejut karena berpikir aku melakukan sesuatu untuk membuatnya marah.
+
+Ugeuge-san menepuk pundakku memberitahuku bahwa itu baik-baik saja dan mendukungku.
+
+Yup, saya akan melakukan yang terbaik.
+
+Hai Aku!? Pahlawan-sama menggerakkan pipinya lagi! Dia terus menatap ke arahku !!
+
+Tidak apa-apa, tetap tenang, tetap tenang ...
+
+ 
+
+"Besok, mendaratlah pada titik ini."
+
+ 
+
+Hero-sama menunjuk ke peta.
+
+Itu dekat dengan gunung sekitar satu hari berjalan kaki dari Zoltan.
+
+ 
+
+"Sini? Itu jarak yang cukup jauh dari Zoltan? ”
+
+“Kapal terbang itu akan menonjol. Di Zoltan, saya ingin menyembunyikan fakta bahwa saya adalah Pahlawan. Anda harus memperlakukan saya sebagai seorang musafir biasa juga. "
+
+ 
+
+Ehhhhhh? Tidak mungkin, tidak mungkin, tidak !!
+
+Tidak, saya tidak keberatan mendaratkan kapal terbang di lokasi yang jauh dan saya juga tidak keberatan berjalan dari sana!
+
+ 
+
+Tapi mustahil bagi Pahlawan-sama untuk berpura-pura menjadi orang biasa!
+
+ 
+
+Lagipula, aku berkeringat dingin hanya dengan berdiri di sampingnya! Dan punggungku menjadi basah kuyup! Dan saya harus mencuci pakaian saya setiap malam!
+
+Seseorang yang memancarkan aura sangat kuat hanya bisa menjadi Pahlawan atau Raja Iblis!
+
+Meski aku belum pernah bertemu Raja Iblis sebelumnya.
+
+ 
+
+"Apakah begitu? Maaf karena bersikap kasar tapi Pahlawan-sama tidak terlalu akrab dengan menjadi seorang musafir biasa. ”
+
+"Kamu benar. Saya selalu hidup sebagai Pahlawan. Karena itu, jika saya tidak bisa berpura-pura menjadi seorang musafir dengan baik, saya harap Anda dapat melindungi saya. ”
+
+ 
+
+Serius -
+
+ 
+
+“Aku tidak tahu apakah aku bisa menjadi pemandu Pahlawan-sama. Aku tidak lebih dari seorang Assassin yang keji. ”
+
+"Itu tidak masalah. Bahkan sekarang, Anda telah menunjukkan bahwa saya tidak terbiasa dengan menjadi seorang musafir. ”
+
+ 
+
+Jadi saya dievaluasi pada titik itu ya ... tapi saya merasa bahwa siapa pun bisa menunjukkan itu ...
+
+Tapi aku takut untuk keberatan lagi jadi kurasa aku tidak punya pilihan selain menyerah. Adalah tugas seorang Assassin untuk menjawab keinginan majikan mereka sebanyak mungkin.
+
+Saya telah menerima pelatihan untuk berbaur dengan kerumunan dan jika Pahlawan-sama ... itu mungkin mustahil. Tetapi saya tidak bisa mengatakan itu. Untuk saat ini, saya hanya akan mengangguk dan selamat hari ini.
+
+Ini juga merupakan kemampuan penting Assassin untuk bertahan dalam situasi sulit.
+
+ 
+
+“Baiklah, itu saja untuk rencana besok. Anda bisa istirahat. Saya akan bertindak sebagai pengintai. "
+
+ 
+
+Pahlawan-sama berkata ketika dia pergi ke geladak.
+
+ 
+
+Saya Tise. Assassin dan Flying ship Pilot tetapi sekarang saya bertindak sebagai sampul untuk Hero-sama berpakaian sebagai seorang musafir.
+
+Saya tidak akan pernah berpikir bahwa saya akan berakhir seperti ini ketika saya masih seorang Assassin.
+
+ 
+
+Itu benar.
+
+ 
+
+☆☆
+
+ 
+
+Di tengah malam, ketika seseorang sedang mencuci pakaian dalam mereka yang berkeringat, dia mendeteksi keberadaan Pahlawan-sama yang mondar-mandir seolah mencari sesuatu untuk suatu alasan.
+
+Dia berusaha mendengarkan dengan seksama.
+
+" … Tidak disini."
+
+Dia mendengar suara yang agak kecewa.
+
+Tidak disini? Tentu saja, kita adalah satu-satunya orang di kapal terbang jadi jelas tidak ada orang lain di sekitar kita.
+
+Apa yang dia lakukan?
+
+"?"
+
+Ugeuge-san juga memiringkan kepalanya dengan ragu.
