@@ -308,30 +308,30 @@ Bahkan di dunia kami, selama perang dunia, orang-orang melakukan hal-hal yang ti
 
 [Tidak mengherankan kok.]
 
-Saya setuju dengan kata-kata Ermenhilde. Setan itu akan terbunuh pada akhirnya. Dia tidak akan memberikan info yang menguntungkan bagi kami dengan biaya berapa pun.
+aku setuju dengan kata-kata Ermenhilde. iblis itu akan terbunuh pada akhirnya juga. Dia tidak akan memberikan info yang menguntungkan bagi kami apa pun bayarannya.
 
-Apakah cara untuk membujuknya dengan lembut sebaliknya benar-benar mustahil? Ketika aku melihat ke arah Utano-san, dia hanya menggelengkan kepalanya. Di tempat pertama, tidak ada jaminan bahwa dia benar-benar memiliki info yang dapat memuaskan kita. Mengontrol banyak monster dan bahkan memiliki kemampuan untuk memanggil iblis keturunan Tuhan itu nyata tetapi segalanya tampak jelek. Setan ini harus menjadi pion yang bisa dibuang. Mungkin dia hanya bekerja sendiri. Jika tidak, Souichi seharusnya diserang saat dia membawa iblis ke sini.
+Apakah cara untuk membujuknya dengan lembut sebaliknya benar-benar mustahil? Ketika aku melihat ke arah Utano-san, dia hanya menggelengkan kepalanya. pada dasarnya, tidak ada jaminan bahwa dia benar-benar memiliki info yang dapat memuaskan kita. Mengontrol banyak monster dan bahkan memiliki kemampuan untuk memanggil keturunan dewa iblis itu nyata tetapi semuanya itu tampak tidak mulus. iblis ini pasti menjadi pion yang bisa dibuang. Mungkin dia hanya bekerja sendiri. Jika tidak, Souichi seharusnya diserang saat dia membawa iblis ke sini.
 
 O'brien-san tampaknya memahami fakta itu juga. Setelah menginterogasi sedikit lagi, dia mungkin akan mengakhirinya.
 
-"Oh, benar."
+"Oh iya."(renji)
 
-Mengingat sesuatu, saya mengeluarkan pecahan kristal yang saya miliki. Ini adalah pecahan kristal yang membuat Solnea tidur di dalamnya. Terlalu banyak yang saya tidak tahu tentang ini, jadi saya harus bertanya tentang itu. Aku berjongkok di dekatnya dan menunjukkan padanya kristal itu.
+aku Mengingat sesuatu dan aku mengeluarkan pecahan kristal yang aku miliki. Ini adalah pecahan kristal yang membuat Solnea tidur di dalamnya. Terlalu banyak yang aku tidak tahu tentang ini, jadi aku harus bertanya tentang itu. Aku berjongkok di dekatnya dan menunjukkan padanya kristal itu.
 
 "Ini tampak akrab bagimu?" (Renji)
 
-“…… .apa itu?” (Ob)
+"…… .apa itu?" (Ob)
 
-"Sedikit sesuatu." (Renji)
+"hanya sesuatu." (Renji)
 
-Sambil mendengarkan O'brien-san saya mengamati ekspresi iblis dengan cermat. Itu benar-benar diwarnai kebencian padaku dan tidak menunjukkan perubahan.
+Sambil mendengarkan O'brien-san aku mengamati ekspresi iblis dengan cermat. ekpresi iblis itu benar-benar diwarnai kebencian padaku dan tidak menunjukkan perubahan.
 
 "Bagaimana dengan nama Solnea?" (Renji)
 
-"Tidak tahu. Bahkan jika saya melakukannya, siapa yang akan mengatakan itu kepada orang-orang seperti Anda? "(Setan)
+"Tidak tahu. Bahkan jika aku tahu, siapa juga yang akan mengatakan itu kepada orang sepertimu? "(iblis)
 
-"Aku juga tidak mempercayai kata-katamu, tapi, yah, emosimu muncul di wajahmu sehingga tidak terlalu penting."
+"Aku juga tidak mempercayai kata-katamu, tapi, yah, emosimu muncul di wajahmu jadi yah tidak masalah juga."(renji)
 
-Mengatakan itu, aku berdiri.
+akupun berdiri.
 
 Tidak beruntung di sini, kurasa. Sambil bermain dengan pecahan kristal dengan jari-jariku, aku berpikir tentang gadis itu. Karena sama sekali tidak ada info tentangnya, aku juga tidak akan menemukan jawaban. Aku ingin tahu apa yang dipikirkan Utano-san saat dia melirik ke arahku. Apakah dia curiga padaku lagi?
