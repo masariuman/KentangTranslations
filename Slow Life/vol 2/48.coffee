@@ -64,7 +64,7 @@ g"Ooo, itu luar biasa, bukankah ini rekor penjualan tertinggi?"
 
 l"aku pikir paling tidak peringkat nomor satu atau dua. Padahal tokonya tutup sampai sore. Terlebih lagi, beberapa klinik tampaknya tidak memiliki cukup obat jadi aku percaya pesanan akan datang mulai besok dan seterusnya."
 
-Lit memberikan saya catatan penjualan hari ini.
+Lit memberikanku catatan penjualan hari ini.
 
 aku melihat sekilas dan kami benar-benar laku keras.
 
