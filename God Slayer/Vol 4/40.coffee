@@ -68,17 +68,17 @@ Ketika aku terus berjalan, tiba-tiba aku ingat bahwa Souichi dan yang lainnya su
 
 Akhirnya aku mengingatnya, aku merasa jauh lebih santai setelah mengetahuinya. Meskipun aku penasaran apakah perlu bagiku untuk mengkhawatirkannya seperti itu. walaupun hal yang kecil, tetapi mencari tahu sesuatu masih terasa memuaskan. Yah, fakta bahwa aku menaikkan suaraku karena senang  sedikit hanya untuk membuat para penjaga menatapku aneh dan itu memalukan.
 
-Berbicara dengan Ermenhilde, saya akhirnya mencapai kamar Utano-san. Mengetuk pintu dua kali, balasan segera datang. Ketika saya membuka pintu, saya merasakan udara hangat yang berasal dari perapian yang menyala.
+sambil Berbicara dengan Ermenhilde, aku akhirnya mencapai kamar Utano-san. aku Mengetuk pintu dua kali dan jawaban datang. Ketika aku membuka pintu, aku merasakan udara hangat yang berasal dari perapian yang menyala.
 
-“Hei, Utano-san.” (Renji)
+"Hei, Utano-san." (Renji)
 
-“Halo Yamada-kun. Dimana Rin-chan? ”(Yuuko)
+"Halo Yamada-kun. Dimana Rin-chan?"(Yuuko)
 
-"Dia punya sesuatu untuk dilakukan di tempat pelatihan rupanya."
+"Dia punya sesuatu untuk dilakukan di tempat pelatihan."
 
-[Kamu tahu sesuatu Yuuko?]
+[Kamu tahu sesuatu, Yuuko?]
 
-"Tidak juga. Karena itu adalah tempat latihan, dia mungkin punya urusan dengan Souichi-kun atau Yuuta-kun mungkin? ”
+"Tidak juga. Karena itu adalah tempat latihan, dia mungkin punya urusan dengan Souichi-kun atau Yuuta-kun mungkin?"
 
 Hal pertama yang saya perhatikan setelah memasuki kamarnya adalah kristal biru bulat raksasa di atas meja. Tetap pada alas emas dengan desain rumit, orang bisa tahu sekilas bahwa itu sangat mahal. Hal pertama yang muncul di benak saya adalah bahwa itu menyerupai bola kristal yang digunakan oleh peramal bayang-bayang di dunia kita sendiri. Jika Utano-san mengenakan jubah hitam dan mencoba bertindak seperti itu ....... itu benar-benar cocok untuknya.
 
