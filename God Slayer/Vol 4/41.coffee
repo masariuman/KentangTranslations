@@ -188,7 +188,7 @@ Tapi tetap saja, lalu mengapa aku harus melalui kesulitan seperti ini hanya sete
 
 aya berubah total dari ekspresinya sebelumnya dan tersenyum lebar. Ya, ini pasti lebih cocok untuknya. Tiba-tiba aku merasa tatapan yang melihatku dan saat melihat sekelilingku, aku melihat Souichi dan Kudou tertawa sambil menatapku. kesalahpahaman apa yang mereka miliki sekarang?
 
-"Lagipula, aku harus menunjukkan diriku di tempat Toudou. Haruskah kita pergi bersama?"(Renji) (T / N: kalau-kalau kalian lupa, Toudou adalah juru masak dari 13)
+"Lagipula, aku harus menunjukkan diriku di tempat Toudou. Haruskah kita pergi bersama?"(Renji) (masariuman: todou adalah salah satu dari 13 si koki)
 
 "Dengan senang hati!" (Aya)
 
