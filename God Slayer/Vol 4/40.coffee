@@ -166,7 +166,7 @@ dia Mengatakan itu dengan suara seperti menikmatinya dan dia menuangkan teh ke d
 
 "Tapi tetap saja, dunia ini tidak nyaman namun nyaman dalam arti aneh. dulu di dunia kita, kita harus membayar hanya untuk melihat pelayan."(Renji)
 
-[Di duniamu, apakah uang diperlukan hanya untuk memenuhi pelayan?]
+[Di duniamu, apakah uang diperlukan hanya untuk bertemu pelayan?]
 
 "Ya."
 
