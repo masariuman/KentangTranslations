@@ -198,17 +198,17 @@ aku meninggalkan pekarangan. Aya pasti akan diganggu oleh Souichi dan yang lainn
 
 [Kamu benar-benar jago berbicara.]
 
-“Tidak juga, aku juga tidak punya niat buruk. Aku hanya tidak ingin membuatnya merasa sedih, itu saja. ”
+"Tidak juga, aku tidak punya niat buruk. Aku hanya tidak ingin membuatnya merasa sedih, itu saja."
 
-Apakah hanya imajinasiku bahwa aku merasakan sedikit iritasi pada suara Ermenhilde? Apakah itu karena aku memperlakukan Aya seperti anak kecil atau karena aku punya rencana kencan makan malam dengannya?
+Apakah hanya imajinasiku bahwa aku merasakan sedikit kejengkelan pada suara Ermenhilde? Apakah itu karena aku memperlakukan Aya seperti anak kecil atau karena aku punya rencana kencan makan malam dengannya?
 
-Tempat yang saya tuju adalah bawah tanah. Tempat itu dingin dan terasa sangat menakutkan; mungkin karena saya tidak memiliki memori yang baik saat berada di bawah tanah. Memerangi mayat hidup, diserang oleh lendir, basah kuyup dalam kotoran dan kotoran, dan hampir terkubur hidup-hidup. Hanya mengingat itu semua membuat saya benar-benar berterima kasih pada kenyataan bahwa saya masih hidup.
+Tempat yang aku tuju adalah ruang bawah tanah. Tempat itu dingin dan terasa sangat menakutkan; mungkin karena aku tidak memiliki ingatan yang baik saat berada di tempat itu. bertarung melawan mayat hidup, diserang oleh slime, basah kuyup dalam kotoran, dan hampir terkubur hidup-hidup. Hanya mengingat itu semua membuatku benar-benar berterima kasih pada kenyataan bahwa aku masih hidup.
 
-[Jika itu masalahnya, mengapa tidak membawa Aya bersamamu?]
+[Jika hanya itu, mengapa tidak membawa Aya bersamamu?]
 
-“Di bawah tanah dingin. Aku akan dimarahi oleh Utano-san jika aku membiarkan Aya masuk angin atau apalah. ”
+"Di bawah sana dingin. Aku akan dimarahi oleh Utano-san jika aku membiarkan Aya masuk angin."
 
-[Jangan mengatakan hal-hal yang bahkan tidak kamu maksudkan ........ sangat menyakitkan diperlakukan seperti anak kecil, tahu?]
+[Jangan mengatakan hal-hal yang bahkan tidak kamu maksudkan ........ sangat menyakitkan diperlakukan seperti anak kecil lho...]
 
 Apakah kata-kata itu berasal dari pengalaman pribadi? Suara Ermenhilde tampak suram dan sedih. Saya tidak benar-benar bercanda tentang masuk angin. Ketika aku hanya mengangkat bahu, Ermenhilde menghela nafas.
 
