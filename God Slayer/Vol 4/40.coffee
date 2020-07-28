@@ -330,11 +330,11 @@ dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di d
 
 “………….”
 
-Ada apa dengan desahan berat itu!
+Ada apa dengan helaan nafas berat itu!
 
 "Lagi, eh?" (Yuuko)
 
-"Entah bagaimana rasanya membuat ini menjadi salahku tapi itu hanya imajinasiku kan?" (Renji)
+"Entah bagaimana rasanya kamu membuat ini menjadi salahku tapi itu hanya imajinasiku kan?" (Renji)
 
 “Ya, tentu saja, kamu tidak melakukan kesalahan. Tidak ada apa-apa, oke? ”(Yuuko)
 
