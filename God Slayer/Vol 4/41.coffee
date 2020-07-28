@@ -192,9 +192,9 @@ aya berubah total dari ekspresinya sebelumnya dan tersenyum lebar. Ya, ini pasti
 
 "Dengan senang hati!" (Aya)
 
-"Saya melihat. Lalu kita akan pergi ke sana sebelum matahari terbenam. "
+"kalau begitu kita akan pergi ke sana sebelum matahari terbenam. "
 
-Mengatakan itu, aku meninggalkan pekarangan. Aya pasti akan digoda oleh Souichi dan yang lainnya tapi itu hanya membuatku merasa lebih ringan. Tempat yang saya tuju adalah tempat yang menyedihkan sehingga saya ingin berada dalam suasana hati setinggi mungkin. Sebagai hadiah untuk diriku sendiri, aku juga akan pergi untuk makan malam dengan kecantikan seperti Aya nanti. Jadi mari kita menjadi kuat.
+aku meninggalkan pekarangan. Aya pasti akan diganggu oleh Souichi dan yang lainnya tapi itu hanya membuatku merasa lebih ringan. Tempat yang aku tuju adalah tempat yang menyedihkan sehingga aku ingin berada dalam suasana hati setinggi mungkin. Sebagai hadiah untuk diriku sendiri, aku juga akan pergi untuk makan malam dengan sicantik seperti Aya nanti. Jadi ayo kita kuatkan diri.
 
 [Kamu benar-benar mengerti cara bicara.]
 
