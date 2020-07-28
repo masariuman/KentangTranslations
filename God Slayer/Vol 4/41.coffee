@@ -86,13 +86,13 @@ serangan terakhir datang dalam sekejap. tergelincir karena dorongan katana, peda
 
 "Baiklah!" (Souichi)
 
-Kesunyian terpecah oleh penyerahan diri Masaki-chan dan teriakan sukacita Souichi. Setelah semua tindakan itu, mereka tampaknya hanya sedikit kehabisan nafas. Tubuh mereka membuat mereka hampir tidak bisa merasakan kelelahan. Para prajurit yang tersisa hanya menatap mereka dengan linglung. Seperti itulah pahlawan itu. Berani yang menyelamatkan dunia. Manusia yang menjadi harapan rakyat. Dalam tatapan mereka ada perasaan hormat dan aspirasi, dan kegembiraan.
+Kesunyian terpecah oleh masaki-chan yang menyerah dan teriakan senang Souichi. mereka tampaknya hanya sedikit kehabisan nafas. Tubuh mereka membuat mereka hampir tidak bisa merasakan kelelahan. Para tentara hanya menatap mereka dengan linglung. Seperti itulah yang disebut pahlawan. brave yang menyelamatkan dunia. Manusia yang menjadi harapan rakyat. Dalam tatapan mereka ada perasaan hormat dan aspirasi, dan kegembiraan.
 
-Setelah beberapa saat, para prajurit kembali ke pelatihan mereka sementara memanas dari pertempuran yang mereka lihat. Pengguna Berani dan Pedang Iblis. Pertempuran antara dua Pahlawan yang berdiri di garis depan mengayunkan pedang mereka selama perjalanan untuk menaklukkan Dewa Setan. Itu normal untuk termotivasi melihat pertempuran seperti itu.
+Setelah beberapa saat, para prajurit kembali ke pelatihan mereka karena bersemnagat dari pertempuran yang mereka lihat. brave dan pengguna Pedang Iblis. Pertempuran antara dua Pahlawan yang berdiri di garis depan mengayunkan pedang mereka selama perjalanan untuk menaklukkan Dewa iblis. normal untuk termotivasi setelah melihat pertempuran seperti itu.
 
 "Yo." (Renji)
 
-"Mouu, jangan tiba-tiba muncul begitu saja ketika itu menjadi baik, Yamada-san." (Masaki)
+"Mouu, jangan tiba-tiba muncul begitu saja, Yamada-san." (Masaki)
 
 “…… .Apakah itu salahku?” (Renji)
 
