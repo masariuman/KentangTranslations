@@ -202,7 +202,7 @@ Saat itu, aku tiba-tiba teringat apa yang dikatakan Kudou. Aku seharusnya meliha
 
 "Maaf, permisi sebentar." (Renji)
 
-Mengatakan itu, aku berdiri menuju ke arah jendela dan melihatnya. Sama seperti kamar saya, tempat latihan sepenuhnya terlihat dari jendelanya.
+aku berdiri menuju ke arah jendela dan melihatnya. Sama seperti kamarku, tempat latihan sepenuhnya terlihat dari jendelanya.
 
 Mudah menemukan Kudou. Lagipula dia mengenakan gaun pelayan. Hanya ada satu seperti itu di halaman. Dan untuk beberapa alasan, pelayan itu saat ini sedang memeluk lengan Souichi sekarang. Sungguh, apa yang dia lakukan? Dekat Souichi adalah dua wanita. Salah satunya adalah Yyayoi-chan, adik perempuan Souichi. Penglihatanku yang meningkat, karena kecurangan, menunjukkan padaku wajahnya yang palsu dan tirus. Betapa menakutkan. Dari sini, aku hanya bisa melihat Souichi dan Kudou kembali, tetapi aku cukup yakin, kakak lelaki itu saat ini membuat wajah yang sangat pucat sekarang. Saya bisa dengan mudah membayangkannya.
 
