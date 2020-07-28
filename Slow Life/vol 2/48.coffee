@@ -60,29 +60,23 @@ obat penyembuh racun yang aku jual di toko berasal dari permintaan yang aku ajuk
 
 Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan magic sehingga itu adalah permintaan yang populer.
 
-"Ooo, itu luar biasa, bukankah ini rekor penjualan tinggi?"
+g"Ooo, itu luar biasa, bukankah ini rekor penjualan tertinggi?"
 
-"Saya pikir itu harus peringkat nomor satu atau dua. Padahal tokonya tutup sampai sore. Terlebih lagi, berbagai klinik tampaknya tidak memiliki cukup obat jadi saya percaya pesanan akan datang mulai besok dan seterusnya. ”
-
- 
+l"aku pikir paling tidak peringkat nomor satu atau dua. Padahal tokonya tutup sampai sore. Terlebih lagi, beberapa klinik tampaknya tidak memiliki cukup obat jadi aku percaya pesanan akan datang mulai besok dan seterusnya."
 
 Lit memberikan saya catatan penjualan hari ini.
 
-Saya melihat sekilas dan kami tentu saja menjual banyak.
+aku melihat sekilas dan kami benar-benar laku keras.
 
- 
+g"lebih baik aku membuat lebih banyak obat. pada tingkat ini, aku akan kehabisan rumput obat yang aku gunakan sebagai bahan. aku akan pergi ke pegunungan untuk mengumpulkan rumput obat besok jadi aku kira aku akan melakukan lebih banyak pekerjaan untuk membuat obat hari ini. "
 
-“Dalam hal ini, lebih baik aku meramu lebih banyak obat. Selanjutnya, pada tingkat ini, saya akan kehabisan rumput obat yang saya gunakan sebagai bahan. Saya akan pergi ke pegunungan untuk mengumpulkan rumput obat besok jadi saya kira saya akan melakukan lebih banyak pekerjaan untuk menambah sedikit hari ini. "
+l"Mungkin lebih baik jika kita membiarkan toko terbuka sampai pelanggan mulai sepi juga."
 
-"Mungkin lebih baik jika kita membiarkan toko terbuka sampai lalu lintas pelanggan surut juga."
+g"kita akan bekerja sedikit lembur. Bisakah aku menyerahkannya padamu?"
 
-“Kami akan bekerja sedikit lembur. Bisakah saya serahkan pada Anda? ”
+l"Tentu! Tampaknya ada pelanggan yang biasanya tidak membeli obat dari kita, jadi inilah saatnya untuk memberi tahu mereka tentang obat berkualitas tinggi yang dijual di apotek Red & Lit's."
 
-"Tentu! Tampaknya ada pelanggan yang biasanya tidak membeli obat dari kami, jadi inilah saatnya untuk memberi tahu mereka tentang obat berkualitas tinggi yang dijual di Red & Lit's Apothecary. ”
-
- 
-
-Saya bertanya-tanya apakah mereka dapat dianggap berkualitas tinggi tetapi saya yakin bahwa tidak ada obat-obatan berkualitas tinggi.
+aku penasaran  apakah mereka dapat dianggap berkualitas tinggi tetapi aku yakin bahwa tidak ada obat-obatan berkualitas tinggi.
 
 Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang melawan nilai obat yang dijual oleh toko-toko di mana obat-obatan dibuat menggunakan keterampilan Senyawa Menengah atau oleh pemilik toko yang memiliki Perlindungan Ilahi yang dapat menggunakan sihir, orang-orang yang menggunakan obat-obatan bukanlah mereka yang akan mencari barang-barang berkualitas tinggi.
 
