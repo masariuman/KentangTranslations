@@ -286,13 +286,13 @@ Tapi sepertinya Utano-san ingat bahwa tidak ada gua di sana sebelumnya karena di
 
 "Seseorang di dalam kristal?"
 
-Aku hanya mengangkat bahu ketika dia meminta itu kembali padaku. Kurasa itu normal saja. Manusia, biasanya, tidak bisa bertahan hidup di dalam kristal. Lalu apa dia?
+Aku hanya mengangkat bahu ketika dia bertanya kembali padaku. Kurasa itu normal saja. Manusia, biasanya, tidak bisa bertahan hidup di dalam kristal. Lalu dia itu apa?
 
-Memikirkan Solnea, saya mengeluarkan pecahan kristal itu dan meletakkannya di atas meja.
+aku mengeluarkan pecahan kristal itu dan meletakkannya di atas meja.
 
 "Ini?" (Yuuko)
 
-“Itu adalah pecahan kristal raksasa di mana orang itu tidur. Itu pecah ketika mereka bangun. "
+"Itu adalah pecahan kristal di mana orang itu tidur. Itu pecah ketika dia bangun. "
 
 "...... Kamu tidak bisa berharap aku tiba-tiba percaya ini."
 
