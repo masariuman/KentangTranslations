@@ -214,7 +214,7 @@ Dan para prajurit melihat mereka dari kejauhan. Di antara mereka, Kuuki dan Aya 
 
 [benarkah?]
 
-Dengan kata-kataku, Ermenhilde menjawab dengan sebuah pertanyaan. Yah, aku cukup yakin mereka melakukannya. Sudah berapa lama sejak aku melihat pertengkaran tentang Souichi ini?
+Ermenhilde menjawab dengan sebuah pertanyaan. Yah, aku cukup yakin mereka akrab. Sudah berapa lama sejak aku melihat pertengkaran tentang Souichi ini?
 
 Nostalgia sekali. Yah, Kudou ada di sana hanya untuk menghasut 2 lainnya. Saat aku menatap mereka melalui jendela, Utano-san mendekat ke sampingku. Itu berakhir dengan kami berdua memandangi mereka melalui jendela.
 
