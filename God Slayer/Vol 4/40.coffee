@@ -230,7 +230,7 @@ Dia hanya bersenang-senang mengganggu Yayoi-chan dan Masaki-chan. Apakah ini yan
 
 "Mereka bermain-main dengan penuh semangat, bukan?"
 
-Bisakah Anda menyebutnya bermain-main? Saya pikir mereka energik tapi agak berbeda bukan?
+bisakah itu disebut bermain-main? aku pikir mereka energik tapi agak sedikit berbeda sepertinya...
 
 Saat ini, [Pengguna Pedang Iblis] Masaki-chan memanifestasikan pedang iblis di tangannya jadi aku ragu kita bisa menyebutnya 'bermain-main' lagi. Yah, dia belum menghunusnya, jadi tidak apa-apa kan?
 
