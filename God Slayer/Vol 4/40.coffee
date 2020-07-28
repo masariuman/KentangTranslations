@@ -184,7 +184,7 @@ tiba-tiba aku merasakan tatapan tajam dari mata Utano-san yang menyipit.
 
 "Oh. Nah, aku tidak pernah memiliki keberanian juga. "
 
-Sebenarnya aku juga tidak punya waktu. Saya tidak benar-benar fokus pada pekerjaan tetapi jika Anda bertanya apakah saya punya banyak waktu luang, jawabannya adalah 'Tidak'. Sungguh, apa yang telah saya lakukan dengan hidup saya? Saya bahkan tidak memikirkan itu saat ini. Saya sudah lupa semua tentang itu. Saya ingin tahu apakah itu karena saya telah menerima dunia ini sebagai tempat di mana saya dapat hidup.
+Sebenarnya aku juga tidak punya waktu. aku tidak benar-benar fokus pada pekerjaan tetapi jika kamu bertanya apakah aku punya banyak waktu luang, jawabannya adalah 'Tidak'. Sungguh, apa yang telah aku lakukan dengan hidupku? aku bahkan tidak memikirkan itu saat ini. aku sudah lupa semua tentang itu. aku ingin tahu apakah itu karena aku telah menerima dunia ini sebagai tempat di mana aku dapat hidup.
 
 Pikiran yang suram. Memegang teh di mulut saya untuk sementara waktu, saya akhirnya menelan semuanya.
 
