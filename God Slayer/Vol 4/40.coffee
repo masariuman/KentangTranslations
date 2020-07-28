@@ -82,9 +82,9 @@ sambil Berbicara dengan Ermenhilde, aku akhirnya mencapai kamar Utano-san. aku M
 
 Hal pertama yang aku perhatikan setelah memasuki kamarnya adalah kristal biru bulat raksasa di atas meja. Tetap pada alas emas dengan desain rumit, orang bisa tahu sekilas bahwa itu sangat mahal. Hal pertama yang muncul di benakku adalah bahwa itu menyerupai bola kristal yang digunakan oleh peramal di dunia kami sendiri. Jika Utano-san mengenakan jubah hitam dan mencoba bertindak seperti itu ....... itu benar-benar cocok untuknya.
 
-Tapi tetap saja, itu tidak ada di sini sampai kemarin. Dan ukurannya hampir dua kali lipat kepalan tanganku. Menyadari tatapanku, dia berdiri dari meja kerjanya dan bergerak menuju meja. Ketika dia mengarahkan telapak tangannya ke arah kristal, kilat ungu melintas di dalam. Sekarang terlihat hebat dan semuanya, tetapi saya tidak bisa mengatakan apa-apa hanya dari yang Anda tahu? Meskipun aku bisa mengatakan kalau itu semacam barang sihir.
+Tapi tetap saja, itu tidak ada di sini sampai kemarin. Dan ukurannya hampir dua kali lipat kepalan tanganku. Menyadari tatapanku, dia berdiri dari meja kerjanya dan bergerak menuju meja. Ketika dia mengarahkan telapak tangannya ke arah kristal, kilat ungu muncul di dalamnya. Sekarang itu terlihat bagus, tetapi aku tidak bisa tahu hanya dari itu saja lho.... Meskipun aku tahu kalau itu semacam barang sihir.
 
-"Jadi, apa itu?"
+"Jadi, apa itu?"(renji)
 
 "Ungu, eh?"
 
