@@ -138,7 +138,7 @@ Aya-chan juga bergabung dengan percakapan kami. Dia tidak menunjukkan tanda-tand
 
 Ketika aku melihat anak-anak berbicara dengan tersenyum, aku merasa seperti bertambah tua. Meskipun aku sudah terbiasa dengan adegan ini. 3 tahun yang lalu, setelah dipanggil di dunia ini, ini hanya percakapan normal antara kawan-kawanku. Betapa nostalgia rasanya ini. Pasti karena aku tinggal jauh dari mereka selama satu tahun terakhir. aku mengeluarkan Ermenhilde dari sakuku dan dengan lembut membelai medali itu. Tepat setelah dipanggil, tidak ada yang memikirkan bahaya yang akan kami hadapi. Betapa sangat nostalgia.
 
-[Apa yang terjadi?]
+[ada apa?]
 
 "Tidak, tidak apa-apa."
 
