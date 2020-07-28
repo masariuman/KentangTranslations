@@ -318,9 +318,9 @@ Tapi tidak ada perubahan yang terlihat pada kristal. Setelah beberapa waktu berl
 
 "Itu akan sangat membantu. Haruskah aku datang ke sini bersama dia besok? "
 
-"Ya, lakukan itu. Mari kita selesaikan semua masalah seperti itu sebelum turnamen dimulai. ”
+"Ya. Mari kita selesaikan semua masalah seperti itu sebelum turnamen dimulai."
 
-Mengatakan itu, dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di dalam kristal. Itu saja sudah cukup mencurigakan, tapi dia juga amnesia. Dia mendapat poin penuh karena curiga. Tiba-tiba, aku merasa Utano-san menatapku lagi.
+dia meletakkan pecahan kristal itu di atas meja. Solnea - wanita yang tidur di dalam kristal. Itu saja sudah cukup mencurigakan, tapi dia juga amnesia. Dia mendapat poin penuh karena curiga. Tiba-tiba, aku merasa Utano-san menatapku lagi.
 
 "Eh, umm, apa?" (Renji)
 
