@@ -58,29 +58,29 @@ Kemudian, aku harus membayangkan mereka secara terpisah ketika aku ingin mengelu
 
 Dan aku harus menghafal setiap jenis sayuran yang berbeda ketika meletakkannya sehingga itu cukup sulit dan menyimpannya di dalam tas dan membawa dengan tangan jauh lebih cepat.
 
-"Susu akan memburuk jika kita tidak menggunakannya dengan cepat."
+g"Susu akan memburuk jika kita tidak menggunakannya dengan cepat."
 
-"Apakah kita akan menukar satu kaleng dengan makanan lain di pasar?"
+l"mungkin kita harus menukar satu kaleng dengan makanan lain di pasar?"
 
-"Ide bagus, aku akan mampir sebentar."
+g"Ide bagus, aku akan pergi sebentar."
 
-"Bisakah aku ikut?"
+l"boleh aku ikut?"
 
-"Tentu saja."
+g"Tentu saja."
 
-Nah, jika ada orang lain di sekitar, mereka akan memiliki pertanyaan ini.
+Nah, kalau ada orang lain di sekitar sini, mereka pasti akan bertanya....
 
-Siapa yang akan menonton toko jika kami berdua pergi bersama?
+Siapa yang akan menjaga toko kalau kami berdua pergi bersama?
 
-... Musim gugur sudah berakhir, jadi tidak bisa dihindari kalau kita berdua ingin jalan-jalan bersama!
+... Musim gugur sudah berakhir, jadi tidak bisa dihindari kalau kami berdua ingin jalan-jalan bersama!
 
 Gonz mungkin akan memegangi perutnya dan tertawa jika dia mendengarnya.
 
-Tapi hanya Lit dan aku yang ada di sana.
+Tapi hanya Lit dan aku yang ada di sini.
 
-Saya berencana untuk menjalani kehidupan yang menyenangkan yang tidak rasional hingga sepenuhnya.
+aku berencana untuk menjalani kehidupan yang menyenangkan yang tidak rasional hingga sepenuhnya.
 
-Saya mengambil tas berisi koin tembaga biasa dan sekali lagi berangkat bersama dengan Lit.
+aku mengambil tas berisi koin tembaga biasa dan sekali lagi berangkat bersama dengan Lit.
 
 ☆☆
 
