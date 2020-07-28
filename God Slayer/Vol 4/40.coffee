@@ -150,15 +150,15 @@ Itulah sebabnya ketika aku meminta Utano-san untuk menghadapi salah satu dari pa
 
 Saat itu, pintu diketuk lagi. Pelayan dari sebelumnya muncul. Aku bisa mencium aroma manis yang lembut. Dia dengan lembut meletakkan teko dan cangkir yang terlihat mahal di atas meja dan kemudian meletakkan piring yang diisi dengan roti yang dipanggang. Itu benar-benar terlihat enak.
 
-Saat aku mengucapkan terima kasih kecil, pelayan meninggalkan ruangan setelah membungkuk.
+aku mengucapkan terima kasih kecil dan pelayan meninggalkan ruangan setelah membungkuk.
 
-"Apa itu?" (Yuuko)
+"ada apa?" (Yuuko)
 
-"Tidak ada, hanya, dia benar-benar berbeda dari Kudou."
+"Tidak ada, hanya, dia benar-benar berbeda dari Kudou."(renji)
 
-"Rin-chan baik-baik saja ..."
+"Rin-chan itu ..."
 
-“Dia tiba-tiba muncul dengan pakaian pelayan di guild. Benar-benar memalukan. ”
+"Dia tiba-tiba muncul dengan pakaian pelayan di guild. Benar-benar memalukan. "
 
 "Yah, Anda memiliki belasungkawa saya."
 
