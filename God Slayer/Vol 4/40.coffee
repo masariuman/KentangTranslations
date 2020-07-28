@@ -200,7 +200,7 @@ Sambil menatapnya seperti itu, aku menyesap tehku lagi. Dan juga salah satu roti
 
 Saat itu, aku tiba-tiba teringat apa yang dikatakan Kudou. Aku seharusnya melihat tempat latihan, kan?
 
-“Maaf sebentar.” (Renji)
+"Maaf, permisi sebentar." (Renji)
 
 Mengatakan itu, aku berdiri menuju ke arah jendela dan melihatnya. Sama seperti kamar saya, tempat latihan sepenuhnya terlihat dari jendelanya.
 
