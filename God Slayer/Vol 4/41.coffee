@@ -30,9 +30,9 @@ aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Aya
 
 "…… ..uwahh. aku tidak mau. "(Kuuki)
 
-Sambil disembuhkan oleh Aya, aku mencoba berbicara dengan Kuuki tetapi dia hanya membuat wajah tidak senang secara terbuka. Sialan, bajingan tak berperasaan ini.
+aku mencoba berbicara dengan Kuuki tetapi dia membuat wajah tidak senang secara terang-terangan. Sialan, bajingan tak berperasaan ini.
 
-Dulu, dia biasa mendengarkan saya dengan senyum bahagia. Pasti begitu. Dia pasti merasa puas setelah berhubungan dengan sang putri. Saya kira itu juga pertumbuhan. Sangat iri. Sudah menikah saja. Kemudian, saya akan memberikan semua berkat (kutukan) saya kepada Anda.
+Dulu, dia sering mendengarkanku dengan senyum bahagia. Pasti begitu. Dia pasti merasa puas setelah berhubungan dengan sang putri. Saya kira itu juga pertumbuhan. Sangat iri. Sudah menikah saja. Kemudian, saya akan memberikan semua berkat (kutukan) saya kepada Anda.
 
 “Aku membantu seseorang dan akhirnya memperburuk suasana hati Utano-san.” (Renji)
 
