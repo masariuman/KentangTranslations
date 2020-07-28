@@ -150,19 +150,19 @@ aku merasa agak sedih ketika aku memikirkannya juga. Aku bahkan tidak bisa menja
 
 "Bagaimanapun juga, aku harus bertemu dengannya cepat atau lambat."
 
-"Itu benar. Meskipun kalian berdua memiliki waktu yang salah, dia benar-benar ingin bertemu denganmu lagi, kau tahu? ”
+"iya. Meskipun kalian berdua memiliki timing yang tidak pas, dia benar-benar ingin bertemu denganmu lagi?"
 
-“……… ..bahwa, kedengarannya sangat menakutkan sendiri.”
+"……… ..kedengarannya sangat menakutkan."
 
-Ketika aku mengatakan itu, Kuuki tertawa. Karena aku menerima kemampuan paling sedikit dari hadiah kami, aku paling banyak diajari oleh O'brien-san. Dia pasti tertawa mengingat hal itu. Terkutuklah dia.
+Ketika aku mengatakan itu, Kuuki tertawa. Karena aku menerima kemampuan paling sedikit diantara kami, aku paling banyak diajari oleh O'brien-san. Dia pasti tertawa mengingat hal itu.
 
 "Tapi, hari ini mungkin sulit." (Kuuki)
 
 "Mengapa?"
 
-“Toh hari ini benar-benar sibuk. Pasti karena setan yang Souichi-kun bawa ke sini hari ini, kurasa. ”
+"Toh hari ini benar-benar sibuk. kurasa Pasti karena iblis yang Souichi-kun bawa ke sini hari ini.""
 
-Oh ya, ada juga itu. Saya melihat. Mengingat Utano-san sepertinya juga sibuk, aku menggaruk kepalaku. Dia pasti mencari saya. Meskipun dia memiliki mata yang menakutkan, dia adalah yang paling baik dari kita semua. Meskipun dia mungkin akan menguburku jika aku mengatakan itu ke wajahnya.
+Oh iya. begitu.... Mengingat Utano-san sepertinya juga sibuk, aku menggaruk kepalaku. Dia pasti mencariku. Meskipun dia memiliki mata yang menakutkan, dia adalah yang paling baik dari kami. Meskipun dia mungkin akan menguburku jika aku mengatakan itu langsung didepannya.
 
 Setelah berbicara dengan Kuuki, aku memutuskan untuk berjalan perlahan tanpa membiarkan anak-anak yang senang berbicara memperhatikanku. Tapi, tepat ketika aku akan meninggalkan pekarangan, Aya menemukanku.
 
