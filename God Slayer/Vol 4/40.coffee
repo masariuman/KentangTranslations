@@ -162,7 +162,7 @@ aku mengucapkan terima kasih kecil dan pelayan meninggalkan ruangan setelah memb
 
 "Yah, aku turut bersedih untukmu."
 
-Mengatakan itu dengan suara yang sepertinya menikmatinya, dia menuangkan teh ke dalam cangkir. Mencium aroma harum, aku baru saja akan memilih pot ketika Utano-san menuangkan secangkir untukku juga. Saat saya mengucapkan terima kasih, dia tersenyum kecil. Dia tampak dalam suasana hati yang baik. Saya juga merasa senang melihatnya seperti ini.
+dia Mengatakan itu dengan suara seperti menikmatinya dan dia menuangkan teh ke dalam cangkir. ketika Mencium aroma harum, aku baru saja akan memilih pot ketika Utano-san menuangkan secangkir untukku juga. Saat aku mengucapkan terima kasih, dia tersenyum kecil. Dia sepertinya dalam suasana hati yang baik. aku juga merasa senang melihatnya seperti ini.
 
 “Tapi tetap saja, dunia ini tidak nyaman namun nyaman di tempat-tempat aneh. Kembali ke dunia kita, kita harus membayar hanya untuk melihat pelayan. ”(Renji)
 
