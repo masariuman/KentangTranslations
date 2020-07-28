@@ -336,7 +336,7 @@ Ada apa dengan helaan nafas berat itu!
 
 "Entah bagaimana rasanya kamu membuat ini menjadi salahku tapi itu hanya imajinasiku kan?" (Renji)
 
-“Ya, tentu saja, kamu tidak melakukan kesalahan. Tidak ada apa-apa, oke? ”(Yuuko)
+"Ya, tentu saja, kamu tidak melakukan kesalahan. Tidak ada apa-apa, oke?"(Yuuko)
 
 [Apa yang terjadi? Yuuko?]
 
