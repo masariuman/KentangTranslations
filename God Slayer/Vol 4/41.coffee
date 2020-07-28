@@ -68,7 +68,7 @@ Dia ingin bertanya tetapi harus merasa malu untuk melakukannya. Reaksinya terasa
 
 "Uuu ……."
 
-[Persis itulah yang mengganggunya, bodoh!]
+[itulah yang mengganggunya, bodoh!]
 
 Ketika aku tertawa melihat Aya kehilangan kata-kata setelah apa yang dikatakan Ermenhilde, Ermenhilde menghela nafas padaku. Melihat pertukaran kami, Kuuki tersenyum masam juga. Aya akhirnya tenang dan ekspresinya menjadi lebih ringan setelah menarik nafas panjang. Saat itu, setelah suara ledakan rand diikuti oleh sorakan para prajurit. Menilai dari orang-orang di lapangan sekarang dan suara yang baru saja datang, itu pasti pedang iblis Masaki-chan. Itu pasti salah satu kemampuannya.
 
