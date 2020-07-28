@@ -66,7 +66,7 @@ Ketika aku terus berjalan, tiba-tiba aku ingat bahwa Souichi dan yang lainnya su
 
 [Oh iya benar.]
 
-Akhirnya mengingat itu, saya merasa jauh lebih santai setelah mengetahuinya. Meskipun aku bertanya-tanya apakah benar-benar ada kebutuhan bagiku untuk mengkhawatirkannya sebanyak itu. Itu hal yang kecil, tetapi mencari tahu sesuatu masih terasa memuaskan. Yah, fakta bahwa aku menaikkan suaraku dalam kegembiraan sedikit terlalu banyak hanya untuk membuat para penjaga menatapku aneh agak memalukan.
+Akhirnya aku mengingatnya, aku merasa jauh lebih santai setelah mengetahuinya. Meskipun aku penasaran apakah perlu bagiku untuk mengkhawatirkannya seperti itu. walaupun hal yang kecil, tetapi mencari tahu sesuatu masih terasa memuaskan. Yah, fakta bahwa aku menaikkan suaraku karena senang  sedikit hanya untuk membuat para penjaga menatapku aneh dan itu memalukan.
 
 Berbicara dengan Ermenhilde, saya akhirnya mencapai kamar Utano-san. Mengetuk pintu dua kali, balasan segera datang. Ketika saya membuka pintu, saya merasakan udara hangat yang berasal dari perapian yang menyala.
 
