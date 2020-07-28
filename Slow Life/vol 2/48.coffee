@@ -56,7 +56,7 @@ Tampaknya toko itu cukup sibuk.
 
 l"Karena kerusuhan di marsh selatan, obat-obatan untuk keadaan darurat ... seperti hemostatik laris manis. dan Juga, Pengawal membeli cukup banyak obat mabuk. aku juga menjual beberapa obat penyembuh racun."
 
-obat penyembuh racun yang aku jual di toko berasal dari permintaan yang aku ajukan kepada para petualang Downtown untuk bekerja sama untuk mengandung mantra di dalam ramuan yang saya buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu menambahkan hingga 13 Peryl.
+obat penyembuh racun yang aku jual di toko berasal dari permintaan yang aku ajukan kepada para petualang di pusat kota untuk bekerja sama untuk memasukkan mantra di dalam obat yang aku buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu memasukkan mantra hingga 13 Peryl.
 
 Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan sihir sehingga itu adalah permintaan yang populer.
 
