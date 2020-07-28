@@ -148,7 +148,7 @@ Masalahnya adalah aku sendiri. aku tidak bermaksud untuk lengah atau apa pun, te
 
 Itulah sebabnya ketika aku meminta Utano-san untuk menghadapi salah satu dari pahlawan di babak pertama, dia dengan cepat memberikan persetujuan. Sepertinya dia telah memikirkannya juga. Jadi aku kira itu akan menjadi satu koin perak untuk berpartisipasi. Dengan langkah ini, aku akan bebas dari hutang setelah menyelesaikan permintaan Utano-san 10 kali eh? ……… ..Aku ragu itu akan semudah itu.
 
-Saat itu, pintu diketuk lagi. Pelayan dari sebelumnya muncul. Aku bisa mencium aroma permen yang lembut. Dia dengan lembut meletakkan teko dan cangkir yang terlihat mahal di atas meja dan kemudian meletakkan piring yang diisi dengan permen yang dipanggang. Itu benar-benar terlihat enak.
+Saat itu, pintu diketuk lagi. Pelayan dari sebelumnya muncul. Aku bisa mencium aroma manis yang lembut. Dia dengan lembut meletakkan teko dan cangkir yang terlihat mahal di atas meja dan kemudian meletakkan piring yang diisi dengan roti yang dipanggang. Itu benar-benar terlihat enak.
 
 Saat aku mengucapkan terima kasih kecil, pelayan meninggalkan ruangan setelah membungkuk.
 
