@@ -88,9 +88,9 @@ Tapi tetap saja, itu tidak ada di sini sampai kemarin. Dan ukurannya hampir dua 
 
 "Ungu, eh?"
 
-Mengabaikan pertanyaanku, dia mengatakan itu. Ungu, maksudnya warna petir itu, kan? Melihatnya lagi, saya mendesaknya untuk menjelaskan.
+dia Mengabaikan pertanyaanku dan berkata seperti itu. Ungu, maksudnya warna petir itu, kan? aku Melihatnya lagi dan mendesaknya untuk menjelaskan.
 
-“Meja turnamen. Karena itu akan merepotkan, aku memutuskannya melalui warna energi magis. ”(Yuuko)
+"Meja turnamen. Karena itu akan merepotkan, aku memutuskannya melalui warna energi magis."(Yuuko)
 
 […… ..tournament table?]
 
