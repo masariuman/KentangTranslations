@@ -76,15 +76,11 @@ g"kita akan bekerja sedikit lembur. Bisakah aku menyerahkannya padamu?"
 
 l"Tentu! Tampaknya ada pelanggan yang biasanya tidak membeli obat dari kita, jadi inilah saatnya untuk memberi tahu mereka tentang obat berkualitas tinggi yang dijual di apotek Red & Lit's."
 
-aku penasaran  apakah mereka dapat dianggap berkualitas tinggi tetapi aku yakin bahwa tidak ada obat-obatan berkualitas tinggi.
+aku penasaran  apakah mereka dapat dianggap berkualitas tinggi tetapi aku yakin bahwa tidak ada obat-obatan berkualitas gagal.
 
-Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang melawan nilai obat yang dijual oleh toko-toko di mana obat-obatan dibuat menggunakan keterampilan Senyawa Menengah atau oleh pemilik toko yang memiliki Perlindungan Ilahi yang dapat menggunakan sihir, orang-orang yang menggunakan obat-obatan bukanlah mereka yang akan mencari barang-barang berkualitas tinggi.
-
- 
+Belum ada klaim dari pelanggan dan meskipun tidak ada kesempatan untuk menang melawan nilai obat yang dijual oleh toko-toko di mana obat-obatan dibuat menggunakan skill pemggabungan menengah atau oleh pemilik toko yang memiliki Perlindungan Ilahi yang dapat menggunakan magic, orang-orang yang menggunakan obat-obatan bukanlah mereka yang akan mencari barang-barang berkualitas tinggi.
 
 "Bisakah aku mendapatkan obat flu ini?"
-
- 
 
 Seorang gadis Half-Elf muda membayar 10 koin tembaga biasa dan bertanya dengan suara meriah.
 
