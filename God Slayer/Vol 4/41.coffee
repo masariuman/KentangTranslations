@@ -2,9 +2,9 @@ Bab 41 Berkumpul (3)
 
 utano-san Mengatakan bahwa dia memiliki pekerjaan yang harus dia dilakukan sekarang dan dia mengantarku keluar dari kamarnya. koridor terasa lebih dingin dari biasanya dan membuatku menggosok-gosokkan tangan.
 
-Aku teringat ekspresi Utano-san saat dia membawaku keluar dari kamarnya. Aku merasa tatapannya 3 kali lebih dingin dari biasanya. Apakah kasus Solnea membebani pikirannya? Hampir tidak ada banyak hal yang bisa membuat Utano-san khawatir.
+Aku teringat ekspresi Utano-san saat dia membawaku keluar dari kamarnya. Aku merasa tatapannya 3 kali lebih dingin dari biasanya. Apakah kasus Solnea membebani pikirannya? Hampir tidak ada banyak hal yang bisa membuat Utano-san khawatir sih.
 
-Menghela nafas, dan memikirkan beberapa cara untuk mengangkat suasana hatinya lagi, aku menuju tempat Pelatihan. Mungkin juga pergi dan bertemu Souichi dan yang lainnya juga. Saya harus menunjukkan wajah saya kepada O'brien-san juga. Karena dia sibuk dengan tugas-tugas Ksatria dan aku menghabiskan lebih banyak waktu di guild, kami entah bagaimana belum bertemu. Jika saya menunda lagi, saya merasa dia akan marah dan berteriak kepada saya.
+aku Menghela nafas, dan memikirkan beberapa cara untuk menaikkan suasana hatinya lagi, aku menuju tempat Pelatihan dan Mungkin bertemu Souichi dan yang lainnya juga. aku harus menunjukkan wajah saya kepada O'brien-san juga. Karena dia sibuk dengan tugas-tugas Ksatria dan aku menghabiskan lebih banyak waktu di guild, kami entah bagaimana belum bertemu. Jika saya menunda lagi, saya merasa dia akan marah dan berteriak kepada saya.
 
 Meskipun dia mencapai usia lima puluhan, dia masih aktif di lapangan. Aku bahkan tidak tahu apa yang akan terjadi ketika dia marah.
 
