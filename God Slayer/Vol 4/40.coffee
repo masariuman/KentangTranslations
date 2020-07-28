@@ -160,7 +160,7 @@ aku mengucapkan terima kasih kecil dan pelayan meninggalkan ruangan setelah memb
 
 "Dia tiba-tiba muncul dengan pakaian pelayan di guild. Benar-benar memalukan. "
 
-"Yah, Anda memiliki belasungkawa saya."
+"Yah, aku turut bersedih untukmu."
 
 Mengatakan itu dengan suara yang sepertinya menikmatinya, dia menuangkan teh ke dalam cangkir. Mencium aroma harum, aku baru saja akan memilih pot ketika Utano-san menuangkan secangkir untukku juga. Saat saya mengucapkan terima kasih, dia tersenyum kecil. Dia tampak dalam suasana hati yang baik. Saya juga merasa senang melihatnya seperti ini.
 
