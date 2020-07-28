@@ -130,11 +130,11 @@ utano-san Memesan beberapa minuman dan makanan ringan darinya dan Utano-san dudu
 
 aku tidak bisa merasa bahagia sama sekali. aku sadar berapa banyak orang yang bekerja keras hanya untuk memasuki turnamen ini tetapi ketika dia mengatakannya seperti itu, aku mengerti apa yang dia maksud dengan turnamen itu.
 
-Meskipun dewa iblis sudah mati, baru saja setahun setelah itu terjadi. seperti ada orang-orang yang memiliki harapan, ada juga yang terluka dan ada yang masih putus asa. Bagaimana aku harus mengatakan ini, tetapi orang-orang di dunia ini benar-benar membutuhkan sesuatu yang dapat mereka andalkan sekarang. Dan itu adalah Dewi Astraera dan para utusannya, 13 pahlawan. Itulah kita. Muncul di turnamen, dia pada dasarnya meminta kita untuk hadir dan menonjol bagi orang-orang. Melihat orang-orang yang menyelamatkan dunia, massa juga akan merasa lebih termotivasi. Atau semacam itu.
+Meskipun dewa iblis sudah mati, baru saja setahun setelah itu terjadi. seperti ada orang-orang yang memiliki harapan, ada juga yang terluka dan ada yang masih putus asa. Bagaimana aku harus mengatakan ini, tetapi orang-orang di dunia ini benar-benar membutuhkan sesuatu yang dapat mereka andalkan sekarang. Dan itu adalah Dewi Astraera dan para utusannya, 13 pahlawan. Itulah kita. Muncul di turnamen, pada dasarnya dia meminta kita untuk ikut dan menonjol untuk orang-orang. Melihat orang-orang yang menyelamatkan dunia, massa juga akan merasa lebih termotivasi. Atau semacam itu.
 
-Saya ragu itu akan berjalan dengan mudah tapi itu benar, mungkin ada efeknya.
+aku ragu itu akan berjalan dengan mudah tapi itu benar, mungkin ada efeknya.
 
-"Untuk saat ini, jika saya harus menghadapi seseorang di babak pertama ..." (renji)
+"Untuk saat ini, jika aku harus menghadapi seseorang di babak pertama ..." (renji)
 
 “Souichi-kun atau Masaki-chan, mana yang lebih cocok untukmu?” (Yuuko)
 
