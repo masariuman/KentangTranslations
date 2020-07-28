@@ -164,13 +164,13 @@ Ketika aku mengatakan itu, Kuuki tertawa. Karena aku menerima kemampuan paling s
 
 Oh iya. begitu.... Mengingat Utano-san sepertinya juga sibuk, aku menggaruk kepalaku. Dia pasti mencariku. Meskipun dia memiliki mata yang menakutkan, dia adalah yang paling baik dari kami. Meskipun dia mungkin akan menguburku jika aku mengatakan itu langsung didepannya.
 
-Setelah berbicara dengan Kuuki, aku memutuskan untuk berjalan perlahan tanpa membiarkan anak-anak yang senang berbicara memperhatikanku. Tapi, tepat ketika aku akan meninggalkan pekarangan, Aya menemukanku.
+Setelah berbicara dengan Kuuki, aku memutuskan untuk berjalan menjauh perlahan tanpa membuat anak-anak yang yang lagi senang menyadariku. Tapi, tepat ketika aku akan meninggalkan pekarangan, Aya datang padaku.
 
-"Aku akan pergi denganmu."
+"Aku akan pergi denganmu."(aya)
 
-“Ah, hm, tidak, aku akan pergi sendiri.” (Renji)
+"Ah, hm, tidak, aku akan pergi sendiri." (Renji)
 
-"...... Aku tidak diizinkan?"
+"...... Aku tidak boleh ikut?"
 
 "Tidak."
 
