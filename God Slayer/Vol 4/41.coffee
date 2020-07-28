@@ -132,7 +132,7 @@ Reaksiku pasti lucu karena Yayoi-chan tertawa elegan. Meskipun dia bukan wanita 
 
 "Kamu selalu mudah terprovokasi oleh Rin-chan …… aku jadi khawatir, yayoi." (Aya)
 
-“Maaf, Aya-chan.” (Yayoi)
+"Maaf, Aya-chan." (Yayoi)
 
 Aya-chan juga bergabung dengan percakapan kami. Dia tidak menunjukkan tanda-tanda takut, bahkan senyumnya hampir terasa seperti racun. Yah, dia pasti tahu bahwa Kudou sengaja mencoba mengacaukan mereka ketika dia berpegangan pada Souichi. Tetapi jika Anda tahu, mengapa Anda masih pergi bersamanya? Lagipula untuk akhirnya terpancing, kurasa 'cinta itu buta'.
 
