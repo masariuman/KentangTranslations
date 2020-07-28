@@ -290,9 +290,9 @@ Bahkan jika aku melarikan diri dari gelar Pahlawan, aku tidak ingin melarikan di
 
 "........ lagi, eh?"
 
-Saya bertanya-tanya apakah itu populer di kalangan iblis untuk memanggil saya seperti itu dengan nama lengkap saya saat ini. Saya merasa seperti Shelfa ....... Raja Iblis juga memanggil saya dengan nama lengkap saya. Mengabaikan tatapan penuh kebenciannya, aku mundur beberapa langkah. Dan seolah-olah menukar saya, O'brien-san dan para prajurit maju. Itu membuatku merasa mual hanya memikirkan apa yang akan terjadi selanjutnya, tetapi tetap saja, aku harus menghadapinya.
+aku penasaran apakah aku populer di kalangan iblis dan memanggilku seperti itu dengan nama lengkapku. aku rasa Shelfa ....... Raja Iblis juga memanggilku dengan nama lengkapku. aku Mengabaikan tatapan penuh kebenciannya. aku mundur beberapa langkah. Dan seolah-olah bertukar posisi denganku, O'brien-san dan para tentara maju. aku merasa mual hanya memikirkan apa yang akan terjadi selanjutnya, tetapi tetap saja, aku harus menghadapinya.
 
-"Seperti biasa, kamu dibenci oleh setan dengan hasrat, kan?"
+"Seperti biasa, kamu dibenci oleh iblis sepenuhnya, kan?"
 
 "Yah, aku memang membunuh Dewa mereka."
 
