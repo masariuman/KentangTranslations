@@ -194,9 +194,9 @@ Pikiran yang suram. aku akhirnya menelan semua teh di cangkir.
 
 "Ah, tidak ada apa-apa."
 
-Apakah dia sedang berpikir keras? Sementara aku terganggu, Utano-san tampaknya telah memikirkan sesuatu sambil mendukung dagunya yang indah di jari-jarinya. Ermenhilde bertanya padanya tetapi jawabannya sepertinya agak linglung.
+dia sedang berpikir keras? Utano-san tampaknya telah memikirkan sesuatu sambil menahan dagunya yang indah dengan jari-jarinya. Ermenhilde bertanya padanya tetapi jawabannya sepertinya agak linglung.
 
-Sambil menatapnya seperti itu, aku menyesap tehku lagi. Dan juga salah satu permen yang disimpan di sini. Itu menyerupai kue yang saya tahu. Meski sedikit lebih kecil. Saat saya memakannya, rasa manis yang samar-samar menyebar di mulut saya dan saya akhirnya memakan yang lain. Ini sangat enak.
+Sambil menatapnya seperti itu, aku menyesap tehku lagi. Dan juga salah satu roti yang ada di sini. Itu menyerupai kue yang aku tahu. Meski sedikit lebih kecil. Saat aku memakannya, rasa manis yang samar-samar menyebar di mulutku dan aku akhirnya memakan lagi. Ini sangat enak.
 
 Saat itu, aku tiba-tiba teringat apa yang dikatakan Kudou. Aku seharusnya melihat tempat latihan, kan?
 
