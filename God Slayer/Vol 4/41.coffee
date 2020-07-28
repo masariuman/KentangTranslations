@@ -174,7 +174,7 @@ Setelah berbicara dengan Kuuki, aku memutuskan untuk berjalan menjauh perlahan t
 
 "Tidak."
 
-Bahkan jika Anda melihat saya seperti itu, saya tidak bisa membawanya ke tempat yang akan saya tuju. Jika aku melakukannya, Utano-san benar-benar akan marah padaku. Aya tampaknya mengerti ke mana aku pergi juga karena dia tidak mendesak lebih jauh. Saya belum pernah menunjukkan tempat itu kepadanya tetapi dia harus samar-samar menyadari tujuan saya. Atau mungkin, dia tahu betul ke mana tepatnya aku pergi.
+Bahkan jika kamu melihatku seperti itu, aku tidak bisa membawanya ke tempat yang akan aku tuju. Jika aku melakukannya, Utano-san benar-benar akan marah padaku. Aya tampaknya mengerti ke mana aku pergi karena dia tidak mendesakku. aku belum pernah menunjukkan tempat itu kepadanya tetapi dia secara samar-samar menyadari tujuanku. Atau mungkin, dia tahu betul ke mana tepatnya aku pergi.
 
 Aya bukan anak kecil lagi. Souichi dan yang lainnya juga tidak. Waktunya tiba ketika Anda telah menunjukkan sisi gelap manusia tetapi untuk saat ini, saya ingin mereka dengan bahagia menghabiskan hidup mereka sebagai remaja. Itu mungkin hanya untuk kepuasan diri saya sendiri.
 
