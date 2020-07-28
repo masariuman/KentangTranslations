@@ -32,7 +32,7 @@ aku tersenyum pada Aya sebagai ucapan terima kasih karena mengkhawatirkanku. Aya
 
 aku mencoba berbicara dengan Kuuki tetapi dia membuat wajah tidak senang secara terang-terangan. Sialan, bajingan tak berperasaan ini.
 
-Dulu, dia sering mendengarkanku dengan senyum bahagia. Pasti begitu. Dia pasti merasa puas setelah berhubungan dengan sang putri. Saya kira itu juga pertumbuhan. Sangat iri. Sudah menikah saja. Kemudian, saya akan memberikan semua berkat (kutukan) saya kepada Anda.
+Dulu, dia sering mendengarkanku dengan senyum bahagia. Dia pasti merasa puas setelah menjadi pasangan sang putri. aku kira itu juga termasuk pertumbuhan. aku jadi iri. Sudahlah menikah saja. Kemudian, aku akan memberikan semua berkat (kutukan) ku kepadamu.
 
 “Aku membantu seseorang dan akhirnya memperburuk suasana hati Utano-san.” (Renji)
 
