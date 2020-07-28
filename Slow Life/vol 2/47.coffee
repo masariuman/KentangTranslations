@@ -138,29 +138,29 @@ memalukan untuk mengakui bahwa aku bahagia dan terlalu antusias karena Lit membu
 
 ☆☆
 
-"Sudah selesai ~"
+g"Sudah selesai ~"
 
-"Yay ~"
+l"Yay ~"
 
-Saya meletakkan rebusan di atas meja yang kami atur di ruang tamu.
+aku meletakkan rebusan di atas meja yang kami atur di ruang tamu.
 
-Setelah itu, saya meletakkan dudukan arang kecil menyala di atas meja.
+Setelah itu, aku meletakkan dudukan arang kecil menyala di atas meja.
 
 Api itu tidak terlalu kuat tetapi radiasi panas dari arang menyebabkan rebusan memancarkan suara menggelegak.
 
-"Mari makan."
+l"ayo makan."
 
-"Ya."
+g"Ya."
 
 Dia telah memakan sebagian besar ikan yang diasinkan sambil menunggu rebusan.
 
-Saya agak merasa bahwa dia makan sedikit terlalu banyak meskipun itu dimaksudkan untuk menjadi hidangan pembuka, tetapi sepertinya itu adalah kekhawatiran yang tidak perlu pada bagian saya ketika saya meletakkan rebusan di depannya.
+aku merasa dia makan sedikit terlalu banyak meskipun itu hidangan pembuka, tetapi sepertinya kekhawatiran itu tidak diperlukandan aku meletakkan rebusan di depannya.
 
-Kami memiliki percakapan yang menyenangkan saat kami memilih di rebusan.
+Kami berbincang-bincang menyenangkan saat kami memilih rebusan.
 
-"Pangsit ayam ini juga enak."
+l"Pangsit ayam ini juga enak."
 
-“Ya, aku akhirnya membelinya setelah tukang daging sangat merekomendasikannya untuk sisa jumlah koin tembaga umum yang aku punya, tapi itu pasti sesuai dengan rekomendasinya. Saya harus berterima kasih kepada tukang daging itu. "
+g"Ya, aku akhirnya membelinya karena tukang daging sangat merekomendasikannya untuk sisa jumlah koin tembaga yang aku punya, dan itu pas seharga koin tembaga yang kupunya. aku akan berterima kasih kepada tukang daging itu. "
 
 Setelah selesai makan, saya menambahkan pasta dan membiarkannya berkilau.
 
