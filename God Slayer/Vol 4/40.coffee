@@ -56,7 +56,7 @@ aku tidak bisa mengatakan bagaimana pikirannya bekerja. Faktanya itu tidak perna
 
 Yah, aku akan mengerti ketika aku sampai di kamar Utano-san. aku juga mulai berjalan. Tempat latihan, tempat latihan. Apa ada yang terjadi di sana? aku sibuk dengan pekerjaan petualangku sehingga aku tidak memiliki kesempatan untuk pergi ke barak dan berbicara dengan orang lain membuatku merasa sedikit menyesal.
 
-Ketika aku terus berjalan, tiba-tiba aku ingat bahwa Souichi dan yang lainnya sudah sampai di sini sekarang. Saya lupa karena insiden dengan Solnea tetapi jika saya ingat dengan benar, ia seharusnya tiba di sini siang hari.
+Ketika aku terus berjalan, tiba-tiba aku ingat bahwa Souichi dan yang lainnya sudah sampai di sini sekarang. aku lupa karena insiden dengan Solnea tetapi jika aku ingat dengan benar, ia seharusnya tiba di sini siang hari.
 
 "Apakah itu Souichi?"
 
