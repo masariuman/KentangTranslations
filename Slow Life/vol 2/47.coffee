@@ -152,6 +152,8 @@ l"ayo makan."
 
 g"Ya."
 
+<gambar> vol3 4.jpg
+
 Dia telah memakan sebagian besar ikan yang diasinkan sambil menunggu rebusan.
 
 aku merasa dia makan sedikit terlalu banyak meskipun itu hidangan pembuka, tetapi sepertinya kekhawatiran itu tidak diperlukandan aku meletakkan rebusan di depannya.
