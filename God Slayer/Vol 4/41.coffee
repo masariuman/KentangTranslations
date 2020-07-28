@@ -60,11 +60,11 @@ Tapi sekarang, Aya tidak menunjukkan senyumnya sebelumnya dan menatapku dengan w
 
 aku kira dia pasti penasaran dengan orang yang aku selamatkan.
 
-Dia ingin bertanya tetapi harus merasa malu untuk melakukannya. Reaksinya terasa sangat imut bahkan aku merasa buruk bagiku untuk terus menatapnya seperti ini dan tidak melakukan apa-apa.
+Dia ingin bertanya tetapi harus merasa malu untuk melakukannya. Reaksinya terasa sangat imut bahkan aku merasa buruk untuk terus menatapnya seperti ini dan tidak melakukan apa-apa.
 
 [Jangan terlalu menyusahkan Aya, Renji.]
 
-"Aku tidak berniat melakukannya. Saya akan menjawab selama dia bertanya dengan baik. ”(Renji)
+"Aku tidak berniat melakukannya. aku akan menjawab selama dia bertanya dengan baik."(Renji)
 
 "Uuu ……."
 
