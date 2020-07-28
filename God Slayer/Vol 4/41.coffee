@@ -210,7 +210,7 @@ Tempat yang aku tuju adalah ruang bawah tanah. Tempat itu dingin dan terasa sang
 
 [Jangan mengatakan hal-hal yang bahkan tidak kamu maksudkan ........ sangat menyakitkan diperlakukan seperti anak kecil lho...]
 
-Apakah kata-kata itu berasal dari pengalaman pribadi? Suara Ermenhilde tampak suram dan sedih. Saya tidak benar-benar bercanda tentang masuk angin. Ketika aku hanya mengangkat bahu, Ermenhilde menghela nafas.
+Apakah kata-kata itu berasal dari pengalaman pribadi? Suara Ermenhilde tampak suram dan sedih. aku tidak benar-benar bercanda tentang masuk angin. Ketika aku hanya mengangkat bahu, Ermenhilde menghela nafas.
 
 "Tapi, bagi orang dewasa, anak-anak akan selalu menjadi anak-anak."
 
