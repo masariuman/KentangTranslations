@@ -136,7 +136,7 @@ aku ragu itu akan berjalan dengan mudah tapi itu benar, mungkin ada efeknya.
 
 "Untuk saat ini, jika aku harus menghadapi seseorang di babak pertama ..." (renji)
 
-“Souichi-kun atau Masaki-chan, mana yang lebih cocok untukmu?” (Yuuko)
+"Souichi-kun atau Masaki-chan, mana yang lebih cocok untukmu?" (Yuuko)
 
 "Souichi, kurasa."
 
