@@ -114,7 +114,7 @@ aku duduk di kursi dekat meja. Tapi tetap saja, ini benar-benar kristal besar. a
 
 Fumu, begitu. aku meletakkan jariku di daguku. Seperti yang dia katakan, ada keuntungan untukku juga. dan dari semua itu, ada satu koin perak hanya untuk ikut saja. Meskipun mungkin bervariasi tergantung pada penjatahan tim, tapi aku ragu aku bisa memenangkan semuanya. Lagipula, aku tahu pasti bahwa Souichi, Aya dan Masaki-chan akan ikut. Aku benar-benar tidak bisa menang melawan 3 orang itu. Utano-san mungkin tidak akan ikut tetapi mungkin Kuuki akan ikut.
 
-Aku tidak mengerti apa yang dia pikirkan tentangku ketika aku merenungkan hal-hal seperti itu, Utano-san membunyikan bel yang ada di mejanya. Dalam pemberitahuan sesaat, pintu diketuk. Seorang pelayan muncul dari balik pintu dengan, tidak seperti Kudou, senyum menyegarkan di wajahnya. Seperti yang Anda harapkan, ini adalah tentang pembantu sejati. Ya.
+Aku tidak mengerti apa yang dia pikirkan tentangku ketika aku memikirkan hal-hal seperti itu, Utano-san membunyikan bel yang ada di mejanya. tidak lama setelah itu, pintu diketuk. Seorang pelayan muncul dari balik pintu dengan senyum menyegarkan diwajahnya yang tidak seperti Kudou tunjukkan. Seperti yang kamu harapkan, inilah pelayan sejati.
 
 Memesan beberapa minuman dan makanan ringan darinya, Utano-san duduk di kursi di seberangku di sisi lain meja.
 
