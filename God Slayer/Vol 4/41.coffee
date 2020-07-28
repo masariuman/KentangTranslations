@@ -128,9 +128,9 @@ dia mengangkat tangannya ke udara. Di sebelahnya, Masaki-chan membuat wajah meny
 
 Ketika dia membungkuk mengatakan itu, aku merasa agak malu. Tapi akulah yang pada akhirnya dilindungi. Tapi aku ragu untuk mengatakan itu juga, dan pada akhirnya aku hanya bisa menggaruk pipiku.
 
-Reaksiku pasti lucu ketika Yayoi-chan tertawa elegan. Meskipun dia bukan wanita bangsawan tinggi atau apa pun, Yayoi-chan selalu memancarkan keanggunan. Dia benar-benar Yamato Nadeshiko. Saya kira, itu tidak aneh bahwa seseorang seperti dia akan mendapatkan gelar [Saint] juga. Yah, semua itu langsung lenyap kalau menyangkut apa pun yang melibatkan Souichi.
+Reaksiku pasti lucu karena Yayoi-chan tertawa elegan. Meskipun dia bukan wanita bangsawan tinggi atau apa pun, Yayoi-chan selalu memancarkan keanggunan. Dia benar-benar Yamato Nadeshiko. tidak aneh bahwa seseorang seperti dia akan mendapatkan gelar [Saint]. Yah, semua itu langsung lenyap kalau menyangkut apa pun yang melibatkan Souichi.
 
-“Kamu selalu mudah terprovokasi oleh Rin-chan …… aku khawatir, yayoi.” (Aya)
+"Kamu selalu mudah terprovokasi oleh Rin-chan …… aku jadi khawatir, yayoi." (Aya)
 
 “Maaf, Aya-chan.” (Yayoi)
 
