@@ -58,9 +58,7 @@ l"Karena kerusuhan di marsh selatan, obat-obatan untuk keadaan darurat ... seper
 
 obat penyembuh racun yang aku jual di toko berasal dari permintaan yang aku ajukan kepada para petualang di pusat kota untuk bekerja sama untuk memasukkan mantra di dalam obat yang aku buat. Total jam yang dihabiskan untuk mengerjakannya ditambah upah paruh waktu memasukkan mantra hingga 13 Peryl.
 
-Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan sihir sehingga itu adalah permintaan yang populer.
-
- 
+Bagi para petualang yang masih muda, total jam kerjanya panjang tetapi itu adalah permintaan yang mudah di mana mereka bisa mendapatkan uang hanya dengan menggunakan magic sehingga itu adalah permintaan yang populer.
 
 "Ooo, itu luar biasa, bukankah ini rekor penjualan tinggi?"
 
