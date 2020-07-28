@@ -116,17 +116,17 @@ Fumu, begitu. aku meletakkan jariku di daguku. Seperti yang dia katakan, ada keu
 
 Aku tidak mengerti apa yang dia pikirkan tentangku ketika aku memikirkan hal-hal seperti itu, Utano-san membunyikan bel yang ada di mejanya. tidak lama setelah itu, pintu diketuk. Seorang pelayan muncul dari balik pintu dengan senyum menyegarkan diwajahnya yang tidak seperti Kudou tunjukkan. Seperti yang kamu harapkan, inilah pelayan sejati.
 
-Memesan beberapa minuman dan makanan ringan darinya, Utano-san duduk di kursi di seberangku di sisi lain meja.
+utano-san Memesan beberapa minuman dan makanan ringan darinya dan Utano-san duduk di kursi di seberangku di sisi lain meja.
 
-“Jadi Kudou bilang kamu punya urusan denganku?” (Renji)
+"Jadi Kudou bilang kamu punya urusan denganku?" (Renji)
 
-"Ini dia." (Yuuko)
+"Inilah dia." (Yuuko)
 
 [Berpartisipasi dalam turnamen, eh?]
 
-"Iya. Aku akan mengandalkanmu untuk menarik banyak orang, oke? ”(Yuuko)
+"Iya. Aku akan mengandalkanmu untuk menarik banyak orang, oke?"(Yuuko)
 
-"Bahkan jika kamu mengatakannya begitu lurus ………."
+"Bahkan jika kamu mengatakannya seperti itu ………."
 
 Saya tidak bisa merasa bahagia sama sekali. Saya sadar berapa banyak orang yang bekerja keras hanya untuk memasuki turnamen ini tetapi ketika dia mengatakannya seperti itu, saya mengerti apa yang dia maksud dengan turnamen itu.
 
