@@ -272,7 +272,7 @@ Aku merasa mulutku sedikit keram ketika dia berkata 'melarikan diri'. Yah dia be
 
 Tidak dapat menyangkal apa yang dia katakan, aku mengalihkan pandanganku dan melihat ke arah iblis yang terbaring di lantai. Ekspresinya terkejut sesaat, lalu dengan cepat berubah menjadi ekspresi penuh kebencian dan kemarahan.
 
-"Untuk satu, aku hanya seorang petualang sekarang dan kamu, O'brien-san, adalah komandan Ordo Kesatria setelah semua. Apakah kamu tidak memiliki status yang lebih tinggi dari saya? "(Renji)
+"Untuk satu hal, aku hanya seorang petualang sekarang dan kamu, O'brien-san, adalah komandan ksatria Ordo. bukankah kamu memiliki status yang lebih tinggi dariku? "(Renji)
 
 "Dibandingkan dengan seorang ksatria tua dengan pahlawan yang menyelamatkan dunia, itu kamu dengan status yang lebih tinggi, kamu bodoh." (Ob)
 
