@@ -92,9 +92,9 @@ dia Mengabaikan pertanyaanku dan berkata seperti itu. Ungu, maksudnya warna peti
 
 "Meja turnamen. Karena itu akan merepotkan, aku memutuskannya melalui warna energi magis."(Yuuko)
 
-[…… ..tournament table?]
+[…… . meja turnamen?]
 
-"Untuk turnamen seni bela diri tentu saja." (Yuuko)
+"tentu saja Untuk turnamen seni bela diri." (Yuuko)
 
 Aku hendak berdoa untuknya mendengar suaranya yang letih tetapi kemudian tiba-tiba berhenti. Tunggu, tunggu, tunggu sebentar.
 
