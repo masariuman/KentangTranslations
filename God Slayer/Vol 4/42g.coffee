@@ -156,7 +156,7 @@ merasa sedikit penasaran, aku mengambil medali yang diberikan kepadaku oleh Dewi
 
 (masariuman: ok flashbacknya sudah selesai..)
 
-"Puhahahaha — ini, ini sama sekali tidak cocok untukmu!"
+"Puhahahaha — ini, ini sama sekali tidak cocok untukmu!"(ana)
 
 "Apa yang kamu tertawakan begitu keras, dasar lalat!"(renji)
 
@@ -164,7 +164,7 @@ merasa sedikit penasaran, aku mengambil medali yang diberikan kepadaku oleh Dewi
 
 [………berisik.]
 
-Ketika saya mencoba menyisir rambut saya dengan gel, gadis yang berbaring di tempat tidurku mulai menertawakan saya. Apakah ini tidak cocok untuk saya? Meskipun saya hanya mengutuk di luar, di hati saya, saya menjadi khawatir. Jumlah hal yang dapat Anda gunakan untuk merawat diri sendiri di dunia ini dapat dihitung dengan tangan Anda. Saya agak sadar akan hal itu, tetapi pada akhirnya, itu hanya setengah dari pengetahuan. Daripada ini, akan lebih mudah untuk hanya mengenakan baju besi mewah seperti ketika saya bertemu Raja. Setidaknya, yang harus saya lakukan saat itu hanyalah mengenakannya.
+Ketika aku mencoba menyisir rambutku dengan minyak rambut, gadis yang berbaring di tempat tidurku mulai menertawakanku. Apakah ini tidak cocok untukku? Meskipun aku hanya mengejek di luar, di hatiku, aku menjadi khawatir. Jumlah hal yang dapat kamu gunakan untuk merawat diri sendiri di dunia ini dapat dihitung dengan tanganmu. aku sadar akan hal itu, tetapi pada akhirnya, itu hanya setengah dari pengetahuanku. Daripada ini, akan lebih mudah hanya mengenakan baju besi mewah seperti ketika aku bertemu Raja. Setidaknya, yang harus aku lakukan saat itu hanyalah mengenakannya.
 
 Gadis di tempat tidurku —— peri dengan fitur seperti boneka, Anastasia, sedang berguling sambil tertawa tidak memikirkan bahwa bajunya semakin kusut saat dia melakukan itu. Kadang-kadang, kain putih bisa terlihat di bawah gaun itu saat dia berguling-guling juga. Yang mengatakan, aku tidak sesat cabul untuk menginginkan boneka seperti makhluk kecil. Membayar tanpa menghiraukan, saya mulai mencoba memperbaiki rambut saya. Mengalami apa yang saya lihat di cermin, seharusnya tidak seburuk itu tetapi ditertawakan begitu banyak telah membuat saya gelisah. Saya kira itulah cara kerja pikiran manusia.
 
