@@ -240,11 +240,11 @@ Harem itu bagus. tapi itu hanya berlaku kalau aku bukanlah orang yang terkait/te
 
 [tidak mungkin. lagipula aku adalah partner Renji.]
 
-Tidak, tunggu. Meskipun kamu selalu merasa kesal ketika aku menyebutmu rekanku, mengapa mengatakannya dengan gembira hanya pada saat seperti itu?
+tunggu dulu. kamu selalu merasa kesal ketika aku memanggilmu rekanku. mengapa sekarang kamu mengatakannya dengan senang?
 
-Apakah saya satu-satunya yang merasa sangat rumit saat ini? Saya senang namun tidak bisa benar-benar merasa senang tentang hal itu. Ermenhilde tampaknya tidak memahami pikiran batinku. Jika saya memiliki cara untuk melihat ekspresinya, dia pasti membuat ekspresi kemenangan sekarang.
+Apakah aku satu-satunya yang merasa sangat bingung saat ini? aku senang namun tidak benar-benar merasa senang tentang hal itu. Ermenhilde tampaknya tidak memahami pikiran batinku. Jika aku bisa melihat ekspresinya, dia pasti membuat ekspresi kemenangan sekarang.
 
-"Berhenti bertarung, kalian berdua. Anda akan dimarahi oleh Yui-chan. "(Renji)
+"kalian berdua Berhentilah berkelahi. kamu akan dimarahi oleh Yui-chan. "(Renji)
 
 [Muu.]
 
