@@ -146,7 +146,7 @@ Saat aku melihat Souichi, dikelilingi oleh tentara, perasaan sedih muncul di dad
 
 ———- aku ingin menjadi pahlawan juga.
 
-Saat itu, merasa agak ingin tahu, saya mengambil medali yang diberikan kepada saya oleh Dewi. Medali emas. Kecuali permata yang tertanam, tidak ada yang terlalu aneh tentang itu. Dewi itu berkata bahwa itu adalah senjata untuk membunuh para dewa. Medali yang terlihat sederhana ini. Apakah saya harus membeli beberapa senjata hebat dengan menjual ini? Saya tidak bisa memahaminya sama sekali. Kemarin, bahkan Utano-san mengatakan kepada saya bahwa mungkin itu adalah kegagalan.
+merasa sedikit penasaran, aku mengambil medali yang diberikan kepadaku oleh Dewi. Medali emas. tertanam permata di dalamnya. tidak ada yang terlalu aneh tentang itu. Dewi itu berkata bahwa itu adalah senjata untuk membunuh para dewa. Medali yang terlihat sederhana ini. Apakah aku harus membeli beberapa senjata hebat dengan menjual ini? aku tidak bisa memahaminya sama sekali. Kemarin, bahkan Utano-san mengatakan kepadaku bahwa mungkin itu adalah benda yang gagal.
 
 .
 
@@ -154,11 +154,11 @@ Saat itu, merasa agak ingin tahu, saya mengambil medali yang diberikan kepada sa
 
 .
 
-(T / N: kembali ke sekarang)
+(masariuman: ok flashbacknya sudah selesai..)
 
 "Puhahahaha — ini, ini sama sekali tidak cocok untukmu!"
 
-"Apa yang kamu tertawakan begitu keras, kamu terbang!"
+"Apa yang kamu tertawakan begitu keras, dasar lalat!"
 
 "Siapa yang kau sebut lalat!?!"
 
