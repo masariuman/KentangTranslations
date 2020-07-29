@@ -232,13 +232,13 @@ Harem itu bagus. tapi itu hanya berlaku kalau aku bukanlah orang yang terkait/te
 
 "Yah, melelahkan untuk menghabiskan waktu bersamamu." (Renji)
 
-"sikapmu terlalu kasar sekarang."
+"sikapmu terlalu kasar sekarang."(ana)
 
-[Serius.]
+[haa~~.]
 
-"Kau tidak bernasib lebih baik daripada aku, wanita medali."
+"Kau tidak bernasib lebih baik daripada aku, wanita medali."(ana)
 
-[Mana ada. Lagipula aku adalah partner Renji.]
+[tidak mungkin. lagipula aku adalah partner Renji.]
 
 Tidak, tunggu. Meskipun kamu selalu merasa kesal ketika aku menyebutmu rekanku, mengapa mengatakannya dengan gembira hanya pada saat seperti itu?
 
