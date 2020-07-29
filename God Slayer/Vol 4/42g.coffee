@@ -362,9 +362,9 @@ Aya terasa lebih tinggi hari ini daripada biasanya, mungkin karena sepatu hak ti
 
 Sambil melihat wajah bahagia Aya, tanpa kusadari aku mulai melihat rambutnya yang berayun. 18 tahun. Tepat antara seorang gadis dan seorang wanita dewasa. Dia benar-benar sudah tumbuh, atau lebih tepatnya, telah menjadi sangat cantik. Aku bpenasaran apakah seperti inilah rasanya seorang ayah melihat putrinya tumbuh dewasa. aku mengubah suasana hatiku sambil memikirkan hal-hal bodoh seperti itu.
 
-"Mungkin kita harus menyewa kereta atau sesuatu." (Renji)
+"Mungkin kita harus menyewa kuda  atau semacamnya." (Renji)
 
-"Jangan khawatir tentang itu. Juga, apakah Anda bahkan memiliki kelebihan uang sebanyak itu pada Anda? "(Aya)
+"Jangan khawatir tentang itu. memangnya kamu punya uang sebanyak itu? "(Aya)
 
 "Muu."
 
