@@ -306,9 +306,9 @@ KNIGHT berjalan di belakang Yui-chan seperti bayangan yang menjaga jarak.
 
 aku mengabaikannya dan terus mencoba pakaian lain. sudah kuduga semuanya kekecilan ……… tapi aku masih bisa memakainya. yang satu ini mungkin bisa kupakai....
 
-Yui-chan diam-diam mencela Anastasia dan Anastasia terus meminta bantuan. KNIGHT tetap diam seperti biasa dan hanya berdiri di belakang Yui-chan menunjukkan bahwa dia jelas berada di pihak Yui-chan. Ermenhilde dan Anastasia sendiri membuat ruangan terasa sangat hidup, tapi sekarang terasa lebih saat aku tersenyum masam. Saya kira pepatah yang menjadi bising setiap kali wanita berkumpul juga tidak salah.
+Yui-chan diam-diam mencela Anastasia dan Anastasia terus meminta bantuan. KNIGHT tetap diam seperti biasa dan hanya berdiri di belakang Yui-chan menunjukkan bahwa dia jelas berada di pihak Yui-chan. Ermenhilde dan Anastasia saja sudah membuat ruangan terasa sangat hidup, tapi sekarang terasa lebih lagi jadi aku tersenyum kecut. mungkin pepatah yang mengatakan semuanya akan menjadi berisik ketika wanita berkumpul tidaklah salah.
 
-"Katakan, Yui-chan, cari di sini sebentar, mana yang menurutmu lebih cocok untukku?" (Renji)
+"Yui-chan, lihat ke sini sebentar, mana yang menurutmu lebih cocok untukku?" (Renji)
 
 Mengumpulkan pakaian yang bisa saya pakai, saya meminta pendapat Yui-chan. Setelah dibebaskan dari pandangan Yui-chan, Anastasia juga menghela nafas lega. Kenapa dia begitu lemah hanya untuk Yui-chan? Ya, saya kira siapa pun akan merasa bersalah dimarahi oleh seorang anak.
 
