@@ -296,13 +296,13 @@ sungguh perkataan yang kejam yang dikatakan sikecil ini. Hanya penampilannya saj
 
 Anastasia berteriak pada saat yang sama ketika KNIGHT menutup pintu di belakangnya. Yui-cahn, dengan ekspresi sedih, datang mendekati Anastasia yang melayang di dekat tempat tidur.
 
-Bagaimana saya harus mengatakan ini, meskipun saya adalah orang yang menghasut ini, bahkan saya merasa sedikit tidak enak sekarang. Melihat Yui-chan seperti itu, Anastasia kehilangan ekspresi percaya diri yang dia miliki ketika berbicara dengan saya dan ermenhilde dan sedang melihat sekeliling dengan gugup. Terkadang dia menatapku, tetapi aku tidak bisa membantunya. Menyerah saja.
+Bagaimana ya... meskipun aku adalah orang yang mengatakan ini, bahkan akupun merasa sedikit tidak enak sekarang. Melihat Yui-chan seperti itu, Anastasia kehilangan ekspresi percaya diri yang dia miliki ketika berbicara denganku dan ermenhilde dan sedang melihat sekelilingnya dengan gugup. Terkadang dia menatapku, tetapi aku tidak bisa membantunya. Menyerah sajalah.
 
-Dan saat KNIGHT berjalan di belakang Yui-chan seperti bayangan yang menjaga jarak yang sama persis, itu tampak sangat nyata.
+KNIGHT berjalan di belakang Yui-chan seperti bayangan yang menjaga jarak.
 
-“…… .Ana?” (Yui)
+"…… .Ana?" (Yui)
 
-“Itu, bukan seperti itu …… bukan pertarungan. Itu bukan perkelahian, kan Renji? Bukan, kan !? ”
+"Itu, bukan seperti itu …… bukan bertengkar. Itu bukan pertengkaran, kan Renji? Bukan, kan !?"(ana)
 
 Mengabaikan permohonannya untuk bantuan, aku terus mencoba pakaian lain. Seperti yang diharapkan mereka semua terlihat agak kecil ……… tapi tidak seperti aku tidak bisa memakainya sama sekali. Yang ini seharusnya bekerja dengan baik, saya pikir?
 
