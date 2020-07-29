@@ -78,9 +78,9 @@ Saat aku menjawab itu, Souichi mendekat dan menatapku dengan wajah khawatir.
 
 "Tidak, kamu tidak harus meminta maaf..."
 
-Souichi, yang kecil dan berwajah anak-anak, lebih mirip seorang gadis. Mungkin karena saudara perempuannya, Yayoi-chan, lebih dewasa, keduanya tampak seperti kembar. Jika saya mengatakan itu, dia akan mulai merajuk tetapi, oh well. Entah bagaimana, saya tidak bisa menahan diri untuk tidak menggodanya. Juga, cara dia bertindak juga ……….
+Souichi, kecil dan berwajah anak-anak serta lebih mirip seorang gadis. Mungkin karena saudara perempuannya, Yayoi-chan, lebih dewasa, keduanya tampak seperti kembar. Jika aku mengatakan itu, dia akan mulai merajuk tetapi, yaaaah. Entah bagaimana, aku tidak bisa menahan diri untuk tidak mengganggunya. dan cara dia bertindak juga ……….
 
-Misalnya, saat ini, ketika saya meminta maaf, dia memberikan ekspresi malu. Benar-benar mengacaukan pikiranku. Setelah tersesat di depannya, aku berdiri kembali.
+Misalnya, saat ini, ketika aku meminta maaf, dia memberikan ekspresi malu. Benar-benar mengacaukan pikiranku. akupun berdiri kembali.
 
 Setelah saya berdiri, selanjutnya para prajurit mendatangi saya satu per satu untuk menghargai upaya saya. Untuk beberapa alasan, daripada terhadap Souichi dan yang lainnya yang memiliki kekuatan gila, para prajurit ini tampaknya telah menciptakan ketertarikan terhadap saya yang dipukuli oleh O'brien-san. Aneh sekali. Yah, kurasa lebih baik daripada mereka yang tidak menyukaiku. Jika mereka mengatakan sesuatu seperti saya menjadi sangat lemah meskipun saya seharusnya dipanggil untuk menyelamatkan dunia, saya mungkin tidak akan pulih dari kerusakan.
 
