@@ -264,7 +264,7 @@ Aku menghela nafas melihat mereka berdua terdiam hanya dengan menyebutkan nama Y
 
 Serius, apa-apaan ini. Sambil mengobrol dengan Anastasia yang sudah melupakan amarahnya sebelumnya, aku membuka lemari kayu untuk memilih beberapa pakaian. lemari ini Tampaknya terbuat dari kayu berkualitas karena kelihatannya sangat kokoh namun sebenarnya cukup ringan. tidak perlu bersusah payah untuk membuka kedua pintunya. setelah Mengambil beberapa set pakaian, aku menutupnya kembali.
 
-Malam ini kami menuju restoran Toudou, tempat yang tersembunyi namun sangat populer. kamu akan berpikir itu tidak masalah mengingat salah satu dari 13 pahlawan memiliki tempat tetapi karena lokasinya yang khusus, itu biasanya tidak populer. Bagaimanapun, itu terletak di salah satu lorong belakang dengan struktur rumit.
+Malam ini kami menuju restoran Toudou, tempat yang tersembunyi namun sangat populer. kamu akan berpikir itu tidak masalah mengingat salah satu dari 13 pahlawan pemilik tempat itu tetapi karena lokasinya yang khusus, itu biasanya tidak populer. tempat itu terletak di pelosok dengan struktur yang rumit.
 
 Selain itu, dia bahkan tidak mencoba mengiklankan tempat itu sekali pun. Jujur, bahkan Utano-san mengatakan bahwa dia tampaknya tidak benar-benar tertarik untuk melakukannya sebagai bisnis yang sebenarnya. Ngomong-ngomong, aku juga tidak bisa menemukan tempat itu dan harus meminta Utano-san untuk menunjukkan kepadaku lokasi di peta ibukota. Itu seberapa baik tersembunyi itu.
 
