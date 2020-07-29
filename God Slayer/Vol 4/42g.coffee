@@ -138,13 +138,13 @@ Fuyou-san sendiri saat ini sedang berbicara dengan Souichi dan Hiyuu-san yang ju
 
 dia berjalan menuju Souichi juga. Brave sungguh menakjubkan. Meskipun aku sendirian, dia dikelilingi oleh 3 wanita cantik. Salah satunya adalah saudara perempuannya.
 
-Sambil menatap langit, aku menghela nafas. Saya butuh senjata. Senjata untuk membunuh dewa. Sehingga saya tidak menjadi beban. Bahkan jika aku tidak dapat sepenuhnya melindungi mereka, setidaknya aku ingin bertarung bersama anak-anak.
+Sambil menatap langit, aku menghela nafas. aku butuh senjata. Senjata untuk membunuh dewa. Sehingga aku tidak menjadi beban. Bahkan jika aku tidak dapat sepenuhnya melindungi mereka, setidaknya aku ingin bertarung bersama anak-anak.
 
-Oh, Dewi. Anda masih belum memenuhi keinginan saya.
+Oh, Dewi. kami masih belum memenuhi keinginanku.
 
-Saat aku melihat Souichi, dikelilingi oleh tentara, perasaan sedih berlama-lama di dadaku. Sambil menggelengkan kepala, aku menghela napas dalam-dalam, dan melepaskan pikiran itu dengan senyum masam.
+Saat aku melihat Souichi, dikelilingi oleh tentara, perasaan sedih muncul di dadaku. Sambil menggelengkan kepala, aku menghela napas dalam-dalam, dan membuang pikiran itu dengan senyum masam.
 
-———- Saya ingin menjadi pahlawan juga.
+———- aku ingin menjadi pahlawan juga.
 
 Saat itu, merasa agak ingin tahu, saya mengambil medali yang diberikan kepada saya oleh Dewi. Medali emas. Kecuali permata yang tertanam, tidak ada yang terlalu aneh tentang itu. Dewi itu berkata bahwa itu adalah senjata untuk membunuh para dewa. Medali yang terlihat sederhana ini. Apakah saya harus membeli beberapa senjata hebat dengan menjual ini? Saya tidak bisa memahaminya sama sekali. Kemarin, bahkan Utano-san mengatakan kepada saya bahwa mungkin itu adalah kegagalan.
 
