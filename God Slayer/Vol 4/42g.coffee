@@ -244,19 +244,19 @@ tunggu dulu. kamu selalu merasa kesal ketika aku memanggilmu rekanku. mengapa se
 
 Apakah aku satu-satunya yang merasa sangat bingung saat ini? aku senang namun tidak benar-benar merasa senang tentang hal itu. Ermenhilde tampaknya tidak memahami pikiran batinku. Jika aku bisa melihat ekspresinya, dia pasti membuat ekspresi kemenangan sekarang.
 
-"kalian berdua Berhentilah berkelahi. kamu akan dimarahi oleh Yui-chan. "(Renji)
+"kalian berdua Berhentilah berkelahi. kamu akan dimarahi oleh Yui-chan."(Renji)
 
 [Muu.]
 
-"Ugh .."
+"Ugh .."(ana)
 
-Aku menghela nafas melihat mereka berdua diam hanya dengan menyebutkan nama Yui-chan. Sungguh menakjubkan bagaimana mereka tidak bisa menang melawan seorang anak. Mereka tahu bahwa Yui-chan akan sedih jika mereka bertarung; keduanya benar-benar jujur ​​dalam hati. Yah, aku tidak berbeda.
+Aku menghela nafas melihat mereka berdua terdiam hanya dengan menyebutkan nama Yui-chan. Sungguh menakjubkan bagaimana mereka tidak bisa menang melawan seorang bocah. Mereka tahu bahwa Yui-chan akan sedih jika mereka berkelahi; keduanya benar-benar jujur dalam hatinya sendiri. Yah, aku juga sama.
 
-"Tidak adil menggunakan nama Yui, Renji."
+"Tidak adil menggunakan nama Yui, Renji."(ana)
 
 [Ya itu benar. Tidak adil.]
 
-"Mengapa kamu bergaul sekarang tiba-tiba?" (Renji)
+"Mengapa kalian tiba-tiba kompak sekarang?" (Renji)
 
 "Kita tidak! Benar, wanita medali? ”
 
