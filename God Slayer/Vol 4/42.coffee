@@ -30,9 +30,9 @@ Tubuhku sakit sekali, dan aku sangat lelah tetapi aku masih berterima kasih kepa
 
 ujung pedangnya bergoyang-goyang seolah-olah mengejekku. Apakah dia akan berlari ke arahku, atau akankah dia mencoba menekanku secara mental. Aku penasaran apakah reaksiku yang ragu-ragu itu lucu karena O'brien-san tertawa sebentar.
 
-Karena ujung pedangnya menghalangi, aku tidak bisa mendekatinya dan setiap kali dia mengambil langkah maju aku akhirnya mengambil satu kembali. Saya tahu ini akan berakhir dengan saya dipukuli lagi jika terus seperti ini tetapi tubuh saya tidak bergerak. Bahkan jika itu hanya pedang tumpul untuk latihan, masih sakit ketika aku tertabrak, dan di atas itu, ada ketakutan bahwa dengan kekuatan O'brien-san, dia bisa memotongku, daging dan tulang, bahkan dengan ini.
+Karena ujung pedangnya menghalangiku, aku tidak bisa mendekatinya dan setiap kali dia mengambil langkah maju aku akhirnya mundur satu langkah. aku tahu ini akan berakhir dengan aku dikalahkan lagi jika terus seperti ini tetapi tubuhku tidak bisa bergerak. walaupun itu hanya pedang tumpul untuk latihan, aku masih merasakan sakit. dan lagi, aku takut kalau kekuatan O'brien-san bisa memotongku, daging dan tulang, bahkan dengan pedang tumpul ini.
 
-"Yamada-san, lakukan yang terbaik !!"
+"Yamada-san, lakukanlah yang terbaik !!"
 
 "Komandan, tunjukkan sisi kerenmu sekali lagi!"
 
