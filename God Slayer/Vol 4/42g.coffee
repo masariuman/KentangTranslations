@@ -64,9 +64,9 @@ Tapi, aku telah memprediksi serangan itu. aku Berbalik menuju titik butaku yaitu
 
 pada saat itu itu, aku benar-benar merasakan tekanan yang datang dari O'brien-san meningkat. Tubuhnya, seluruh kehadirannya, terasa seperti membesar. Aku hanya bisa melihat ketika kesatria tua itu mengangkat pedangnya yang panjang. kemudian, tubuhku bergerak lebih cepat daripada pikiranku dan aku entah bagaimana menangkis serangan itu dengan pedangku. terpelanting karena benturan, aku berguling di tanah.
 
-Bahkan tidak dapat memahami bagaimana nafasku tercekik, aku hanya menatap langit sambil berbaring di tanah. Aku tidak bisa merasakan pedang di tanganku lagi. Tanganku benar-benar mati rasa. Semua sendi tubuh saya, dan tenggorokan saya karena terlalu banyak bernapas, sangat sakit.
+aku tidak dapat memahami bagaimana nafasku semakin tidak teratur, aku hanya menatap langit sambil berbaring di tanah. Aku tidak bisa merasakan pedang di tanganku lagi. Tanganku benar-benar mati rasa. Semua sendi tubuhku, dan tenggorokanku, karena terlalu banyak bernapas, terasa sangat sakit.
 
-“Mari kita akhiri di sini hari ini. Setelah makan malam, datanglah ke perpustakaan. ”(Ob)
+"ayo kita akhiri di sini hari ini. Setelah makan malam, datanglah ke perpustakaan."(Ob)
 
 "Iya."
 
@@ -76,7 +76,7 @@ Saat aku menjawab itu, Souichi mendekat dan menatapku dengan wajah khawatir.
 
 "Hm ........ yaah .. maaf tentang itu."
 
-"Tidak, kamu tidak harus ..."
+"Tidak, kamu tidak harus meminta maaf..."
 
 Souichi, yang kecil dan berwajah anak-anak, lebih mirip seorang gadis. Mungkin karena saudara perempuannya, Yayoi-chan, lebih dewasa, keduanya tampak seperti kembar. Jika saya mengatakan itu, dia akan mulai merajuk tetapi, oh well. Entah bagaimana, saya tidak bisa menahan diri untuk tidak menggodanya. Juga, cara dia bertindak juga ……….
 
