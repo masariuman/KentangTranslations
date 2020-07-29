@@ -370,15 +370,15 @@ Sambil melihat wajah bahagia Aya, tanpa kusadari aku mulai melihat rambutnya yan
 
 "Lagi pula, bukankah lebih menyenangkan berjalan dan berbicara seperti ini?"
 
-Diberitahu sebanyak itu, saya tidak punya cara untuk membantahnya. Saya juga berpikir bahwa tidak buruk untuk mengobrol sambil berjalan seperti ini. Ketika kami melewati berbagai jalan kecil, kami akhirnya mencapai toko item tengara yang telah diberitahu. Gang berbelok ke dalam dari sini adalah tempat restoran Toudou berada. Aya juga tahu tempat itu ketika dia dengan ringan menarik lengan bajuku untuk memberi tahu ke mana kami harus pergi.
+aku tidak bisa membantahnya. aku juga berpikir bahwa tidak buruk juga untuk mengobrol sambil berjalan seperti ini. kami melewati berbagai jalan kecil dan akhirnya mencapai toko yang telah diberitahu. didalam gang ini adalah tempat restoran Toudou. Aya juga tahu tempat itu karena dia dengan menarik lengan bajuku untuk memberi tahu ke mana kami harus pergi.
 
-Itu sedikit menggelitik. Aku dengan cepat menyembunyikan senyumku dengan tanganku yang lain ketika kami memasuki gang. Tampaknya cukup bersih untuk gang belakang dan tidak benar-benar terasa kotor. Tapi seperti yang diharapkan, ada jauh lebih sedikit pejalan kaki. Harapkan bagi kami, hanya beberapa pasangan lagi yang sepertinya berjalan di sini.
+Itu sedikit geli. Aku dengan cepat menyembunyikan senyumku dengan tanganku yang lain ketika kami memasuki gang. Tampaknya cukup bersih untuk gang pelosok dan tidak benar-benar terasa kotor. hanya ada sedikit pejalan kaki. hanya beberapa pasangan sepertinya berjalan di sini.
 
-"Seperti yang diharapkan, benar-benar tidak ada banyak orang di sini, kan?" (Renji)
+"Sudah kuduga, benar-benar tidak ada banyak orang di sini, kan?" (Renji)
 
-"Benar. Fakta bahwa bahkan restoran Toudou-san menjadi populer hanya menunjukkan betapa menakjubkannya dia dalam memasak. ”
+"Benar. Fakta bahwa bahkan restoran Toudou-san menjadi populer menunjukkan betapa menakjubkannya dia dalam memasak."
 
-"ya. Karena itu, mengapa dia membuka restorannya di tempat seperti itu? ”
+"ya. Karena itulah, mengapa dia membuka restorannya di tempat seperti itu?"
 
 Mengingat itu dia yang sedang kita bicarakan, alasannya akan seperti, dia hanya ingin seseorang menikmati makanannya. Jumlah pelanggan semakin sedikit semakin baik.
 
