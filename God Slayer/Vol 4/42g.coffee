@@ -304,7 +304,7 @@ KNIGHT berjalan di belakang Yui-chan seperti bayangan yang menjaga jarak.
 
 "Itu, bukan seperti itu …… bukan bertengkar. Itu bukan pertengkaran, kan Renji? Bukan, kan !?"(ana)
 
-aku mengabaikannya dan terus mencoba pakaian lain. Seperti yang diharapkan mereka semua terlihat agak kecil ……… tapi tidak seperti aku tidak bisa memakainya sama sekali. Yang ini seharusnya bekerja dengan baik, saya pikir?
+aku mengabaikannya dan terus mencoba pakaian lain. sudah kuduga semuanya kekecilan ……… tapi aku masih bisa memakainya. yang satu ini mungkin bisa kupakai....
 
 Yui-chan diam-diam mencela Anastasia dan Anastasia terus meminta bantuan. KNIGHT tetap diam seperti biasa dan hanya berdiri di belakang Yui-chan menunjukkan bahwa dia jelas berada di pihak Yui-chan. Ermenhilde dan Anastasia sendiri membuat ruangan terasa sangat hidup, tapi sekarang terasa lebih saat aku tersenyum masam. Saya kira pepatah yang menjadi bising setiap kali wanita berkumpul juga tidak salah.
 
