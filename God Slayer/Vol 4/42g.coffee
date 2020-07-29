@@ -380,21 +380,21 @@ Itu sedikit geli. Aku dengan cepat menyembunyikan senyumku dengan tanganku yang 
 
 "ya. Karena itulah, mengapa dia membuka restorannya di tempat seperti itu?"
 
-Mengingat itu dia yang sedang kita bicarakan, alasannya akan seperti, dia hanya ingin seseorang menikmati makanannya. Jumlah pelanggan semakin sedikit semakin baik.
+Mengingat dialah yang sedang kita bicarakan, alasannya akan seperti, dia hanya ingin seseorang menikmati makanannya. Jumlah pelanggan semakin sedikit semakin baik.
 
-Toudou Hiiragi. Salah satu rekan kami, dan seorang juru masak. Orang aneh yang meminta keterampilan yang berhubungan dengan memasak bahkan setelah datang ke dunia fantasi. Seorang mantan NEET (shut-in), dan mengisap interaksi sosial. Tidak bisa berkomunikasi dengan baik, dan menyimpan pikirannya sendiri. Tapi tetap saja, dia berusaha keras untuk berjalan bersama kami, dan bepergian bersama kami semua.
+Toudou Hiiragi. Salah satu rekan kami, dan seorang juru masak. Orang aneh yang meminta skill yang berhubungan dengan memasak bahkan setelah datang ke dunia fantasi. Seorang mantan NEET, dan buruk dalam interaksi sosial. Tidak bisa berkomunikasi dengan baik, dan menyimpan pikirannya sendiri. Tapi tetap saja, dia berusaha keras untuk bersama kami, dan bepergian bersama kami semua.
 
-Ketika saya mengingat penampilannya dari setahun yang lalu, kami akhirnya melihat tujuan kami.
+kami akhirnya melihat tujuan kami.
 
 "Akhirnya….."
 
-“Hah?” (Aya)
+"Hah?" (Aya)
 
-"Saya mencari tempat itu berkali-kali setelah datang ke ibukota tetapi tidak pernah menemukannya."
+"aku mencari tempat ini berkali-kali setelah datang ke ibukota tetapi tidak pernah menemukannya."
 
-Juga, ada masalah utangku pada Utano-san jadi aku lebih memprioritaskan upaya untuk mendapatkan uang daripada mencari tempat tinggal Toudou juga.
+dan Juga ada masalah tentang utangku pada Utano-san jadi aku lebih memprioritaskan upaya untuk mendapatkan uang daripada mencari tempat tinggal Toudou.
 
-Sambil memikirkan itu, melihat ke tempat itu. Penampilan luarnya pada dasarnya adalah sebuah bangunan batu di atas bingkai kayu. Tampaknya dibangun dengan cukup baik. Bahkan bagian-bagian yang konon rusak ketika ia membeli tempat itu telah diperkuat dengan benar. Ketika saya mencoba menyentuh, saya merasakan sesuatu yang tidak ada di dunia ini. Apakah ini nyata?
+aku melihat ke tempat itu. Penampilan luarnya pada dasarnya adalah sebuah bangunan batu di atas bingkai kayu. Tampaknya dibangun dengan cukup baik. Bahkan bagian-bagian yang konon rusak ketika ia membeli tempat itu telah diperkuat dengan benar. Ketika saya mencoba menyentuh, saya merasakan sesuatu yang tidak ada di dunia ini. Apakah ini nyata?
 
 Ketika saya melihat Aya, dia tersenyum samar. Pasti Kudou yang menyiapkan ini. Saya tidak tahu bagaimana dia menyiapkan hal-hal seperti semen dll tapi kemampuannya adalah [pembuatan barang]. Dia pasti berhasil dengan itu. Nah, ada suatu waktu di mana dia membuat bom dari batu yang tergeletak di jalan selama perjalanan kami, jadi saya tidak benar-benar terkejut dengan apa yang dia lakukan. Saya hanya bisa mengatakan 'oh, keren.' Itu dia.
 
