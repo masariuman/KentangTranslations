@@ -168,21 +168,21 @@ Ketika aku mencoba menyisir rambutku dengan minyak rambut, gadis yang berbaring 
 
 Gadis di tempat tidurku —— peri dengan fitur seperti boneka, Anastasia, sedang berguling sambil tertawa dan tidak memikirkan bahwa bajunya semakin kusut saat dia melakukan itu. Kadang-kadang, kain putih terlihat juga di balik gaun itu saat dia berguling-guling. aku bukanlah orang mesum yang bernafsu pada boneka seperti makhluk kecil. tanpa menghiraukan, aku mulai mencoba memperbaiki rambutku. aku melihat ke cermin dan seharusnya tidak seburuk itu tetapi terlalu ditertawakan membuatku gelisah. aku kira itulah cara kerja pikiran manusia.
 
-Ketika saya mengenakan kemeja rapi dan mengatur dasi hitam, saya merasa seperti seorang pegawai yang bekerja di beberapa perusahaan. Mengingat masa lalu, saya merasa sedikit nostalgia tetapi sungguh, ini tidak cocok untuk saya. Tidak seperti Anastasia, tapi aku juga tertawa pendek. Itu mungkin karena setelah datang ke dunia ini, saya telah menghabiskan sebagian besar waktu dalam bepergian pakaian.
+Ketika aku mengenakan kemeja rapi dan memasang dasi hitam, aku merasa seperti seorang pegawai yang bekerja di sebuah perusahaan. aku merasa sedikit nostalgia tetapi sungguh ini tidak cocok untukku. aku tertawa kecil. mungkin karena setelah datang ke dunia ini, aku telah menghabiskan sebagian besar waktu menggunakan pakaian berkelana.
 
 "Ermenhilde, bagaimana menurutmu?"
 
-[Yah, tidak apa-apa kurasa? Masalahnya adalah pakaian. Apakah Anda memiliki yang tersisa?]
+[Yah, kurasa bagus-bagus saja? Masalahnya adalah pakaiannya. punya baju lain?]
 
-“Dari apa yang kulihat, ya. Meski begitu, aku tidak yakin apakah mereka akan cocok denganku lagi …… ”
+"Dari yang kulihat, yeah. aku tidak yakin apakah mereka akan muat denganku lagi …… "
 
-Karena kamarku sama dengan setahun yang lalu, pakaian yang disiapkan untukku dan penataan perabot, semuanya tetap sama. Di antara itu, ada banyak pakaian kelas atas yang terbuat dari kain berkualitas juga. Tetapi masalahnya adalah mereka dipersiapkan untuk saya 3 tahun yang lalu. Saya ragu bahwa tinggi badan saya telah banyak berubah tetapi karena otot-otot yang saya peroleh, ukuran tubuh saya hampir bertambah 1 ukuran. Aku bertanya-tanya apakah aku masih bisa mengenakan pakaian itu.
+Karena kamarku sama dengan setahun yang lalu, pakaian yang disiapkan untukku dan perabotan, semuanya tetap sama. ada banyak pakaian kelas atas yang terbuat dari kain berkualitas juga. Tetapi masalahnya adalah mereka dipersiapkan untukku 3 tahun yang lalu. aku ragu bahwa tinggi badanku telah banyak berubah tetapi karena otot-otot yang aku peroleh, ukuran tubuhku hampir bertambah besar. Aku penasaran apakah aku masih bisa mengenakan pakaian itu.
 
-Entah bagaimana, aku masih ingat bagaimana mengikat dasi dan bahkan mengejutkan diriku sendiri, aku bisa memakainya dengan benar. Semua dikatakan dan dilakukan, saya kira Anda tidak melupakan hal-hal yang telah Anda pelajari sekali pun.
+Entah bagaimana, aku masih ingat bagaimana mengikat dasi dan bahkan itu mengejutkan diriku sendiri, aku bisa memakainya dengan benar. aku kira kamu tidak melupakan hal-hal yang telah kamu pelajari walau hanya sekali.
 
-"Eeh, betapa terampilnya."
+"Eeh, gampangnya."(ana)
 
-"Lagipula aku sudah mempelajarinya."
+"aku sudah mempelajarinya."(renji)
 
 "Sungguh tidak biasa."
 
@@ -190,7 +190,7 @@ Entah bagaimana, aku masih ingat bagaimana mengikat dasi dan bahkan mengejutkan 
 
 "Umu."
 
-“Jangan katakan itu dengan bangga. Itu tidak keren. ”(Ana)
+"Jangan katakan itu dengan bangga. Itu tidak keren."(Ana)
 
 Anastasia tampaknya adalah tipe yang merawat perawatan pribadi juga, tetapi itu sama sekali tidak berguna saat ini karena yang dia lakukan hanyalah menertawakan atau menghela nafas padaku. Ratu yang kasar. Setiap kali saya ingat bahwa ia adalah yang teratas dari semua peri, saya menjadi sangat khawatir untuk masa depan ras peri.
 
