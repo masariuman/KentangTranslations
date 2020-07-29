@@ -462,39 +462,39 @@ Mendengar kata-kataku, wajahnya bangkit kembali.
 
 "uuuu .."
 
-Bagaimana saya harus mengatakan ini, tetapi Aya yang dulu pemalu, atau lebih tepatnya, selalu membangun tembok antara dirinya dan orang lain yang saya pikir. Saya tahu dia memiliki keadaan keluarga yang rumit, dan telah mendengarnya secara mendetail. Jadi saya bisa mengerti mengapa dia seperti itu, dan itulah mengapa sekarang saya bisa berbicara dengannya seperti ini tentang hal itu.
+Bagaimana ya, Aya yang dulu pemalu, atau lebih tepatnya, selalu membangun tembok antara dirinya dan orang lain. aku tahu dia memiliki keadaan keluarga yang rumit, aku juga telah mendengarnya secara mendetail. Jadi aku bisa mengerti mengapa dia seperti itu, dan itulah mengapa sekarang aku bisa berbicara dengannya seperti ini tentang hal itu.
 
-Aya sendiri tersipu mengingat kepribadian masa lalunya sendiri.
+Aya sendiri tersipu malu mengingat kepribadian masa lalunya sendiri.
 
-“…… .Renji-san telah berubah juga.” (Aya)
+"…… .Renji-san telah berubah juga." (Aya)
 
-"Betulkah?"
+"Benarkah?"
 
 "Iya."
 
-Ketika dia mengatakan itu, saya merasa sedikit sedih dengan cara yang berbeda. Menghindari tatapanku untuk melihat keluar jendela, aku menghela nafas dalam-dalam.
+Ketika dia mengatakan itu, aku merasa sedikit sedih. aku mengalihkan pandanganku ke luar jendela dan aku menghela nafas dalam-dalam.
 
-"Aku saat itu, apa yang aku suka?" (Renji)
+"dulu aku seperti apa?" (Renji)
 
 "Eh?"
 
 "Aya, bagaimana—"
 
-Pada saat itu, saya menghentikan kata-kata saya sendiri. Bagaimana saya harus bertanya padanya? Saya tidak bisa memikirkan cara. Sangat memalukan untuk bertanya bagaimana dia bisa menyukai saya. Dan sebelum itu, bagaimana saya bisa bertindak sombong itu? Jika saya seorang wanita, saya tidak akan pernah mau bergaul dengan pria tua seperti itu.
+aku berhenti bicara. Bagaimana aku harus bertanya padanya? aku tidak bisa memikirkan caranya. Sangat memalukan untuk bertanya bagaimana dia bisa menyukaiku. jika aku seorang wanita, aku tidak akan pernah mau bergaul dengan pria tua sepertiku.
 
-Yang mengatakan, saya tidak bisa menghasilkan kata-kata yang lebih baik Masih macet, Aya menungguku untuk melanjutkan.
+Aya menungguku untuk melanjutkan omonganku.
 
-"——- saat itu, sejak kami bepergian, apakah aku sudah berubah?"
+"——- saat itu, sejak kita berkelana, apakah aku sudah berubah?"
 
-Pada akhirnya, saya mengajukan pertanyaan yang aman. Sambil mendesah pada diriku sendiri, aku mengalihkan pandanganku kembali ke Aya. Matanya yang jernih menatap langsung ke arahku. Saat tatapan kami terhubung, aku merasa seperti dikalahkan oleh matanya yang kuat.
+Pada akhirnya, aku mengajukan pertanyaan yang aman. Sambil menghela nafas pada diriku sendiri, aku mengalihkan pandanganku kembali ke Aya. Matanya yang jernih menatap langsung ke arahku. Saat tatapan kami terhubung, aku merasa seperti dikalahkan oleh matanya yang kuat.
 
-"Ya."
+"Ya."(aya)
 
-Masih menatapku dengan mata kuat itu, dia mengangguk.
+dia Masih menatapku dengan mata kuat itu dan mengangguk.
 
-"Renji-san saat itu, jauh lebih keren."
+"Renji-san saat dulu jauh lebih keren."(renji)
 
-"Keren, kan?"
+"Keren, huh?"
 
 Kata yang tidak jelas. Saya tidak tahu bagaimana saya telah berubah dari waktu itu, tetapi sepertinya saya tidak sekeren sebelumnya. Yah, aku juga tidak bisa menyangkalnya. Aku masih terjebak dengan masa laluku. Tapi--
 
