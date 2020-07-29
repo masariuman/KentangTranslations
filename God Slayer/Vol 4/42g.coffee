@@ -130,13 +130,13 @@ Tidak, tapi yah ..
 
 Fuyou-san sendiri saat ini sedang berbicara dengan Souichi dan Hiyuu-san yang juga berlatih.
 
-“Aya-chan mengkhawatirkanmu dengan caranya sendiri. Sehingga semua orang bisa kembali ke rumah dengan selamat dan selamat. ”
+"Aya-chan mengkhawatirkanmu dengan caranya sendiri. dia ingin semua orang bisa kembali ke rumah dengan hidup dan selamat."
 
-"Aku tahu. Yayoi-chan, kamu benar-benar baik, bukan? ”
+"Aku tahu. Yayoi-chan, bukankah kamu benar-benar baik?"
 
-"Fufu, kalau begitu, permisi dulu."
+"Fufu, kalau begitu aku permisi dulu."
 
-Mengatakan itu, dia berjalan menuju Souichi juga. The Brave sungguh menakjubkan. Meskipun aku sendirian, dia dikelilingi oleh 3 wanita cantik. Salah satunya adalah saudara perempuannya.
+dia berjalan menuju Souichi juga. Brave sungguh menakjubkan. Meskipun aku sendirian, dia dikelilingi oleh 3 wanita cantik. Salah satunya adalah saudara perempuannya.
 
 Sambil menatap langit, aku menghela nafas. Saya butuh senjata. Senjata untuk membunuh dewa. Sehingga saya tidak menjadi beban. Bahkan jika aku tidak dapat sepenuhnya melindungi mereka, setidaknya aku ingin bertarung bersama anak-anak.
 
