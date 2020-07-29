@@ -228,11 +228,11 @@ Harem itu bagus. tapi itu hanya berlaku kalau aku bukanlah orang yang terkait/te
 
 (bagian 2)
 
-"Saya sudah cukup! Setelah mengalahkan Dewa Setan yang kamu sembunyikan, akhirnya ketika kita bertemu di ibukota kamu tidak akan banyak bermain denganku dan kamu bahkan tidak mengajakku makan malam sekarang. Bukankah kamu terlalu dingin? ”(Ana)
+"sudah cukup! Setelah mengalahkan Dewa iblis yang kamu menghilang, akhirnya ketika kita bertemu di ibukota tapi kamu tidak banyak bermain denganku bahkan kamu bahkan tidak mengajakku makan malam. Bukankah kamu terlalu dingin?"(Ana)
 
-"Yah, itu melelahkan untuk menghabiskan waktu bersamamu." (Renji)
+"Yah, melelahkan untuk menghabiskan waktu bersamamu." (Renji)
 
-"Kamu bersikap terlalu kasar sekarang."
+"sikapmu terlalu kasar sekarang."
 
 [Serius.]
 
