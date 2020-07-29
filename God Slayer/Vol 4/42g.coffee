@@ -118,15 +118,15 @@ Seperti yang diharapkan, itu lebih baik ketika mereka tertawa seperti ini. Aku t
 
 "Tolong jangan membenci Aya-chan."(Yayoi)
 
-"Tidak?"
+"un?"
 
-"Yah, dia benar-benar parah ketika berbicara dengan orang-orang yang dia tidak kenal baik yang kamu lihat?"
+"Yah, dia benar-benar kacau ketika berbicara dengan orang-orang yang dia tidak kenal baik."
 
-"Ahh ...... yah, aku tidak terlalu keberatan."
+"Ahh ...... yah, aku tidak terlalu memikirkannya."
 
-"Baiklah kalau begitu."
+"baguslah kalau begitu."
 
-Tidak, tapi yah, ya ..
+Tidak, tapi yah ..
 
 Fuyou-san sendiri saat ini sedang berbicara dengan Souichi dan Hiyuu-san yang juga berlatih.
 
