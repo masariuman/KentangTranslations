@@ -192,11 +192,11 @@ Entah bagaimana, aku masih ingat bagaimana mengikat dasi dan bahkan itu mengejut
 
 "Jangan katakan itu dengan bangga. Itu tidak keren."(Ana)
 
-Anastasia tampaknya adalah tipe yang merawat perawatan pribadi juga, tetapi itu sama sekali tidak berguna saat ini karena yang dia lakukan hanyalah menertawakan atau menghela nafas padaku. Ratu yang kasar. Setiap kali saya ingat bahwa ia adalah yang teratas dari semua peri, saya menjadi sangat khawatir untuk masa depan ras peri.
+Anastasia tampaknya adalah tipe yang memikirkan penampilan diri juga tapi itu sama sekali tidak berguna saat ini karena yang dia lakukan hanyalah menertawakan atau menghela nafas padaku. Ratu yang kasar. Setiap kali aku ingat bahwa ia adalah yang yang paling tinggi dari semua peri, aku menjadi sangat khawatir untuk masa depan bangsa peri.
 
-Nah, para peri lainnya tidak terlalu berbeda dari Anastasia dan bersenang-senang sebagai prioritas pertama mereka.
+Nah, para peri lainnya tidak terlalu berbeda dari Anastasia dan bersenang-senang adalah prioritas pertama mereka.
 
-“Tapi tetap saja, ada apa hari ini? Itu benar-benar tidak cocok untukmu sama sekali. ”(Ana)
+"Tapi tetap saja, ada apa dengan hari ini? Itu benar-benar tidak cocok untukmu sama sekali."(Ana)
 
 "Aku akan pergi makan malam dengan Aya malam ini."
 
