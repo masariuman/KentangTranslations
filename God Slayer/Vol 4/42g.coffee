@@ -394,31 +394,31 @@ kami akhirnya melihat tujuan kami.
 
 dan Juga ada masalah tentang utangku pada Utano-san jadi aku lebih memprioritaskan upaya untuk mendapatkan uang daripada mencari tempat tinggal Toudou.
 
-aku melihat ke tempat itu. Penampilan luarnya pada dasarnya adalah sebuah bangunan batu di atas bingkai kayu. Tampaknya dibangun dengan cukup baik. Bahkan bagian-bagian yang konon rusak ketika ia membeli tempat itu telah diperkuat dengan benar. Ketika saya mencoba menyentuh, saya merasakan sesuatu yang tidak ada di dunia ini. Apakah ini nyata?
+aku melihat ke tempat itu. Penampilan luarnya pada dasarnya adalah sebuah bangunan batu di atas kayu. Tampaknya dibangun dengan cukup baik. Bahkan bagian-bagian yang konon rusak ketika ia membeli tempat itu telah diperbaiki dan diperkuat dengan benar. Ketika aku mencoba menyentuhnya, aku merasakan sesuatu yang tidak ada di dunia ini. Apakah ini nyata?
 
-Ketika saya melihat Aya, dia tersenyum samar. Pasti Kudou yang menyiapkan ini. Saya tidak tahu bagaimana dia menyiapkan hal-hal seperti semen dll tapi kemampuannya adalah [pembuatan barang]. Dia pasti berhasil dengan itu. Nah, ada suatu waktu di mana dia membuat bom dari batu yang tergeletak di jalan selama perjalanan kami, jadi saya tidak benar-benar terkejut dengan apa yang dia lakukan. Saya hanya bisa mengatakan 'oh, keren.' Itu dia.
+Ketika aku melihat Aya, dia tersenyum samar. Pasti Kudou yang menyiapkan ini. aku tidak tahu bagaimana dia menyiapkan hal-hal seperti semen dll tapi kemampuannya adalah [pembuatan barang]. Dia pasti berhasil karena itu. Nah, ada juga waktu di mana dia membuat bom dari batu yang tergeletak di jalan selama perjalanan kami, jadi aku tidak benar-benar terkejut dengan apa yang dia lakukan. aku hanya bisa mengatakan 'oh, keren.'. Itu saja.
 
 Nama restoran itu adalah [Burung Kebahagiaan]. Karena bangunan itu sendiri terasa lebih seperti rumah, papan itu anehnya tidak pada tempatnya.
 
-“Sepertinya tempat yang bagus.” (Renji)
+"Sepertinya tempat yang bagus."(Renji)
 
-"Iya. Saya telah datang ke sini beberapa kali sebelumnya juga. Ini memiliki suasana yang hebat. "
+"Iya. aku telah datang ke sini beberapa kali sebelumnya juga. tempat ini memiliki suasana yang hebat. "
 
 "Kedengarannya bagus."
 
-Ketika saya memasuki tempat itu, tatapan orang-orang di dalam bergerak ke arah kami. Tetapi jumlah mereka tidak besar sama sekali. Sekilas, hanya 10 pelanggan dan 2 karyawan tampaknya ada di sana. Mungkin satu karyawan lagi harus di dapur. Pintu masuk ke dapur berada di titik buta sehingga saya tidak bisa memastikannya. Mungkin, Toudou ada di sana juga. Tempat itu memiliki dua lantai dan aku bisa melihat tangga menuju lantai atas. Karena restoran itu sendiri sepertinya tidak terlalu sibuk, lantai dua mungkin adalah ruang tamu Toudou.
+Ketika aku memasuki tempat itu, tatapan orang-orang di dalam mengarah ke kami. Tetapi jumlah mereka tidak banyak sama sekali. Sekilas, hanya 10 pelanggan dan 2 karyawan ada di sana. Mungkin satu karyawan lagi di dapur. Pintu masuk ke dapur berada di titik buta sehingga aku tidak bisa memastikannya. Mungkin, Toudou ada di sana juga. Tempat itu memiliki dua lantai dan aku bisa melihat tangga menuju lantai atas. Karena restoran itu sendiri sepertinya tidak terlalu sibuk, lantai dua mungkin adalah ruang tamu Toudou.
 
-Dengan salam, pelayan membawa kami ke tempat duduk kami. Ngomong-ngomong, para karyawan mengenakan pakaian pelayan. Mereka bahkan memiliki ikat kepala berjumbai yang sangat cocok untuk mereka. Seperti yang diharapkan, dia seorang pria dengan selera juga.
+aku mengucapkan salam dan pelayan membawa kami ke tempat duduk kami. Ngomong-ngomong, para karyawan mengenakan pakaian pelayan. Mereka bahkan memiliki ikat kepala berjumbai yang sangat cocok untuk mereka. Seperti yang diharapkan dari toudou, dia seorang pria yang memiliki selera seperti itu juga.
 
-Tepat ketika aku memikirkan hal-hal seperti itu, Aya menjepit bagian belakang tanganku. Senyumnya lebih menakutkan daripada rasa sakit, jadi aku cepat-cepat berjalan ke meja kami.
+Tepat ketika aku memikirkan hal-hal seperti itu, Aya mencubit bagian belakang tanganku. Senyumnya lebih menakutkan daripada rasa sakit, jadi aku cepat-cepat berjalan ke meja kami.
 
-"Melihat dia telah mempekerjakan karyawan, kurasa dia masih menghasilkan keuntungan." (Renji)
+"sepertinya dia masih bisa menghasilkan uang Melihat dia mempekerjakan karyawan." (Renji)
 
-"Itu benar. Dia tidak melakukan banyak iklan tetapi tampaknya tempat itu menjadi populer dari mulut ke mulut. ”
+"benar. Dia tidak terlalu mempromosikan tokonya tetapi tampaknya tempat itu menjadi populer dari mulut ke mulut."
 
-Mengatakan itu, Aya menyerahkan kartu menu kepadaku. Yang mengatakan, jumlah hidangan tidak banyak.
+Aya menyerahkan kartu menu kepadaku. jumlah hidangan nyatidak banyak.
 
-Karena dunia ini tidak memiliki konsep pengiriman ke rumah, tidak ada cara mudah untuk mendapatkan bahan jadi saya kira, itu tidak bisa dihindari. Karena kita berada di ibukota, itu akan lebih mudah daripada berada di desa tetapi tetap saja, mendapatkan barang-barang murah akan sangat sulit. Tetapi tetap, untuk memiliki salad lengkap pada menu, apakah dia memiliki hubungan dengan keluarga petani? Adapun daging, daging Orc ........ itu tidak terlalu sulit untuk didapatkan.
+Karena dunia ini tidak memiliki konsep pengiriman ke rumah, tidak ada cara mudah untuk mendapatkan bahan dan itu mungkin tidak bisa dihindari. Karena kami berada di ibukota, itu akan lebih mudah daripada berada di desa tetapi tetap saja, mendapatkan barang-barang murah akan sangat sulit. Tetapi tetap, untuk memiliki salad lengkap pada menu, apakah dia memiliki hubungan dengan keluarga petani? sedangkan untuk daging, daging Orc ........ itu tidak terlalu sulit untuk didapatkan.
 
 Sisanya adalah jenis hidangan berbasis mie / gandum yang biasanya tidak pernah Anda lihat di dunia ini. Melirik orang lain, semua orang sepertinya memakannya juga.
 
