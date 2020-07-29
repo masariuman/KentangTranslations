@@ -90,7 +90,7 @@ aku pergi dan minum air hangat dari kendi air yang disimpan di dekat ladang. Sou
 
 "Hm."
 
-Ketika aku berbalik pada suara itu, seorang gadis dengan rambut setengah panjang, rok lipit dan blus putih dengan blazer berdiri di sana. Sepertinya seragam sekolah menengah dari dunia asli kita. Di sisinya ada gadis lain dengan rambut hitam. Dia adalah saudara perempuan Souichi, Yayoi-chan. Dia mengenakan lebih banyak pakaian abad pertengahan seperti yang kita lihat di film dan lainnya. Dan gadis berseragam itu adalah Yayoi-chan dan teman masa kecil Souichi, Fuyou-san.
+Ketika aku berbalik kearah suara itu, seorang gadis dengan rambut setengah panjang, rok lipat dan blus putih dengan blazer berdiri di sana. Sepertinya dia menggunakan seragam sekolah menengah dari dunia asli kami. Di sisinya ada gadis lain dengan rambut hitam. Dia adalah saudara perempuan Souichi, Yayoi-chan. Dia mengenakan pakaian abad pertengahan seperti yang bisa di lihat di film. Dan gadis berseragam itu adalah Yayoi-chan dan teman masa kecil Souichi, Fuyou-san.
 
 Merasakan tatapan dinginnya, aku menggaruk pipiku.
 
