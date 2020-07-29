@@ -496,33 +496,33 @@ dia Masih menatapku dengan mata kuat itu dan mengangguk.
 
 "Keren, huh?"
 
-Kata yang tidak jelas. Saya tidak tahu bagaimana saya telah berubah dari waktu itu, tetapi sepertinya saya tidak sekeren sebelumnya. Yah, aku juga tidak bisa menyangkalnya. Aku masih terjebak dengan masa laluku. Tapi--
+Kata yang tidak jelas. aku tidak tahu bagaimana aku telah berubah dari waktu itu, tetapi sepertinya aku tidak sekeren sebelumnya. Yah, aku juga tidak bisa menyangkalnya. Aku masih terjebak dengan masa laluku. Tapi--
 
-"Aku mengerti."
+"begitu...."(renji)
 
 "Fufu."
 
-Mata gadis ini, wanita yang selalu mendukungku, kawan-kawan yang menganggapku sebagai pemimpin, ——- Aku tidak ingin mengkhianati mereka. Saya ingin melindungi mereka. Pergerakan di antara iblis, keberadaan Solnea, ketiadaan Dewa Setan. Melalui berbagai sinyal ini, saya yakin dunia akan mulai bergerak lagi. Pada saat itu, aku harus bertarung bersama Ermenhilde sekali lagi. Tidak peduli betapa aku benci berkelahi, aku tidak bisa lari darinya.
+Mata gadis ini, wanita yang selalu mendukungku, rekan-rekan yang menganggapku sebagai pemimpin, ——- Aku tidak ingin mengkhianati mereka. aku ingin melindungi mereka. Pergerakan di antara iblis, keberadaan Solnea, ketiadaan Dewa iblis. berbagai tanda ini, aku yakin dunia akan mulai bergerak lagi. aku harus bertarung bersama Ermenhilde sekali lagi. aku Tidak peduli seberapa bencinya berkelahi, aku tidak bisa lari dari itu .
 
-Pada saat itu, sama seperti waktu itu - seperti bagaimana aku mengorbankan Eru untuk membunuh Dewa Iblis, untuk tidak pernah kehilangan siapa pun lagi. Saya harus memutuskan diri untuk maju sekali lagi.
+sama seperti waktu itu - seperti bagaimana aku mengorbankan Eru untuk membunuh Dewa Iblis, untuk tidak pernah kehilangan siapa pun lagi. aku harus memutuskan diriku untuk maju sekali lagi.
 
-“Yah, sepertinya aku tidak keren sama sekali sekarang.” (Renji)
+"Yah, sepertinya aku tidak keren sama sekali sekarang." (Renji)
 
-"Tidak juga. Bahkan sekarang, Renji-san masih cukup keren sih? ”(Aya)
+"Tidak juga. Bahkan sekarang, Renji-san masih cukup keren sih?"(Aya)
 
-“Jujur saja, kamu tidak harus memaksakan diri untuk mengatakannya, kamu tahu? Lihat, wajahmu semua merah. "
+"Jujur saja, kamu tidak harus memaksakan diri untuk mengatakannya lho.... Lihat, wajahmu memerah. "
 
 "...... mouu, kamu seharusnya mengabaikan hal-hal seperti itu!"
 
-Sambil melihat cemberut Aya, aku tertawa. Meskipun dia berpakaian sangat matang, ekspresinya masih kekanak-kanakan. Saya kira penampilannya yang sebenarnya adalah penampilan dengan ekspresi kekanak-kanakan. Saat aku memikirkan itu, dia menatapku dengan senyum lebar.
+Sambil melihat aya cemberut, aku tertawa. Meskipun dia berpakaian dewasa, ekspresinya masih kekanak-kanakan. aku kira penampilannya yang sebenarnya adalah penampilan dengan ekspresi kekanak-kanakannya. dia menatapku dengan senyum lebar.
 
-Ketika kami terus berbicara seperti itu, pesanan kami datang dan diatur di atas meja. Udon yang mengepul merangsang rasa lapar saya lebih jauh. Carbonara Aya juga terlihat lezat.
+pesanan kami datang dan diatur di atas meja. Udon yang mengepul merangsang rasa laparku. Carbonara Aya juga terlihat lezat.
 
-"Aku akan bekerja keras juga."
+"Aku akan bekerja keras juga."(renji)
 
 "Hah?"
 
-"Tidak ada. Mari makan."
+"Tidak. ayo makan."
 
 Saya menyeruput Udon saya. Aya sepertinya ingin aku mengatakannya lagi, tapi, yeah, Udon ini benar-benar enak. Seperti yang diharapkan dari Toudou, dia memiliki pekerjaan terbesar yang pernah ada. Sambil memikirkan hal-hal seperti reporter gourmet, aku melirik ke arah Aya.
 
