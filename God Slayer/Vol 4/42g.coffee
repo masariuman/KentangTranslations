@@ -220,7 +220,7 @@ tapi, anastasia sepertinya ingin makan malam denganku dan dia mengembungkan pipi
 
 "apa maksudmu dengan 'kali ini'?"(renji)
 
-Please don’t talk like I’m going after lots of girls. I looked at her with a  fed up face as Anastasia bit her finger while making a serious face. Just what do you see me as? Or rather, what kind of character does everyone think I have? Just a while ago, even Kuuki called me out about my relationship with wome, it’ll make me cry you know? Well, not really though.
+tolong jangan berbicara seperti aku berkencan dengan banyak waanita. aku melihatnya dengan wajah lelah dan anastasia menggigit jarinya dengan muka serius. bagaimana kamu memandangku? atau lebih tepatnya, karakter seperti apa diriku ini dimata kalian? beberapa waktu lalu, bahkan kuuki berbicara tentang hubunganku dengan perempuan juga. itu bisa membuatku menangis lho... yaah walau aku tidak akan menangis juga...
 
 Tapi selain itu, bahkan Utano-san tampaknya lebih ketat dari biasanya tentang kasus dengan Solnea. Bagaimana saya harus membujuknya? Cara termudah adalah membiarkan mereka bertemu besok dan mengakhirinya sekali dan untuk selamanya. Saya benar-benar ingin terbebas dari semua tuduhan palsu ini. Yah, aku percaya bahwa Solnea itu cantik, tapi itu tidak berarti aku akan mulai bernafsu padanya. Itu bukan kepribadian saya. Jika saya melakukannya, saya yakin suatu hari, seseorang di suatu tempat akan berakhir terluka. Bahkan si idiot pun mengerti itu. Belum lagi saya masih belum menyelesaikan perasaan saya tentang Eru, dan kemudian ada Utano-san dan Aya juga.
 
