@@ -320,13 +320,13 @@ Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaiank
 
 "Apakah kencan dengan Aya, menyenangkan?"(ana)
 
-"Yah, mengesampingkan fakta apakah ini bisa disebut tanggal yang sebenarnya, ya, itu menyenangkan."
+"Yah, apakah ini bisa disebut kencan yang sebenarnya atau tidak, ya, itu menyenangkan."(renji)
 
-“Ini pasti kencan. Kamu akan makan malam bersama kan? ”
+"ini pasti kencan. Kamu akan makan malam bersama kan?"(ana)
 
-"Sebelum itu, di mana kamu bahkan tahu apa arti 'kencan'?"
+"Sebelum itu, dari mana kamu belajar arti 'kencan'?"(renji)
 
-"Baru saja, dari Yui."
+"Baru saja, dari Yui."(ana)
 
 Saya meminta itu semata-mata untuk menghindari topik tetapi saya sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. Tidak baik, dia juga 16 sekarang kurasa. Itu normal baginya untuk diharapkan dalam hal-hal seperti itu. Haruskah saya senang dengan pertumbuhannya atau harus khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
 
