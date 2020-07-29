@@ -258,13 +258,13 @@ Aku menghela nafas melihat mereka berdua terdiam hanya dengan menyebutkan nama Y
 
 "Mengapa kalian tiba-tiba kompak sekarang?" (Renji)
 
-"kami tidak kompak! Benarkan, wanita medali? ”
+"kami tidak kompak! Benarkan, wanita medali?"
 
 [Tepat sekali, dasar serangga.]
 
-Serius, apa-apaan ini. Sambil mengobrol dengan Anastasia yang sudah melupakan amarahnya sebelumnya, aku membuka lemari kayu untuk memilih beberapa pakaian. Tampaknya terbuat dari beberapa kayu berkualitas bagus karena kelihatannya sangat kokoh namun sebenarnya cukup ringan. Hampir tidak ada upaya untuk membuka pintu ganda. Mengambil beberapa set pakaian dari itu, saya tutup kembali.
+Serius, apa-apaan ini. Sambil mengobrol dengan Anastasia yang sudah melupakan amarahnya sebelumnya, aku membuka lemari kayu untuk memilih beberapa pakaian. lemari ini Tampaknya terbuat dari kayu berkualitas karena kelihatannya sangat kokoh namun sebenarnya cukup ringan. tidak perlu bersusah payah untuk membuka kedua pintunya. setelah Mengambil beberapa set pakaian, aku menutupnya kembali.
 
-Malam ini kita menuju restoran Toudou, tempat yang tersembunyi namun sangat populer. Anda akan berpikir itu tidak masalah mengingat salah satu dari 13 pahlawan memiliki tempat tetapi karena lokasinya yang khusus, itu biasanya tidak populer. Bagaimanapun, itu terletak di salah satu lorong belakang dengan struktur rumit.
+Malam ini kami menuju restoran Toudou, tempat yang tersembunyi namun sangat populer. kamu akan berpikir itu tidak masalah mengingat salah satu dari 13 pahlawan memiliki tempat tetapi karena lokasinya yang khusus, itu biasanya tidak populer. Bagaimanapun, itu terletak di salah satu lorong belakang dengan struktur rumit.
 
 Selain itu, dia bahkan tidak mencoba mengiklankan tempat itu sekali pun. Jujur, bahkan Utano-san mengatakan bahwa dia tampaknya tidak benar-benar tertarik untuk melakukannya sebagai bisnis yang sebenarnya. Ngomong-ngomong, aku juga tidak bisa menemukan tempat itu dan harus meminta Utano-san untuk menunjukkan kepadaku lokasi di peta ibukota. Itu seberapa baik tersembunyi itu.
 
