@@ -276,9 +276,9 @@ Selain itu, dia bahkan tidak mencoba mengiklankan tempat itu sama sekali. Jujur,
 
 "Jadi pada dasarnya kamu tidak akan jalan bersamaku !?"(ana)
 
-Sambil memutar otak untuk memutuskan pakaian mana yang akan dipilih, aku dengan ringan mengatakannya pada Anastasia. Jelas, bahkan dompet saya tidak cukup tebal untuk membawa orang keluar untuk makan malam, bahkan ketika saya tidak suka. Sambil mengabaikan suara protes Anastasia, saya mencoba beberapa baju saya. Karena sudah hampir dua tahun sejak ini dibuat, seperti yang Anda harapkan, mereka ketat. Ini merepotkan; Aku menggaruk kepalaku sambil melihat ke cermin. Akan sulit untuk mengatur satu set pakaian baru sebelum malam juga sekarang. Saya kira satu-satunya jalan yang tersisa adalah pergi ke toko dan membeli pakaian readymade. Sambil memeriksa apakah saya punya cukup uang, saya berencana untuk malam ini.
+aku dengan santai berkata seperti itu kepada anastasia sambil berfikir pakaian mana yang akan dipilih. bahkan dompetku tidak cukup tebal untuk mentraktir makan malam. Sambil mengabaikan protes Anastasia, aku mencoba beberapa bajuku. Karena sudah hampir dua tahun sejak ini dibuat, seperti yang kamu harapkan, mereka ketat. haaa~~; Aku menggaruk kepalaku sambil melihat ke cermin. sulit untuk membuat/membeli satu set pakaian baru sebelum malam juga untuk sekarang. aku kira satu-satunya jalan yang tersisa adalah pergi ke toko dan membeli pakaian yang dijual. aku memeriksa apakah aku punya cukup uang untuk membelinya.
 
-Tampaknya tidak senang dengan tanggapan saya, Anastasia bangkit dari tempat tidur. Saat dia tampaknya menggunakan kekuatan roh angin, roknya berkibar-kibar, membuat pahanya yang tipis, putih namun bagus terlihat. Serius, itu terlalu menggoda untuk mataku.
+Tampaknya tidak senang dengan tanggapanku, Anastasia bangkit dari tempat tidur. dia tampaknya menggunakan kekuatan roh angin, roknya berkibar-kibar, membuat pahanya yang tipis, putih namun bagus terlihat terlihat. Serius, itu terlalu menggoda untuk mataku.
 
 "Aku akan membelikanmu tongkat daging orc panggang untukmu dari kios saat kembali, oke?"
 
