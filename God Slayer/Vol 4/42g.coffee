@@ -204,13 +204,13 @@ Nah, para peri lainnya tidak terlalu berbeda dari Anastasia dan bersenang-senang
 
 "Siapa yang serangga, dasar kamu wanita medali !? ……..tunggu sebentar."
 
-What’s with that surprised voice? When I looked towards the bed, the fairy who had been laughing like crazy till now stood up very docilely. It’s probably not my imagination that her expression loks angry. Maybe due to her height, she glared at me while looking up at me. It’s not scary at all though.
+ada apa dengan suara terkejut itu? ketika aku melihat kearah kasur, peri yang tertawa terbahak-bahak sampai sekarang berdiri. pasti bukan imajinasiku kalau ekpresinya terlihat marah. mungkin karena tingginya, dia menatapku sambil melihat keatas. itu tidak menakutkan sama sekali.
 
-“Why did you not invite me!?”(ana)
+"kenapa kamu tidak mengajakku!?"(ana)
 
-“Why would I? Idiot.  ”
+"kenapa aku harus mengajakmu? idiot"
 
-If I did, I can only imagine what Aya would say, or rather, what she’d do to me.
+jika aku melakukannya, aku hanya bis amembayangkan apa yang akan aya katakan, atau lebih tepatnya, apa yang akan dia lakukan kepadaku.
 
 She didn’t say it upfront but, I’m sure she’s expecting to go to dinner alone, just the two of us. And if I were to go against her expectations———-my body is well aware what she’d do much to my own displeasure. No, even I won’t be able to laugh it away like usual. Yeah, I can’t be acting like a child always after all. I’m 28 already. My heart’s still young but I’m at an age where I’m expected to read the mood properly.
 
