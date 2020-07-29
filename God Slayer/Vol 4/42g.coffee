@@ -214,11 +214,11 @@ jika aku melakukannya, aku hanya bis amembayangkan apa yang akan aya katakan, at
 
 dia tidak mengatakan itu secara langsung tapi, aku yakin dia mengharapkan untuk makan malam sendiri, hanya kami berdua saja. dan jika tidak sesuai dengan ekpetasinya---- tubuhku sadar apa yang akan dia lakukan denganku. tidak, bahkan aku tidak dapat tertawa seperti biasanya. yeah, aku tidak bisa bersikap seperti anak kecil terus. aku sudah 28 tahun. hatiku masih muda tapi aku sudah berada di umur dimana aku harus bisa membaca suasana dengan benar.
 
-But, Anastasia seemed like she really wanted to go to dinner with me as she was pouting right now. Is that supposed to be an objection from her? Leave me alone.
+tapi, anastasia sepertinya ingin makan malam denganku dan dia mengembungkan pipinya sekarang. apa itu maksudnya dia tidak setuju padaku? 
 
-“So it’s Aya this time…..”(ana)
+"jadi kali ini aya ya.."(ana)
 
-“What do you mean ‘this time’?”(renji)
+"apa maksudmu dengan 'kali ini'?"(renji)
 
 Please don’t talk like I’m going after lots of girls. I looked at her with a  fed up face as Anastasia bit her finger while making a serious face. Just what do you see me as? Or rather, what kind of character does everyone think I have? Just a while ago, even Kuuki called me out about my relationship with wome, it’ll make me cry you know? Well, not really though.
 
