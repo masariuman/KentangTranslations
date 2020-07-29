@@ -158,13 +158,13 @@ merasa sedikit penasaran, aku mengambil medali yang diberikan kepadaku oleh Dewi
 
 "Puhahahaha — ini, ini sama sekali tidak cocok untukmu!"
 
-"Apa yang kamu tertawakan begitu keras, dasar lalat!"
+"Apa yang kamu tertawakan begitu keras, dasar lalat!"(renji)
 
 "Siapa yang kau sebut lalat!?!"
 
 [………berisik.]
 
-Ketika saya mencoba menyisir rambut saya dengan gel, gadis yang berbaring di tempat tidur saya mulai menertawakan saya. Apakah ini tidak cocok untuk saya? Meskipun saya hanya mengutuk di luar, di hati saya, saya menjadi khawatir. Jumlah hal yang dapat Anda gunakan untuk merawat diri sendiri di dunia ini dapat dihitung dengan tangan Anda. Saya agak sadar akan hal itu, tetapi pada akhirnya, itu hanya setengah dari pengetahuan. Daripada ini, akan lebih mudah untuk hanya mengenakan baju besi mewah seperti ketika saya bertemu Raja. Setidaknya, yang harus saya lakukan saat itu hanyalah mengenakannya.
+Ketika saya mencoba menyisir rambut saya dengan gel, gadis yang berbaring di tempat tidurku mulai menertawakan saya. Apakah ini tidak cocok untuk saya? Meskipun saya hanya mengutuk di luar, di hati saya, saya menjadi khawatir. Jumlah hal yang dapat Anda gunakan untuk merawat diri sendiri di dunia ini dapat dihitung dengan tangan Anda. Saya agak sadar akan hal itu, tetapi pada akhirnya, itu hanya setengah dari pengetahuan. Daripada ini, akan lebih mudah untuk hanya mengenakan baju besi mewah seperti ketika saya bertemu Raja. Setidaknya, yang harus saya lakukan saat itu hanyalah mengenakannya.
 
 Gadis di tempat tidurku —— peri dengan fitur seperti boneka, Anastasia, sedang berguling sambil tertawa tidak memikirkan bahwa bajunya semakin kusut saat dia melakukan itu. Kadang-kadang, kain putih bisa terlihat di bawah gaun itu saat dia berguling-guling juga. Yang mengatakan, aku tidak sesat cabul untuk menginginkan boneka seperti makhluk kecil. Membayar tanpa menghiraukan, saya mulai mencoba memperbaiki rambut saya. Mengalami apa yang saya lihat di cermin, seharusnya tidak seburuk itu tetapi ditertawakan begitu banyak telah membuat saya gelisah. Saya kira itulah cara kerja pikiran manusia.
 
