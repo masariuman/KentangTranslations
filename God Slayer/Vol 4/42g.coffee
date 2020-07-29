@@ -358,9 +358,9 @@ Saat itu malam hari. jalanan sudah tidak ramai lagi dan aku mengingat lagi jalan
 
 Aya bersandar sedikit lebih dekat ke arahku. aku berpura-pura tidak menyadarinya, aku menggaruk pipiku dengan tangan yang lain. suasana hatinya lagi baik. aku penasaran apa yang akan dia katakan kalau aku mengatakannya dengan keras. aku penasaran tapi aku memutuskan untuk tidak menanyakannya dan sedikit memperlambat kecepatanku berjalan.
 
-Aya terasa lebih tinggi hari ini daripada biasanya, mungkin karena sepatu hak tinggi yang dia kenakan. Rambutnya yang terurai berayun di angin dan bersinar di cahaya redup dari lampu jalanan ajaib. Riasan cahayanya jauh lebih cocok untuknya karena dia selalu sedikit lebih dewasa daripada teman-temannya.
+Aya terasa lebih tinggi hari ini daripada biasanya, mungkin karena sepatu hak tinggi yang dia kenakan. Rambutnya yang terurai berayun karena angin dan rambutnya bersinar di cahaya redup dari lampu jalanan. make-up ringan jauh lebih cocok untuknya karena dia selalu sedikit lebih dewasa daripada teman-temannya.
 
-Sambil mencuri lirikan wajah bahagia Aya yang menikmati dinginnya, aku mulai mengikuti rambutnya yang berayun sebelum aku tahu. 18 tahun. Tepat antara seorang gadis dan seorang wanita dewasa, harus saya katakan. Dia benar-benar tumbuh, atau lebih tepatnya, telah menjadi sangat cantik. Aku bertanya-tanya apakah seperti inilah rasanya seorang ayah melihat putrinya tumbuh dewasa. Saya mengubah suasana hati saya sambil memikirkan hal-hal bodoh seperti itu.
+Sambil melihat wajah bahagia Aya, tanpa kusadari aku mulai melihat rambutnya yang berayun. 18 tahun. Tepat antara seorang gadis dan seorang wanita dewasa. Dia benar-benar sudah tumbuh, atau lebih tepatnya, telah menjadi sangat cantik. Aku bpenasaran apakah seperti inilah rasanya seorang ayah melihat putrinya tumbuh dewasa. aku mengubah suasana hatiku sambil memikirkan hal-hal bodoh seperti itu.
 
 "Mungkin kita harus menyewa kereta atau sesuatu." (Renji)
 
