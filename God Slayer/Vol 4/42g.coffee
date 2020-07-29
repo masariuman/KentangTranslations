@@ -428,9 +428,9 @@ Sisanya adalah jenis hidangan berbasis mie / gandum yang biasanya tidak pernah k
 
 "Yah, tentu saja."
 
-Yah, akan lebih baik jika itu terjadi. Seperti yang diharapkan, tidak mudah membuat hidangan dari dunia lain menjadi populer dengan mudah. Bagaimanapun, hal-hal seperti bahan-bahan dasar dll. Semuanya berbeda di dunia ini. Saya ingat dia mengatakan sesuatu seperti mengalami kesulitan menemukan pengganti untuk hal-hal tertentu. Selain itu, berbagai cara memasak yang berbeda juga merupakan hambatan. Saya bukan ahli tetapi jika saya ingat dengan benar, untuk membuat udon, Anda membutuhkan tepung terigu, air dan garam, bukan?
+Yah, akan lebih baik jika hidangan itu ada. sudah kuduga, tidak mudah membuat hidangan dari dunia lain menjadi populer. semuanya karena bahan-bahan dasar. Semuanya berbeda di dunia ini. aku ingat dia mengatakan sesuatu seperti kesulitan menemukan pengganti untuk benda tertentu. Selain itu, berbagai cara memasak yang berbeda juga merupakan hambatannya juga. aku bukan ahlinya tetapi jika aku ingat dengan benar, untuk membuat udon, kamu membutuhkan tepung terigu, air dan garam, kan?
 
-Sambil mencoba mengingat resep yang saya yakin salah, saya memutuskan pesanan. Tentu saja, ini adalah jenis gandum. Saya memesan Tsukimi Udon dan salad dan Aya memesan pasta Carbonara. Hmm tapi yah, saya bertanya-tanya apakah aneh memesan sesuatu seperti Udon saat berkencan tapi, saya benar-benar ingin makan itu. Aku ingin tahu apakah Toudou akan membuat ini sendiri?
+Sambil mencoba mengingat resep, aku memesan sesuatu. Tentu saja, pesananku adalah jenis gandum. aku memesan Tsukimi Udon dan salad serta Aya memesan pasta Carbonara. Hmm tapi yah, aku penasaran apakah aneh memesan sesuatu seperti Udon saat berkencan tapi, aku benar-benar ingin makan itu. Aku ingin tahu apakah Toudou akan membuatnya sendiri?
 
 "Apakah itu cukup banyak?"
 
