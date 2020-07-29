@@ -4,31 +4,31 @@ Bahu kananku yang barusan dipukul terasa panas karena rasa sakit dan terus mengg
 
 Di tengah-tengah tempat latihan, aku melihat kesatria paruh baya berdiri di depanku. Entah itu tentara lain yang berlatih di sini atau Souichi dan yang lainnya, mereka semua lebih terbiasa menggunakan senjata daripada aku. Mereka tampak lebih alami daripada aku. Dan mereka semua menatapku, dengan rasa ingin tahu.
 
-Sambil memegang pedang penggunaan latihan yang tumpul dengan kedua tangan, aku mengatur nafasku.
+Sambil memegang pedang yang digunakan untuk latihan yang tumpul dengan kedua tangan, aku mengatur nafasku.
 
-Aku menarik napas dalam-dalam tiga kali; jantungku mulai berdetak lebih cepat, seakan memintaku untuk beristirahat. Tapi mengabaikannya, aku mengambil sikap dengan pedang. Mengenakan armor mithril, knight berusia tampaknya tidak lelah sama sekali ketika dia mengayunkan pedang latihannya, memeriksa kondisinya. Bahkan, dia tampak bersenang-senang. Dia menikmati berlatih dengan saya. Meskipun aku dipukuli di mana-mana, terlempar, membuat tubuhku sakit sekali. Pedang yang dia pegang lebih tebal dan lebih panjang dari milikku juga. Meskipun itu seharusnya jauh lebih berat, dia tampaknya bersenang-senang dengannya. Orang ini jelas tidak normal. Ini lebih energik, bertentangan dengan usianya, nama ksatria adalah O'brien Arbelia.
+Aku menarik napas dalam-dalam tiga kali; jantungku mulai berdetak lebih cepat, seakan memintaku untuk beristirahat. Tapi aku mengabaikannya. aku mengambil dengan kuda-kuda dengan pedang. Mengenakan armor mithril, ksatria tua ini tampaknya tidak lelah sama sekali dan dia mengayunkan pedang latihannya untuk memeriksa kondisinya. dia tampak bersenang-senang. Dia menikmati berlatih denganku. Meskipun aku dipukuli di berkali-kali, terlempar dan membuat tubuhku sakit sekali. Pedang yang dia pegang lebih tebal dan lebih panjang dari milikku juga. itu seharusnya jauh lebih berat tapi dia tampaknya bersenang-senang dengan itu. Orang ini jelas tidak normal. dia lebih energik, bertentangan dengan usianya, nama ksatria itu adalah O'brien Arbelia.
 
-"Bagus. Menyenangkan menjadi muda, eh. Saya khawatir Anda semua akan sombong karena Anda diberi gelar pahlawan tetapi tidak buruk, Anda punya nyali. ”(Ob)
+"Bagus. sungguh enak kalau masih muda, eh. aku khawatir kamu semua akan sombong karena kamu diberi gelar pahlawan tetapi tidak buruk juga, kamu punya nyali."(Ob)
 
-"Wah, terima kasih." (Renji)
+"terima kasih." (Renji)
 
-"Kuku. Tidak selalu saya memuji seseorang, Anda tahu? Kamu seharusnya lebih bahagia, yamada-dono. ”
+"Kuku. aku Tidak selalu memuji seseorang lho.... Kamu seharusnya lebih senang lagi, yamada-dono."
 
 "Di malam hari, aku akan diam-diam bahagia tentang ini sendirian."
 
-Beberapa hari setelah dipanggil ke dunia ini, saya belajar banyak hal saat bertarung dengan pria tua ini. Pria ini adalah pengganggu.
+Beberapa hari setelah dipanggil ke dunia ini, aku belajar banyak hal saat bertarung dengan pria tua ini. Pria ini adalah pembully.
 
-Jika saya santai dari kata-kata itu, dia akan mengalahkan saya, tidak ada pertanyaan. Dan seperti biasa, akhirnya aku berguling-guling di tanah. Visi yang sangat tepat muncul di kepala saya sehingga wajah saya sedikit kram.
+maksudnya, dia akan menghajarkuku, tanpa bertanya. Dan seperti biasa, aku berguling-guling di tanah. aku mengingat kembali dikepalaku sehingga wajahku sedikit keram.
 
-Meski dia lebih pendek dariku, saat menghadapinya seperti ini, akulah yang merasa lebih kecil. Kehadiran dan tekanannya berada di level yang berbeda. Dia bukan manusia seperti aku yang bergantung pada cheat yang diberikan oleh dewi untuk bertarung. Kekuatannya berasal dari keterampilan mental dan fisik yang ditempa selama bertahun-tahun dalam pelatihan berkelanjutan. Dia membawa hal-hal semacam itu bersamanya.
+Meski dia lebih pendek dariku, saat menghadapinya seperti ini, akulah yang merasa lebih kecil. Kehadiran dan tekanannya berada di level yang berbeda. Dia bukan manusia seperti aku yang bergantung pada cheat yang diberikan oleh dewi untuk bertarung. Kekuatannya berasal dari mental dan fisik yang ditempa selama bertahun-tahun.
 
-Tubuh saya sakit sekali, dan saya sangat lelah tetapi saya masih berterima kasih kepadanya karena telah melatih saya. Prajurit lain akan selalu menahan saya keluar dari formalitas dan Souichi dan yang lainnya begitu kuat sehingga bahkan tidak disebut pelatihan.
+Tubuhku sakit sekali, dan aku sangat lelah tetapi aku masih berterima kasih kepadanya karena telah melatihku. tentara lain tidak akan serius karena alasan formalitas serta Souichi dan yang lainnya begitu kuat sehingga bahkan tidak disebut latihan.
 
-"Ayo, mulai lagi."
+"Ayo, mulai lagi."(ob)
 
-“…… guh.”
+"…… guh."
 
-Seolah mengejekku, ujung pedangnya bergoyang-goyang. Apakah dia akan bergegas ke arahku, atau akankah dia mencoba menekanku secara mental. Aku bertanya-tanya apakah reaksiku yang ragu-ragu itu lucu ketika O'brien-san tertawa pendek.
+ujung pedangnya bergoyang-goyang seolah-olah mengejekku. Apakah dia akan berlari ke arahku, atau akankah dia mencoba menekanku secara mental. Aku penasaran apakah reaksiku yang ragu-ragu itu lucu karena O'brien-san tertawa sebentar.
 
 Karena ujung pedangnya menghalangi, aku tidak bisa mendekatinya dan setiap kali dia mengambil langkah maju aku akhirnya mengambil satu kembali. Saya tahu ini akan berakhir dengan saya dipukuli lagi jika terus seperti ini tetapi tubuh saya tidak bergerak. Bahkan jika itu hanya pedang tumpul untuk latihan, masih sakit ketika aku tertabrak, dan di atas itu, ada ketakutan bahwa dengan kekuatan O'brien-san, dia bisa memotongku, daging dan tulang, bahkan dengan ini.
 
