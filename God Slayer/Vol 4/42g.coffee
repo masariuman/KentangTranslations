@@ -266,15 +266,15 @@ Serius, apa-apaan ini. Sambil mengobrol dengan Anastasia yang sudah melupakan am
 
 Malam ini kami menuju restoran Toudou, tempat yang tersembunyi namun sangat populer. kamu akan berpikir itu tidak masalah mengingat salah satu dari 13 pahlawan pemilik tempat itu tetapi karena lokasinya yang khusus, itu biasanya tidak populer. tempat itu terletak di pelosok dengan struktur yang rumit.
 
-Selain itu, dia bahkan tidak mencoba mengiklankan tempat itu sekali pun. Jujur, bahkan Utano-san mengatakan bahwa dia tampaknya tidak benar-benar tertarik untuk melakukannya sebagai bisnis yang sebenarnya. Ngomong-ngomong, aku juga tidak bisa menemukan tempat itu dan harus meminta Utano-san untuk menunjukkan kepadaku lokasi di peta ibukota. Itu seberapa baik tersembunyi itu.
+Selain itu, dia bahkan tidak mencoba mengiklankan tempat itu sama sekali. Jujur, bahkan Utano-san berkata bahwa dia tampaknya tidak benar-benar tertarik untuk melakukannya sebagai bisnisnya. Ngomong-ngomong, aku juga tidak bisa menemukan tempat itu dan harus meminta Utano-san untuk menunjukkan kepadaku lokasinya di peta ibukota.
 
-“Beberapa saat kemudian, aku akan mengajakmu keluar juga oke? Jadi biarkan aku pergi untuk hari ini. "(Renji)
+"nanti aku akan mengajakmu jalan juga oke? Jadi biarkan aku pergi untuk hari ini."(Renji)
 
 "Benarkah?" (Ana)
 
-"Mungkin. Jika saya merasa seperti itu, suatu hari nanti. "
+"Mungkin. Jika aku merasa seperti itu, suatu hari nanti."(renji)
 
-"Jadi pada dasarnya kamu tidak akan !?"
+"Jadi pada dasarnya kamu tidak akan jalan bersamaku !?"(ana)
 
 Sambil memutar otak untuk memutuskan pakaian mana yang akan dipilih, aku dengan ringan mengatakannya pada Anastasia. Jelas, bahkan dompet saya tidak cukup tebal untuk membawa orang keluar untuk makan malam, bahkan ketika saya tidak suka. Sambil mengabaikan suara protes Anastasia, saya mencoba beberapa baju saya. Karena sudah hampir dua tahun sejak ini dibuat, seperti yang Anda harapkan, mereka ketat. Ini merepotkan; Aku menggaruk kepalaku sambil melihat ke cermin. Akan sulit untuk mengatur satu set pakaian baru sebelum malam juga sekarang. Saya kira satu-satunya jalan yang tersisa adalah pergi ke toko dan membeli pakaian readymade. Sambil memeriksa apakah saya punya cukup uang, saya berencana untuk malam ini.
 
