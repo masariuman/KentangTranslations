@@ -50,6 +50,8 @@ aku menelan air liur di mulutku. Ya itu benar. aku mengingat kembali kejadian-ke
 
 Mendengar kata-kata O'brien-san, aku menghela nafas dan menenangkan pikiranku. aku tidak bisa menenangkan diri sepenuhnya. aku melangkah maju. Aku menghadap pedangnya. Untuk memotong, mendapatkan luka, membunuh, terbunuh. Pertempuran dengan nyawa sebagai taruhannya. aku masih kurang memiliki tekad penuh untuk melakukan itu tetapi pada saat ini, aku melangkah maju.
 
+<gambar> vol4 107.png
+
 "Aku datang."(renji)
 
 "Tidak perlu diberitahu. Datang saja ke arahku, dasar bodoh."
@@ -58,7 +60,7 @@ O'brien-san mengambil kuda-kuda. dia menaruh pedangnya di bahunya. Itu adalah ku
 
 aku penasaran apakah dia menyadari pikiranku, karena wajahnya menunjukkan banyak ketenangan. Sambil tertawa senang, dia tetap tenang seperti biasa. aku bergegas mendekat. Perlindungan ilahi dewi dan kekuatan cheat hampir tidak ada dalam diriku saat ini. aku hanya memiliki kemampuan fisik yang sedikit lebih baik dari biasanya. Dan ketika aku bergegas mendekat dengan sekuat tenaga, pria tua itu dengan tenang bertindak. Tepat ketika aku mengira pedangnya bergerak, dia menghantamnya di tanah. Awan debu naik untuk menghalangi penglihatanku.
 
-Tapi, aku telah melihat melalui serangan itu. Berbalik menuju titik buta saya menuju bahu kanan saya, saya mencengkeram pedangku dengan erat. Saya ragu-ragu sejenak. Menunjuk pedang ke arah manusia masih membuatku lelah secara mental. Tapi aku melepaskan pikiran itu, dan mengayunkan pedangku. Dengan bunyi dentang, goncangan yang nyaris membuat tangan saya mati rasa. Tebasan pedangku telah diayunkan dengan serangan dari pedangnya yang bergerak dengan kecepatan yang tidak bisa dilacak. Hanya sedetik yang lalu itu menempel di tanah, trik macam apa ini !? Mataku membelalak karena terkejut.
+Tapi, aku telah memprediksi serangan itu. aku Berbalik menuju titik butaku yaitu menuju bahu kananku, aku mencengkeram pedangku dengan erat. aku ragu-ragu sejenak. Mengarahkan pedang ke arah manusia masih membuatku lelah secara mental. Tapi aku membuang pikiran itu, dan mengayunkan pedangku. Dengan bunyi dentang, terasa goncangan yang nyaris membuat tanganku mati rasa. Tebasan pedangku telah dipantulkan dengan serangan dari pedangnya yang bergerak dengan kecepatan yang tidak bisa dilacak. sedetik yang lalu itu menempel di tanah, trik macam apa ini !? Mataku terbuka lebar karena terkejut.
 
 Di celah kecil itu, aku benar-benar merasakan tekanan yang datang dari O'brien-san meningkat. Tubuhnya, seluruh kehadirannya, terasa seperti tumbuh dalam ukuran. Aku hanya bisa melihat ketika kesatria tua itu mengangkat pedangnya yang panjang. Saat berikutnya, tubuhku bergerak lebih cepat daripada yang bisa dipikirkan oleh pikiranku dan aku entah bagaimana melakukan serangan dengan pedangku. Terpesona dari benturan, saya berguling di tanah.
 
