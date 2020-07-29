@@ -38,13 +38,13 @@ Karena ujung pedangnya menghalangiku, aku tidak bisa mendekatinya dan setiap kal
 
 Mendengar kata-kata terakhir, O'brien-san dengan santai melambaikan tangannya ke arah mereka. Santai sekali. dengan aku sebagai lawannya mungkin dia tidak terlalu perlu fokus.
 
-Souichi memanggil namaku juga, tetapi aku tidak punya keberanian untuk membalas. Hanya berfokus pada jarak antara kami saja sudah lebih dari yang bisa aku tangani saat ini. Keringat menetes di pipiku saat aku lebih kuat menggenggam pedang.
+Souichi memanggil namaku juga, tetapi aku tidak punya keberanian untuk menjawabnya. Hanya berfokus pada jarak antara kami saja sudah lebih dari yang bisa kutangani saat ini. Keringat menetes di pipiku dan aku lebih kuat menggenggam pedang.
 
-“Oioi, kita hanya latihan, tidak berusaha saling membunuh. Lebih tenang. ”
+"Oioi, kita hanya latihan, tidak berusaha saling membunuh. Lebih tenanglah."(ob)
 
-"—– bahkan jika kamu mengatakan itu."
+"—– walaupun kamu berkata seperti itu."
 
-“Kamu belum mundur juga jangan menghadap ke depan untuk mengambil inisiatif juga. Yang tidak Anda miliki, pertama dan terpenting, adalah tekad. "
+"Kamu belum menyerah dan belum maju untuk mengambil inisiatif juga. Yang tidak kamu miliki adalah, pertama dan terpenting, adalah tekad. "
 
 Diberitahu bahwa, saya menelan air liur di mulut saya. Ya itu benar. Saya mengingat kembali kejadian-kejadian yang membuat saya dilatih olehnya. Di dunia ini, dipenuhi monster, bahaya di setiap sudut, dan di mana kematian selalu berada di sisimu, untuk bertahan hidup di dunia seperti itu, dan agar aku tidak menjadi beban, aku ingin menjadi lebih kuat.
 
