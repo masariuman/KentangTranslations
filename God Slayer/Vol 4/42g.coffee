@@ -280,21 +280,21 @@ aku dengan santai berkata seperti itu kepada anastasia sambil berfikir pakaian m
 
 Tampaknya tidak senang dengan tanggapanku, Anastasia bangkit dari tempat tidur. dia tampaknya menggunakan kekuatan roh angin, roknya berkibar-kibar, membuat pahanya yang tipis, putih namun bagus terlihat terlihat. Serius, itu terlalu menggoda untuk mataku.
 
-"Aku akan membelikanmu sate daging orc panggang untukmu saat pulang, oke?"
+"Aku akan membelikanmu sate daging orc panggang untukmu saat pulang, oke?"(renji)
 
-"Mati saja!"
+"Mati saja kau!"(ana)
 
-Yang kejam adalah hal-hal yang dikatakan kecil ini. Hanya penampilannya yang imut, aku yakin dia populer dengan pria dengan jimat aneh. Seperti Koutarou, mungkin Koutarou, oh dan juga Koutarou. Dia bertingkah seperti chunni tetapi jauh di lubuk hatinya dia seperti itu . Sementara saya memikirkan hal-hal seperti itu, pintu kamar saya diketuk. Dan setelah jeda sesaat, pintu terbuka dan Yui-chan mengintip ke dalam. Di belakangnya adalah ksatria hantu lapis baja hitam, Ksatria. Apakah mereka datang mencari Anastasia?
+sungguh perkataan yang kejam yang dikatakan sikecil ini. Hanya penampilannya saja yang imut, aku yakin dia populer dengan pria dengan fetish aneh. Seperti Koutarou, mungkin Koutarou, oh dan juga Koutarou. Dia bertingkah seperti chunni tetapi jauh di lubuk hatinya dia seperti itu . pintu kamarku diketuk. setelah jeda sesaat, pintu terbuka dan Yui-chan mengintip ke dalam. Di belakangnya adalah ksatria hantu baja hitam, KNIGHT. Apakah mereka datang mencari Anastasia?
 
-"Oh, Yui."
+"Oh, Yui."(renji)
 
-“Maaf, Renji-san.” (Yui)
+"Maaf, Renji-san." (Yui)
 
-“Yo, ada apa yui-chan? Jika Anda sedang mencari atau Anastasia, bawa dia kembali bersama Anda. Dia terus bertengkar dengan Ermenhilde, itu menjengkelkan. ”(Renji)
+"Yo, ada apa yui-chan? Jika kamu sedang mencari Anastasia, bawa dia kembali bersamamu. Dia terus bertengkar dengan Ermenhilde, itu menjengkelkan."(Renji)
 
-"Tunggu, apa yang kamu katakan begitu tiba-tiba!?"
+"Tunggu, apa yang tiba-tiba kamu katakan!?"(ana)
 
-Anastasia mengangkat teriakan pada saat yang sama ketika KNIGHT menutup pintu di belakangnya. Yui-cahn, dengan ekspresi sedih, datang lebih dekat ke Anastasia yang melayang di dekat tempat tidur.
+Anastasia berteriak pada saat yang sama ketika KNIGHT menutup pintu di belakangnya. Yui-cahn, dengan ekspresi sedih, datang mendekati Anastasia yang melayang di dekat tempat tidur.
 
 Bagaimana saya harus mengatakan ini, meskipun saya adalah orang yang menghasut ini, bahkan saya merasa sedikit tidak enak sekarang. Melihat Yui-chan seperti itu, Anastasia kehilangan ekspresi percaya diri yang dia miliki ketika berbicara dengan saya dan ermenhilde dan sedang melihat sekeliling dengan gugup. Terkadang dia menatapku, tetapi aku tidak bisa membantunya. Menyerah saja.
 
