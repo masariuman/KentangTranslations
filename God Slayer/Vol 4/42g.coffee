@@ -114,9 +114,9 @@ Sambil membungkuk, Fuyou-san berjalan lurus menuju Souichi. Sebagai gantinya, Ya
 
 Sambil mengguncang lenganku yang sudah pulih, Yayoi-chan tertawa.
 
-Seperti yang diharapkan, lebih baik ketika mereka tertawa seperti ini. Aku tidak benar-benar membenci orang jujur ​​seperti Fuyou-san, tapi, aku benar-benar buruk dalam berurusan dengan mereka. Juga, aku belum pernah melihatnya tersenyum sekali pun. Bagaimana saya harus mengatakan ini, dia selalu bertindak sangat kuat. Saya pikir, gadis itu juga tidak memiliki ketenangan sekarang.
+Seperti yang diharapkan, itu lebih baik ketika mereka tertawa seperti ini. Aku tidak benar-benar membenci orang yang berterus terang ​​seperti Fuyou-san, tapi, aku benar-benar buruk dalam berurusan dengan mereka. dan Juga, aku belum pernah melihatnya tersenyum sekali pun. Bagaimana ya, dia selalu bersikap sangat kuat. aku pikir, gadis itu juga tidak tenang sekarang.
 
-“Tolong jangan membenci Aya-chan.” (Yayoi)
+"Tolong jangan membenci Aya-chan."(Yayoi)
 
 "Tidak?"
 
