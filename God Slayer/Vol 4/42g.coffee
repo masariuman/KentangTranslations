@@ -102,7 +102,7 @@ Merasakan tatapan dinginnya, aku menggaruk pipiku.
 
 Ketika dia mengatakan itu sambil menghela nafas, aku mengalihkan pandanganku dengan perasaan sedih. gadis ini, 10 tahun lebih muda dariku, berkata, aku tidak cocok untuk bertarung. Souichi dan yang lainnya yang mendapat pemberian yang sangat terkait dengan pertempuran dari sang dewi. aku yakin aku tidak bisa menang melawan gadis penyihir ini. Itu benar-benar menyedihkan, namun aku tidak bisa menjawabnya .
 
-Aku ingin tahu apa yang dia pikirkan tentangku, atau mungkin dia kehilangan minat.
+Aku ingin tahu apa yang dia pikirkannya tentangku, atau mungkin dia tidak terlalu tertarik padaku.
 
 "Baiklah, tolong permisi dulu."
 
