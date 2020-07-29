@@ -280,7 +280,7 @@ aku dengan santai berkata seperti itu kepada anastasia sambil berfikir pakaian m
 
 Tampaknya tidak senang dengan tanggapanku, Anastasia bangkit dari tempat tidur. dia tampaknya menggunakan kekuatan roh angin, roknya berkibar-kibar, membuat pahanya yang tipis, putih namun bagus terlihat terlihat. Serius, itu terlalu menggoda untuk mataku.
 
-"Aku akan membelikanmu tongkat daging orc panggang untukmu dari kios saat kembali, oke?"
+"Aku akan membelikanmu sate daging orc panggang untukmu saat pulang, oke?"
 
 "Mati saja!"
 
