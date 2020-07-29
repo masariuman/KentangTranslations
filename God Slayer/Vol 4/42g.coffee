@@ -258,9 +258,9 @@ Aku menghela nafas melihat mereka berdua terdiam hanya dengan menyebutkan nama Y
 
 "Mengapa kalian tiba-tiba kompak sekarang?" (Renji)
 
-"Kita tidak! Benar, wanita medali? ”
+"kami tidak kompak! Benarkan, wanita medali? ”
 
-[Tepat, kau serangga.]
+[Tepat sekali, dasar serangga.]
 
 Serius, apa-apaan ini. Sambil mengobrol dengan Anastasia yang sudah melupakan amarahnya sebelumnya, aku membuka lemari kayu untuk memilih beberapa pakaian. Tampaknya terbuat dari beberapa kayu berkualitas bagus karena kelihatannya sangat kokoh namun sebenarnya cukup ringan. Hampir tidak ada upaya untuk membuka pintu ganda. Mengambil beberapa set pakaian dari itu, saya tutup kembali.
 
