@@ -420,11 +420,11 @@ Aya menyerahkan kartu menu kepadaku. jumlah hidangan nyatidak banyak.
 
 Karena dunia ini tidak memiliki konsep pengiriman ke rumah, tidak ada cara mudah untuk mendapatkan bahan dan itu mungkin tidak bisa dihindari. Karena kami berada di ibukota, itu akan lebih mudah daripada berada di desa tetapi tetap saja, mendapatkan barang-barang murah akan sangat sulit. Tetapi tetap, untuk memiliki salad lengkap pada menu, apakah dia memiliki hubungan dengan keluarga petani? sedangkan untuk daging, daging Orc ........ itu tidak terlalu sulit untuk didapatkan.
 
-Sisanya adalah jenis hidangan berbasis mie / gandum yang biasanya tidak pernah Anda lihat di dunia ini. Melirik orang lain, semua orang sepertinya memakannya juga.
+Sisanya adalah jenis hidangan berbasis mie / gandum yang biasanya tidak pernah kamu lihat di dunia ini. aku melihat orang lain dan sepertinya semua orang memakannya.
 
 "Kurasa masakan dari dunia kita jarang ada di dunia ini, kan?" (Renji)
 
-"Kurang lebih. Anda hanya bisa makan hal-hal seperti itu di sini yang mengapa tempat ini menjadi populer di kalangan pecinta. Itu tidak menjadi populer sekalipun. Hidangan yang bisa kita dapatkan di kastil juga tidak muncul di sini. ”
+"begitulah. kamu hanya bisa makan hal-hal seperti itu di sini dan karena itulah tempat ini menjadi populer di kalangan pecinta makanan. tapi tidak terlalu populer juga. Hidangan yang bisa kita dapatkan di istana juga tidak ada di sini."
 
 "Yah, tentu saja."
 
