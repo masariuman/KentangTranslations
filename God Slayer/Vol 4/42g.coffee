@@ -328,7 +328,7 @@ Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaiank
 
 "Baru saja, dari Yui."(ana)
 
-Saya meminta itu semata-mata untuk menghindari topik tetapi saya sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. Tidak baik, dia juga 16 sekarang kurasa. Itu normal baginya untuk diharapkan dalam hal-hal seperti itu. Haruskah saya senang dengan pertumbuhannya atau harus khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
+Saya bertanya seperti itu untuk menghindari topik itu tetapi aku sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. yaaah, dia juga 16 tahun sekarang kurasa. Itu normal baginya untuk diharapkan dalam hal-hal seperti itu. Haruskah saya senang dengan pertumbuhannya atau harus khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
 
 Ketika aku melihat ke arah Yui-chan, dia sudah tidak ada lagi. Kapan dia pindah? Dia saat ini mendorong Anastasia ke bawah di tempat tidur dengan wajah merah. Mungkin mencoba untuk menutup mulutnya tetapi karena Yui-chan bukan tipe yang cocok secara fisik, itu hanya tampak seperti keduanya telah jatuh ke satu sama lain di tempat tidur. Dan di atas itu, keduanya mengenakan rok jadi itu cukup berbahaya. Memberikan batuk, aku mengalihkan tatapanku ke arah jendela, tetapi tekanan diam datang dari KNIGHT dan Ermenhilde terlalu luar biasa. Jika orang itu lemah hati, ia akan mengalami kejang gottena.
 
