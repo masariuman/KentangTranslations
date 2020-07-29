@@ -200,9 +200,9 @@ Nah, para peri lainnya tidak terlalu berbeda dari Anastasia dan bersenang-senang
 
 "Aku akan pergi makan malam dengan Aya malam ini."
 
-[Untuk itu, aku harus memaksakan arti 'penampilan dan perawatan' ke kepalanya. Kamu sedang merepotkan jadi kembalilah, dasar serangga.]
+[karena itulah, aku memaksakan arti 'penampilan dan perawatan' ke kepalanya. Kamu merepotkan jadi pergilah, dasar serangga.]
 
-"Siapa serangga, kamu wanita medali !? ……..tunggu sebentar."
+"Siapa yang serangga, dasar kamu wanita medali !? ……..tunggu sebentar."
 
 What’s with that surprised voice? When I looked towards the bed, the fairy who had been laughing like crazy till now stood up very docilely. It’s probably not my imagination that her expression loks angry. Maybe due to her height, she glared at me while looking up at me. It’s not scary at all though.
 
