@@ -212,7 +212,7 @@ ada apa dengan suara terkejut itu? ketika aku melihat kearah kasur, peri yang te
 
 jika aku melakukannya, aku hanya bis amembayangkan apa yang akan aya katakan, atau lebih tepatnya, apa yang akan dia lakukan kepadaku.
 
-She didn’t say it upfront but, I’m sure she’s expecting to go to dinner alone, just the two of us. And if I were to go against her expectations———-my body is well aware what she’d do much to my own displeasure. No, even I won’t be able to laugh it away like usual. Yeah, I can’t be acting like a child always after all. I’m 28 already. My heart’s still young but I’m at an age where I’m expected to read the mood properly.
+dia tidak mengatakan itu secara langsung tapi, aku yakin dia mengharapkan untuk makan malam sendiri, hanya kami berdua saja. dan jika tidak sesuai dengan ekpetasinya---- tubuhku sadar apa yang akan dia lakukan denganku. tidak, bahkan aku tidak dapat tertawa seperti biasanya. yeah, aku tidak bisa bersikap seperti anak kecil terus. aku sudah 28 tahun. hatiku masih muda tapi aku sudah berada di umur dimana aku harus bisa membaca suasana dengan benar.
 
 But, Anastasia seemed like she really wanted to go to dinner with me as she was pouting right now. Is that supposed to be an objection from her? Leave me alone.
 
