@@ -328,7 +328,7 @@ Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaiank
 
 "Baru saja, dari Yui."(ana)
 
-Saya bertanya seperti itu untuk menghindari topik itu tetapi aku sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. yaaah, dia juga 16 tahun sekarang kurasa. Itu normal baginya untuk dalam hal-hal seperti itu. Haruskah aku senang dengan pertumbuhannya atau khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
+aku bertanya seperti itu untuk menghindari topik itu tetapi aku sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. yaaah, dia juga 16 tahun sekarang kurasa. Itu normal baginya untuk dalam hal-hal seperti itu. Haruskah aku senang dengan pertumbuhannya atau khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
 
 Ketika aku melihat ke arah Yui-chan, dia sudah tidak ada lagi. Kapan dia bergerak? Dia saat ini menekan Anastasia di tempat tidur dengan wajah merah. Mungkin dia mencoba untuk menutup mulutnya tetapi karena Yui-chan bukan tipe yang cocok secara fisik, itu hanya tampak seperti yui terjatuh dan menimpa anastasia. Dan juga, keduanya mengenakan rok jadi itu cukup berbahaya. aku batuk sedikit dan aku mengalihkan tatapanku ke arah jendela, tetapi tekanan yang datang dari KNIGHT dan Ermenhilde terlalu luar biasa. jika aku berhati lemah, maka aku bisa kejang-kejang.
 
@@ -524,24 +524,24 @@ pesanan kami datang dan diatur di atas meja. Udon yang mengepul merangsang rasa 
 
 "Tidak. ayo makan."
 
-Saya menyeruput Udon saya. Aya sepertinya ingin aku mengatakannya lagi, tapi, yeah, Udon ini benar-benar enak. Seperti yang diharapkan dari Toudou, dia memiliki pekerjaan terbesar yang pernah ada. Sambil memikirkan hal-hal seperti reporter gourmet, aku melirik ke arah Aya.
+aku menyeruput Udonku. Aya sepertinya ingin aku mengatakannya lagi, tapi, yeah, Udon ini benar-benar enak. Seperti yang diharapkan dari Toudou, dia memiliki pekerjaan terbaik yang pernah ada. Sambil memikirkan hal-hal seperti ahli pencicip makanan, aku melirik ke arah Aya.
 
-Apakah dia menyerah melihat bahwa aku tidak akan mengulanginya lagi, saat ini dia fokus pada pasta carbonara yang dia pesan. Melihat gerakan kecilnya seperti memegang rambutnya sedikit ke belakang, aku merasa terpikat. Sambil menatapnya, saya berpikir.
+Apakah dia menyerah mengira bahwa aku tidak akan mengulanginya lagi? saat ini dia fokus pada pasta carbonara yang dia pesan. Melihat gerakan kecilnya seperti memegang rambutnya sedikit ke belakang, aku merasa terpikat. Sambil menatapnya, ali berpikir.
 
 ——— Aku tidak bisa menjadi pahlawan.
 
-Maka setidaknya, saya bisa bergerak maju dengan percaya diri. Seperti sebelumnya. Seperti setahun lalu.
+Maka paling tidak, aku bisa bergerak maju dengan percaya diri. Seperti sebelumnya. Seperti setahun lalu.
 
-“Turnamen …….” (Renji)
+"Turnamen ……." (Renji)
 
-"Iya?"
+"ya?"
 
-"Tidak, well, aku berpikir mungkin aku bisa mencoba sedikit lebih keras di turnamen pertempuran juga."
+"Tidak, yaaaah, aku berpikir mungkin aku bisa mencoba sedikit lebih keras di turnamen bela diri juga."
 
-Saya ragu hanya mencoba saja akan membiarkan saya menang, tetapi masih, saya mungkin akan berubah sedikit.
+aku ragu hanya mencoba saja akan membuatku menang, tetapi, aku mungkin akan berubah sedikit.
 
-Itu saja akan memiliki arti yang cukup bagi saya.
+Itu saja akan memiliki arti yang cukup bagiku.
 
-Saya bukan Pahlawan.
+aku bukan Pahlawan.
 
-Tetapi bahkan saya, pernah mengagumi para pahlawan itu.
+Tetapi aku, pernah mengagumi para pahlawan itu.
