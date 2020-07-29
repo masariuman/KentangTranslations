@@ -36,7 +36,7 @@ Karena ujung pedangnya menghalangiku, aku tidak bisa mendekatinya dan setiap kal
 
 "Komandan, tunjukkan sisi kerenmu sekali lagi!"
 
-Mendengar kata-kata terakhir, O'brien-san dengan santai melambaikan tangannya ke arah mereka. Santai sekali. Bahkan dengan saya sebagai lawan, saya kira dia tidak terlalu perlu fokus sebanyak itu.
+Mendengar kata-kata terakhir, O'brien-san dengan santai melambaikan tangannya ke arah mereka. Santai sekali. dengan aku sebagai lawannya mungkin dia tidak terlalu perlu fokus.
 
 Souichi memanggil namaku juga, tetapi aku tidak punya keberanian untuk membalas. Hanya berfokus pada jarak antara kami saja sudah lebih dari yang bisa aku tangani saat ini. Keringat menetes di pipiku saat aku lebih kuat menggenggam pedang.
 
