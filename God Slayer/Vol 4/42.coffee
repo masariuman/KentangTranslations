@@ -2,7 +2,7 @@ Chapter 42 Turnamen Bela Diri (1)
 
 Bahu kananku yang barusan dipukul terasa panas karena rasa sakit dan terus mengganggu konsentrasiku. Sudah 1 minggu sejak kami dipanggil ke dunia ini. Selama beberapa hari terakhir, aku telah berlatih bagaimana menggunakan pedang di siang hari.
 
-Di tengah-tengah tempat latihan, aku melihat kesatria paruh baya berdiri di depanku saat aku terengah-engah. Entah itu tentara lain yang berlatih di sini atau Souichi dan yang lainnya, mereka semua lebih terbiasa menggunakan senjata daripada aku. Mereka tampak lebih alami daripada saya. Dan mereka semua menatapku, dengan rasa ingin tahu.
+Di tengah-tengah tempat latihan, aku melihat kesatria paruh baya berdiri di depanku. Entah itu tentara lain yang berlatih di sini atau Souichi dan yang lainnya, mereka semua lebih terbiasa menggunakan senjata daripada aku. Mereka tampak lebih alami daripada aku. Dan mereka semua menatapku, dengan rasa ingin tahu.
 
 Sambil memegang pedang penggunaan latihan yang tumpul dengan kedua tangan, aku mengatur nafasku.
 
