@@ -440,27 +440,27 @@ Sambil mencoba mengingat resep, aku memesan sesuatu. Tentu saja, pesananku adala
 
 "……… .kamu terdengar seperti seorang ayah, Renji-san."
 
-"aku belum setua itu …… ..mungkin. Setidaknya tahan aku di 'saudara'. "
+"aku belum setua itu …… ..mungkin. Setidaknya anggap sebagai 'abang'. "
 
-“Fufu. Tapi itulah jenis kehadiran yang Anda miliki. Bahkan Souichi melihatmu seperti itu, tahu. ”
+"Fufu. Tapi itulah penampilan yang kamu berikan. Bahkan Souichi melihatmu seperti itu lho...."
 
-Tapi menjadi seorang ayah benar-benar .. Orang yang mengatakan hal yang merepotkan itu tertawa ketika melihat reaksiku. Bahkan gerakan manisnya yang biasa tampak lebih dewasa hanya karena dia membiarkan rambutnya terurai.
+Tapi menjadi seorang ayah.... aya yang mengatakan hal yang merepotkan itu tertawa ketika melihat reaksiku. Bahkan gerakan manisnya yang biasa tampak lebih dewasa hanya karena dia membiarkan rambutnya terurai.
 
-Menyadari tatapanku, seolah berusaha menyembunyikan senyumnya, dia melihat ke bawah untuk mengalihkan pandangannya. Di bawah cahaya redup dari lampu ajaib, aku tersenyum melihat Aya mengecilkan dirinya sendiri seperti itu untuk menyembunyikan rasa malunya.
+Menyadari tatapanku, seolah berusaha menyembunyikan senyumnya, dia melihat ke bawah untuk mengalihkan pandangannya. Di bawah cahaya redup, aku tersenyum melihat Aya mengecilkan dirinya sendiri seperti itu untuk menyembunyikan rasa malunya.
 
-"Entah bagaimana, itu benar-benar terasa nostalgia." (Renji)
+"Entah bagaimana, ini benar-benar terasa nostalgia." (Renji)
 
 "Eh?"
 
 Mendengar kata-kataku, wajahnya bangkit kembali.
 
-"Dulu ketika kita baru saja datang ke dunia ini, seperti, kita tidak banyak bicara, kan?"
+"Dulu ketika kita baru saja datang ke dunia ini, seperti, kita tidak banyak bicara, kan?"(renji)
 
-"Kami, baik itu ………"
+"kita, errrr ………"
 
 "Dulu, bahkan saat makan malam seperti ini, aku hanya berbicara dengan Souichi dan Yayoi-chan."
 
-"Kamu .."
+"uuuu .."
 
 Bagaimana saya harus mengatakan ini, tetapi Aya yang dulu pemalu, atau lebih tepatnya, selalu membangun tembok antara dirinya dan orang lain yang saya pikir. Saya tahu dia memiliki keadaan keluarga yang rumit, dan telah mendengarnya secara mendetail. Jadi saya bisa mengerti mengapa dia seperti itu, dan itulah mengapa sekarang saya bisa berbicara dengannya seperti ini tentang hal itu.
 
