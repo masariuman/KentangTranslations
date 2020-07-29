@@ -310,15 +310,15 @@ Yui-chan diam-diam mencela Anastasia dan Anastasia terus meminta bantuan. KNIGHT
 
 "Yui-chan, lihat ke sini sebentar, mana yang menurutmu lebih cocok untukku?" (Renji)
 
-Mengumpulkan pakaian yang bisa saya pakai, saya meminta pendapat Yui-chan. Setelah dibebaskan dari pandangan Yui-chan, Anastasia juga menghela nafas lega. Kenapa dia begitu lemah hanya untuk Yui-chan? Ya, saya kira siapa pun akan merasa bersalah dimarahi oleh seorang anak.
+aku Mengumpulkan pakaian yang bisa kupakai dan meminta pendapat Yui-chan. Setelah terbebas dari pandangan Yui-chan, Anastasia menghela nafas lega. Kenapa dia begitu lemah hanya kepada Yui-chan? Ya, aku kira siapa pun akan merasa bersalah dimarahi oleh seorang bocah.
 
-Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, saya mulai memilih pakaian saya sebagai Anastasia, mungkin karena bosan, menjatuhkan diri kembali ke tempat tidur. Karena Yui-chan ada di sini, dia tampaknya membayar untuk tidak merusak bajunya kali ini.
+Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaianku sedangkan Anastasia, mungkin karena bosan, menjatuhkan diri lagi ke tempat tidur. Karena Yui-chan ada di sini, dia tampaknya berfikir untuk tidak membuat bajunya kusut kali ini.
 
-"Katakan, Renji."
+"Renji..."(ana)
 
-"Apa?"
+"Apa?"(renji)
 
-"Apakah kencan dengan Aya, menyenangkan?"
+"Apakah kencan dengan Aya, menyenangkan?"(ana)
 
 "Yah, mengesampingkan fakta apakah ini bisa disebut tanggal yang sebenarnya, ya, itu menyenangkan."
 
