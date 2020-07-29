@@ -222,9 +222,9 @@ tapi, anastasia sepertinya ingin makan malam denganku dan dia mengembungkan pipi
 
 tolong jangan berbicara seperti aku berkencan dengan banyak waanita. aku melihatnya dengan wajah lelah dan anastasia menggigit jarinya dengan muka serius. bagaimana kamu memandangku? atau lebih tepatnya, karakter seperti apa diriku ini dimata kalian? beberapa waktu lalu, bahkan kuuki berbicara tentang hubunganku dengan perempuan juga. itu bisa membuatku menangis lho... yaah walau aku tidak akan menangis juga...
 
-Tapi selain itu, bahkan Utano-san tampaknya lebih ketat dari biasanya tentang kasus dengan Solnea. Bagaimana saya harus membujuknya? Cara termudah adalah membiarkan mereka bertemu besok dan mengakhirinya sekali dan untuk selamanya. Saya benar-benar ingin terbebas dari semua tuduhan palsu ini. Yah, aku percaya bahwa Solnea itu cantik, tapi itu tidak berarti aku akan mulai bernafsu padanya. Itu bukan kepribadian saya. Jika saya melakukannya, saya yakin suatu hari, seseorang di suatu tempat akan berakhir terluka. Bahkan si idiot pun mengerti itu. Belum lagi saya masih belum menyelesaikan perasaan saya tentang Eru, dan kemudian ada Utano-san dan Aya juga.
+selain itu, bahkan Utano-san tampaknya lebih ketat dari biasanya tentang kasusku dengan Solnea. Bagaimana aku harus membujuknya? Cara termudah adalah membiarkan mereka bertemu besok dan langsung mengakhirinya untuk selamanya. aku benar-benar ingin terbebas dari semua tuduhan palsu ini. Yah, aku percaya bahwa Solnea itu cantik, tapi itu tidak berarti aku akan mulai bernafsu padanya. Itu bukan kepribadianku. Jika aku melakukannya, aku yakin suatu hari, seseorang di suatu tempat akan berakhir terluka. Bahkan si idiot pun mengerti itu. Belum lagi aku masih belum menyelesaikan perasaanku tentang Eru, kemudian ada juga perasaan Utano-san dan Aya juga.
 
-Harem itu hebat, aku benar-benar berpikir begitu. Hanya ketika saya bukan orang yang terkait / prihatin untuk itu.
+Harem itu bagus. tapi itu hanya berlaku kalau aku bukanlah orang yang terkait/terlibat akan harem itu.
 
 (bagian 2)
 
