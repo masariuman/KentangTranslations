@@ -52,6 +52,8 @@ Bagaimanapun juga, aku seorang pria. Mau tak mau aku mengulurkan tangan kepada s
 
 Apa yang dia maksud dengan 'pasti wanita lain lagi' dan 'lagi', ya? Sepertinya aku hanya mencoba menyelamatkan wanita. aku benar-benar mencoba menyelamatkan orang terlepas dari jenis kelamin mereka lho... dasar Pria yang kasar. Saat aku berbicara dengan Kuuki, lengan kananku ditarik dengan ringan. Itu Aya.
 
+<gambar> vol4 089.png
+
 Tapi sekarang, Aya tidak menunjukkan senyumnya sebelumnya dan menatapku dengan wajah yang agak bermasalah.
 
 [Ada apa, Aya?]
