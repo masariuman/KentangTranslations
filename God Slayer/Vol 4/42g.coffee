@@ -331,34 +331,32 @@ Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaiank
 Saya bertanya seperti itu untuk menghindari topik itu tetapi aku sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. yaaah, dia juga 16 tahun sekarang kurasa. Itu normal baginya untuk dalam hal-hal seperti itu. Haruskah aku senang dengan pertumbuhannya atau khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
 
 Ketika aku melihat ke arah Yui-chan, dia sudah tidak ada lagi. Kapan dia bergerak? Dia saat ini menekan Anastasia di tempat tidur dengan wajah merah. Mungkin dia mencoba untuk menutup mulutnya tetapi karena Yui-chan bukan tipe yang cocok secara fisik, itu hanya tampak seperti yui terjatuh dan menimpa anastasia. Dan juga, keduanya mengenakan rok jadi itu cukup berbahaya. aku batuk sedikit dan aku mengalihkan tatapanku ke arah jendela, tetapi tekanan yang datang dari KNIGHT dan Ermenhilde terlalu luar biasa. jika aku berhati lemah, maka aku bisa kejang-kejang.
-------------
-Di dalam ini, yah bukan benar-benar adegan 'pembantaian' (shuraba), saya hanya menatap keluar jendela.
 
-"Ini bagus bahwa semua orang sangat bersemangat, ya."
+"baguslah semuanya sangat bersemangat."(renji)
 
-[Di mana kamu melihat? Apa yang kamu cari? Hm ??]
+[kemana kamu melihat? Apa yang kamu lihat? Hm ??]
 
-OI, KNIGHT-san, tolong jangan berdiri di sampingku sambil menyadari tekanan kuat seperti itu kan? Juga Ermenhilde, jika saya melihat Yui-chan dan Anastasia dengan cara itu, saya tidak akan memaafkan diri saya terlebih dahulu dan terutama, jadi tenanglah. Tetap tenang.
+OI, KNIGHT-san, tolong jangan berdiri di sampingku sambil membuat tekanan kuat seperti itu... Ermenhilde juga, kalau aku melihat Yui-chan dan Anastasia seperti itu, aku tidak akan memaafkan dirku, jadi tenanglah. Tetap tenang.
 
 .
 
 .
 
-Tapi tetap saja, pikirku.
+Tapi tetap saja.
 
-“Ada sesuatu, Renji-san?” (Aya)
+"ada apa, Renji-san?" (Aya)
 
 "Tidak, tidak apa-apa."
 
-Mengenakan gaun biru ketat dan shwal tebal yang terbuat dari bulu monster, Aya mendongak ke arahku dan berbicara. Saya harus mencoba untuk tidak khawatir tentang kenyataan bahwa kami berada pada jarak di mana siku kami pada dasarnya saling menyentuh. Biasanya Ermenhilde yang tidak bisa membaca suasana hati akan berbicara sesuatu secara acak sekarang, tetapi saat ini dia telah ditinggalkan dengan Utano-san untuk diamankan sehingga sangat tenang.
+aya Mengenakan gaun biru ketat dan shal tebal yang terbuat dari bulu monster. aku harus mencoba untuk tidak khawatir pada kenyataan bahwa kami berada pada jarak di mana siku kami saling menyentuh. Biasanya Ermenhilde yang tidak bisa membaca suasana hati akan berbicara sesuatu secara acak sekarang, tetapi saat ini dia kutinggalkan bersama Utano-san jadi sekarang agak tenang.
 
-Saat itu malam hari. Saat aku berjalan di sepanjang jalan utama, sekarang memiliki orang-orang yang jauh lebih sedikit daripada biasanya, aku mengingat jalan ke kepala Toudou di kepalaku.
+Saat itu malam hari. jalanan sudah tidak ramai lagi dan aku mengingat lagi jalan ketempat toudou.
 
-"Apakah kamu tidak kedinginan?"
+"Apakah kamu tidak kedinginan?"(renji)
 
-"Fufu, tidak, aku baik-baik saja."
+"Fufu, tidak, aku baik-baik saja."(aya)
 
-Mengatakan itu, Aya bersandar sedikit lebih dekat ke arahku. Sementara bertingkah seolah aku tidak menyadarinya, aku menggaruk pipiku dengan tangan yang lain. Dia dalam suasana hati yang sangat baik. Jika saya mengatakan itu dengan keras, saya ingin tahu apa yang akan dia katakan. Saya menjadi sedikit ingin tahu tetapi memutuskan untuk tidak menanyakan itu dan sedikit memperlambat kecepatan berjalan saya.
+Aya bersandar sedikit lebih dekat ke arahku. aku berpura-pura tidak menyadarinya, aku menggaruk pipiku dengan tangan yang lain. suasana hatinya lagi baik. aku penasaran apa yang akan dia katakan kalau aku mengatakannya dengan keras. aku penasaran tapi aku memutuskan untuk tidak menanyakannya dan sedikit memperlambat kecepatanku berjalan.
 
 Aya merasa lebih tinggi hari ini daripada biasanya, mungkin karena sepatu berhak tinggi seperti yang dia kenakan. Rambutnya yang terurai berayun di angin dan bersinar di cahaya redup dari lampu jalanan ajaib. Riasan cahayanya jauh lebih cocok untuknya karena dia selalu sedikit lebih dewasa daripada teman-temannya.
 
