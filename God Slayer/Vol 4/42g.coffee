@@ -100,7 +100,7 @@ Merasakan tatapan dinginnya, aku menggaruk pipiku.
 
 "tolong serahkan pertarungan kepada kami, Yamada-san. Aku benar-benar berpikir akan lebih baik jika kamu tinggal di sini di istana bersama dengan Toudou-san dan Yui."(Aya)
 
-Ketika dia mengatakan itu sambil menghela nafas, aku mengalihkan pandanganku dengan perasaan sedih. Seperti yang dia katakan. Sama seperti gadis ini, 10 tahun lebih muda dariku, berkata, saya tidak cocok untuk berkelahi. Apalagi Souichi dan yang lainnya yang mendapat hadiah yang sangat terkait dengan pertempuran dari sang dewi, aku yakin aku tidak bisa menang melawan gadis penyihir ini. Itu benar-benar menyedihkan, namun saya tidak punya jawaban.
+Ketika dia mengatakan itu sambil menghela nafas, aku mengalihkan pandanganku dengan perasaan sedih. gadis ini, 10 tahun lebih muda dariku, berkata, aku tidak cocok untuk bertarung. Souichi dan yang lainnya yang mendapat pemberian yang sangat terkait dengan pertempuran dari sang dewi. aku yakin aku tidak bisa menang melawan gadis penyihir ini. Itu benar-benar menyedihkan, namun aku tidak bisa menjawabnya .
 
 Aku ingin tahu apa yang dia pikirkan tentangku, atau mungkin dia kehilangan minat.
 
