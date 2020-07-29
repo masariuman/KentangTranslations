@@ -104,13 +104,13 @@ Ketika dia mengatakan itu sambil menghela nafas, aku mengalihkan pandanganku den
 
 Aku ingin tahu apa yang dia pikirkannya tentangku, atau mungkin dia tidak terlalu tertarik padaku.
 
-"Baiklah, tolong permisi dulu."
+"aku permisi dulu."(aya)
 
-Sambil membungkuk, Fuyou-san berjalan lurus menuju Souichi. Sebagai gantinya, Yayoi-chan mengarahkan telapak tangannya ke lengan kiriku. Saat saya merasakan kehangatan, kelelahan dan rasa sakit saya mulai hilang.
+Sambil membungkuk, Fuyou-san berjalan lurus menuju Souichi. Sebagai gantinya, Yayoi-chan mengarahkan telapak tangannya ke lengan kiriku. aku merasakan kehangatan, kelelahan dan rasa sakitku mulai hilang.
 
-“Ini benar-benar nyaman. Sihir dan mukjizat. Ini benar-benar dunia fantasi ya? ”(Renji)
+"Ini benar-benar nyaman. magic dan keajaiban. Ini benar-benar dunia fantasi ya?"(Renji)
 
-“Fufu, kamu mengatakan hal yang sama dengan Inoue-san.” (Yayoi)
+"Fufu, kamu mengatakan hal yang sama dengan Inoue-san." (Yayoi)
 
 Sambil mengguncang lenganku yang sudah pulih, Yayoi-chan tertawa.
 
