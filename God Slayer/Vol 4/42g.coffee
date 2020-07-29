@@ -432,15 +432,15 @@ Yah, akan lebih baik jika hidangan itu ada. sudah kuduga, tidak mudah membuat hi
 
 Sambil mencoba mengingat resep, aku memesan sesuatu. Tentu saja, pesananku adalah jenis gandum. aku memesan Tsukimi Udon dan salad serta Aya memesan pasta Carbonara. Hmm tapi yah, aku penasaran apakah aneh memesan sesuatu seperti Udon saat berkencan tapi, aku benar-benar ingin makan itu. Aku ingin tahu apakah Toudou akan membuatnya sendiri?
 
-"Apakah itu cukup banyak?"
+"segitu saja cukup?"(renji)
 
-"Iya. Lagipula saya tidak makan terlalu banyak. ”
+"Iya. Lagipula aku tidak makan terlalu banyak."
 
-"Jika Anda khawatir tentang kesehatan keuangan saya, Anda tidak perlu apa-apa?"
+"Jika kamu khawatir tentang keuanganku, kamu tidak perlu mengkhawatirkannya?"
 
 "……… .kamu terdengar seperti seorang ayah, Renji-san."
 
-“Sekarang, aku belum setua itu …… ..mungkin. Setidaknya tahan aku di 'saudara'. "
+"aku belum setua itu …… ..mungkin. Setidaknya tahan aku di 'saudara'. "
 
 “Fufu. Tapi itulah jenis kehadiran yang Anda miliki. Bahkan Souichi melihatmu seperti itu, tahu. ”
 
