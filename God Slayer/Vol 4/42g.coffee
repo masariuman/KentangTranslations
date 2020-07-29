@@ -331,7 +331,7 @@ Sambil mendengarkan pendapat Yui-chan dan Ermenhilde, aku mulai memilih pakaiank
 Saya bertanya seperti itu untuk menghindari topik itu tetapi aku sedikit terkejut dengan nama tak terduga yang datang darinya. Yui-chan sepertinya tidak terlalu peduli. yaaah, dia juga 16 tahun sekarang kurasa. Itu normal baginya untuk dalam hal-hal seperti itu. Haruskah aku senang dengan pertumbuhannya atau khawatir tentang hal itu? Ngomong-ngomong, aku ingin tahu apakah ada seseorang yang dia sukai.
 
 Ketika aku melihat ke arah Yui-chan, dia sudah tidak ada lagi. Kapan dia bergerak? Dia saat ini menekan Anastasia di tempat tidur dengan wajah merah. Mungkin dia mencoba untuk menutup mulutnya tetapi karena Yui-chan bukan tipe yang cocok secara fisik, itu hanya tampak seperti yui terjatuh dan menimpa anastasia. Dan juga, keduanya mengenakan rok jadi itu cukup berbahaya. aku batuk sedikit dan aku mengalihkan tatapanku ke arah jendela, tetapi tekanan yang datang dari KNIGHT dan Ermenhilde terlalu luar biasa. jika aku berhati lemah, maka aku bisa kejang-kejang.
-
+------------
 Di dalam ini, yah bukan benar-benar adegan 'pembantaian' (shuraba), saya hanya menatap keluar jendela.
 
 "Ini bagus bahwa semua orang sangat bersemangat, ya."
