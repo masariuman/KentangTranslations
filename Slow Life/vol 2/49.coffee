@@ -46,87 +46,61 @@ Mungkin anak itu tahu tentang karakteristikku. Mungkin dia sengaja menangis.
 
 aku berpikir dalam hati dan benih keraguan tumbuh di hatiku, kebencian yang tidak bisa dilepaskan mulai membara di hatiku.
 
-Saya seorang pahlawan. Pahlawan tidak bisa mengabaikan orang yang membutuhkan.
+aku seorang pahlawan. Pahlawan tidak bisa mengabaikan orang yang membutuhkan.
 
-Bahkan jika saya lebih muda dari anak itu.
+Bahkan jika aku lebih muda dari anak itu.
 
-Bahkan jika saya hanya di sini untuk bersantai.
+Bahkan jika aku hanya di sini untuk bersantai.
 
-Bahkan jika saya sebelumnya mengotori pakaian saya dalam situasi yang sama dan ibu memukuli saya dan memperingatkan saya untuk tidak melakukannya lagi.
+Bahkan jika aku sebelumnya mengotori pakaianku dalam situasi yang sama dan ibu memukuliku dan memperingatkanku untuk tidak melakukannya lagi.
 
- 
+Perlindungan Ilahi tidak peduli dengan keadaan pribadiku.
 
-Perlindungan Ilahi tidak peduli dengan keadaan pribadi saya.
-
-Saya tidak tahan lagi, saya akan melompat ke sana, mengarungi kotoran dan merusak seluruh hari saya demi mainan yang bahkan tidak bernilai satu koin tembaga pun.
-
- 
+aku tidak tahan lagi, aku akan melompat ke sana, mengarungi kotoran dan merusak seluruh hariku demi mainan yang bahkan tidak bernilai satu koin tembaga pun.
 
 Aku tak berdaya mengambil langkah menuju saluran drainase ... dan sebuah tangan meraih pundakku.
 
- 
-
-"Serahkan padaku."
-
- 
+g"Serahkan padaku."
 
 Orang itu melompat ke saluran drainase tanpa ragu-ragu.
 
-Sambil mengerutkan kening dari terendam air yang kotor hingga pinggang, orang itu mendekati mainan itu dengan langkah kuat, meraihnya dan kembali.
+Sambil mengerutkan kening karena terendam air yang kotor hingga pinggang, orang itu mendekati mainan itu dengan langkah kuat, meraihnya dan kembali.
 
- 
-
-“Ini, jangan jatuhkan lagi, dan itu kotor jadi ingatlah untuk mencucinya.
+g"Ini, jangan jatuhkan lagi ya, dan ingatlah untuk mencucinya."
 
 "Terima kasih, Gideon-oniichan!"
 
- 
-
 Anak yang menangis tadi tersenyum bahagia dan lari sambil memegang mainan yang kotor itu.
 
- 
+g"Fuuu ..."
 
-"Fuuu ..."
+Orang itu melihat keadaaannya yang buruk dan tersenyum kecut.
 
- 
+Ketika aku mencoba mendekatinya, dia segera menghentikanku.
 
-Orang itu melihat keadaaannya yang buruk dan tersenyum pahit.
+g"nanti Kamu kotor."
 
-Ketika saya mencoba mendekatinya, dia menghentikan saya dengan tergesa-gesa.
+r" … Onii-Chan."
 
- 
+Orang itu adalah satu-satunya Onii-chanku.
 
-"Kamu akan kotor."
+r"Maaf."
 
-" … Onii Chan."
+g"Kenapa kamu meminta maaf? Ruti tidak melakukan kesalahan kok."
 
- 
+r"Tapi ..."
 
-Orang itu adalah Onii-chan saya satu-satunya.
+g"aku melakukannya karena aku mau. Jadi jangan khawatirkan itu."
 
- 
+r"Oke ... Onii-chan?"
 
-"Maaf."
+g"Iya?"
 
-"Kenapa kamu meminta maaf? Ruti tidak melakukan kesalahan. ”
+r"Maaf, ternyata aku tidak bisa melakukannya."
 
-"Tapi ..."
+Aku memeluk Onii-chan tanpa takut mengotori pakaianku.
 
-“Saya melakukannya karena saya ingin. Jadi jangan khawatir tentang itu. "
-
-"Oke ... Onii-chan?"
-
-"Iya?"
-
-"Maaf, aku tidak bisa melakukannya setelah semua."
-
- 
-
-Aku memeluk Onii-chan tanpa khawatir mengotori pakaianku.
-
-Dia awalnya mencoba mendorong saya pergi tetapi setelah menyadari bahwa saya menangis, dia tampaknya telah mengundurkan diri dan membiarkan saya tetap seperti saya.
-
- 
+Dia awalnya mencoba mendorongku tetapi setelah menyadari bahwa aku menangis, dia tampaknya menyerah dan membiarkanku.
 
 "Lepaskan pakaian kita bersama."
 
