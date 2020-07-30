@@ -110,25 +110,19 @@ aku yakin pahlawan yang sebenarnya sebenarnya adalah orang-orang seperti Onii-ch
 
 Bukan orang sepertiku yang terpaksa melakukannya tetapi orang yang akan melompat ke saluran drainase karena kemauannya sendiri.
 
-aku ingin menaklukkan Raja iblis, menetapkan tujuan besar untuk menyelesaikan masalah yang menyebabkan paling banyak orang menderita karena saya tidak perlu repot membantu kasus-kasus kecil seperti itu.
+aku ingin menaklukkan Raja iblis. aku menetapkan tujuan besar untuk menyelesaikan masalah yang menyebabkan orang banyak menderita karena dengan itu aku tidak perlu repot membantu kasus-kasus kecil seperti itu.
 
-Sebenarnya, saya tidak peduli dengan nasib dunia atau apa yang tidak.
-
- 
+Sebenarnya, aku tidak peduli dengan nasib dunia ini atau apapun itu.
 
 ☆☆
 
- 
-
 Pahlawan Ruti dan Tise sedang berjalan di jalan raya yang menuju Zoltan.
 
-Ruti tidak mengenakan baju besi yang biasa. Dia tidak memiliki Pedang Suci Iblis yang Menundukkan di pinggangnya juga.
-
- 
+Ruti tidak mengenakan baju besi yang biasa dia pakai. Dia tidak memiliki Pedang Suci di pinggangnya juga.
 
 Ketika Tise memberitahunya bahwa itu akan menarik terlalu banyak perhatian, Pahlawan dengan patuh menyimpan perlengkapannya di dalam tas itemnya dan menghilang di suatu tempat selama sekitar 10 menit.
 
-Tise menunggu ketika dia bertanya-tanya ke mana dia pergi ketika Ruti kembali sambil memegang pedang.
+Tise menunggu dan dia berfikir ke mana dia pergi ketika Ruti kembali sambil memegang pedang.
 
  
 
