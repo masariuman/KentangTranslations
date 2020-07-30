@@ -38,7 +38,7 @@ Seorang anak laki-laki menangis ketika dia menunjuk mainan yang mengambang di sa
 
 Dia mungkin menjatuhkannya.
 
-Bau busuk yang bisa membuat hidung seseorang keluar dari saluran drainase dan ada sedimen yang tidak bisa dipahami yang akan menyebabkan orang mengalihkan pandangan mereka dari ketidaknyamanan.
+Bau busuk yang bisa membengkokkan hidung keluar dari saluran drainase dan ada endapan yang taneh menyebabkan orang mengalihkan pandangan mereka karena menjijikkan.
 
 Adalah mungkin untuk menanggungnya jika saya menyerah dan pergi ke tempat lain tetapi anak itu terus menangis dan tidak akan meninggalkan tempat itu.
 
