@@ -40,13 +40,11 @@ Dia mungkin menjatuhkannya.
 
 Bau busuk yang bisa membengkokkan hidung keluar dari saluran drainase dan ada endapan yang taneh menyebabkan orang mengalihkan pandangan mereka karena menjijikkan.
 
-Adalah mungkin untuk menanggungnya jika saya menyerah dan pergi ke tempat lain tetapi anak itu terus menangis dan tidak akan meninggalkan tempat itu.
+mungkin aku bisa menahannya untuk tidak melongnya dan pergi ketempat lain tapi tetapi anak itu terus menangis dan tidak akan meninggalkan tempat itu.
 
-Mungkin anak itu tahu tentang karakteristik khusus saya. Mungkin air matanya adalah tindakan yang diperhitungkan.
+Mungkin anak itu tahu tentang karakteristikku. Mungkin dia sengaja menangis.
 
-Saya berpikir dalam hati dan begitu benih keraguan tumbuh di hati saya, kebencian yang tidak bisa dilepaskan mulai membara di hati saya.
-
- 
+aku berpikir dalam hati dan benih keraguan tumbuh di hatiku, kebencian yang tidak bisa dilepaskan mulai membara di hatiku.
 
 Saya seorang pahlawan. Pahlawan tidak bisa mengabaikan orang yang membutuhkan.
 
