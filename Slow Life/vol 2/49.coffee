@@ -106,11 +106,9 @@ g"ayo kita bersihkan pakaian kita bersama."
 
 r"Ya."
 
- 
+aku yakin pahlawan yang sebenarnya sebenarnya adalah orang-orang seperti Onii-chan.
 
-Saya yakin pahlawan sejati sebenarnya merujuk pada orang-orang seperti Onii-chan.
-
-Bukan orang seperti saya yang terpaksa melakukannya tetapi orang yang akan melompat ke saluran drainase atas keinginan sendiri.
+Bukan orang sepertiku yang terpaksa melakukannya tetapi orang yang akan melompat ke saluran drainase karena kemauannya sendiri.
 
  
 
