@@ -122,15 +122,13 @@ Ruti tidak mengenakan baju besi yang biasa dia pakai. Dia tidak memiliki Pedang 
 
 Ketika Tise memberitahunya bahwa itu akan menarik terlalu banyak perhatian, Pahlawan dengan patuh menyimpan perlengkapannya di dalam tas itemnya dan menghilang di suatu tempat selama sekitar 10 menit.
 
-Tise menunggu dan dia berfikir ke mana dia pergi ketika Ruti kembali sambil memegang pedang.
+Tise menunggu dan dia berfikir ke mana dia akan pergi dan Ruti kembali sambil memegang pedang.
 
- 
-
-"Aku merasakan kehadiran goblin di dekatnya jadi aku pergi untuk mengambil peralatan mereka."
+r"Aku merasakan ada goblin di sekitar sini jadi aku pergi untuk mengambil senajta mereka."
 
 "Apakah itu Pedang Goblin?"
 
- 
+ ---------------
 
 Pedang Goblin dengan tiga lubang dibor ke dalamnya.
 
