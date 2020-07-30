@@ -224,36 +224,24 @@ Sang Ksatria berteriak dengan semangat juang, mengambil langkah besar ke depan d
 
 "... Eh?"
 
-Tise mengeluarkan suara aneh karena tidak mengerti apa yang dipikirkan Knight.
+Tise mengeluarkan suara aneh karena tidak mengerti apa yang dipikirkan oleh ksatria itu.
 
-Ruti dengan mudah meraih tombak itu, yang seharusnya disodorkan padanya dengan kecepatan tinggi, dengan tangan kanannya.
+Ruti dengan mudah meraih tombak itu, dengan tangan kanannya.
 
-Meskipun sepertinya dia hanya memegangnya dengan santai dengan satu tangan, sang Ksatria tidak bisa menggerakkan tombak sama sekali tidak peduli berapa banyak kekuatan yang dia gunakan.
+Meskipun sepertinya dia hanya memegangnya dengan santai dengan satu tangan, sang Ksatria tidak bisa menggerakkan tombak sama sekali tidak peduli berapa besar kekuatan yang dia gunakan.
 
- 
-
-"Halangan."
-
- 
+r"pengganggu."
 
 Ruti bergumam pelan dan mengangkat tombak bersama dengan sang Ksatria.
 
-Knight raksasa itu melayang dan terbang di udara.
-
- 
+ksatria besar itu melayang dan terbang di udara.
 
 "Ooooooh!?!?!"
 
- 
-
 Setelah dibuang oleh Ruti, sang Ksatria melewati tembok pembatas dan jatuh ke sungai.
 
- 
-
-"Tise, ayo pergi."
+r"Tise, ayo pergi."
 
 "Ya-ya."
 
- 
-
-Meskipun dia ingin bertindak seperti pelancong, apa yang bisa mereka lakukan setelah tiba-tiba menang dengan sangat mencolok? Tise memeluk kepalanya saat dia mengejar bagian belakang Pahlawan.
+Meskipun dia ingin bertindak seperti pengelana, mau bagaimana lagi mereka tidak tau apa yang akan mereka lakukan karena tiba-tiba menang dengan sangat mencolok... Tise memegang kepalanya saat dan mengejar dibelakang Pahlawan.
