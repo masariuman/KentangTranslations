@@ -110,9 +110,7 @@ aku yakin pahlawan yang sebenarnya sebenarnya adalah orang-orang seperti Onii-ch
 
 Bukan orang sepertiku yang terpaksa melakukannya tetapi orang yang akan melompat ke saluran drainase karena kemauannya sendiri.
 
- 
-
-Saya bertujuan untuk menaklukkan Raja Setan, menetapkan tujuan besar untuk menyelesaikan masalah yang menyebabkan paling banyak orang menderita karena saya tidak perlu repot membantu kasus-kasus kecil seperti itu.
+aku ingin menaklukkan Raja iblis, menetapkan tujuan besar untuk menyelesaikan masalah yang menyebabkan paling banyak orang menderita karena saya tidak perlu repot membantu kasus-kasus kecil seperti itu.
 
 Sebenarnya, saya tidak peduli dengan nasib dunia atau apa yang tidak.
 
