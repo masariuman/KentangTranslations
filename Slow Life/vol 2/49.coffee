@@ -126,167 +126,105 @@ Tise menunggu dan dia berfikir ke mana dia akan pergi dan Ruti kembali sambil me
 
 r"Aku merasakan ada goblin di sekitar sini jadi aku pergi untuk mengambil senajta mereka."
 
-"Apakah itu Pedang Goblin?"
+"bukankah itu Pedang Goblin?"
 
- ---------------
+Pedang Goblin memiliki 3 lubang di bilahnya.
 
-Pedang Goblin dengan tiga lubang dibor ke dalamnya.
+itu seperti akan pecah kapan saja hanya dengan mengayunkannya.
 
-Sepertinya itu akan pecah kapan saja hanya dengan mengayunkannya.
+r"Yah, mereka tidak akan tahu kalau tetap disimpan dalam sarungnya. Ayo pergi."
 
- 
+Namun demikian, sarung dan pegangan yang sedikit kotor itu cocok dengan pengelana jadi Tise memperbolehkannya.
 
-"Yah, mereka tidak akan tahu apakah itu disimpan dalam sarungnya. Ayo pergi."
+"oke."
 
- 
-
-Namun demikian, sarung dan pegangan yang sedikit kotor itu tampaknya cocok dengan sesuatu yang akan dimiliki seorang musafir sehingga Tise memberikan izin padanya.
-
- 
-
-"Baik."
-
- 
-
-Sang Pahlawan tersenyum bahagia saat pikirannya diterima oleh Tise tetapi senyum itu begitu samar sehingga Tise tidak menyadarinya dan mereka berdua berangkat dari kapal terbang.
-
- 
+Sang Pahlawan tersenyum bahagia ketika idenya diterima oleh Tise tetapi senyum itu begitu samar sehingga Tise tidak menyadarinya. mereka berduapun pergi dari kapal terbang.
 
 Padang rumput Zoltan bergelombang saat angin bertiup.
 
-Hutan tempat Ruti dan yang lainnya berada sebelumnya telah menyelesaikan persiapannya untuk musim dingin, tetapi padang rumput Zoltan masih berada di tengah-tengah perubahan dari hijau menjadi coklat jadi itu adalah fenomena aneh.
-
- 
+Hutan tempat Ruti dan yang lainnya berada sebelumnya sudah menyelesaikan persiapannya untuk musim dingin, tetapi padang rumput Zoltan masih berada di tengah-tengah perubahan dari hijau menjadi coklat jadi itu adalah fenomena aneh.
 
 "Tapi di sini lebih hangat."
 
- 
-
 Kata Tise.
 
-Ugeuge-san sepertinya tidak terlalu menyukai hawa dingin, jadi senang mereka datang ke sini.
+Ugeuge-san sepertinya tidak terlalu menyukai hawa dingin, jadi dia senang mereka datang ke sini.
 
-Itu melompat di dalam kantong kecil yang digantung Tise di pinggangnya.
+ugeuge-san melompat di dalam kantong kecil yang digantung Tise di pinggangnya.
 
- 
-
-"Apakah begitu?"
-
- 
+r"benarkah?"
 
 Ruti menjawab tanpa ekspresi.
 
-Dengan Resistance Lingkungannya, hawa dingin tidak lebih dari informasi tentang suhu untuk Ruti.
+dia memiliki kekebalan yang membuat dia tidak dapat merasakan hawa dingin dan hawa dingin tidak lebih dari informasi tentang suhu untuk Ruti.
 
-Bahkan hawa dingin terik dari utara jauh dan panasnya gurun yang panas tidak akan menghalangi Ruti dengan cara apa pun.
+Bahkan hawa dingin dari utara dan panasnya gurun tidak akan menghalangi Ruti dengan cara apa pun.
 
-Pada saat yang sama, rasa susu hangat lezat yang dibuat Gideon untuk Ruti selama musim dingin juga hilang untuknya.
+Pada saat yang sama, rasa susu hangat lezat yang dibuat Gideon untuk Ruti selama musim dingin juga tidak bisa dia rasakan lagi.
 
 Itu adalah penyesalan yang tersisa di hati Ruti.
 
- 
+Setelah berjalan sebentar, ada beberapa orang berkumpul.
 
-Setelah berjalan sebentar, ada kerumunan orang.
-
- 
-
-"Apa yang terjadi? Saya akan pergi melihat-lihat. "
-
- 
+"Apa yang terjadi? aku akan mencari tahu. "
 
 Tise menyelinap melewati kerumunan dengan tubuh mungilnya dan dengan cepat kembali.
 
- 
+"Seorang Ksatria menghalangi jembatan. Tampaknya para Petualang yang memiliki kepercayaan diri pada skill mereka telah menantangnya, tapi mereka dikalahkan. mungkin akan sedikit memutar tetapi ada jalan alternatif, apakah kita akan memakai jalan alternatif?"
 
-“Seorang Ksatria menghalangi jembatan. Tampaknya para Petualang yang memiliki kepercayaan diri pada keterampilan mereka telah menantangnya, tetapi meja mereka dihidupkan. Ini mungkin sedikit jalan memutar tetapi ada jalan alternatif, akankah kita melanjutkannya? ”
-
-"Tidak, kita akan lewat sini."
-
- 
+r"Tidak, kita akan lewat sini."
 
 Ruti langsung menuju kerumunan.
 
- 
+r"menyingkirlah."
 
-"Pindah."
+"Hei nona, itu berbahaya, ada ksatria yang aneh ..."
 
-"Hei nona, ini berbahaya, ada Knight yang aneh ..."
-
- 
-
-Pria yang memanggilnya berbicara di tengah kalimat sebelum dia menyadari kakinya yang gemetaran.
-
- 
+Pria yang memanggilnya gemetaran sebelum dia menyelesaikan kalimatnya..
 
 "Oh, oooh ...."
 
- 
-
 Pria itu secara naluriah minggir.
 
-Yang lain melihat keadaannya dan secara alami minggir agar tidak menghalangi jalan Ruti.
+sisanya juga menyingkir karena melihatnya dan memberikan ruti jalan.
 
 Setelah Ruti lewat, mereka akhirnya menyadari bahwa mereka ketakutan.
 
- 
+Ada seorang Ksatria mengenakan baju besi di jembatan dengan tombak yang terdapat kain melilit ujungnya seolah menandakan bahwa ia tidak akan membunuh lawan-lawannya.
 
-Ada seorang Ksatria mengenakan baju besi di jembatan dengan tombak yang memiliki kain melilit ujungnya seolah menandakan bahwa ia tidak akan membunuh lawan-lawannya.
+Ksatria tersebut adalah seorang pria besar yang tingginya hampir 2 meter.
 
-Sang Ksatria adalah seorang pria besar yang tingginya hampir 2 meter.
-
- 
-
-"Biaya jalan tol. Bayar 100 Peryl jika Anda ingin lewat sini. "
-
- 
+"Bayar 100 Peryl jika kamu ingin lewat sini. "
 
 Kata pria itu.
 
 Ruti memiringkan kepalanya.
 
- 
+r"Mengapa?"
 
-"Mengapa?"
+"Mengapa? Karena aku yang mau."
 
-"Mengapa? Karena saya ingin."
+r"Begitu... kalau begitu tidak perlu membayar."
 
-"Begitu, maka tidak perlu membayar."
-
- 
-
-Ruti berjalan lurus menuju posisi Knight dan tidak menunjukkan tanda-tanda menarik pedangnya.
-
- 
+Ruti berjalan lurus menuju posisi ksatria dan tidak menunjukkan tanda-tanda untuk menarik pedangnya.
 
 "Ka-kamu, apa sebenarnya ..."
 
- 
+sang Ksatria tidak dapat mengerti dengan gadis yang mendekatinya.
 
-Terlepas dari segalanya, sang Ksatria tidak dapat menemukan gadis yang mendekatinya.
+Dia hanya bisa membayangkan dirinya terbunuh tidak peduli apapn yang dia lakukan.
 
-Dia hanya bisa membayangkan dirinya terbunuh tidak peduli apa yang dia lakukan.
-
- 
-
-Ketika dia menyaksikan reaksinya, Tise membayangkan bahwa Knight akan segera melemparkan senjatanya untuk menyerah.
+Ketika tise menyaksikan reaksinya, Tise membayangkan bahwa kstaria tersebut akan segera melemparkan senjatanya untuk menyerah.
 
 Namun.
 
- 
-
 "Uoooooooo !!!"
-
- 
 
 Sang Ksatria berteriak dengan semangat juang, mengambil langkah besar ke depan dan melepaskan dorongan tajam.
 
- 
-
 "... Eh?"
 
- 
-
-Tise mengucapkan suara aneh, setelah tidak mengerti apa yang dipikirkan Knight.
+Tise mengeluarkan suara aneh karena tidak mengerti apa yang dipikirkan Knight.
 
 Ruti dengan mudah meraih tombak itu, yang seharusnya disodorkan padanya dengan kecepatan tinggi, dengan tangan kanannya.
 
