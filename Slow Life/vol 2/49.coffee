@@ -102,9 +102,9 @@ Aku memeluk Onii-chan tanpa takut mengotori pakaianku.
 
 Dia awalnya mencoba mendorongku tetapi setelah menyadari bahwa aku menangis, dia tampaknya menyerah dan membiarkanku.
 
-"Lepaskan pakaian kita bersama."
+g"ayo kita bersihkan pakaian kita bersama."
 
-"Ya."
+r"Ya."
 
  
 
