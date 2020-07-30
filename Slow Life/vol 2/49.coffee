@@ -245,3 +245,8 @@ r"Tise, ayo pergi."
 "Ya-ya."
 
 Meskipun dia ingin bertindak seperti pengelana, mau bagaimana lagi mereka tidak tau apa yang akan mereka lakukan karena tiba-tiba menang dengan sangat mencolok... Tise memegang kepalanya saat dan mengejar dibelakang Pahlawan.
+
+
+-------------
+
+masariuman: dooh kapan mereka ketemu siih.. si red lagi gak nunggu-nunggu dulu... aaaaa....
