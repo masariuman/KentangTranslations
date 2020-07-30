@@ -12,47 +12,31 @@ g"Terima kasih."
 
 pagi ini, dia tiba-tiba ke dapur dan berkata bahwa dia ingin memberikan bento kepadaku ketika aku pergi.
 
-Dia bilang kalau hanya memberikannya kepadaku tidak akan cukup sehingga dia ingin membuat hanya satu item dan akhirnya hanya membuat telur goreng.
+Dia bilang kalau hanya memberikannya kepadaku tidak akan cukup jadi dia ingin memasak paling tidak satu lauk dan akhirnya hanya membuat telur goreng.
 
- 
+l"Mufu―"
 
-"Mufu―"
+Lit tampaknya puas setelah memberikan bento kepadaku.
 
- 
+Saat aku menuju ke pegunungan, aku melihat kesatria di tengah jembatan dan menghalangi orang-orang yang ingin menyeberangi jembatan.
 
-Lit tampaknya puas, setelah memberikan bento kepadaku.
+merepotkan jadi aku mengambil jalan memutar seperti yang aku lakukan sebelumnya.
 
- 
-
-Saat aku menuju ke pegunungan, kesatria itu masih di tengah jembatan dan sepertinya menghalangi orang-orang yang ingin menyeberangi jembatan.
-
-Tampaknya menyusahkan jadi saya mengambil jalan memutar seperti yang saya lakukan sebelumnya.
-
-Apakah ksatria itu punya banyak waktu di tangannya?
-
- 
+Apakah ksatria itu punya banyak waktu luang?
 
 ☆☆
 
- 
+Tidak, aku tidak mau melakukannya.
 
-Tidak, saya tidak mau melakukannya.
+Di depan mataku ada saluran drainase dengan air limbah dari penggunaan sehari-hari desa serta kotoran bahkan sampah dibuang ke dalamnya.
 
-Di depan mataku ada saluran drainase dengan air limbah dari penggunaan sehari-hari desa serta kotoran dan bahkan sampah dibuang ke dalamnya.
-
-Mengambang di dalamnya adalah ukiran kayu cacat Wyvern mainan yang kusut di tempat sampah.
-
- 
+terdapat mainan wyvern yang menyangkut di tempat sampah.
 
 "Uaaaaaaaan !!"
-
- 
 
 Seorang anak laki-laki menangis ketika dia menunjuk mainan yang mengambang di saluran drainase.
 
 Dia mungkin menjatuhkannya.
-
- 
 
 Bau busuk yang bisa membuat hidung seseorang keluar dari saluran drainase dan ada sedimen yang tidak bisa dipahami yang akan menyebabkan orang mengalihkan pandangan mereka dari ketidaknyamanan.
 
