@@ -4,7 +4,7 @@ sudah beberapa hari aku saya makan malam dengan Aya sekarang. Sambil mengunyah s
 
 "Kamu masih makan sekarang. Setidaknya tunggu sampai kamu menyelesaikan itu."(Renji)
 
-“…… .kumohon.....?” (Mururu)
+"…… .kumohon.....?" (Mururu)
 
 "Tidak berarti tidak."
 
