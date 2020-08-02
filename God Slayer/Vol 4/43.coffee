@@ -10,11 +10,11 @@ sudah beberapa hari aku makan malam dengan Aya. Sambil mengunyah sate daging Orc
 
 Ketika aku dengan jelas menyatakan hal itu, dia mulai berjalan lagi dengan telinga binatangnya terkulai dan sedih. sungguh menyebalkan karena aku merasa sangat bersalah, tetapi, aku harus mengeraskan hatiku kali ini.
 
-Dan Feirona berjalan di belakang kami sambil menikmati pemandangan sambil tersenyum. Saat aku melotot padanya, senyumnya hanya menajam. Dan pada ekspresi darinya, para wanita yang melewati kami semua sepertinya langsung jatuh pingsan ....... kupikir. Yah, orang-orang tampan terlihat menarik tidak peduli apa ekspresi yang mereka buat.
+Feirona berjalan di belakang kami sambil menikmati pemandangan kami sambil tersenyum. Saat aku melotot padanya, senyumnya hanya menajam. Dan dengan ekspresinya seperti itu, para wanita yang melewati kami semua sepertinya langsung jatuh pingsan ....... kupikir. Yah, orang-orang tampan terlihat menarik tidak peduli ekspresi yang mereka buat.
 
-Selain Feirona, kecantikan lain sedang berjalan, Solnea. Melihatnya berjalan di falce di mana biasanya Francesca akan terasa agak segar. Dia, jarang ke dunia ini, rambut hitam panjangnya sutra, kulit putih pucat dan mata merah agak tak bernyawa. Dia mengenakan jubah hitam yang mirip dengan milikku yang digantung di pundaknya. Gaun kain tipis yang dikenakannya menekankan garis-garis tubuh sensualnya, terutama pinggangnya yang kurus di mana ikat pinggang telah dikencangkan.
+Selain Feirona, seseorang yang cantik lainnya sedang berjalan, Solnea. Melihatnya berjalan menggantikan nona Francesca terasa agak menyegarkan. Dia tipe yang langka di dunia ini, rambut hitam panjangnya, kulit putih pucat dan mata merah agak tak bernyawa. Dia mengenakan jubah hitam yang mirip dengan milikku yang digantung di pundaknya. Gaun kain tipis yang dikenakannya menekankan garis-garis tubuh sensualnya, terutama pinggangnya yang kurus di mana ikat pinggang dipasang.
 
-Biasanya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu merasa sangat indah tetapi melihat keindahan gelap bersamanya tampak luar biasa juga. Aku merasa seperti aku satu-satunya di pesta ini yang tidak benar-benar memiliki penampilan luar biasa. Saya mulai merasa tertekan hanya dengan memikirkannya.
+normalnya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu merasa sangat indah tetapi melihat keindahan gelap bersamanya tampak luar biasa juga. Aku merasa sepertinya aku satu-satunya di tim ini yang tidak benar-benar memiliki penampilan luar biasa. aku mulai merasa tertekan hanya dengan memikirkannya.
 
 [Apa yang terjadi, Renji?]
 
@@ -22,11 +22,11 @@ Biasanya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu meras
 
 "Aku sudah selesai makan!" (Mururu)
 
-“—Itu terlalu cepat. Kunyah dengan baik setidaknya. "
+"—Itu terlalu cepat. setidaknya Kunyah dengan benar!"
 
 "Tidak apa-apa."
 
-[…… .Apakah kamu bahkan tahu artinya itu?]
+[…… .Apakah kamu bahkan tahu maksudnya?]
 
 Saya cukup yakin, dia tidak. Sementara aku merenungkan statusku di pesta ini, Murur menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya sepertinya beralih dari saya kemudian ke warung.
 
