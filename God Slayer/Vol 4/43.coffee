@@ -28,19 +28,19 @@ normalnya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu mera
 
 […… .Apakah kamu bahkan tahu maksudnya?]
 
-aku yakin dia tidak memahaminya. Sementara aku merenungkan statusku di pesta ini, Murur menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya sepertinya beralih dari saya kemudian ke warung.
+aku yakin dia tidak memahaminya. Mururi menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya berubah dari aku kemudian ke warung.
 
-"Apakah kamu lupa apa yang akan kita lakukan selanjutnya?"
+"Apakah kamu lupa apa yang akan kita lakukan selanjutnya?"(renji)
 
-"Tidak masalah. Saya tidak bisa bergerak dengan perut kosong. ”(Mururu)
+"Tidak masalah. aku tidak bisa bergerak dengan perut kosong."(Mururu)
 
-“Tidak apa-apa jika kamu tidak banyak bergerak juga, jujur ​​saja. Baik, ini yang terakhir, oke? ”
+"Tidak apa-apa jika kamu tidak banyak bergerak juga kok. ok, tapi ini yang terakhir, oke?"
 
-Seperti menyerahkan uang receh kepada seorang anak, saya memberinya koin tembaga. Mengambil koin, dia benar-benar melompat ke warung dengan kecepatan luar biasa.
+aku memberinya koin tembaga Seperti menyerahkan uang receh kepada seorang anak. dia benar-benar melompat ke warung dengan kecepatan luar biasa.
 
-Dari sini, kualifikasi untuk turnamen pertempuran akan dimulai dan Ms Francesca akan mengambil bagian di dalamnya. Kami memutuskan kemarin untuk pergi dan menghiburnya. Dia sepertinya bersemangat untuk ambil bagian tetapi, mari kita lihat bagaimana dia bertarung dalam pertempuran. Sangat mungkin dia akan jatuh dalam babak penyisihan ini. Jadi, ini mungkin satu-satunya kesempatan kami untuk menghiburnya seperti ini, kami memutuskan untuk pergi hari ini. Aku dimarahi oleh Ermenhilde ketika aku mengatakan itu keras-keras. Suara amarahnya yang tenang dan tenang sangat menakutkan daripada amarah yang mengamuk. Yah, itu tidak seperti aku serius ketika aku mengatakan itu. Saya tidak tahu level apa yang dimiliki siswa akademi sihir tetapi saya tahu tingkat petualang dan tentara bayaran yang ambil bagian di dalamnya. Saya telah mengambil bagian dalam ini sebelumnya juga. Peluangnya untuk ikut serta dalam pertempuran cukup rendah.Dia mungkin mendapatkan satu kesempatan melalui koneksi keluarga.
+kualifikasi untuk turnamen akan dimulai dan nona Francesca akan ikut serta juga. Kami memutuskan untuk pergi dan mendukungnya. Dia sepertinya bersemangat untuk ikut serta tetapi, mari kita lihat bagaimana dia bertarung dalam pertempuran. Sangat mungkin dia akan kalah dalam babak penyisihan ini. Jadi, ini mungkin satu-satunya kesempatan kami untuk mendukungnya seperti ini, kami memutuskan untuk pergi hari ini. Aku diomeli oleh Ermenhilde ketika aku mengatakan itu keras-keras. Suara amarahnya yang tenang sangat menakutkan daripada amarah yang mengamuknya. Yah, sebenarnya aku juga tidak serius mengatakan itu. aku tidak tahu level yang dimiliki siswa akademi sihir tetapi aku tahu tingkat petualang dan tentara bayaran yang ikut serta di turnamen. aku pernah ikut juga di turnamen ini. Peluangnya untuk ikut serta dalam pertempuran cukup rendah.Dia mungkin mendapatkan satu kesempatan melalui koneksi keluarga.
 
-Feirona dan Mururu tampaknya tidak tahu tentang turnamen sama sekali jadi saya mengundang mereka karena mereka tampak tertarik. Solnea tidak benar-benar memiliki tempat lain untuk pergi jadi aku membawanya juga. Seperti yang Anda harapkan, dia juga tidak tertarik pada turnamen.
+Feirona dan Mururu tampaknya tidak tahu tentang turnamen sama sekali jadi aku mengundang mereka karena mereka tampak tertarik. Solnea tidak benar-benar memiliki tempat lain untuk pergi jadi aku membawanya juga. Seperti yang kalian duga, dia tidak tertarik pada turnamen.
 
 "Apakah itu benar-benar enak?"
 
