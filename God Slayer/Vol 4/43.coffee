@@ -1,6 +1,6 @@
 Babak 43  Turnamen Blea Diri (2)
 
-sudah beberapa hari aku saya makan malam dengan Aya sekarang. Sambil mengunyah sate daging Orc, aku berjalan dengan Mururu yang juga makan makanan yang sama. mururu tiba-tiba berhenti. aku Bingung dan aku juga berhenti hanya untuk melihatnya melirik kios makanan lain. Ekornya bergoyang-goyang dengan penuh semangat di bawah jubah itu dan itu imut tapi mengingat ini sudah terjadi berkali-kali, aku menghela nafas.
+sudah beberapa hari aku makan malam dengan Aya. Sambil mengunyah sate daging Orc, aku berjalan dengan Mururu yang juga makan makanan yang sama. mururu tiba-tiba berhenti. aku Bingung dan aku juga berhenti hanya untuk melihatnya melirik kios makanan lain. Ekornya bergoyang-goyang dengan penuh semangat di bawah jubah itu dan itu imut tapi mengingat ini sudah terjadi berkali-kali, aku menghela nafas.
 
 "Kamu masih makan sekarang. Setidaknya tunggu sampai kamu menyelesaikan itu."(Renji)
 
