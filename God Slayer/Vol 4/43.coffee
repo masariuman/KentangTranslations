@@ -76,7 +76,7 @@ kamu benar-benar tidak melakukan apa pun. Hanya Feirona yang mendengar suara Erm
 
 Serius. Tadi malam, aku meluangkan waktu dan memperkenalkan Solnea ke Utano-san tetapi tidak banyak info. Dia adalah manusia normal, rupanya. Bahkan kristal yang ditemukan dari gua itu tidak berbeda dengan kristal normal yang dijual di toko-toko murah.
 
-Yah, mungkin bodoh untuk merenungkan sesuatu yang Anda tidak tahu tentang kurasa. Sambil menghela nafas, aku memutuskan untuk memotong pemikiran itu. Saya mungkin mulai melupakan curiga terhadap Solnea dan memiliki efek buruk padanya. Saya tidak suka hal-hal seperti itu. Saya harus mengakhiri semuanya dalam pikiran saya. Saya akan menangani apa pun yang terjadi, ketika itu benar-benar terjadi.
+Yah, mungkin bodoh untuk memikirkan sesuatu yang kamu tidak tahu. Sambil menghela nafas, aku memutuskan untuk menghilangkan pemikiran itu. aku mungkin mulai dicurigai terhadap Solnea dan memiliki efek buruk padanya. aku tidak suka hal-hal seperti itu. aku harus mengakhiri semuanya dalam pikiranku. aku akan menanganinya apa pun yang terjadi, ketika itu benar-benar terjadi.
 
 "Untuk saat ini, satu-satunya yang kita tahu adalah dia tidak memiliki energi magis di dalam dirinya."
 
