@@ -78,11 +78,11 @@ Serius. Tadi malam, aku meluangkan waktu dan memperkenalkan Solnea ke Utano-san 
 
 Yah, mungkin bodoh untuk memikirkan sesuatu yang kamu tidak tahu. Sambil menghela nafas, aku memutuskan untuk menghilangkan pemikiran itu. aku mungkin mulai dicurigai terhadap Solnea dan memiliki efek buruk padanya. aku tidak suka hal-hal seperti itu. aku harus mengakhiri semuanya dalam pikiranku. aku akan menanganinya apa pun yang terjadi, ketika itu benar-benar terjadi.
 
-"Untuk saat ini, satu-satunya yang kita tahu adalah dia tidak memiliki energi magis di dalam dirinya."
+"Untuk saat ini, satu-satunya yang kita tahu adalah dia tidak memiliki energi magic di dalam dirinya."
 
 "Fumu."
 
-Ketika aku mengatakan itu, Feirona berpikir sambil meletakkan dagunya di jari-jarinya. Setiap tindakannya membuatnya terlihat baik, sungguh.
+Ketika aku mengatakan itu, Feirona berpikir sambil meletakkan jari-jarinya di dagunya. Setiap tindakannya membuatnya terlihat menawan.
 
 [Jadi dia pada dasarnya sama dengan Renji, eh?]
 
