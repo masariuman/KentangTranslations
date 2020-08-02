@@ -162,11 +162,11 @@ Colosseum. Bangunan silindris cukup tinggi sehingga kamu harus mengangkat kepala
 
 Biasanya, arena adalah tempat para petualang tanpa uang, tentara bayaran, dan pemuda yang bangga dengan keahlian mereka mempertaruhkan nyawanya untuk bertarung di sini untuk mendapatkan uang. Mereka bertarung melawan manusia, demi-human, beastmen dan bahkan monster yang ditangkap. Monster hanya monster level rendah seperti goblin, kobold, dan Orc. Dan hanya pertarungan satu lawan satu. Padahal satu lawan banyak pertarungan sangat populer di kalangan penonton. Di dunia ini yang tidak memiliki hiburan, hal-hal berbahaya seperti itu adalah satu-satunya cara bagi mereka untuk merasa bersemangat. Jika kamu menang, hadiahnya besar, jika kamu kalah, kamu akan terluka parah. kamu bahkan mungkin mati. Itulah jenis tempat yang kami tuju. Yah, apa yang aku berikan adalah contoh ekstrem.
 
-Biasanya, sangat jarang ada orang yang berjuang sampai mati. Melawan manusia, selama kamu mengatakan 'Aku menyerah!' Pertempuran berakhir. Dan bahkan jika seseorang tidak melakukan itu, wasit akan sering menyatakan pemenang dan itu akan menyelesaikan pertandingan sebelum ada kebutuhan untuk bertarung sampai mati. Mereka yang siap untuk benar-benar mempertaruhkan nyawanya dan bertarung melawan monster adalah sekelompok kecil orang yang sangat putus asa.
+Biasanya, sangat jarang ada orang yang berjuang sampai mati. Melawan manusia, selama kamu mengatakan 'Aku menyerah!' Pertempuran berakhir. Dan bahkan jika seseorang tidak melakukan itu, wasit akan menyatakan pemenang dan itu akan menyelesaikan pertandingan sebelum ada yang mati. Mereka yang siap untuk benar-benar mempertaruhkan nyawanya dan bertarung melawan monster hanya sedikit saja.
 
-“Jadi, bagaimana menurutmu tentang ini, Feirona?” (Renji)
+"Jadi, bagaimana menurutmu tentang ini, Feirona?" (Renji)
 
-“Aku harap dia menang, sungguh. Francesca benar-benar bekerja keras untuk ini. ”(Elf)
+"Aku harap dia menang. nona Francesca benar-benar berusaha keras untuk ini. "Elf)
 
 Saya melihat. Apakah saya satu-satunya yang terlalu keras?
 
