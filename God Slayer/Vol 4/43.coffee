@@ -8,7 +8,7 @@ sudah beberapa hari aku makan malam dengan Aya. Sambil mengunyah sate daging Orc
 
 "Tidak berarti tidak."
 
-Ketika saya dengan jelas menyatakan hal itu, dia mulai berjalan lagi dengan telinga binatangnya terkulai dengan sedih. Agak menyebalkan bahwa akulah yang merasa sangat bersalah ketika dia melakukan itu, tetapi, aku harus mengeraskan hatiku kali ini.
+Ketika aku dengan jelas menyatakan hal itu, dia mulai berjalan lagi dengan telinga binatangnya terkulai dan sedih. sungguh menyebalkan karena aku merasa sangat bersalah, tetapi, aku harus mengeraskan hatiku kali ini.
 
 Dan Feirona berjalan di belakang kami sambil menikmati pemandangan sambil tersenyum. Saat aku melotot padanya, senyumnya hanya menajam. Dan pada ekspresi darinya, para wanita yang melewati kami semua sepertinya langsung jatuh pingsan ....... kupikir. Yah, orang-orang tampan terlihat menarik tidak peduli apa ekspresi yang mereka buat.
 
