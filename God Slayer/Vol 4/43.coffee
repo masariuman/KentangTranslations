@@ -148,19 +148,19 @@ Jika dia bisa ........ dia mungkin benar-benar lolos di penyisihan.
 
 "Aku mengerti."(mururu)
 
-[Betapa realistisnya. Bukankah itu baik-baik saja jika Anda mencoba menjadi sedikit lebih optimis untuknya? "]
+[Betapa realistisnya. Bukankah itu akan lebih baik kalau kamu mencoba menjadi sedikit lebih optimis untuknya?]
 
-Bukan seperti itu karakter saya, dan Anda tahu itu. Aku hanya mengangkat bahu untuk menjawab Ermenhilde.
+itu bukanlah karakterku, dan kamu tahu itu. Aku hanya mengangkat bahu menjawab Ermenhilde.
 
-Ekor Mururu tampaknya terkulai ke bawah dan merajuk karena tidak mendapatkan jawaban yang dia harapkan. Meskipun dia adalah orang yang mengajukan pertanyaan sejak awal.
+Ekor Mururu tampaknya terkulai ke bawah dan merajuk karena tidak mendapatkan jawaban yang dia harapkan. Meskipun dia adalah orang yang mengajukan pertanyaan.
 
-Mudah untuk mengatakan bahwa seseorang akan menang. Tapi, Francesca yang harus bekerja keras. Itu bukan sesuatu yang bisa saya katakan dengan mudah seperti itu.
+Mudah untuk mengatakan bahwa seseorang akan menang. Tapi, nona Francesca yang harus berusaha keras. Itu bukan sesuatu yang bisa aku katakan dengan mudah seperti itu.
 
-Sambil melihat wajahnya yang cemberut dan lucu, aku akhirnya melihat bangunan besar itu muncul di depan kami. Dan jalan utama terasa seperti menjadi padat dan energik saat kami semakin dekat.
+Sambil melihat wajahnya yang cemberut dan lucu, aku akhirnya melihat bangunan besar itu di depan kami. Dan jalan utama terasa seperti menjadi padat dan energik saat kami semakin dekat.
 
-Colosseum. Bangunan silindris cukup tinggi sehingga Anda harus mengangkat kepala untuk melihat bagian atas dan saat ini dipenuhi oleh orang-orang. Semua orang telah berkumpul di sini untuk melihat turnamen pertempuran. Sudah ada lebih dari seratus orang di sini. Dan turnamen bahkan belum dimulai. Kerumunan hanya akan menjadi lebih besar dan lebih besar.
+Colosseum. Bangunan silindris cukup tinggi sehingga kamu harus mengangkat kepala untuk melihat bagian atas dan saat ini dipenuhi oleh orang-orang. Semua orang telah berkumpul di sini untuk menonton turnamen. Sudah ada lebih dari seratus orang di sini sebelum dimulai. Kerumunan hanya akan menjadi lebih besar dan lebih besar.
 
-Biasanya, arena adalah tempat para petualang tanpa uang, tentara bayaran, dan pemuda yang bangga dengan keahlian mereka mempertaruhkan nyawanya untuk bertarung di sini untuk mendapatkan uang. Mereka bertarung melawan manusia, demi-manusia, binatang buas dan bahkan monster yang ditangkap di sini. Monster hanya menyertakan monster level rendah seperti goblin, kobold, dan Orc. Dan hanya, dalam satu lawan satu pertempuran. Padahal satu lawan banyak pertempuran sangat populer di kalangan penonton. Di dunia ini yang tidak memiliki cara hiburan, hal-hal berbahaya seperti itu adalah satu-satunya cara bagi mereka untuk merasa bersemangat. Jika Anda menang, hadiahnya besar, jika Anda kalah, Anda akan terluka parah. Anda bahkan mungkin mati. Itulah jenis tempat yang kami tuju. Yah, apa yang saya berikan adalah contoh ekstrem.
+Biasanya, arena adalah tempat para petualang tanpa uang, tentara bayaran, dan pemuda yang bangga dengan keahlian mereka mempertaruhkan nyawanya untuk bertarung di sini untuk mendapatkan uang. Mereka bertarung melawan manusia, demi-human, beastmen dan bahkan monster yang ditangkap. Monster hanya monster level rendah seperti goblin, kobold, dan Orc. Dan hanya pertarungan satu lawan satu. Padahal satu lawan banyak pertarungan sangat populer di kalangan penonton. Di dunia ini yang tidak memiliki hiburan, hal-hal berbahaya seperti itu adalah satu-satunya cara bagi mereka untuk merasa bersemangat. Jika kamu menang, hadiahnya besar, jika kamu kalah, kamu akan terluka parah. kamu bahkan mungkin mati. Itulah jenis tempat yang kami tuju. Yah, apa yang aku berikan adalah contoh ekstrem.
 
 Biasanya, sangat jarang ada orang yang berjuang sampai mati. Melawan manusia, selama kamu mengatakan 'Aku menyerah!' Pertempuran berakhir. Dan bahkan jika seseorang tidak melakukan itu, wasit akan sering menyatakan pemenang dan itu akan menyelesaikan pertandingan sebelum ada kebutuhan untuk bertarung sampai mati. Mereka yang siap untuk benar-benar mempertaruhkan nyawanya dan bertarung melawan monster adalah sekelompok kecil orang yang sangat putus asa.
 
