@@ -28,7 +28,7 @@ normalnya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu mera
 
 […… .Apakah kamu bahkan tahu maksudnya?]
 
-aku yakin dia tidak memahaminya. Mururi menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya berubah dari aku kemudian ke warung.
+aku yakin dia tidak memahaminya. Mururi menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya berubah dari aku kemudian ke kios.
 
 "Apakah kamu lupa apa yang akan kita lakukan selanjutnya?"(renji)
 
@@ -36,45 +36,45 @@ aku yakin dia tidak memahaminya. Mururi menghabiskan dagingnya dan menatapku den
 
 "Tidak apa-apa jika kamu tidak banyak bergerak juga kok. ok, tapi ini yang terakhir, oke?"
 
-aku memberinya koin tembaga Seperti menyerahkan uang receh kepada seorang anak. dia benar-benar melompat ke warung dengan kecepatan luar biasa.
+aku memberinya koin tembaga Seperti menyerahkan uang receh kepada seorang anak. dia benar-benar melompat ke kios dengan kecepatan luar biasa.
 
 kualifikasi untuk turnamen akan dimulai dan nona Francesca akan ikut serta juga. Kami memutuskan untuk pergi dan mendukungnya. Dia sepertinya bersemangat untuk ikut serta tetapi, mari kita lihat bagaimana dia bertarung dalam pertempuran. Sangat mungkin dia akan kalah dalam babak penyisihan ini. Jadi, ini mungkin satu-satunya kesempatan kami untuk mendukungnya seperti ini, kami memutuskan untuk pergi hari ini. Aku diomeli oleh Ermenhilde ketika aku mengatakan itu keras-keras. Suara amarahnya yang tenang sangat menakutkan daripada amarah yang mengamuknya. Yah, sebenarnya aku juga tidak serius mengatakan itu. aku tidak tahu level yang dimiliki siswa akademi sihir tetapi aku tahu tingkat petualang dan tentara bayaran yang ikut serta di turnamen. aku pernah ikut juga di turnamen ini. Peluangnya untuk ikut serta dalam pertempuran cukup rendah.Dia mungkin mendapatkan satu kesempatan melalui koneksi keluarga.
 
 Feirona dan Mururu tampaknya tidak tahu tentang turnamen sama sekali jadi aku mengundang mereka karena mereka tampak tertarik. Solnea tidak benar-benar memiliki tempat lain untuk pergi jadi aku membawanya juga. Seperti yang kalian duga, dia tidak tertarik pada turnamen.
 
-"Apakah itu benar-benar enak?"
+"Apakah itu benar-benar enak?"(sol)
 
-Sementara kami menunggu Mururu, Solnea datang di sampingku dan menanyakan itu. Pandangannya tertuju pada Mururu —— atau lebih tepatnya, di warung.
+Sementara kami menunggu Mururu, Solnea datang di sampingku dan menanyakan itu. Pandangannya tertuju pada Mururu —— atau lebih tepatnya, ke kios.
 
-Mururu saat ini mendapatkan replika hot dog dengan roti, sayuran dan daging orc. Mengapa dia tidak menjadi gemuk meskipun dia makan begitu banyak daging. Yah, kurasa dia banyak bergerak dengan semua perburuan monster yang kita lakukan.
+Mururu saat ini mendapatkan hot dog dengan roti, sayuran dan daging orc. Mengapa dia tidak menjadi gemuk meskipun dia makan begitu banyak daging. Yah, kurasa dia banyak bergerak dengan semua perburuan monster yang kita lakukan.
 
-“Ya, ini sangat enak. Mau juga? ”(Renji)
+"Ya, ini sangat enak. Mau juga?"(Renji)
 
-"…….Saya bisa?"
+"…….aku boleh memakannya?"
 
-"Saya tidak keberatan. Mendapatkan satu lagi tidak akan sakit sekarang. "
+"aku tidak keberatan. membeli satu lagi saja tidak apa-apa. "
 
-Mengatakan itu, saya menyerahkan koin tembaga kepada Solnea juga. Ngomong-ngomong, emas yang kuberikan padanya sebelumnya menghilang untuk membeli pakaian. Rupanya, Francesca tidak berkompromi untuk mendapatkan pakaian untuk Solnea. Bahkan, saya diberitahu bahwa satu koin emas tidak cukup sehingga dia menghabiskan uangnya sendiri untuk Solnea juga. Seperti yang diharapkan dari seorang wanita dari rumah bangsawan kurasa. Yah, itu adalah uang hasil jerih payahnya sendiri, tidak masalah bagaimana dia memutuskan untuk membelanjakannya. Tetapi harus dicatat bahwa Feirona dan Mururu benar-benar lelah pada akhir itu.
+aku menyerahkan koin tembaga kepada Solnea juga. Ngomong-ngomong, emas yang kuberikan padanya sebelumnya habus untuk membeli pakaian. Rupanya, nona Francesca tidak berdiskusi untuk membeli pakaian untuk Solnea. Bahkan, aku diberitahu bahwa satu koin emas tidak cukup sehingga dia menambahnya dengan uangnya sendiri untuk Solnea juga. Seperti yang diharapkan dari seorang wanita dari rumah bangsawan. Yah, itu adalah uang hasil jerih payahnya sendiri, tidak masalah bagaimana dia memutuskan untuk membelanjakannya. Tetapi harus dicatat bahwa Feirona dan Mururu benar-benar lelah pada saat itu.
 
-Mengambil koin tembaga, dia juga menuju ke kios yang sama dengan Mururu. Ketika saya melihatnya, Feirona datang di sampingku.
+Mengambil koin tembaga, dia juga menuju ke kios yang sama dengan Mururu. Ketika aku melihatnya, Feirona datang di sampingku.
 
-"Menjadi pengasuh anak memang terlihat tangguh." (Elf)
+"Menjadi pengasuh anak memang terlihat merepotkan." (Elf)
 
 [Serius.]
 
-"Mengapa kamu mengatakan itu?" (Renji)
+"Mengapa kalian mengatakan itu?" (Renji)
 
-Anda benar-benar tidak melakukan apa pun. Hanya Feirona yang mendengar suara Ermenhilde selain saya. Aku masih belum cukup mempercayai Solnea dan Mururu sepertinya bereaksi berlebihan setiap kali dia mendengar suara Ermenhilde. Saya bisa percaya Feirona untuk bertindak normal setiap saat. Mendengar suara Ermenhilde, Feirona mengangkat bahu dan terus berbicara.
+kamu benar-benar tidak melakukan apa pun. Hanya Feirona yang mendengar suara Ermenhilde selain aku. Aku masih belum cukup mempercayai Solnea dan Mururu sepertinya bereaksi berlebihan setiap kali dia mendengar suara Ermenhilde. aku bisa percaya Feirona untuk bertindak normal setiap saat. Mendengar suara Ermenhilde, Feirona mengangkat bahu dan terus berbicara.
 
 "Jadi, ada yang tahu siapa atau apa dia?" (Elf)
 
-"Tidak sama sekali. Aku membiarkan dia bertemu Utano-san juga, tetapi tidak ada kelainan yang dia katakan. ”(Renji)
+"Tidak sama sekali. Aku membiarkan dia bertemu Utano-san juga, tetapi tidak ada kelainan yang dia katakan."(Renji)
 
-"Jika Sage sendiri mengatakan demikian, itu mungkin benar."
+"Jika Sage sendiri mengatakan itu, itu mungkin benar."
 
-[Meskipun aku bertanya-tanya apakah kamu benar-benar dapat mengatakan bahwa tidak ada kelainan pada seseorang yang benar-benar hidup di dalam kristal.]
+[Meskipun aku penasaran apakah kamu benar-benar bisa mengatakan bahwa tidak ada kelainan pada seseorang yang benar-benar hidup di dalam kristal.]
 
-Serius. Tadi malam, saya meluangkan waktu dan memperkenalkan Solnea ke Utano-san tetapi tidak banyak info. Dia adalah manusia normal, rupanya. Bahkan kristal yang ditemukan dari gua itu tidak berbeda dengan kristal normal yang dijual di toko-toko murah.
+Serius. Tadi malam, aku meluangkan waktu dan memperkenalkan Solnea ke Utano-san tetapi tidak banyak info. Dia adalah manusia normal, rupanya. Bahkan kristal yang ditemukan dari gua itu tidak berbeda dengan kristal normal yang dijual di toko-toko murah.
 
 Yah, mungkin bodoh untuk merenungkan sesuatu yang Anda tidak tahu tentang kurasa. Sambil menghela nafas, aku memutuskan untuk memotong pemikiran itu. Saya mungkin mulai melupakan curiga terhadap Solnea dan memiliki efek buruk padanya. Saya tidak suka hal-hal seperti itu. Saya harus mengakhiri semuanya dalam pikiran saya. Saya akan menangani apa pun yang terjadi, ketika itu benar-benar terjadi.
 
