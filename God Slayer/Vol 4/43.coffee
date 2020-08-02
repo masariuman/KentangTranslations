@@ -168,9 +168,9 @@ Biasanya, sangat jarang ada orang yang berjuang sampai mati. Melawan manusia, se
 
 "Aku harap dia menang. nona Francesca benar-benar berusaha keras untuk ini. "(Elf)
 
-Saya melihat. Apakah saya satu-satunya yang terlalu keras?
+begitu... Apakah aku satu-satunya yang terlalu kasar?
 
-Sambil memikirkan itu, kami bergabung dengan barisan orang juga. Saya bisa mendapatkan pass gratis untuk diri saya sendiri tetapi saya akan merasa tidak enak membiarkan orang-orang ini menunggu di antrian sendirian. Ketika saya melihat sekeliling, saya melihat banyak orang hanya melihat mereka yang menunggu untuk masuk ke arena. Ada juga banyak kios di sini selain jalan utama.
+Sambil memikirkan itu, kami bergabung dengan barisan orang juga. aku bisa masuk dengan gratis untuk diriku sendiri tetapi aku akan merasa tidak enak membiarkan orang-orang ini menunggu di antrian sendirian. Ketika aku melihat disekitarku, aku melihat banyak orang yang hanya melihat mereka yang menunggu untuk masuk ke arena. Ada juga banyak kios di sini selain jalan utama.
 
 "Sangat menyakitkan untuk tidak memiliki kerja keras Anda membayar."
 
