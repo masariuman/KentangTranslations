@@ -106,35 +106,35 @@ Yang menarik adalah bahwa kristal yang dia tiduri memang memiliki energi magic. 
 
 Dia tetap tanpa ekspresi seperti biasa tapi wajahnya yang boneka terlihat sangat imut. Kecap yang menempel di mulutnya hanya menambah daya tariknya.
 
-Dan seperti gadis kulit putih, gadis kulit hitam itu juga tanpa ekspresi memakan hotdog. Karena dia memakannya dengan baik sambil menerima gigitan kecil setiap kali, dia terlihat lebih manis daripada Mururu.
+Dan seperti gadis putih, gadis hitam itu juga tanpa ekspresi memakan hotdog. Karena dia memakannya dengan pelan sambil menggigit perlahan setiap kali, dia terlihat lebih manis daripada Mururu.
 
 "Apakah ini enak?" (Renji)
 
 "Ya." (Sol)
 
-Ketika saya menanyakan hal itu, dia memberikan jawaban singkat dan ringkas. Dia sangat suka melakukan itu.
+Ketika aku menanyakan hal itu, dia memberikan jawaban singkat dan ringkas. Dia sangat suka melakukan itu.
 
-"Bagus kau menikmati, tapi ayo cepat sekarang. Kami akan merindukan giliran Francesca sebaliknya. "
+"Baguslah kalau kau menikmati, tapi ayo kita bergegas sekarang. kita akan melewatkan giliran nona Francesca. "(fei)
 
-"Oh benar, aku hampir lupa."
+"Oh iya, aku hampir lupa."(renji)
 
-"* Teguk * ayo cepat, Renji." (Mururu)
+"* glup * ayo cepat, Renji." (Mururu)
 
-“…… ..kamu alasan kita terlambat, tahu?” (Renji)
+"…… ..kamulah yang membuat kita terlambat" (Renji)
 
-Ketika Feirona mulai berjalan, kami juga mengikutinya. Berjalan antara Mururu dan Solnea terasa seperti aku punya bunga di kedua tangan, tetapi sayangnya, keduanya lebih berkonsentrasi pada makanan mereka daripada aku. Perut sebelum semuanya, kurasa. Cukup menyedihkan dalam posisi saya untuk jujur.
+Ketika Feirona mulai berjalan, kami juga mengikutinya. Berjalan antara Mururu dan Solnea terasa seperti aku punya bunga di kedua tangan, tetapi sayangnya, keduanya lebih berkonsentrasi pada makanan mereka daripada aku. kurasa Perut prioritas utama mereka.
 
 "Renji." (Mururu)
 
 "Hm?"
 
-"Bisakah Fran membersihkan prelim?"
+"Bisakah Fran lolos dalam penyisihan?"
 
-Dengan mulut kecap bernoda, dia menanyakan itu padaku.
+Dengan mulut penuh kecap, dia menanyakan itu padaku.
 
-Jika Fran — Nona Francesca akan bisa menjernihkan prelim.
+Jika Fran — Nona Francesca bisa lolos dari penyisihan.
 
-"Yah, siapa yang tahu."
+"Yah, entahlah."(renji)
 
 Ketika aku mengangkat bahu, dia mengerutkan kening ke arahku dengan sedikit marah. Apakah dia ingin aku setidaknya mengatakan bahwa dia akan lulus, bahkan jika itu hanya kata-kata?
 
