@@ -140,13 +140,13 @@ Ketika aku mengangkat bahu, dia mengerutkan kening ke arahku dengan sedikit mara
 
 Tapi, aku tidak bisa menahannya. Aku bahkan tidak tahu siapa lawannya, dan aku juga tidak tahu tingkat keterampilan para peserta tahun ini.
 
-Meskipun Francesca sudah terbiasa bertarung dengan monster dengan perjalanannya, dia masih agak naif. Aku merasa seperti itu bagian dari kepribadiannya akan semakin terlihat sejak saat ini dia menghadapi manusia yang hidup daripada monster. Monster dan manusia pada dasarnya berbeda. Aku khawatir apakah dia bisa menembakkan sihirnya ke manusia. Bahkan Aya dan Koutarou masih ragu melakukan itu. Utano-san tidak ragu-ragu tetapi dia mengalami depresi di kemudian hari. Bahkan saya ingat betapa buruknya perasaan saya setelah pertama kali saya membunuh seorang pria. Menyakiti orang lain akan membebani Anda secara mental. Bisakah Ms Francesca menangani beban itu?
+Meskipun nona Francesca sudah terbiasa bertarung dengan monster dalam perjalanannya, dia masih agak naif. Aku merasa kepribadiannya itu akan semakin nampak karena dia akan menghadapi manusia yang hidup daripada monster. Monster dan manusia pada dasarnya berbeda. Aku khawatir apakah dia bisa menembakkan sihirnya ke manusia. Bahkan Aya dan Koutarou masih ragu melakukan itu. Utano-san tidak ragu-ragu tetapi dia mengalami depresi setelahnya. Bahkan aku ingat betapa kacaunya perasaanku setelah pertama kali aku membunuh seorang pria. Menyakiti orang lain akan membebani Anda secara mental. Bisakah nona Francesca menangani beban itu?
 
-Jika dia bisa ........ dia mungkin benar-benar melewati prelims.
+Jika dia bisa ........ dia mungkin benar-benar lolos di penyisihan.
 
-“Yah, peluangnya mungkin akan menguntungkannya hari ini. Kita tidak bisa mengatakan siapa yang akan menang sampai kita melihat pertempuran itu sendiri. ”(Renji)
+"Yah, peluangnya mungkin akan menguntungkannya hari ini. Kita tidak bisa mengatakan siapa yang akan menang sampai kita melihat pertarungannya itu sendiri."(Renji)
 
-"Aku mengerti."
+"Aku mengerti."(mururu)
 
 [Betapa realistisnya. Bukankah itu baik-baik saja jika Anda mencoba menjadi sedikit lebih optimis untuknya? "]
 
