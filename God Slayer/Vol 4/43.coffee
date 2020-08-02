@@ -28,7 +28,7 @@ normalnya, melihat lelaki tampan berjalan bersama dengan gadis penyihir itu mera
 
 […… .Apakah kamu bahkan tahu maksudnya?]
 
-Saya cukup yakin, dia tidak. Sementara aku merenungkan statusku di pesta ini, Murur menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya sepertinya beralih dari saya kemudian ke warung.
+aku yakin dia tidak memahaminya. Sementara aku merenungkan statusku di pesta ini, Murur menghabiskan dagingnya dan menatapku dengan memohon. Dia benar-benar tampak seperti anak anjing yang menunggu untuk diberi makan. Tapi dia serigala ... Dia pasti ingin lebih banyak makanan. Pandangannya sepertinya beralih dari saya kemudian ke warung.
 
 "Apakah kamu lupa apa yang akan kita lakukan selanjutnya?"
 
