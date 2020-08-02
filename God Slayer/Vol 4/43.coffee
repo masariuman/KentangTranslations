@@ -166,7 +166,7 @@ Biasanya, sangat jarang ada orang yang berjuang sampai mati. Melawan manusia, se
 
 "Jadi, bagaimana menurutmu tentang ini, Feirona?" (Renji)
 
-"Aku harap dia menang. nona Francesca benar-benar berusaha keras untuk ini. "Elf)
+"Aku harap dia menang. nona Francesca benar-benar berusaha keras untuk ini. "(Elf)
 
 Saya melihat. Apakah saya satu-satunya yang terlalu keras?
 
