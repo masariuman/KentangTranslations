@@ -86,23 +86,23 @@ Ketika aku mengatakan itu, Feirona berpikir sambil meletakkan jari-jarinya di da
 
 [Jadi dia pada dasarnya sama dengan Renji, eh?]
 
-"Kurang lebih. Yah, aku punya kamu, jadi aku tidak punya banyak masalah. ”(Renji)
+"Kurang lebih seperti itulah. Yah, aku punya kamu, jadi aku tidak punya banyak masalah."(Renji)
 
 [........ hmm.]
 
-Dalam kasus saya, saya hanya tidak memiliki energi magis karena saya tidak berasal dari dunia ini sejak awal. Tapi …… Bagaimana dengan Solnea? Tapi tidak perlu khawatir tentang itu sekarang. Tentu saja, orang-orang tanpa energi magis jarang tetapi tidak seperti mereka tidak ada. Orang-orang spesial seperti itu dilahirkan setiap saat. Dan mereka juga tidak didiskriminasi. Anda dapat menggunakan hal-hal yang mudah digunakan seperti sihir jika Anda memiliki energi magis tetapi tidak seperti semua yang dibutuhkannya. Selama Anda bisa mendapatkan pendidikan, Anda mendapatkan pekerjaan dengan gaji yang bagus juga. Sama seperti di dunia kita. Ada banyak hal yang dapat dilakukan manusia tanpa energi magis.
+Dalam kasusku, aku hanya tidak memiliki energi magic karena aku tidak berasal dari dunia ini sejak awal. Tapi …… Bagaimana dengan Solnea? Tapi tidak perlu khawatir tentang itu sekarang. Tentu saja, orang-orang tanpa energi magic jarang ada tetapi bukannya mereka tidak ada. Orang-orang spesial seperti itu dilahirkan setiap saat. Dan mereka juga tidak didiskriminasi. kamu dapat menggunakan hal-hal yang mudah digunakan seperti sihir jika kamu memiliki energi magic tetapi tidak semua membutuhkan energi magic. Selama kamu bisa mendapatkan pendidikan, kamu mendapatkan pekerjaan dengan gaji yang bagus juga. Sama seperti di dunia kami. Ada banyak hal yang dapat dilakukan manusia tanpa energi magic.
 
-Yang memprihatinkan adalah bahwa kristal yang dia tiduri memang memiliki energi magis. Dan juga tidak ada jawaban untuk pertanyaan itu. Sulit untuk membedakan siapa dia dengan info yang ada. Yang bisa saya lakukan adalah merawatnya hanya sebagai orang yang saya temukan dalam kesulitan. Sementara aku memikirkan itu, Mururu dan Solnea kembali berjalan berdampingan sambil makan replika hotdog mereka. Itu tidak sopan untuk melakukan itu sehingga aku hanya bisa menghela nafas dan tersenyum masam. Hitam dan putih. Warna mereka berlawanan tetapi mereka benar-benar tampak seperti saudara perempuan.
+Yang menarik adalah bahwa kristal yang dia tiduri memang memiliki energi magic. Dan juga tidak ada jawaban untuk pertanyaan itu. Sulit untuk membedakan siapa dia dengan info yang ada. Yang bisa aku lakukan adalah merawatnya hanya sebagai orang yang aku temukan dalam kesulitan. Sementara aku memikirkan itu, Mururu dan Solnea kembali berjalan berdampingan sambil makan hotdog mereka. mereka makan dengan tidak sopan jadi aku hanya bisa menghela nafas dan tersenyum kecut. Hitam dan putih. Warna mereka berlawanan tetapi mereka benar-benar tampak seperti saudara perempuan.
 
-"Ini perilaku buruk., Serius."
+"itu perilaku buruk.."(renji)
 
 "Tapi itu enak." (Mururu)
 
-"Yah, bagus. Saya menghabiskan uang untuk itu, jadi tolong nikmati mereka dengan benar setidaknya saat makan. ”
+"Yah, bagus. aku menghabiskan uang untuk itu, jadi tolong nikmati mereka dengan benar setidaknya saat makan."
 
 "Aku tahu."
 
-"Saya berharap begitu."
+"aku berharap begitu."
 
 Dia tetap tanpa ekspresi seperti biasa tapi wajahnya yang boneka terlihat sangat imut. Kecap yang menempel di mulutnya hanya menambah daya tariknya.
 
