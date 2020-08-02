@@ -136,7 +136,7 @@ Jika Fran — Nona Francesca bisa lolos dari penyisihan.
 
 "Yah, entahlah."(renji)
 
-Ketika aku mengangkat bahu, dia mengerutkan kening ke arahku dengan sedikit marah. Apakah dia ingin aku setidaknya mengatakan bahwa dia akan lulus, bahkan jika itu hanya kata-kata?
+Ketika aku mengangkat bahu, dia mengerutkan kening ke arahku dengan sedikit marah. Apakah dia ingin aku setidaknya mengatakan bahwa dia akan lolos, bahkan jika itu hanya kata-kata?
 
 Tapi, aku tidak bisa menahannya. Aku bahkan tidak tahu siapa lawannya, dan aku juga tidak tahu tingkat keterampilan para peserta tahun ini.
 
