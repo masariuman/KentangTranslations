@@ -59,21 +59,17 @@ perkataan sering digunakan di masa lalu untuk kisah-kisah heroik dari orang-oran
 
 Bisa dikatakan, walaupun mereka tidak kehilangan kemampuan penunggang drake, mereka tidak dapat menggunakan kemampuan itu begitu rekannya mereka hilang.
 
-"Ah, apa? Ksatria Fafnir? "
+g"Ah, apa? Ksatria Fafnir? "
 
-Blacksmith Mogurim pernah menyebut nama itu.
+si pandai besi Mogurim pernah menyebut nama itu.
 
-Saya belum pernah mendengarnya sebelumnya tetapi apakah itu sedang tren saat ini?
+aku belum pernah mendengarnya sebelumnya tetapi apakah itu sedang tren saat ini?
 
- 
+"Ya, para Ksatria Fafnir! Orang-orang yang tinggal di perbatasan terpencil Zoltan mungkin tidak ajab tahu tetapi selain dari Ksatria Bahamut yang terhormat dan Ksatria Tiamat yang kejam, Ksatria ordo yang ketiga yang diketahui semua orang di Ibukota Kekaisaran adalah Ksatria Fafnir! aku aktif sebagai penunggang drake di sana."
 
-"Ya, para Ksatria Fafnir! Orang-orang yang tinggal di perbatasan terpencil Zoltan mungkin tidak akrab tetapi selain dari Ksatria Bahamut yang terhormat dan Ksatria Tiamat yang kejam, Ordo Ksatria ketiga yang diketahui semua orang di Ibukota Kekaisaran adalah Ksatria Fafnir! Saya aktif sebagai Drake Rider di sana. ”
+g"Aku tidak tahu tentang itu."
 
-"Aku tidak tahu tentang itu."
-
-“Mau bagaimana lagi, kamu tidak tahu tentang pengetahuan umum di Central saat tinggal di pedesaan seperti Zoltan. Tidak perlu malu. "
-
- 
+"Mau bagaimana lagi, kamu tidak tahu tentang pengetahuan umum di ibukota kalau tinggal di pedesaan seperti Zoltan. Tidak perlu malu. "
 
 Dia menghiburku dengan menepuk pundakku.
 
