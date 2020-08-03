@@ -1,4 +1,4 @@
-Babak 44 Turnamen Turning (3)
+Babak 44 Turnamen (3)
 
 Saya bertanya-tanya apakah saya satu-satunya yang merasa enak melihat makanan perlahan berkurang dari banyak hidangan yang diatur di atas meja. Aku melihat Mururu memakan Udon dengan garpu setelah menyisihkan sumpit yang sulit. Setelah beberapa saat, Mururu, yang hanya fokus pada makanannya, menyadari tatapanku dan menatapku.
 
