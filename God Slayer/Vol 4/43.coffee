@@ -230,7 +230,7 @@ Merasa sedikit malu dari pandangannya, aku kehilangan kata-kataku untuk sesaat. 
 
 […… .Tch.]
 
-Kalian benar-benar akrab ya. Apakah menyenangkan menggangguku? dasar. Sambil menggaruk pipiku yang terasa seperti keram, aku mengalihkan pandanganku. Solnea hanya menatap kami dengan bingung. Saya kira dia menjadi sedikit ingin tahu tentang perkelahian itu sebabnya dia menanyakan hal itu. Tidak ada alasan lain di balik itu mungkin. Saya hanya bereaksi berlebihan melihatnya mengatakan sesuatu seperti itu, itu saja. Dan untuk tatapannya juga.
+Kalian benar-benar akrab ya. Apakah menyenangkan menggangguku? dasar. Sambil menggaruk pipiku yang terasa seperti keram, aku mengalihkan pandanganku. Solnea hanya menatap kami dengan bingung. aku kira dia menjadi sedikit ingin tahu tentang pertarungan dan itulah sebabnya dia menanyakan hal itu. Tidak ada alasan lain di balik itu mungkin. Saya hanya bereaksi berlebihan melihatnya mengatakan sesuatu seperti itu, itu saja. Dan untuk tatapannya juga.
 
 Untuk beberapa alasan, saya tidak bisa dipandang secara langsung. Apakah karena saya kurang percaya diri? Karena aku merasa mereka akan melihat orang seperti apa Yamada Renji?
 
