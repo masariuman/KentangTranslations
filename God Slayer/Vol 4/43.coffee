@@ -244,9 +244,9 @@ lawanku adalah Souichi. Berusaha keras sendiri saja tidak akan membuatku menang,
 
 Aku ingin tahu apa yang dia pikirkan tentangku karena Ermenhilde berbicara dengan suara yang agak terkejut. Biasanya, pada saat-saat seperti ini, aku biasanya akan mengatakan sesuatu yang menyedihkan dan Ermenhilde akan memarahiku untuk itu. Begitulah yang terjadi.
 
-Bahkan aku juga berpikir begitu. aku tidak suka menonjol, dan aku juga tidak akan menggunakan Ermenhilde di turnamen. Dalam situasi di mana manfaat dari menipu bagi saya hampir minimal, kekuatan saya hanya sedikit lebih dari petualang normal. Biarpun aku bertarung melawan Souichi saat menggunakan pedang latihan, ada peluang yang sangat rendah bagiku untuk menang. Persis seperti yang dikatakan Ermenhilde, saya mungkin akan melakukan sedikit usaha dan kemudian dengan cepat kehilangan dan menyelesaikannya. Setidaknya, saya tidak akan mengatakan sesuatu seperti saya akan bekerja keras.
+Bahkan aku juga berpikir begitu. aku tidak suka menonjol, dan aku juga tidak akan menggunakan Ermenhilde di turnamen. Dalam situasi di mana manfaat dari cheat bagiku berkurang hampir minimal, kekuatanku hanya sedikit lebih unggul dari petualang normal. walaupun aku bertarung melawan Souichi menggunakan pedang latihan, peluangnya sangat rendah bagiku untuk menang. Persis seperti yang dikatakan Ermenhilde, aku mungkin akan melakukan sedikit usaha dan kemudian dengan cepat kalah dan selesai. Setidaknya, aku tidak akan mengatakan sesuatu seperti 'aku akan bekerja keras'.
 
-[Begitu, begitu. Baik.]
+[Begitu, begitu. baguslah.]
 
 Yang terjadi selanjutnya, adalah suara yang benar-benar bahagia dari Ermenhilde. Biasanya ketika aku mendengar itu, aku akan mengatakan sesuatu secara acak padanya dan menggodanya tetapi entah bagaimana, entah kenapa, aku tidak bisa mengatakan apa-apa. Karena saya tahu apa yang dipikirkan Ermenhilde dengan sangat mudah. Dia benar-benar senang bahwa saya memutuskan untuk bekerja keras. Dia sudah mengatakan itu padaku begitu lama. Melihatnya begitu bahagia, aku tidak merasa ingin mengatakan hal lain sama sekali. Dalam arti yang berbeda dari pandangan Solnea, aku menutup mulutku.
 
