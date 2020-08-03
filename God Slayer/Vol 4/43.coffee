@@ -390,11 +390,11 @@ Dan, nona francesca juga memiliki sihir untuk membantunya. Apakah dia mulai terb
 
 "Yah, tentu saja."
 
-Saya setuju dengan Mururu yang membandingkannya dengan monster. Monster memiliki kekuatan dan stamina fisik yang jauh lebih banyak daripada manusia. Bahkan tidak layak untuk dibandingkan.
+aku setuju dengan Mururu yang membandingkannya dengan monster. Monster memiliki kekuatan dan stamina fisik yang jauh lebih banyak daripada manusia. Bahkan tidak layak untuk dibandingkan.
 
-Tentu saja, jika dia bisa menghadapi monster humanoid yang lebih kuat, itu membuat keterampilannya lebih mudah dipahami. Pesulap dan pemain pedang. Pekerjaan penjaga belakang dan pekerjaan garda depan. Namun meski begitu, mereka bertarung dengan kondisi yang sama. Sebelum saya menyadarinya, gadis petualang pemula telah tumbuh menjadi petualang yang kompeten.
+Tentu saja, jika dia bisa menghadapi monster humanoid yang lebih kuat, itu membuat keterampilannya lebih mudah dipahami. penyihir yang menggunakan pedang. ahli dalam barisan belakang dan barisan depan. Namun meski begitu, mereka bertarung dengan kondisi yang sama. tanpa aku sadari , gadis petualang pemula telah tumbuh menjadi petualang yang kompeten.
 
-Setelah beberapa pertukaran serangan, lawan mulai menunjukkan tanda-tanda kelelahan. Di sisi lain, Francesca tidak menunjukkan tanda-tanda kesombongan atau kebanggaan. Bahkan tidak ada energi sihir yang menyelimutinya yang menunjukkan bahwa dia masih memiliki banyak energi magis yang tersisa. Akhirnya, melihat lawannya membuat ayunan besar lagi, dia menggunakan celah untuk membuat lubang di bawahnya dan mengubur kakinya sampai pergelangan kaki. Serangannya hanya bertemu tanah dan sisi wajahnya yang terbuka terkena pedang pendeknya. Itu akan sangat menyakitkan, ya. Pria itu berguling-guling di tanah dan bergerak-gerak ketika berbaring di sana. Hanya wajahnya yang dipukul tetapi dampak tubuhnya mengenai tanah pastilah keras juga. Darah yang datang dari hidungnya menunjukkan betapa menyakitkannya itu.
+Setelah beberapa serangan, lawan mulai menunjukkan tanda-tanda kelelahan. Di sisi lain, nona Francesca tidak menunjukkan tanda-tanda keangkuhan atau kebanggaan. Bahkan tidak ada energi sihir yang menyelimutinya yang menunjukkan bahwa dia masih memiliki banyak energi magic yang tersisa. Akhirnya, melihat lawannya membuat ayunan besar lagi, dia menggunakan celah untuk membuat lubang di bawahnya dan mengubur kakinya sampai pergelangan kaki. Serangannya hanya bertemu tanah dan sisi wajahnya yang terbuka terkena pedang pendeknya. Itu akan sangat menyakitkan, ya. Pria itu berguling-guling di tanah dan bergerak-gerak ketika berbaring di sana. Hanya wajahnya yang dipukul tetapi dampak tubuhnya mengenai tanah pastilah keras juga. Darah yang datang dari hidungnya menunjukkan betapa menyakitkannya itu.
 
 "Fuu."
 
