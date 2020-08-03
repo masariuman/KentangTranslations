@@ -286,17 +286,17 @@ Mururu terus lebih fokus pada daging di tangannya mungkin karena tidak tertarik 
 
 "Tidak masalah. aku bisa makan nanti juga. "(Mururu)
 
-"…… Kamu akan menjadi gemuk."
+"…… Kamu akan menjadi gendut."
 
 Ketika aku mengatakan itu, dia mulai menyentuh dadanya seolah memeriksa sesuatu.
 
-[Mungkin kita harus membiarkannya gemuk sekali?]
+[Mungkin kita harus membiarkannya gendit untuk sekali saja?]
 
-"Tapi itu akan merepotkan sendiri." (Elf)
+"Tapi itu akan merepotkan." (Elf)
 
-Feirona yang menjawab saran Ermenhilde. Tentu saja, bagi Mururu, yang merupakan titik vital pelopor pesta, menjadi gemuk memang akan merepotkan. Meskipun saya tidak yakin apakah dia hanya bercanda atau benar-benar serius. Aku tertawa mendengarnya.
+Feirona yang menjawab saran Ermenhilde. Tentu saja, bagi Mururu, yang merupakan titik vital barisan depan di tim, menjadi gemuk memang akan merepotkan. Meskipun aku tidak yakin apakah dia hanya bercanda atau benar-benar serius. Aku tertawa mendengarnya.
 
-Tidak memperhatikan pembicaraan kami, Mururu terus menepuk dadanya. Saya telah mendengar bahwa dada seorang gadis tumbuh lebih besar saat dipijat tetapi itu hanya sebuah takhayul. Utano-san telah dengan jelas memverifikasi itu. Aku tidak tahu apa yang akan dia lakukan padaku jika dia mendengar itu. Solnea di sisi lain hanya kebingungan, bertanya-tanya tentang Tuhan yang tahu apa. Seperti biasa kukira.
+Mururu terus menepuk dadanya dan Tidak memperhatikan pembicaraan kami. aku dengar bahwa dada seorang gadis tumbuh lebih besar saat dipijat tetapi itu hanya sebuah takhayul. Utano-san sudah dengan jelas memverifikasi itu. Aku tidak tahu apa yang akan dia lakukan padaku jika dia mendengar itu. Solnea di sisi lain hanya kebingungan. Seperti biasa kukira.
 
 Arena utama berbentuk silinder dan dikelilingi oleh dinding batu. Dinding batu itu memiliki goresan dan luka yang tak terhitung jumlahnya ditandai di atasnya. Tanah memiliki banyak bagian yang meledak dan bahkan ada beberapa senjata yang rusak tergeletak di sana-sini. Semua ini adalah indikasi dari intens [pertunjukan] yang terjadi di sini.
 
