@@ -152,3 +152,8 @@ Otto terbang kebelakang dan menyebabkan percikan air yang besar ketika dia sekal
 Tubuh Otto melayang ke permukaan air dan dibawa turun sungai oleh arus.
 
 Orang itu bandit jadi tidak masalah, kurasa aku akan cepat maju.
+
+
+-----------------
+
+masariuman: kasihan, udah kena adiknya, sekarang kena abangnya.... malang sekali nasib orang ini... hahaha...
