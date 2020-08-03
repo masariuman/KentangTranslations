@@ -248,7 +248,7 @@ Bahkan aku juga berpikir begitu. aku tidak suka menonjol, dan aku juga tidak aka
 
 [Begitu, begitu. baguslah.]
 
-Yang terjadi selanjutnya, adalah suara yang benar-benar bahagia dari Ermenhilde. Biasanya ketika aku mendengar itu, aku akan mengatakan sesuatu secara acak padanya dan menggodanya tetapi entah bagaimana, entah kenapa, aku tidak bisa mengatakan apa-apa. Karena saya tahu apa yang dipikirkan Ermenhilde dengan sangat mudah. Dia benar-benar senang bahwa saya memutuskan untuk bekerja keras. Dia sudah mengatakan itu padaku begitu lama. Melihatnya begitu bahagia, aku tidak merasa ingin mengatakan hal lain sama sekali. Dalam arti yang berbeda dari pandangan Solnea, aku menutup mulutku.
+suara ermenhilde benar-benar bahagia dari. Biasanya ketika aku mendengarnya seperti itu, aku akan mengatakan sesuatu secara acak padanya dan mengganggunya tetapi entah bagaimana, entah kenapa, aku tidak bisa berkata apa-apa. Karena aku tahu apa yang dipikirkan Ermenhilde dengan sangat mudah. Dia benar-benar senang hanya dengan aku memutuskan untuk bekerja keras. Dia sudah mengatakan itu padaku begitu lama. Melihatnya begitu bahagia, aku tidak merasa ingin mengatakan hal lain sama sekali. Dalam arti yang berbeda dari pandangan Solnea, aku menutup mulutku.
 
 Tetapi kali ini, sepertinya tidak ada yang memperhatikan reaksi saya. Aku melihat kerumunan yang berkumpul di depan arena dengan linglung. Dan Solnea menatapku terus menerus.
 
