@@ -87,23 +87,17 @@ g"Permintaan?"
 
 aku pernah mendengar itu sebelumnya.
 
-Tiga tahun lalu, lima bukit raksasa menyerang dan mengambil alih istana situasi tuan barat laut ke Zoltan.
+Tiga tahun lalu, lima bukit raksasa menyerang dan mengambil alih istana yang berada di barat laut ke Zoltan.
 
-Zoltan mengirim partai penaklukan sekali tetapi mereka dikalahkan dan karena para bangsawan yang memiliki tanah itu semua dibunuh oleh para raksasa, itu telah diabaikan selama ini.
+Zoltan mengirim tim penaklukan sekali tetapi mereka dikalahkan dan karena para bangsawan yang memiliki tanah itu semua dibunuh oleh para raksasa, itu telah diabaikan selama ini.
 
-Kadang-kadang, petualang nekat yang bermimpi memiliki kastil menantang mereka dan mereka tidak pernah kembali tetapi tidak menyebabkan masalah khusus.
+Kadang-kadang, petualang nekat yang bermimpi memiliki istana menantang mereka dan mereka tidak pernah kembali tetapi tidak menyebabkan masalah khusus.
 
- 
-
-“Hmm ~, begitu. Semoga beruntung, bye. "
+g"Hmm ~, begitu. Semoga beruntung, bye."
 
 "Tunggu tunggu tunggu, dengarkan sampai akhir."
 
- 
-
-Otto buru-buru menghentikan saya ketika saya akan pergi.
-
- 
+Otto buru-buru menghentikan aku ketika aku akan pergi.
 
 "Untuk mencari seniman bela diri yang bisa bertarung melawan raksasa, aku menantang orang-orang yang melintasi jembatan."
 
