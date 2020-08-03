@@ -380,11 +380,11 @@ Sekarang tinggal 1 lawan 1. si pendekar langsung berlari ke arah nona Francesca.
 
 Seorang penyihir normal di sini akan mencoba menciptakan ruang di antara mereka, tetapi nona Francesca menghunus pedang pendeknya dari sarungnya. Energi magis cahaya menutupi anggota tubuhnya. Peningkatan kemampuan fisik. aku sedikit terkejut melihat dia menggunakan ini sebagai kartu truf karena aku belum pernah melihatnya menggunakan sihir ini sebelumnya.
 
-"Begitulah caranya."(elf)
+"Bagus."(elf)
 
-aku mendengar Feirona berbicara itu. Feirona yang mengajari Ibu Francesca cara menggunakan pedang. Pedang pendek dan pedang panjang saling bentrok, dan meskipun sedikit canggung, dia menangani serangan itu. Pada saat yang sama, dia tampaknya bahkan sadar tidak tersandung peserta lain yang jatuh. Cara menggunakan pedang, cara bergerak di medan perang. Dia ingat untuk berkonsentrasi bahkan saat bergerak dengan baik. Sepertinya dia telah diajari dengan sangat baik.
+aku mendengar Feirona berbicara itu. Feirona yang mengajari nona Francesca cara menggunakan pedang. Pedang pendek dan pedang panjang saling bentrok, dan meskipun sedikit canggung, dia menangani serangan itu. Pada saat yang sama, dia tampaknya bahkan sadar agar tidak tersandung terkena peserta lain yang jatuh. Cara menggunakan pedang, cara bergerak di medan perang. Dia ingat untuk berkonsentrasi bahkan saat bergerak dengan baik. Sepertinya dia telah diajari dengan sangat baik.
 
-Dan, Ms francesca juga memiliki sihir untuk membantunya. Apakah dia mulai terbiasa dengan serangan lawan, atau apakah lawannya mulai panik dan membuat gerakan kasar, dia hampir tidak mampu menangkis serangannya. Dia perlahan menjadi bahkan mampu sepenuhnya menangkis serangan pedang panjangnya tanpa banyak kesulitan.
+Dan, nona francesca juga memiliki sihir untuk membantunya. Apakah dia mulai terbiasa dengan serangan lawan, atau apakah lawannya mulai panik dan membuat gerakan berantakan, si pendekar hampir tidak mampu menangkis serangannya. nona francescca perlahan mampu menangkis sepenuhnya serangan pedang panjangnya tanpa banyak kesulitan.
 
 "Dibandingkan dengan lizardman, gerakannya terlalu lambat."
 
