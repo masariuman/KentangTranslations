@@ -312,7 +312,7 @@ Turnamen pertempuran adalah acara utama yang terjadi pada akhir tahun. Pemenang 
 
 aku memutuskan untuk tidak bertanya 'pertumbuhan' apa sebenarnya yang dia maksudkan. Itulah caraku bersikap baik. Tidak seperti nona Francesca, bayangkan padang rumput yang datar, seperti itulah. Mururu kembali memakan dagingnya. Namun dari penampilannya, satu-satunya hal yang akan kamu tumbuhkan saat ini adalah perutmu, bukan dada. Nah, mengingat gerakan tubuhnya sebagai beastwomen, dia mungkin tidak akan mendapatkan banyak lemak. Bahkan, aku merasa seperti belum pernah melihat beastman yang gemuk.
 
-Sementara itu, pertempuran di arena tampaknya mencapai klimaksnya. Petualang menggunakan dua pedang mulai bertarung dalam keadaan yang lebih agresif tiba-tiba saat kerumunan menjadi liar dengan sorak-sorai. Seolah-olah didukung oleh sorakan-sorai itu, dia memberikan kombinasi serangan dengan keterampilan aktual dan bukan hanya gerakan acak. Tapi pria dengan pedang besar itu memblokir kombo itu dengan sangat baik.
+Sementara itu, pertempuran di arena tampaknya mencapai klimaksnya. Petualang pengguna dua pedang mulai bertarung dalam keadaan yang lebih agresif secara tiba-tiba saat kerumunan menjadi liar dengan sorak-sorai. Seolah-olah didukung oleh sorakan itu, dia memberikan kombinasi serangan dengan keterampilan aktual dan bukan hanya gerakan acak. Tapi pria dengan pedang besar itu memblokir kombo itu dengan sangat baik.
 
 "Siapa yang akan menang?" (Sol)
 
