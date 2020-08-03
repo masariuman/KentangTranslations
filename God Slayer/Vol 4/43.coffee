@@ -421,3 +421,8 @@ Tapi, hanya Solnea, seperti biasa berbicara dengan suara datar. Aku memandang ke
 Aku ingin tahu emosi macam apa yang dialaminya sekarang, apa yang dia rasakan saat ini?
 
 aku menjadi sedikit penasaran sehingga aku memutuskan untuk bertanya padanya nanti saat perayaan. dia tetap berdiri di sana dengan terkejut sampai wasit memintanya untuk meninggalkan arena.
+
+
+-------------------
+
+masariuman : waaah, francesca udah jago ya sekarang...
