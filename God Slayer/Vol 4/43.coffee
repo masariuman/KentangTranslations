@@ -256,11 +256,11 @@ Tetapi kali ini, sepertinya tidak ada yang memperhatikan reaksiku. Aku melihat k
 
 "Kamu adalah orang yang menarik." (Sol)
 
-Mengatakan itu saja, dia kembali makan replika hotdog-nya. Tidak dapat menyadari apa yang dia maksudkan dengan itu, aku hanya bisa memiringkan kepalaku dalam kebingungan.
+setelah mengatakan itu, dia kembali makan hotdog-nya. aku hanya bisa memiringkan kepalaku karena kebingungan dengan apa yang dia maksud dengan perkataan itu.
 
 [Seperti biasa, dia gadis yang aneh]
 
-Serius.
+yeah.
 
 .
 
