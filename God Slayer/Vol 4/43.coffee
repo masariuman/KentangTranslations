@@ -204,21 +204,21 @@ Solnea, yang masih makan persis seperti Mururu, menanyakan itu padaku. aku tidak
 
 Turnamen ini dibagi menjadi dua hari. Pada hari pertama adalah pertempuran tim. Dan pada hari kedua adalah  turnamen satu lawan satu dengan kualifikasi dari babak penyisihan hari ini dan kami juga menghadirkan para pahlawan. Paling tidak, senjata yang harus kami gunakan bukanlah pedang suci atau pedang magic / iblis, melainkan, menggunakan pedang latihan yang tumpul. Aya seharusnya dibatasi dalam beberapa hal juga.
 
-Seperti yang diinginkan Utano-san, akan sangat bagus jika kita bisa menarik banyak orang untuk menonton pertunjukan.
+Seperti yang dikatan Utano-san, akan sangat bagus jika kita bisa menarik banyak orang untuk menontonnya.
 
-"Aku mengerti."
+"begitu ya."(sol)
 
-"Apa, apakah kamu tertarik pada hal-hal seperti ini?"
+"apakah kamu tertarik pada hal-hal seperti ini?"(renji)
 
-"Berarti?" (Sol)
+"maksudnya?" (Sol)
 
-“Turnamen, arena, bertarung secara umum. Apakah Anda tertarik pada hal-hal seperti itu? "
+"Turnamen, arena, bertarung secara umum. Apakah kamu tertarik pada hal-hal seperti itu? "
 
-Mengatakan itu, aku melihat ke arah pintu masuk arena. Solnea juga mengikuti tatapanku dan melihat ke arahnya. Tapi, dia tetap diam. Tidak mendapat jawaban, setelah beberapa waktu aku melihat kembali ke Solnea hanya untuk melihatnya menatapku. Aku masih tidak bisa merasakan gelombang emosi darinya. Tatapannya masih seperti linglung. Sebenarnya, terus-menerus menatap seperti dari begitu dekat yang sedikit meningkatkan detak jantungku.
+aku melihat ke arah pintu masuk arena. Solnea juga mengikuti tatapanku dan melihat ke arahnya. Tapi, dia tetap diam. setelah beberapa waktu aku melihat kembali ke Solnea hanya untuk melihatnya menatapku. Aku masih tidak bisa merasakan gelombang emosi darinya. Tatapannya masih seperti linglung. Sebenarnya, terus-menerus menatap seperti itu dengan jarak yang dekat sedikit membuatku deg-degan.
 
-"Tidak, tidak juga."
+"Tidak, tidak terlalu."(sol)
 
-"Aku..Lihat ……" (renji)
+"begitu......" (renji)
 
 Merasa sedikit malu dari pandangannya yang lurus, aku kehilangan kata-kataku untuk sesaat. Mendengar itu, Mururu yang telah makan sampai sekarang memandang ke arahku.
 
