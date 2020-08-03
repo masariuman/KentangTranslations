@@ -172,7 +172,7 @@ begitu... Apakah aku satu-satunya yang terlalu kasar?
 
 Sambil memikirkan itu, kami bergabung dengan barisan orang juga. aku bisa masuk dengan gratis untuk diriku sendiri tetapi aku akan merasa tidak enak membiarkan orang-orang ini menunggu di antrian sendirian. Ketika aku melihat disekitarku, aku melihat banyak orang yang hanya melihat mereka yang menunggu untuk masuk ke arena. Ada juga banyak kios di sini selain jalan utama.
 
-"Sangat menyakitkan kalau kerja kerasmu tida menghasilkan apapun."
+"Sangat menyakitkan kalau kerja kerasmu tidak menghasilkan apapun."
 
 "……Yeah."
 
