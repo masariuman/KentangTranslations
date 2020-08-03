@@ -224,6 +224,8 @@ Nostalgia sekali. Yah, Kudou ada di sana hanya untuk memprovokasi 2 lainnya. Saa
 
 Dia hanya bersenang-senang mengganggu Yayoi-chan dan Masaki-chan. Apakah ini yang ingin dia perlihatkan kepadaku? Saat itu, Kudou, melihat ke arah kami dari halaman. Ketika tatapan kami bertemu, dia tersenyum lebar dengan mata setengah terbuka seperti biasanya. dia membisikkan sesuatu di telinga Souichi. Tiba-tiba, dengan wajah terkejut, Souichi memandang ke arah kami. Kudou, apa yang dia katakan padanya?
 
+<gambar> vol4 69.jpg
+
 "Sepertinya mereka bersenang-senang." (Yuuko)
 
 […….benarkah?]
