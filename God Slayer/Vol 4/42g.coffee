@@ -1,4 +1,4 @@
-Chapter 42 Turnamen Bela Diri (1)
+Chapter 42 Turnamen (1)
 
 Bahu kananku yang barusan dipukul terasa panas karena rasa sakit dan terus mengganggu konsentrasiku. Sudah 1 minggu sejak kami dipanggil ke dunia ini. Selama beberapa hari terakhir, aku telah berlatih bagaimana menggunakan pedang di siang hari.
 
