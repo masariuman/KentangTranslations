@@ -252,9 +252,9 @@ suara ermenhilde benar-benar bahagia dari. Biasanya ketika aku mendengarnya sepe
 
 Tetapi kali ini, sepertinya tidak ada yang memperhatikan reaksiku. Aku melihat kerumunan yang berkumpul di depan arena dengan linglung. Dan Solnea menatapku terus menerus.
 
-"Apa itu?"
+"ada apa?"(renji)
 
-"Kamu orang yang menarik." (Sol)
+"Kamu adalah orang yang menarik." (Sol)
 
 Mengatakan itu saja, dia kembali makan replika hotdog-nya. Tidak dapat menyadari apa yang dia maksudkan dengan itu, aku hanya bisa memiringkan kepalaku dalam kebingungan.
 
