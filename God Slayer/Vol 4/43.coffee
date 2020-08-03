@@ -400,13 +400,13 @@ Setelah beberapa serangan, lawan mulai menunjukkan tanda-tanda kelelahan. Di sis
 
 "Waah."
 
-Rasanya bahkan aku menjadi gugup ketika akhirnya menghembuskan napas dan mendengar desahan yang sama dari sebelahku juga. Melihat ke sana, tatapanku terhubung dengan Mururu. Dan pada saat yang sama, suara yang langsung datang ke kepala kami menyatakan pemenang sebagai Ms Francesca.
+bahkan aku menjadi gugup dan akhirnya menghembuskan napas dan yang sama dari sebelahku juga. ketika aku melihatnya, tatapanku terhubung dengan Mururu. Dan pada saat yang sama, suara yang langsung datang ke kepala kami menyatakan pemenang sebagai Ms Francesca.
 
 "Dia menang." (Mururu)
 
-"Ya. Sepertinya kita harus merayakannya. ”
+"Ya. Sepertinya kita harus merayakannya."
 
-"Ya."
+"Yeah."
 
 Aku tersenyum kembali melihat Mururu memberikan senyum lebar yang langka juga. Aku merasakan dadaku menjadi hangat melihat ekspresinya.
 
