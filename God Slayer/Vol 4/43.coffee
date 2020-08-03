@@ -304,13 +304,13 @@ arena itu setidaknya berdiameter 200m. Cukup besar menurutku. Itu sangat mirip d
 
 Turnamen pertempuran adalah acara utama yang terjadi pada akhir tahun. Pemenang mendapat hadiah 5 koin perak, dan selain itu, jika ada yang mengaku mereka mungkin akan diangkat sebagai Ksatria atau pesulap istana juga. Bukan hanya itu, itu juga tempat terbaik untuk menguji kekuatanmu sendiri. Di dunia ini yang tidak memiliki hiburan, ada banyak orang yang akan berusaha keras sepanjang tahun hanya untuk ikut dalam turnamen ini. Di satu sisi, itu dianggap suatu kehormatan hanya ikut dalam turnamen ini.
 
-"Apakah aku juga akan tumbuh sebanyak Fran suatu hari nanti?" (Mururu)
+"Apakah aku juga akan tumbuh sebesar Fran suatu hari nanti?" (Mururu)
 
-"Akan lebih bagus, jika kamu melakukannya."
+"jika memang seperti itu, akan lebih bagus untukmu."(renji)
 
-"Ya."
+"iYa."
 
-Saya memutuskan untuk tidak bertanya 'pertumbuhan' apa sebenarnya. Itulah caraku bersikap baik. Tidak seperti Ms Francesca, membayangkan padang rumput yang datar, saya mengatakan itu. Segera, Mururu kembali untuk memakan dagingnya. Namun dari penampilannya, satu-satunya hal yang akan Anda tumbuhkan saat ini adalah perut Anda, bukan dada. Nah, mengingat gerakan tubuhnya sebagai wanita buas, dia mungkin tidak akan mendapatkan banyak lemak. Bahkan, saya merasa seperti belum pernah melihat beastman yang gemuk.
+aku memutuskan untuk tidak bertanya 'pertumbuhan' apa sebenarnya yang dia maksudkan. Itulah caraku bersikap baik. Tidak seperti nona Francesca, bayangkan padang rumput yang datar, seperti itulah. Mururu kembali memakan dagingnya. Namun dari penampilannya, satu-satunya hal yang akan kamu tumbuhkan saat ini adalah perutmu, bukan dada. Nah, mengingat gerakan tubuhnya sebagai beastwomen, dia mungkin tidak akan mendapatkan banyak lemak. Bahkan, aku merasa seperti belum pernah melihat beastman yang gemuk.
 
 Sementara itu, pertempuran di arena tampaknya mencapai klimaksnya. Petualang menggunakan dua pedang mulai bertarung dalam keadaan yang lebih agresif tiba-tiba saat kerumunan menjadi liar dengan sorak-sorai. Seolah-olah didukung oleh sorakan-sorai itu, dia memberikan kombinasi serangan dengan keterampilan aktual dan bukan hanya gerakan acak. Tapi pria dengan pedang besar itu memblokir kombo itu dengan sangat baik.
 
