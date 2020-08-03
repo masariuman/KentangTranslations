@@ -178,19 +178,19 @@ Sambil memikirkan itu, kami bergabung dengan barisan orang juga. aku bisa masuk 
 
 Aku merasakan kelembutan dari kata-kata Feirona. Apakah itu berasal dari pengalaman pribadinya? Atau apakah dia benar-benar mengembangkan ikatan dengan nona Francesca saat bepergian dengannya. lelaki elf ini sepertinya berharap untuk kemenangan nona Francesca. Dan Mururu juga. Orang-orang ini pasti sudah mulai akrab satu sama lain. Melihat ikatan hangat mereka, aku tersenyum. Menyadari hal itu, aku menyembunyikan mulutku dengan tangan kananku tetapi Elf yang melihat dengan tajam hanya mengalihkan tatapannya seolah-olah dia tidak melihatnya. Aku penasaran apakah dia senang atau hanya malu.
 
-"Oh, benar, kalian tidak akan masuk?"
+"Oh, benar, kalian tidak ikut?"(renji)
 
-Tiba-tiba teringat, saya menanyakan itu. Saya tahu bahwa baik Feirona dan Mururu jauh lebih terampil daripada petualang normal. Mereka mungkin tidak memenangkan semuanya tetapi mereka mungkin akan melangkah cukup jauh di turnamen.
+aku menanyakan itu. aku tahu bahwa Feirona dan Mururu jauh lebih terampil daripada petualang normal. Mereka mungkin tidak memenangkan semuanya tetapi mereka mungkin akan melangkah cukup jauh di turnamen.
 
-Tapi, sambil menyadari pikiranku, Feirona menggelengkan kepalanya. Mururu terus makan hotdog-nya. Gadis ini benar-benar memprioritaskan makanan di atas segalanya, bukan?
+Tapi, Feirona menggelengkan kepalanya. Mururu terus makan hotdog-nya. Gadis ini benar-benar memprioritaskan makanan di atas segalanya ya...
 
-"Aku tidak suka berdiri keluar."
+"Aku tidak suka menonjol."(elf)
 
-"Aah, aku benar-benar mengerti maksudmu."
+"Aah, aku benar-benar mengerti maksudmu."(renji)
 
-[........ Dan kenapa kalian baik-baik saja dengan itu?]
+[........ Dan kenapa kalian tidak masalah dengan itu?]
 
-Ermenhilde menghela nafas putus asa terhadap kami berdua. Saya satu hal tetapi jarang bagi Feirona untuk mendapatkan reaksi yang sama seperti saya dari Ermenhilde.
+Ermenhilde menghela nafas terhadap kami berdua. aku sih sudah biasa tetapi jarang untuk Feirona mendapatkan reaksi yang sama sepertiku dari Ermenhilde.
 
 "Renji tidak akan muncul?" (Sol)
 
