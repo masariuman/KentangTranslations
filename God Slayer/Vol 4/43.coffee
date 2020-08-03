@@ -302,7 +302,7 @@ Arena utama berbentuk silinder dan dikelilingi oleh dinding batu. Dinding batu i
 
 arena itu setidaknya berdiameter 200m. Cukup besar menurutku. Itu sangat mirip dengan colloseum yang kita lihat di film. Di bagian paling atas tribun penonton adalah tempat yang ditutupi kain berkualitas tinggi. Itu adalah tempat para royalti duduk dan menonton arena. Saat ini, kami berhadapan langsung dengan daerah itu. Penonton lainnya dengan bersemangat berteriak dan menikmati pertarungan di arena sekarang.
 
-Turnamen pertempuran adalah acara utama yang terjadi pada akhir tahun. Pemenang mendapat hadiah 5 koin perak, dan selain itu, jika ada yang mengaku mereka mungkin akan diangkat sebagai Ksatria atau pesulap istana juga. Bukan hanya itu, itu juga tempat terbaik untuk menguji kekuatan Anda sendiri. Di dunia ini yang tidak memiliki cara hiburan, ada banyak orang yang akan bekerja keras sepanjang tahun hanya untuk mengambil bagian dalam turnamen ini. Di satu sisi, itu dianggap suatu kehormatan untuk hanya mengambil bagian dalam turnamen ini.
+Turnamen pertempuran adalah acara utama yang terjadi pada akhir tahun. Pemenang mendapat hadiah 5 koin perak, dan selain itu, jika ada yang mengaku mereka mungkin akan diangkat sebagai Ksatria atau pesulap istana juga. Bukan hanya itu, itu juga tempat terbaik untuk menguji kekuatanmu sendiri. Di dunia ini yang tidak memiliki hiburan, ada banyak orang yang akan berusaha keras sepanjang tahun hanya untuk ikut dalam turnamen ini. Di satu sisi, itu dianggap suatu kehormatan hanya ikut dalam turnamen ini.
 
 "Apakah aku juga akan tumbuh sebanyak Fran suatu hari nanti?" (Mururu)
 
