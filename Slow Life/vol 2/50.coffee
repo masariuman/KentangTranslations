@@ -115,49 +115,33 @@ g"Ah, begitu, semoga beruntung."
 
 Otto buru-buru menghentikanku sekali lagi ketika aku akan pergi.
 
-aku suka jika dia bergegas dan menyerah.
+aku lebih suka jika dia langsung ke inti utamanya saja dan menyerah.
 
- 
+g"Jadi, apa sebenarnya yang kamu ingin aku lakukan?"
 
-"Jadi, apa sebenarnya yang kamu ingin aku lakukan?"
-
-"Tidak, itu bukan sesuatu yang utama."
-
- 
+"Tidak, itu bukan sesuatu yang penting."
 
 Dia bertindak dengan malu-malu.
 
-Seorang pria raksasa yang tingginya lebih dari dua meter bertindak seperti itu tidak kurang dari menjijikkan.
+Seorang pria raksasa yang tingginya lebih dari dua meter bertindak seperti itu sungguh menjijikkan.
 
- 
+"Ketika aku dilemparkan ke sungai, senjata, baju besi, koper, dan uang aku hanyut ... jadi aku ingin meminjam uang. Aku akan mengembalikannya kepadamu setelah aku mendapatkan istana."
 
-“Ketika saya dilemparkan ke sungai, senjata, baju besi, koper, dan uang saya hanyut ... jadi saya ingin meminjam uang. Aku akan mengembalikannya kepadamu setelah aku mendapatkan kastil. ”
+g"Tidak."
 
-"Tidak."
+aku langsung menjawab.
 
- 
+"Bahkan jika aku menundukkan kepalaku?"
 
-Saya langsung menjawab.
+g"Ya."
 
- 
+"Maka tidak ada jalan lain! aku akan memintamu meninggalkan uangmu bahkan jika aku harus menggunakan kekerasan! "
 
-"Bahkan jika aku menurunkan kepalaku?"
-
-"Ya."
-
-“Maka tidak ada jalan lain! Saya akan meminta Anda meninggalkan uang Anda bahkan jika saya harus menggunakan kekuatan! "
-
- 
-
-Seru Otto sambil membuka kedua tangannya dan menyerang. Hanya di celana dalamnya.
-
- 
+Seru Otto sambil membuka kedua tangannya dan menyerang Hanya dengan celana dalamnya.
 
 "Jika kamu tidak ingin merasa sakit, patuhlah buheraaaaaa !?"
 
- 
-
-Sebelum dia menyadarinya, tangan kanan saya lurus dengan kekuatan seluruh tubuh saya di belakangnya menghantam wajah Otto.
+Sebelum dia menyadarinya, tangan kananku lurus dengan kekuatan seluruh tubuh saya di belakangnya menghantam wajah Otto.
 
 Hah, itu buruk, aku secara refleks membalas. Saya tidak ingin berkelahi karena saya tidak ingin menonjol tetapi pada kenyataannya, saya kira saya secara naluriah kesal.
 
