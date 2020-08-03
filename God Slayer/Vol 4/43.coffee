@@ -230,21 +230,21 @@ Merasa sedikit malu dari pandangannya, aku kehilangan kata-kataku untuk sesaat. 
 
 […… .Tch.]
 
-Kalian benar-benar akrab ya. Apakah menyenangkan menggangguku? dasar. Sambil menggaruk pipiku yang terasa seperti keram, aku mengalihkan pandanganku. Solnea hanya menatap kami dengan bingung. aku kira dia menjadi sedikit ingin tahu tentang pertarungan dan itulah sebabnya dia menanyakan hal itu. Tidak ada alasan lain di balik itu mungkin. Saya hanya bereaksi berlebihan melihatnya mengatakan sesuatu seperti itu, itu saja. Dan untuk tatapannya juga.
+Kalian benar-benar akrab ya. Apakah menyenangkan menggangguku? dasar. Sambil menggaruk pipiku yang terasa seperti keram, aku mengalihkan pandanganku. Solnea hanya menatap kami dengan bingung. aku kira dia menjadi sedikit ingin tahu tentang pertarungan dan itulah sebabnya dia menanyakan hal itu. mungkin Tidak ada alasan lain di balik itu. aku hanya bereaksi berlebihan melihatnya mengatakan sesuatu seperti itu, itu saja. Dan untuk tatapannya juga.
 
-Untuk beberapa alasan, saya tidak bisa dipandang secara langsung. Apakah karena saya kurang percaya diri? Karena aku merasa mereka akan melihat orang seperti apa Yamada Renji?
+Untuk beberapa alasan, aku tidak bisa dipandang secara langsung. Apakah karena aku kurang percaya diri? Karena aku merasa mereka akan melihat orang seperti apa Yamada Renji?
 
-"Tapi, Renji, aku tertarik melihatmu bertarung."
+"Tapi, Renji, aku tertarik melihatmu bertarung."(sol)
 
-“Begitu, begitu. Yah, aku akan berusaha bekerja keras dalam pertarunganku jadi pastikan untuk menikmatinya. ”(Renji)
+"begitu, begitu. Yah, aku akan berjuang keras dalam pertarunganku jadi pastikan untuk menikmatinya."(Renji)
 
-Konon, lawanku adalah Souichi. Berusaha keras sendirian tidak akan membiarkan saya menang, tetapi saya tidak bermaksud menyerah bahkan sebelum memulai. Sebagai permulaan, saya akan mencobanya setidaknya.
+lawanku adalah Souichi. Berusaha keras sendiri saja tidak akan membuatku menang, tetapi aku tidak bermaksud menyerah bahkan sebelum memulai. paling tidak aku akan menncobany.
 
-[Sungguh tidak biasa. Saya pikir Anda akan benar-benar enggan melakukan hal seperti itu?]
+[aneh... kupikir kamu tidak mau melakukan hal seperti itu?]
 
-Aku ingin tahu apa yang dia pikirkan tentangku ketika Ermenhilde berbicara dengan suara yang agak terkejut. Biasanya, pada saat-saat seperti itu, saya biasanya akan mengatakan sesuatu yang menyedihkan dan Ermenhilde akan memarahi saya untuk itu. Begitulah yang terjadi.
+Aku ingin tahu apa yang dia pikirkan tentangku karena Ermenhilde berbicara dengan suara yang agak terkejut. Biasanya, pada saat-saat seperti ini, aku biasanya akan mengatakan sesuatu yang menyedihkan dan Ermenhilde akan memarahiku untuk itu. Begitulah yang terjadi.
 
-Bahkan saya pikir begitu. Saya tidak suka menonjol, dan saya juga tidak akan menggunakan Ermenhilde di turnamen. Dalam situasi di mana manfaat dari menipu bagi saya hampir minimal, kekuatan saya hanya sedikit lebih dari petualang normal. Biarpun aku bertarung melawan Souichi saat menggunakan pedang latihan, ada peluang yang sangat rendah bagiku untuk menang. Persis seperti yang dikatakan Ermenhilde, saya mungkin akan melakukan sedikit usaha dan kemudian dengan cepat kehilangan dan menyelesaikannya. Setidaknya, saya tidak akan mengatakan sesuatu seperti saya akan bekerja keras.
+Bahkan aku juga berpikir begitu. aku tidak suka menonjol, dan aku juga tidak akan menggunakan Ermenhilde di turnamen. Dalam situasi di mana manfaat dari menipu bagi saya hampir minimal, kekuatan saya hanya sedikit lebih dari petualang normal. Biarpun aku bertarung melawan Souichi saat menggunakan pedang latihan, ada peluang yang sangat rendah bagiku untuk menang. Persis seperti yang dikatakan Ermenhilde, saya mungkin akan melakukan sedikit usaha dan kemudian dengan cepat kehilangan dan menyelesaikannya. Setidaknya, saya tidak akan mengatakan sesuatu seperti saya akan bekerja keras.
 
 [Begitu, begitu. Baik.]
 
