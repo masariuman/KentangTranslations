@@ -1,16 +1,16 @@
 Babak 44 Turnamen pertarungan (3)
 
-Saya bertanya-tanya apakah saya satu-satunya yang merasa enak melihat makanan perlahan berkurang dari banyak hidangan yang diatur di atas meja. Aku melihat Mururu memakan Udon dengan garpu setelah menyisihkan sumpit yang sulit. Setelah beberapa saat, Mururu, yang hanya fokus pada makanannya, menyadari tatapanku dan menatapku.
+Saya penasaran apakah saya satu-satunya yang merasa enak melihat makanan perlahan berkurang dari hidangan yang banyak yang diatur di atas meja. Aku melihat Mururu memakan Udon dengan garpu setelah meletakkan sumpit yang sulit. Setelah beberapa saat, Mururu, yang hanya fokus pada makanannya, menyadari tatapanku dan menatapku.
 
-“…… Apa?” (Mururu)
+"…… Apa?" (Mururu)
 
-"Tidak ada, saya hanya berpikir bahwa Anda benar-benar bisa makan banyak."
+"Tidak ada, aku hanya berpikir bahwa kamu benar-benar bisa makan banyak."(renji)
 
-"Enak sekali."
+"itu karena Enak sekali."
 
-“Yah, aku senang. Itu dibuat oleh teman saya sehingga mendengar yang membuat saya bahagia juga. "
+"Yah, aku senang mendengarnya. Itu dibuat oleh temanku jadi mendengarnya juga  membuat saya senang juga. "
 
-"Saya melihat."
+"begitu."
 
 Dia tersenyum lebar pada itu sedikit membingungkan saya. Tapi, akan aneh untuk memikirkan hal-hal seperti itu dan tidak makan, jadi aku juga memindahkan sumpitku ke piring. Pesanan saya adalah Soba. Solnea juga memesan hidangan yang sama, dan saat ini mencoba yang terbaik untuk menggunakan sumpit dan memakannya. Jika itu sulit, Anda bisa menggunakan garpu seperti Mururu, Anda tahu? Ya, saya benar-benar menyuruhnya menggunakan garpu, tetapi untuk beberapa alasan dia tampak bersikeras menggunakan sumpit saja. Saya tidak mengapa dia menjadi begitu terobsesi dengan itu tetapi jika dia sendiri menginginkannya, saya pikir itu baik-baik saja. Agak frustasi menontonnya. Mie akan mulai meregang jadi saya harap dia tidak terlalu lama.
 
