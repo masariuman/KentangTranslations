@@ -97,31 +97,25 @@ g"Hmm ~, begitu. Semoga beruntung, bye."
 
 "Tunggu tunggu tunggu, dengarkan sampai akhir."
 
-Otto buru-buru menghentikan aku ketika aku akan pergi.
+Otto buru-buru menghentikanku ketika aku akan pergi.
 
 "Untuk mencari seniman bela diri yang bisa bertarung melawan raksasa, aku menantang orang-orang yang melintasi jembatan."
 
-"Ah, jadi kamu itu Ksatria yang menyusahkan."
+g"Ah, jadi kamu itu Ksatria yang menyusahkan."
 
-“Dan kemudian, hari ini, aku akhirnya menemukan seorang prajurit wanita yang memiliki kekuatan yang sama denganku. Itu adalah takdir dan aku akan menemukan prajurit wanita itu, mengalahkan Giants Hill yang jahat bersama-sama dan mendapatkan kastil! ”
-
- 
+"Dan kemudian, hari ini, aku akhirnya menemukan seorang prajurit wanita yang memiliki kekuatan yang sama denganku. Itu adalah takdir dan aku akan menemukan prajurit wanita itu, mengalahkan bukit raksasa yang jahat bersama-sama dan mendapatkan istana!"
 
 Otto menjadi malu setelah banyak bicara.
 
- 
+"Dan aku akan melamar prajurit wanita itu dan tinggal bersama di istana itu."
 
-"Dan aku akan melamar prajurit wanita itu dan tinggal bersama di kastil itu."
+g"Ah, begitu, semoga beruntung."
 
-"Ah, begitu, semoga beruntung."
+"Tunggu, tunggu, tunggu, sebentar lagi, berikutnya adalah topik utamanya."
 
-"Tunggu, tunggu, tunggu, sedikit lagi, berikutnya adalah topik utama."
+Otto buru-buru menghentikanku sekali lagi ketika aku akan pergi.
 
- 
-
-Otto buru-buru menghentikan saya sekali lagi ketika saya akan pergi.
-
-Saya suka jika dia bergegas dan menyerah.
+aku suka jika dia bergegas dan menyerah.
 
  
 
