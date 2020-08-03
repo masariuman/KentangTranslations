@@ -30,34 +30,28 @@ g"Ah, apakah ada sesuatu ?"
 
 Aku secara halus mengisyaratkan aura bahwa aku benar-benar merasa terganggu ketika aku menjawab dengan senyum ramah.
 
-"Umu, aku adalah Drake Rider Otto. Pemimpin serangan dari Ksatria Fafnir yang mulia."
+"Umu, aku adalah si penunggang drake Otto. Pemimpin serangan dari Ksatria Fafnir yang mulia."
 (masariuman: jadi gimana ya, mau dibilang itik jantan juga gak cocok kan, ya drake itu semacam monster atau dinasaurus gitu...)
 
-g"Drake Rider?"
+g"penunggang drake?"
 
-『Drake Rider』 adalah Perlindungan Ilahi yang Unggul dalam sistem Kalvari dan seperti namanya, mereka terikat dengan Drake dan merupakan Perlindungan Ilahi yang mengkhususkan diri dalam pertempuran saat menunggangi Drake.
+『penunggang drake』 adalah Perlindungan Ilahi yang Unggul dalam sistem Kalvari dan seperti namanya, mereka terikat dengan Drake dan merupakan Perlindungan Ilahi yang mengkhususkan diri dalam pertempuran saat menunggangi Drake.
 
-Jika dibandingkan dengan Perlindungan Ilahi yang serupa tetapi lebih umum 『Wyvern Rider』 yang mengendarai Wyvern, 『Drake Rider』 pada dasarnya lebih kuat.
+Jika dibandingkan dengan Perlindungan Ilahi yang serupa tetapi lebih umum 『penunggang Wyvern』 yang menunggangi Wyvern, 『penunggang Drake』 pada dasarnya lebih kuat.
 
-Ada berbagai alasan tetapi alasan pertama adalah 『Drake Rider』 memiliki keterampilan 'Human-Drake Unity' yang memungkinkan mereka untuk memberikan keterampilan yang mereka miliki kepada Drake yang mereka tunggangi.
+Ada berbagai alasan tetapi alasan pertama adalah 『penunggang Drake』 memiliki skill 'persatuan manusia-Drake' yang memungkinkan mereka untuk memberikan skill yang mereka miliki kepada Drake yang mereka tunggangi.
 
-Secara alami, Drakes memiliki Perlindungan Ilahi mereka sendiri juga sehingga dengan mendapatkan dua Perlindungan Ilahi, mereka akan mampu mengalahkan lawan dari tingkat Perlindungan Ilahi yang sama seperti mereka.
+Secara alami, Drake memiliki Perlindungan Ilahi mereka sendiri juga sehingga dengan mendapatkan dua Perlindungan Ilahi, mereka akan mampu mengalahkan lawan dari tingkat Perlindungan Ilahi yang sama seperti mereka.
 
- 
+Namun, itu tidak berarti bahwa 『penunggang Drake』 adalah Perlindungan Ilahi yang 'kuat'.
 
-Namun, itu tidak berarti bahwa 『Drake Rider』 adalah Perlindungan Ilahi yang 'kuat'.
-
-Drake Riders memiliki satu kekurangan fatal.
+penunggang Drake memiliki satu kekurangan fatal.
 
 Seorang Penunggang Drake hanya bisa terikat dengan satu Drake dalam hidupnya.
 
-Bahkan jika mereka memiliki banyak keterampilan yang kuat, sekali mereka kehilangan Drake tunggal itu, mereka tidak akan pernah mendapatkan kesempatan lain. Setelah itu terjadi, keterampilan yang tersisa yang dibawa oleh Perlindungan Ilahi mereka akan menjadi kelas bawah 『Kavaleri grade Perlindungan Ilahi dan, karena alokasi keterampilan menuju ikatan dengan Drakes, mereka akan lebih rendah daripada Kavaleri pada tingkat yang sama.
-
- 
+Bahkan jika mereka memiliki banyak skill yang kuat, sekali mereka kehilangan Drake tunggal itu, mereka tidak akan pernah mendapatkan kesempatan lain. Setelah itu terjadi, skill yang tersisa yang dibawa oleh Perlindungan Ilahi mereka akan menjadi kelas bawah perlindungan ilahi tingkat『Kavaleri』 dan karena alokasi skillnya menuju ikatan dengan Drakes, mereka akan lebih rendah daripada Kavaleri pada tingkat yang sama.
 
 Karena itu …
-
- 
 
 "... Dan begitulah raksasa mengerikan Glendale kehilangan rekannya yang bisa dipercaya."
 
