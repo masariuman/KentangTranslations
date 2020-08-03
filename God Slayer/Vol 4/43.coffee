@@ -268,15 +268,15 @@ yeah.
 
 (Bagian 2 )
 
-Pada saat itu, Mururu dan Solnea selesai makan hotdog mereka dan kami telah memasuki arena, hampir setengah dari kursi penonton sudah terisi. Duduk di kursi batu, Mururu dan Solnea duduk di sebelah kiri dan kanan saya. Feirona duduk di sisi lain Solnea.
+Mururu dan Solnea selesai memakan hotdog mereka dan kami sudah memasuki arena. hampir setengah dari kursi penonton sudah terisi. Mururu dan Solnea duduk di sebelah kiri dan kananku. Feirona duduk di sebelah Solnea.
 
-Ketika saya memegang daging orc yang tertusuk di tangan saya, saya ingat menonton pertandingan bisbol seperti ini di dunia asli saya. Saat itu, Mururu, yang juga makan hal yang sama mengalihkan pandangannya. Saat mengikuti pandangannya, saya melihat Ms. Francesca mengenakan seragam sekolah birunya. Dia saat ini berdiri di pintu masuk ke panggung utama. Pasti dia giliran berikutnya.
+Ketika aku memegang sate daging orc di tanganku, aku jadi ingat menonton pertandingan baseball seperti ini di dunia asliku. Mururu, yang juga makan hal yang sama menggerakkan pandangannya. ketika aku melihat apa yang dipandangnya, aku melihat nona Francesca mengenakan seragam sekolah birunya. Dia saat ini berdiri di pintu masuk ke panggung utama. Pasti dia giliran berikutnya.
 
 "Fran, dia ada di sana." (Mururu)
 
-“Sepertinya begitu. Aah, dia benar-benar tampak gugup. "(Renji)
+"Sepertinya begitu. Aah, dia benar-benar tampak gugup."(Renji)
 
-Aku bahkan tahu dari kejauhan bahwa dia sangat gugup. Dia tampaknya memiliki pedang sebagai senjata saat dia memegangnya, sementara di dalam sarungnya, erat di dadanya. Menggerakkan tatapanku, aku melihat keduanya yang saat ini bertarung di arena sekarang. Mungkin karena jumlah pelamar yang besar, proses seleksi dilakukan melalui metode bertahan hidup. Sekitar 10 atau kurang peserta akan bertarung pada waktu yang sama dan hanya pemain terakhir yang akan maju ke babak berikutnya. Selain 2 perkelahian, ada 5 peserta lain saat ini berbaring di tanah sambil mengerang kesakitan. Setidaknya mereka belum mati.
+Aku bahkan tahu dari kejauhan bahwa dia sangat gugup. Dia tampaknya menggunakan pedang sebagai senjata. aku mengubah pandanganku dan aku melihat yang saat ini bertarung di arena sekarang. Mungkin karena jumlah pendaftar yang besar, proses seleksi dilakukan melalui metode battle royale. Sekitar 10 atau kurang peserta akan bertarung pada waktu yang sama dan hanya pemain terakhir yang akan maju ke babak berikutnya. Selain 2 yang sedang bertarung, ada 5 peserta lain saat ini berbaring di tanah sambil mengerang kesakitan. Setidaknya mereka belum mati.
 
 Level skill keduanya yang sedang bertarung adalah ....... tidak terlalu tinggi. Tidak, mungkin aku sedikit terbiasa melihat pertarungan level yang lebih tinggi karena menonton pertarungan latihan antara Masaki-chan dan Souichi. Dibandingkan dengan para petualang di dunia ini, orang-orang ini tampaknya memiliki keterampilan rata-rata. Salah satu dari mereka menggunakan pedang besar, setinggi tingginya sendiri, dan yang lainnya menggunakan pedang pendek dengan terampil di kedua tangannya.
 
