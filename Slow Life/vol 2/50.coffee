@@ -1,5 +1,7 @@
 Babak 50: ksatria Bandit yang terbawa arus
 
+(masariuman : disini saya memakai kata bandit. sebenarnya artinya penjahat, tapi bandit lebih ke pencuri/pemalak dengan ancaman atau bahkan membunuh gitu....)
+
 Ketika aku sedang berjalan, aku mendengar seseorang merintih.
 
 aku Dengan curiga berjalan menuju sumber suara itu.
@@ -141,13 +143,11 @@ Seru Otto sambil membuka kedua tangannya dan menyerang Hanya dengan celana dalam
 
 "Jika kamu tidak ingin merasa sakit, patuhlah buheraaaaaa !?"
 
-Sebelum dia menyadarinya, tangan kananku lurus dengan kekuatan seluruh tubuh saya di belakangnya menghantam wajah Otto.
+tanpa dia sadari, tangan kananku dengan kekuatan seluruh tubuhku menghantam wajah Otto.
 
-Hah, itu buruk, aku secara refleks membalas. Saya tidak ingin berkelahi karena saya tidak ingin menonjol tetapi pada kenyataannya, saya kira saya secara naluriah kesal.
+Hah, itu buruk, aku secara refleks membalas. aku tidak ingin berkelahi karena aku tidak ingin menonjol tetapi pada kenyataannya, aku secara naluriah kesal terhadapnya.
 
- 
-
-Otto terbang mundur dan menyebabkan percikan air yang besar ketika dia sekali lagi jatuh ke sungai.
+Otto terbang kebelakang dan menyebabkan percikan air yang besar ketika dia sekali lagi jatuh ke sungai.
 
 Tubuh Otto melayang ke permukaan air dan dibawa turun sungai oleh arus.
 
