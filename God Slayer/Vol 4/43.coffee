@@ -278,15 +278,15 @@ Ketika aku memegang sate daging orc di tanganku, aku jadi ingat menonton pertand
 
 Aku bahkan tahu dari kejauhan bahwa dia sangat gugup. Dia tampaknya menggunakan pedang sebagai senjata. aku mengubah pandanganku dan aku melihat yang saat ini bertarung di arena sekarang. Mungkin karena jumlah pendaftar yang besar, proses seleksi dilakukan melalui metode battle royale. Sekitar 10 atau kurang peserta akan bertarung pada waktu yang sama dan hanya pemain terakhir yang akan maju ke babak berikutnya. Selain 2 yang sedang bertarung, ada 5 peserta lain saat ini berbaring di tanah sambil mengerang kesakitan. Setidaknya mereka belum mati.
 
-Level skill keduanya yang sedang bertarung adalah ....... tidak terlalu tinggi. Tidak, mungkin aku sedikit terbiasa melihat pertarungan level yang lebih tinggi karena menonton pertarungan latihan antara Masaki-chan dan Souichi. Dibandingkan dengan para petualang di dunia ini, orang-orang ini tampaknya memiliki keterampilan rata-rata. Salah satu dari mereka menggunakan pedang besar, setinggi tingginya sendiri, dan yang lainnya menggunakan pedang pendek dengan terampil di kedua tangannya.
+Level skill keduanya yang sedang bertarung adalah ....... tidak terlalu tinggi. Tidak, mungkin aku sedikit terbiasa melihat pertarungan level yang lebih tinggi karena melihat pertarungan latihan antara Masaki-chan dan Souichi. Dibandingkan dengan para petualang di dunia ini, orang-orang ini tampaknya memiliki skil dilevel rata-rata. Salah satu dari mereka menggunakan pedang besar, setinggi tingginya sendiri, dan yang lainnya menggunakan pedang pendek dengan terampil di kedua tangannya.
 
-Tapi tampaknya tidak tertarik dalam pertarungan mereka, Mururu terus lebih fokus pada daging di tangannya. Apakah kamu baik-baik saja?
+Mururu terus lebih fokus pada daging di tangannya mungkin karena tidak tertarik dengan pertarunga mereka.
 
-"Jangan makan berlebihan. Kami akan pergi makan siang dengan semua orang nanti juga, tahu? ”(Renji)
+"Jangan makan berlebihan. kita akan pergi makan siang dengan semua orang nanti juga, tahu?"(Renji)
 
-"Tidak masalah. Saya bisa makan itu juga. "(Mururu)
+"Tidak masalah. aku bisa makan nanti juga. "(Mururu)
 
-“…… Kamu akan menjadi gemuk.”
+"…… Kamu akan menjadi gemuk."
 
 Ketika aku mengatakan itu, dia mulai menyentuh dadanya seolah memeriksa sesuatu.
 
