@@ -172,11 +172,11 @@ begitu... Apakah aku satu-satunya yang terlalu kasar?
 
 Sambil memikirkan itu, kami bergabung dengan barisan orang juga. aku bisa masuk dengan gratis untuk diriku sendiri tetapi aku akan merasa tidak enak membiarkan orang-orang ini menunggu di antrian sendirian. Ketika aku melihat disekitarku, aku melihat banyak orang yang hanya melihat mereka yang menunggu untuk masuk ke arena. Ada juga banyak kios di sini selain jalan utama.
 
-"Sangat menyakitkan untuk tidak memiliki kerja keras Anda membayar."
+"Sangat menyakitkan kalau kerja kerasmu tida menghasilkan apapun."
 
-"……Ya."
+"……Yeah."
 
-Aku merasakan kelembutan dari kata-kata Feirona. Apakah itu berasal dari pengalaman pribadi? Atau apakah dia benar-benar mengembangkan ikatan dengan Francesca saat bepergian dengannya. Dalam kedua kasus itu, lelaki peri ini sepertinya berharap untuk kemenangan Francesca. Dan Mururu juga. Orang-orang ini pasti sudah mulai akrab satu sama lain. Melihat ikatan hangat mereka, aku tersenyum. Menyadari hal itu, aku menyembunyikan mulutku dengan tangan kananku tetapi Elf yang melihat dengan tajam hanya mengalihkan tatapannya seolah-olah dia tidak melihatnya. Aku ingin tahu apakah dia senang atau hanya malu.
+Aku merasakan kelembutan dari kata-kata Feirona. Apakah itu berasal dari pengalaman pribadinya? Atau apakah dia benar-benar mengembangkan ikatan dengan nona Francesca saat bepergian dengannya. lelaki elf ini sepertinya berharap untuk kemenangan nona Francesca. Dan Mururu juga. Orang-orang ini pasti sudah mulai akrab satu sama lain. Melihat ikatan hangat mereka, aku tersenyum. Menyadari hal itu, aku menyembunyikan mulutku dengan tangan kananku tetapi Elf yang melihat dengan tajam hanya mengalihkan tatapannya seolah-olah dia tidak melihatnya. Aku penasaran apakah dia senang atau hanya malu.
 
 "Oh, benar, kalian tidak akan masuk?"
 
