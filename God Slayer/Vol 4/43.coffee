@@ -192,17 +192,17 @@ Tapi, Feirona menggelengkan kepalanya. Mururu terus makan hotdog-nya. Gadis ini 
 
 Ermenhilde menghela nafas terhadap kami berdua. aku sih sudah biasa tetapi jarang untuk Feirona mendapatkan reaksi yang sama sepertiku dari Ermenhilde.
 
-"Renji tidak akan muncul?" (Sol)
+"Renji tidak akan bertarung?" (Sol)
 
 "Hm?"
 
 Suara itu datang dari seseorang yang tak terduga.
 
-Solnea, yang makan persis seperti Mururu, menanyakan itu padaku. Saya tidak terkejut, tapi agak jarang. Saya pikir dia tidak menunjukkan minat pada hal-hal seperti itu. Nah, kalau begitu jangan bawa dia ke tempat seperti arena. Aku merasa seseorang akan memberitahuku hal itu. Masa bodo. Aku juga tidak bisa melupakan gadis amnesia, kan?
+Solnea, yang masih makan persis seperti Mururu, menanyakan itu padaku. aku tidak terkejut, tapi itu langka. aku pikir dia tidak menunjukkan minat pada hal-hal seperti itu. Nah, kalau begitu jangan bawa dia ke tempat seperti arena. Aku merasa seseorang akan memberitahuku hal itu. terserahlah. Aku juga tidak membiarkan seorang gadis amnesia, kan?
 
-“Sudah diputuskan bahwa aku akan ambil bagian. Di pertandingan utama pada hari kedua. ”(Renji)
+"aku akan ikut di pertandingan utama di hari kedua."(Renji)
 
-Turnamen ini dibagi menjadi dua hari. Pada hari pertama adalah pertempuran tim. Dan pada hari kedua, ini turnamen satu lawan satu dengan kualifikasi dari babak penyisihan hari ini dan kami memanggil para pahlawan. Paling tidak, senjata yang harus kita gunakan bukanlah pedang suci atau pedang magci / setan, melainkan, melatih pedang dengan ujung tumpul. Aya seharusnya dibatasi dalam beberapa cara juga.
+Turnamen ini dibagi menjadi dua hari. Pada hari pertama adalah pertempuran tim. Dan pada hari kedua adalah  turnamen satu lawan satu dengan kualifikasi dari babak penyisihan hari ini dan kami juga menghadirkan para pahlawan. Paling tidak, senjata yang harus kami gunakan bukanlah pedang suci atau pedang magic / iblis, melainkan, menggunakan pedang latihan yang tumpul. Aya seharusnya dibatasi dalam beberapa hal juga.
 
 Seperti yang diinginkan Utano-san, akan sangat bagus jika kita bisa menarik banyak orang untuk menonton pertunjukan.
 
