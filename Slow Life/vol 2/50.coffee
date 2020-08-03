@@ -75,23 +75,19 @@ Dia menghiburku dengan menepuk pundakku.
 
 Aku menatap pria bernama Otto itu dengan mata mencela.
 
-Bagaimanapun, aku pernah menjadi Wakil Kapten Ksatria Bahamut itu.
+Bagaimanapun juga, aku pernah menjadi Wakil Kapten Ksatria Bahamut itu.
 
- 
+g"Jadi, apa yang diinginkan ksatria-sama? aku sedang terburu-buru juga."
 
-“Jadi, apa yang diinginkan Knight-sama? Lagipula aku terburu-buru. ”
+"Aku mempunyai sebuah permintaan."
 
-"Baik! Aku mempunyai sebuah permintaan."
+g"Permintaan?"
 
-"Permintaan?"
+"Aku, untuk menaklukkan Bukit Raksasa Dandak, mendapatkan istananya dan menjadi bangsawan yang memiliki wilayah, datang ke Zoltan."
 
-"Aku, untuk menaklukkan Bukit Raksasa Dandak, mendapatkan kastilnya dan menjadi bangsawan yang memiliki wilayah, datang ke Zoltan."
+aku pernah mendengar itu sebelumnya.
 
- 
-
-Saya pernah mendengar itu sebelumnya.
-
-Tiga tahun lalu, lima Hill Giants menyerang dan mengambil alih kastil situasi tuan barat laut ke Zoltan.
+Tiga tahun lalu, lima bukit raksasa menyerang dan mengambil alih istana situasi tuan barat laut ke Zoltan.
 
 Zoltan mengirim partai penaklukan sekali tetapi mereka dikalahkan dan karena para bangsawan yang memiliki tanah itu semua dibunuh oleh para raksasa, itu telah diabaikan selama ini.
 
