@@ -220,11 +220,11 @@ aku melihat ke arah pintu masuk arena. Solnea juga mengikuti tatapanku dan melih
 
 "begitu......" (renji)
 
-Merasa sedikit malu dari pandangannya yang lurus, aku kehilangan kata-kataku untuk sesaat. Mendengar itu, Mururu yang telah makan sampai sekarang memandang ke arahku.
+Merasa sedikit malu dari pandangannya, aku kehilangan kata-kataku untuk sesaat. Mururu yang sedang makan sampai sekarang memandang ke arahku.
 
 "Wajahmu merah." (Mururu)
 
-"Hanya imajinasimu."
+"Hanya imajinasimu saja."(renji)
 
 "Kukuku, ini hari yang panas untuk akhir tahun ya?" (Elf)
 
