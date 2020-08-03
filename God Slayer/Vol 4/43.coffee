@@ -410,12 +410,12 @@ bahkan aku menjadi gugup dan akhirnya menghembuskan napas dan yang sama dari seb
 
 Aku tersenyum kembali melihat Mururu memberikan senyum lebar yang langka juga. Aku merasakan dadaku menjadi hangat melihat ekspresinya.
 
-Feirona tidak menunjukkan banyak perubahan pada ekspresinya, tetapi aku tahu dia juga cukup bahagia. Aku bertanya-tanya apakah dia sendiri tahu bahwa sudut mulutnya jauh lebih dari biasanya? Menyadari tatapanku, peri yang tampan menyembunyikan mulutnya dengan cara yang sangat santai. Karena aku selalu diejek olehnya, aku pasti akan menggodanya nanti sepuas hatiku. Pastinya.
+Feirona tidak menunjukkan banyak perubahan pada ekspresinya, tetapi aku tahu dia juga cukup bahagia. Aku penasaran apakah dia sendiri tahu bahwa sudut mulutnya jauh lebih bsar dari biasanya? Menyadari tatapanku, elf yang tampan menyembunyikan mulutnya dengan cara ekpresi biasanya. Karena aku selalu diganggu olehnya, aku pasti akan mengganggunya nanti sepuas hatiku. Pastinya.
 
-"Dia menjadi pemenang."
+"Dia menjadi pemenang."(sol)
 
-Tapi, hanya Solnea, seperti biasanya yang berbicara dengan suara datar. Aku memandang ke arah Ms Francesca sekali lagi. Kurasa dia yang paling terkejut dengan hasil pertandingannya. Meskipun dia telah dinyatakan sebagai pemenang, dia masih menatap pedang pendek di tangannya dengan terkejut.
+Tapi, hanya Solnea, seperti biasa berbicara dengan suara datar. Aku memandang ke arah nona Francesca sekali lagi. Kurasa dia yang paling terkejut dengan hasil pertandingannya. Meskipun dia telah dinyatakan sebagai pemenang, dia masih menatap pedang pendek di tangannya dengan terkejut.
 
-Aku ingin tahu emosi macam apa yang melewatinya sekarang, apa yang dia rasakan saat ini?
+Aku ingin tahu emosi macam apa yang dialaminya sekarang, apa yang dia rasakan saat ini?
 
-Saya menjadi sedikit ingin tahu sehingga saya memutuskan untuk bertanya padanya nanti saat perayaan. Sampai pejabat itu memintanya untuk meninggalkan arena, dia tetap berdiri di sana dengan terkejut.
+aku menjadi sedikit penasaran sehingga aku memutuskan untuk bertanya padanya nanti saat perayaan. dia tetap berdiri di sana dengan terkejut sampai wasit memintanya untuk meninggalkan arena.
