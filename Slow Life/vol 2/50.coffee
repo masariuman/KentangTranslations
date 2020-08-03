@@ -53,19 +53,13 @@ Bahkan jika mereka memiliki banyak skill yang kuat, sekali mereka kehilangan Dra
 
 Karena itu …
 
-"... Dan begitulah raksasa mengerikan Glendale kehilangan rekannya yang bisa dipercaya."
+'... Dan begitulah raksasa mengerikan Glendale kehilangan rekannya yang bisa dipercaya.'
 
- 
+perkataan sering digunakan di masa lalu untuk kisah-kisah heroik dari orang-orang dari sistem Perlindungan Ilahi yang kuat.
 
-Itu sering digunakan di masa lalu untuk kisah-kisah heroik dari orang-orang dari sistem Perlindungan Ilahi yang kuat.
-
-Bisa dikatakan, bahkan tanpa kehilangan keterampilan dari Drake Rider, mereka tidak dapat digunakan begitu pasangan mereka hilang.
-
- 
+Bisa dikatakan, walaupun mereka tidak kehilangan kemampuan penunggang drake, mereka tidak dapat menggunakan kemampuan itu begitu rekannya mereka hilang.
 
 "Ah, apa? Ksatria Fafnir? "
-
- 
 
 Blacksmith Mogurim pernah menyebut nama itu.
 
