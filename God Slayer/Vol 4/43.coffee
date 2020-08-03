@@ -318,46 +318,46 @@ Sementara itu, pertempuran di arena tampaknya mencapai klimaksnya. Petualang pen
 
 "Hm?"
 
-Pertanyaan itu datang dari Solnea yang duduk di sampingku, masih menatap lurus ke arena.
+Pertanyaan itu datang dari Solnea yang duduk di sampingku dan dia masih menatap lurus ke arena.
 
-"Mungkin yang menggunakan pedang besar."
+"Mungkin yang menggunakan pedang besar."(fei)
 
-Feirona yang menjawab. Saya juga mengangguk pada jawaban tanpa ragu. Pengguna pedang ganda memiliki momentum tetapi pengguna pedang besar memiliki stabilitas dan soliditas yang lebih besar. Dia bertahan melawan serbuan serangan dengan mudah. Siapa pun yang memiliki sedikit pengalaman bisa mengatakan bahwa itu hanya masalah waktu sebelum pengguna ganda kehabisan stamina.
+Feirona yang menjawab. aku juga mengangguk pada jawaban itu tanpa ragu. Pengguna pedang ganda memiliki momentum tetapi pengguna pedang besar memiliki stabilitas dan soliditas yang lebih besar. Dia bertahan melawan serbuan serangannya dengan mudah. Siapa pun yang memiliki sedikit pengalaman bisa mengatakan bahwa itu hanya masalah waktu sebelum pengguna pedang ganda kehabisan stamina.
 
-Dan seperti yang diharapkan, momentum serangannya segera mulai turun. Tapi tetap saja, pengguna pedang besar itu tidak mengambil tindakan. Dia pasti mengincar momentum ketika lawannya benar-benar kehabisan stamina ……… Kurasa dialah tipe yang penting dalam menangani serangan dengan kepastian maksimal. Cara berpikirnya juga tidak salah karena saat pengguna ganda menghentikan serangannya, pengguna pedang besar itu meledakkannya bersama dengan 2 pedangnya dalam satu ayunan. Ketika raungan riang gembira besar naik, pria itu membungkuk dan kembali ke gerbang setelah mendapatkan umpan ke ronde berikutnya. Sepertinya pria yang tidak sosial, atau lebih tepatnya, tidak sopan. Memang sangat jantan. Bahkan senjatanya adalah pedang besar.
+Dan seperti yang diharapkan, momentum serangannya mulai turun. Tapi tetap saja, pengguna pedang besar itu tidak mengambil tindakan. Dia pasti mengincar momentum ketika lawannya benar-benar kehabisan stamina ……… Kurasa dia tipe yang penting dalam menangani serangan dengan kepastian maksimal. Cara berpikirnya juga tidak salah karena saat pengguna pedang ganda menghentikan serangannya, pengguna pedang besar itu menerbangkannya bersama dengan 2 pedangnya dalam satu ayunan. Ketika sorakan semakin kuat, pria itu membungkuk dan kembali ke gerbang setelah mendapatkan tanda lolos ke ronde berikutnya. Sepertinya pria yang tidak sosial, atau lebih tepatnya, pria yang kasar. Memang sangat jantan. Bahkan senjatanya adalah pedang besar.
 
 "Sepertinya Feirona benar."
 
-"Siapa pun bisa tahu itu. Bukankah kamu juga memprediksi itu, Renji? ”
+"Siapa pun bisa tahu itu. Bukankah kamu juga memprediksi itu, Renji?"
 
-"Yah, kamu tidak bisa mengatakan hasilnya sampai pertarungan selesai."
+"Yah, kamu tidak bisa mengetahui hasilnya sampai pertarungan selesai."
 
-"Fumu, kurasa tidak salah."
+"Fumu, benar juga."
 
-[Yang berikutnya dimulai.]
+[gelombang berikutnya dimulai.]
 
 Pada saat yang sama, sorak-sorai bangkit kembali.
 
-Para peserta yang pingsan telah dibawa oleh personel staf. Pada saat yang sama, gelombang berikutnya —— Francesca dan yang lainnya muncul.
+Para peserta yang pingsan telah dibawa oleh personel staf. Pada saat yang sama, gelombang berikutnya —— nona Francesca dan yang lainnya muncul.
 
 "Sudah mulai." (Renji)
 
 "N, aku tahu." (Mururu)
 
-Dengan cepat menghabiskan makanan, tatapan Mururu berbalik ke arah arena. 7 peserta. Tetapi hanya satu yang akan menjadi pemenang. Nama-nama peserta mulai diumumkan dan yang pertama adalah Ms Francesca. Pengumuman itu bergema di benak para penonton langsung melalui sihir. Saya cukup terbiasa dengan itu berkat Ermenhilde tetapi masih terasa agak aneh mendengar suara orang lain langsung di dalam kepala Anda.
+tatapan Mururu berbalik ke arah arena dan dengan cepat menghabiskan makanannya. 7 peserta. Tetapi hanya satu yang akan menjadi pemenang. Nama-nama peserta mulai diumumkan dan yang pertama adalah nona Francesca. Pengumuman itu bergema di benak para penonton langsung melalui sihir. aku cukup terbiasa dengan itu berkat Ermenhilde tetapi masih terasa agak aneh mendengar suara orang lain langsung di dalam kepalaku.
 
-Kecuali Nn. Francesca, semua orang tampaknya adalah petualang baik dari ibu kota atau Kota Taktik, membuat semua orang dekat dengan petarung tipe tempur. Seorang penyihir seperti Ms. Francesca sebenarnya mungkin memenangkannya jika dia bisa memposisikan dirinya dengan baik dan menghindari pertempuran langsung.
+selain nona Francesca, semua orang tampaknya adalah petualang baik dari ibu kota atau Kota Taktik, dan mereka sepertinya tipe petarung jarak dekat. Seorang penyihir seperti nona Francesca sebenarnya mungkin memenangkannya jika dia bisa memposisikan dirinya dengan baik dan menghindari pertempuran langsung.
 
-"Bisakah dia menang?"
+"Bisakah dia menang?"(sol)
 
-"Kita akan segera tahu."
+"Kita akan segera tahu."(renji)
 
-Ketika saya menjawab itu, para peserta mulai menyebar di arena. Mungkin terlalu gugup, Ms francesca menarik napas dalam-dalam. Petualang yang terbiasa bertarung tidak akan mengabaikannya seperti itu. Seorang penyihir yang merepotkan, dan karena dia gugup, dia akan menjadi orang pertama yang menjadi sasaran. Sangat mudah untuk memahami bagaimana pikiran mereka bekerja bahkan tanpa benar-benar ada di medan perang.
+Ketika aku menjawab itu, para peserta mulai menyebar di arena. Mungkin terlalu gugup, nona francesca menarik napas dalam-dalam. Petualang yang terbiasa bertarung tidak akan mengabaikannya seperti itu. Seorang penyihir yang merepotkan, dan karena dia gugup, dia akan menjadi orang pertama yang menjadi sasaran. Sangat mudah untuk memahami bagaimana pikiran mereka bekerja bahkan tanpa benar-benar ada di medan perang.
 
-Mururu tampaknya sama-sama gugup tetapi dia terus memandang ke arah Francesca bahkan tanpa berkedip.
+Mururu tampaknya sama-sama gugup tetapi dia terus memandang ke arah nona Francesca bahkan tanpa berkedip.
 
-[Jadi itu dimulai.]
-
+[Jadi itu dimulai sekarang.]
+----
 "Ya."
 
 Dan suara untuk memulai pertarungan bergema. Bahkan tanpa menggunakan sihir, rasanya seperti suara bergema di seluruh arena.
