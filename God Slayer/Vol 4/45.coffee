@@ -384,7 +384,7 @@ Suaranya tidakasing ........ sama seperti ketika dia(eru) khawatir tentang sesua
 
 "begitu...."
 
-Haruskah saya mengejar topik sekarang?
+Haruskah aku bertanya lebih dalam?
 
 Saya memikirkannya sebentar, tetapi memutuskan untuk tidak melakukannya pada akhirnya. Jika ada masalah, dia akan bertanya pada saya sendiri. Sambil memikirkan itu, saya mengubah pikiran saya kembali ke masalah yang dihadapi. Apakah saya hanya berlari, atau ini kepercayaan saya padanya?
 
