@@ -250,27 +250,27 @@ Dia berbicara kepadaku. Suara itu terasa, seperti anak laki-laki namun seperti s
 
 Dia memberiku tangannya. Entah bagaimana, tanpa ragu-ragu —- Aku meraih tangannya. Jika aku berdiri aku harus melawan iblis hitam itu sekali lagi. Monster yang tampak seperti perwujudan keputusasaan itu sendiri. Tidak ada peluang kemenangan. Meskipun aku tahu semua itu, aku berdiri tanpa ragu.
 
-Tangannya kecil. Lembut, cantik, tangan wanita. Namun, itu memiliki kekuatan.
+Tangannya kecil. Lembut, cantik, sebuah tangan wanita. Namun, itu memiliki kekuatan.
 
 ——Dan kekuatan itu, adalah [kekuatan] ku.
 
 Mata dinginnya menyipit saat menatapku. Untuk sesaat, ekspresinya berubah menjadi senyum lembut. Tapi, hanya sesaat. Segera menjadi kaku lagi. Dan kemudian, dia melihat iblis hitam itu.
 
-Untuk beberapa alasan, iblis itu masih belum bergerak bahkan satu langkah pun setelah patung itu mulai bersinar. Seolah-olah itu menunggu saya untuk berdiri.
+Untuk beberapa alasan, iblis itu masih belum bergerak bahkan satu langkah pun setelah patung itu mulai bersinar. Seolah-olah iblis itu menungguku untuk berdiri.
 
-"Ayo pergi, Renji-sama."
+"Ayo, Renji-sama."
 
-“…… .ye..yeah.”
+"…… .ye..yeah.:
 
-Akhirnya, * gichigichi * terdengar suara.
+Akhirnya, suara * gichigichi * terdengar.
 
-Suara kisi itu berasal dari mulut iblis itu. Itu tertawa. Aku merinding melihat iblis itu tertawa seperti itu.
+Suara itu berasal dari mulut iblis itu. dia tertawa. Aku merinding melihat iblis itu tertawa seperti itu.
 
 Kami saling berhadapan. Di dalam katedral ini, yang seharusnya damai, saat sedang melihat patung dewi.
 
 Seluruh katedral bergetar hebat. Seseorang di luar sana pasti menggunakan sihir yang sangat kuat.
 
-Pada saat itu, wanita berambut emas menghilang dan berbalik ke partikel cahaya berwarna giok. Saya menjadi terkejut tetapi segera berubah menjadi permuliaan. Kekuatan meningkat dalam diriku. Aku bertanya-tanya apakah kekuatan ini seperti apa rasanya energi magis. Kekuatan yang belum dimiliki orang lain. ini pasti itu.
+Pada saat itu, wanita berambut emas menghilang dan nebhadu cahaya berwarna giok. akupun terkejut. Kekuatan meningkat dalam diriku. Aku penasaran apakah rasa ini adalah energi magic. Kekuatan dimiliki orang lain tapi tidak untukku. ini pasti energi magic.
 
 Wanita itu, yang muncul tiba-tiba, tidak menghilang dan cahaya itu terkonsentrasi di tanganku ........ dan menjadi satu pedang. Bilahnya berwarna hijau jade, gagang dan dekorasi dari emas. Saat aku mengayunkan pedang ringan seperti bulu itu ke arah sofa kosong, pedang itu robek menjadi dua tanpa perlawanan. Wajahku sempit karena ketajaman pedang. Itu benar-benar berbeda dari pedang yang saya gunakan di tempat latihan apakah dalam hal berat, ketajaman, pada dasarnya semuanya.
 
