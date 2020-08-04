@@ -236,13 +236,13 @@ Rasa sakit menghilang dari tubuhku. Tidak, bukan hanya rasa sakit, darah yang me
 
 aku penasaran berapa lama itu, atau beberapa detik atau bahkan lebih lama. Saat aku terus menatap patung itu dengan bingung, tanpa kusadari, seorang wanita dengan rambut emas berdiri di sampingku. Diselimuti oleh energi magic, seolah-olah dia telah diberkati oleh Dewi, atau seolah dialah Dewi itu sendiri, dia berdiri di sampingku.
 
-Adegan itu terlihat sangat fantastis, dan indah. Dia seperti wanita atau putri suci yang muncul dalam dongeng. Itu membuatku benar-benar lupa bahkan bau darah merembes ke seluruh katedral ........ wanita itu murni, suci, dan hanya cantik.
+Adegan itu terlihat sangat fantastis, dan indah. Dia seperti wanita atau putri suci yang muncul dalam dongeng. Itu membuatku benar-benar lupa bau darah merembes ke seluruh katedral ........ wanita itu murni, suci, dan cantik.
 
-Pandangannya berbalik ...... dan menatapku. Dia memiliki mata hijau jade yang hampir seperti dingin, rambut keemasan yang tampak seperti terbuat dari sutra dan gaun putih murni yang sepertinya hampir memantul dan menari dengan sinar matahari yang datang dari jendela. Rambutnya sepertinya sudah diikat dengan benar namun tampak panjang dan berkibar-kibar dalam energi magis yang berasal dari patung itu. Dia mengambil satu langkah ke depan. Dengan * shururi * terdengar gaun panjangnya meluncur di atas karpet. Suara itu dengan jelas mencapai telingaku.
+Pandangannya berbalik ...... dan menatapku. Dia memiliki mata seperti permata hijau, rambut keemasan yang tampak seperti terbuat dari sutra dan gaun putih murni yang sepertinya hampir memantulkan sinar matahari yang datang dari jendela. Rambutnya sepertinya diikat namun tampak panjang dan berkibar-kibar dalam energi magic yang berasal dari patung itu. Dia mengambil satu langkah ke depan. Dengan *srek* terdengar gaun panjangnya meluncur di atas karpet. Suara itu dengan jelas mencapai telingaku.
 
 "Apakah kamu baik-baik saja, Renji-sama?"
 
-Dia berbicara kepada saya. Suara itu terasa, seperti anak laki-laki namun seperti suara seorang wanita, hampir androgini dan terasa enak didengarkan. Pemilik suara itu berlutut di sampingku seolah dia bahkan tidak peduli pada iblis itu.
+Dia berbicara kepadaku. Suara itu terasa, seperti anak laki-laki namun seperti suara seorang wanita, hampir androgini dan terasa enak didengarkan. Pemilik suara itu berlutut di sampingku seolah dia bahkan tidak peduli pada iblis itu.
 
 "Sekarang, tolong berdiri."
 
