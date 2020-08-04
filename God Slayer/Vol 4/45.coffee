@@ -340,7 +340,7 @@ aku penasaran apa yang terjadi? Yah bukan hal yang baru sih, tapi aku tidak mara
 
 [lihatlah ke cermin.]
 
-Meskipun tidak memahami apa yang dimaksud Eremnhilde, saya mencari cermin. Saat melihat, saya mengerti apa yang dia maksud.
+Meskipun tidak memahami apa yang dimaksud Ermenhilde, aku mencari cermin. Saat kulihat, aku mengerti apa yang dia maksud.
 
 "Bajingan itu."
 
