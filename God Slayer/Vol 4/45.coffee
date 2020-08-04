@@ -138,19 +138,19 @@ Para priest berkumpul di ujung katedral, gemetar ketakutan dan para ksatria semu
 
 "Tidak.."
 
-Aku meluruskan tanganku. Tidak ada artinya. Di atas segalanya, saya masih berbaring di dekat gerbang di genangan darah dan iblis itu berada di tengah-tengah katedral. Bahkan jaraknya sangat jauh.
+Aku meluruskan tanganku. Tidak berarti apa-apa. aku masih berbaring di dekat gerbang di genangan darah dan iblis itu berada di tengah-tengah katedral. Bahkan jaraknya sangat jauh.
 
-Dalam kepanikan, saya mencoba berdiri hanya untuk menyelipkan darah dan jatuh kembali. Tanganku menyentuh tangan seseorang yang berbaring di depanku. Itu hanya pergelangan tangan yang tergeletak di sana. Ada yang lain, bagian tubuh, isi perut, kepala dengan mata lebar putus asa, kepala dengan masih ada helm di ……… ..aku dikelilingi oleh daging.
+Dalam kepanikan, aku mencoba berdiri hanya untuk terpeleset oleh darah dan jatuh kembali. Tanganku menyentuh tangan seseorang yang berbaring di depanku. hanya pergelangan tangan yang tergeletak di sana. Ada juga yang lain, bagian tubuh, isi perut, kepala dengan mata terbuka lebar, kepala yang masih memakai pelindung kepala ……… ..aku dikelilingi oleh daging-daging dari mayat-mayat.
 
 "Uug."
 
-Saya muntah. Muntah semua yang saya makan hari ini tetapi masih tidak bisa berhenti, saya memuntahkan jus lambung saya. Asam membakar tenggorokan saya dan air mata keluar dari rasa sakit.
+aku muntah. aku meMuntahkan semua yang aku makan hari ini tetapi masih tidak bisa berhenti dan aku memuntahkan asam lambungku. Asam lambungnya membakar tenggorokanku dan air mata keluar karena rasa sakit.
 
-——Tapi, aku berdiri. Apakah rasa sakit saya lumpuh karena muntah terlalu banyak, atau mungkin pikiran saya menjadi gila karena dikelilingi oleh isi perut dan bagian tubuh? Rasa sakit yang tajam di dada saya menjadi tumpul. Aku menyeka mulutku hanya untuk mencicipi dan mencium bau darah. Aku berbaring di genangan darah. Bahkan tangan lenganku telah ternoda sepenuhnya. Tidak, seluruh tubuh saya berlumuran darah.
+——Tapi, aku berdiri. Apakah rasa sakitku lumpuh karena muntah terlalu banyak, atau mungkin pikiranku menjadi gila karena dikelilingi oleh isi perut dan bagian tubuh? Rasa sakit yang tajam di dadaku menjadi tumpul. Aku mengelap mulutku hanya untuk mencicipi dan mencium bau darah. Aku berbaring di genangan darah. Bahkan lenganku telah terkena darah sepenuhnya. Tidak, seluruh tubuhku berlumuran darah.
 
-"Mari kita lakukan."
+"Mari kita lakukan ini."
 
-Saya mengatakan itu pada diri saya sendiri. Mengatakan itu, aku mengeraskan tekadku. Lingkungan saya dipenuhi dengan kematian, indra saya menjadi gila. Meskipun aku tidak pernah bisa menandingi monster ini, gila kalau aku masih berdiri.
+aku mengatakan itu pada diriku sendiri.aku mengeraskan tekadku. Lingkunganku dipenuhi dengan kematian, indraku menjadi gila. Meskipun aku tidak pernah bisa menandingi monster ini, itu sudah cukup gila karena aku masih berdiri.
 
 Sambil memegang dada yang sakit dengan tangan kiriku, aku mengambil pedang dari tangan seorang prajurit yang kehilangan seluruh tubuhnya. Bagaimanapun juga aku telah kehilangan pedangku sebelumnya. Tangan dan kaki saya lebih kaku dari yang saya kira. Tapi tetap saja—— jika aku tidak bergerak sekarang, itu akan menjadi Hiyuu-chan dan Souichi-kun yang akan menjadi bagian dari kumpulan darah ini selanjutnya.
 
