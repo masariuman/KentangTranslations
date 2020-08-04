@@ -90,23 +90,23 @@ Ngomong-ngomong, aku benar-benar bahagia atas kemenangannya. Sebagai seseorang y
 
 Saat aku tertawa mengatakan itu, dia menundukkan kepalanya karena malu. Sikapnya sendiri tidak berubah sama sekali sejak kami pertama kali bertemu.
 
-Mencoba menaklukkan goblin meskipun dia tidak memiliki pengalaman, mendekati kematian dan kemudian meratap dan menangis sesudahnya. Dan gadis itu sekarang cukup mampu untuk mengambil bagian dalam putaran utama turnamen. Saya tidak tahu seberapa jauh dia bisa mendapatkan tetapi saya berharap dia memberikan kinerja yang paling memuaskan.
+dia Mencoba menaklukkan goblin meskipun dia tidak memiliki pengalaman, hampir mati dan kemudian meratap dan menangis setelah itu. Dan gadis itu sekarang cukup mampu untuk ikut dalam putaran utama turnamen. aku tidak tahu seberapa jauh dia bisa bertahan di turnamen tetapi aku berharap dia memberikan kinerja yang paling memuaskan.
 
 "Bagaimana dia saat itu?" (mururu)
 
-“Yah meskipun aku mengatakannya seperti itu, itu belum lama berselang. Aku kenal dia sejak setelah aku menyelamatkannya dari para goblin yang menyerangnya. ”(Renji)
+"Yah meskipun aku mengatakannya seperti itu, itu tidak terlalu lama kok. Aku kenal dia setelah aku menyelamatkannya dari para goblin yang menyerangnya."(Renji)
 
-"Oh." (Peri)
+"Oh." (fei)
 
 "Itu benar-benar berbahaya, jika aku tidak menyelamatkannya tepat waktu, dia benar-benar akan mati di sana." (Renji)
 
-“Ya …… .. untuk saat itu, sekali lagi, terima kasih banyak. Jika Renji-sama tidak menyelamatkanku siapa yang tahu apa yang akan terjadi …… ”(fran)
+"Ya …… .. untuk saat itu, sekali lagi, terima kasih banyak. Jika Renji-sama tidak menyelamatkanku siapa yang tahu apa yang akan terjadi ……"(fran)
 
-"Tidak, kamu tidak perlu mengucapkan terima kasih dengan serius lagi sekarang, kamu tahu ..."
+"Tidak, kamu tidak perlu mengucapkan terima kasih dengan serius lagi sekarang...."
 
-"Tidak, jika bukan karena Renji-sama, aku tidak akan pernah memenuhi mimpiku untuk tampil sebagai ronde utama turnamen Fighting."
+"Tidak, jika bukan karena Renji-sama, aku tidak akan pernah memenuhi mimpiku untuk tampil di ronde utama turnamen pertarungan."
 
-Saya hanya bercanda ketika saya berbicara tentang waktu itu, Anda tahu? Tapi sepertinya ketakutan yang dia rasakan saat itu masih sangat mengakar pada Francesca. Yah, itu berkat dia bisa memberikan yang terbaik sekarang tanpa sembrono dan menempatkan dirinya dalam bahaya sekarang. Bahkan setelah bisa bertarung dengan monster di dekat ibukota dan bahkan setelah memasuki babak utama turnamen pertarungan, dia belum merasa sombong. Bisa dibilang dia dewasa dengan cara yang sangat baik.
+Saya hanya bercanda ketika aku berbicara tentang waktu itu lho...  Tapi sepertinya ketakutan yang dia rasakan saat itu masih berada pada dirinya. yaaah berkat saat itu dia bisa memberikan yang terbaik dan tanpa sembrono dan menempatkan dirinya dalam bahaya sekarang. Bahkan setelah bisa bertarung dengan monster di dekat ibukota dan bahkan setelah memasuki babak utama turnamen pertarungan, dia belum merasa sombong. Bisa dibilang dia dewasa dengan cara yang sangat baik.
 
 “Juga, kamu harus berterima kasih kepada Feirona karena membantu kamu menang daripada aku.” (Renji)
 
