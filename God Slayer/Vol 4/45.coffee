@@ -304,7 +304,7 @@ Seperti yang aku pikirkan, aku hanya bermimpi dan aku kembali ke kamar yang tela
 
 ini adalah dunia yang damai tanpa Dewa iblis.
 
-Apakah itu akan dianggap sebagai mimpi yang baik atau mimpi buruk? Saya tidak bisa memutuskan. Haruskah saya merasa nostalgia dan senang bermimpi tentang Eru atau haruskah saya sedih telah menyaksikan banyak nyawa yang hilang?
+Apakah itu akan dianggap sebagai mimpi yang baik atau mimpi buruk? aku tidak bisa memutuskannya. Haruskah aku merasa nostalgia dan senang bermimpi tentang Eru atau haruskah aku sedih telah menyaksikan banyak nyawa yang hilang?
 
 [Puhh.]
 
