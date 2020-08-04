@@ -404,7 +404,7 @@ Akan sangat memalukan, tapi mau gimana lagi. aku memutuskan untuk menghukum Anas
 
 Karena aku jarang menggunakannya, aku tidak tahu di mana dan butuh beberapa menit untuk menemukannya. Bel disimpan tepat di tengah meja di tengah ruangan. Bagaimana aku bisa melewatkan itu?
 
-aku memanggil pelayan untuk mengambil saya air tetapi wajahnya lebih terkejut daripada geli. Yah, kurasa melihat seorang pria yang baru saja bangun dengan mencoret-coret wajahnya akan lebih mengejutkan daripada membuat mereka tertawa?
+aku memanggil pelayan untuk mengambilkanku air tetapi wajahnya lebih terkejut daripada geli. Yah, kurasa melihat seorang pria yang baru saja bangun dengan mencoret-coret wajahnya akan lebih mengejutkan daripada membuat mereka tertawa?
 
 aku Menutup jendela dan aku duduk di tempat tidur. aku Mengambil Ermenhilde dari sisi bantalku dan aku membelai ujungnya.
 
@@ -412,17 +412,17 @@ aku Menutup jendela dan aku duduk di tempat tidur. aku Mengambil Ermenhilde dari
 
 "Tidak, hanya memikirkan betapa damainya sekarang."
 
-[Hebat dan semua tapi sangat tidak keren untuk mengatakan itu dengan wajah itu, kau tahu?]
+[itu bagus semua tapi sangat tidak keren mengatakan itu dengan wajah seperti itu lho...]
 
-"Wha, well, kurasa, kau benar."
+"Wha, yaah, kurasa, kau benar."
 
-Saat aku tertawa, Ermenhilde mendesah lelah.
+Saat aku tertawa, Ermenhilde menghela nafas.
 
-Ini baik Suasana ini baik-baik saja.
+seperti ini tidak masalah. Suasana seperti ini ini baik-baik saja.
 
 […… Betapa menyedihkan.]
 
-"Jangan katakan itu. Ini sangat seperti saya, bukan? ”
+"Jangan berkata seperti itu. itulah aku, kan?"
 
 Seolah membalas kepadaku, tawa kecil bergema di kepalaku.
 
