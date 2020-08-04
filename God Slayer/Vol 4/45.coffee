@@ -194,47 +194,47 @@ larilah.
 
 (Bagian 2 )
 
-Sambil berteriak dengan suara sangat keras sehingga saya terkejut, saya berlari ke arahnya.
+Sambil berteriak dengan suara sangat keras, aku berlari ke arahnya.
 
-Aku menebasnya dengan seluruh tenagaku, tetapi bahkan tidak bisa mengenai itu, apalagi menggaruk bajunya. Itu hanya menghindari saya dengan mengambil langkah mundur. Memukul lantai, tanganku mati rasa tetapi aku menggunakan seluruh kekuatanku untuk melanjutkan serangan dengan tebasan terbalik yang meningkat. Tapi sekali lagi, seranganku dihindari hanya dengan mundur selangkah.
+Aku menebasnya dengan seluruh tenagaku, tetapi tidak mengenainya, apalagi menggores bajunya. dia hanya menghindariku dengan mengambil melangkah mundur. seranganku mengenai lantai dan tanganku mati rasa tetapi aku menggunakan seluruh kekuatanku untuk melanjutkan serangan dengan tebasan terbalik keatas. Tapi sekali lagi, seranganku dihindari hanya dengan mundur selangkah.
 
-* Gichi * Mulutnya seperti serangga mengeluarkan suara.
+*Gichi* Mulutnya seperti serangga mengeluarkan suara.
 
-Itu tertawa.
+dia tertawa.
 
-Saat aku mengerti itu, aku menabrak diriku sendiri untuk mematahkan posisinya. Jika pedangku tidak akan mengenai, aku hanya perlu menciptakan situasi di mana aku tidak akan ketinggalan. Tetapi saya tidak dapat melakukan itu, pada kenyataannya, itu hanya berakhir dengan bahu kiri saya sakit. Setan itu bahkan tidak bergerak sedikit pun. Rasanya seperti baru saja menabrak batu besar.
+ketika aku mengerti itu, aku menabrak diriku sendiri kepadanya. Jika pedangku tidak akan mengenainya, aku hanya perlu menciptakan situasi di mana seranganku akan mengenainya. Tetapi aku tidak dapat melakukan itu, pada kenyataannya, semua hanya berakhir dengan bahu kiriku terasa sakit. iblis itu bahkan tidak bergerak sedikit pun. Rasanya seperti baru saja menabrak batu besar.
 
-Saat berikutnya, ia meraih dadaku dengan satu tangan dan mengangkatku. Mengambang di udara, aku mencoba berjuang melawan satu lengannya yang menggenggamku tetapi itu tidak tersentak sama sekali. Saya diangkat sampai saya melihat ke bawah sekarang. Dan kemudian, itu membuang saya seolah itu bukan apa-apa.
+Saat berikutnya, ia meraih dadaku dengan satu tangan dan mengangkatku. Mengambang di udara, aku mencoba berjuang melawan satu lengannya yang menggenggamku tetapi dia tidak berpengaruh sama sekali. aku diangkat sampai aku melihat ke bawah sekarang. Dan kemudian, dia membuangku seolah itu bukan apa-apa.
 
-Dilemparkan langsung ke kaki patung perak dewi, punggungku membentur batu yang keras dan aku kehabisan napas. Dan pada saat yang sama, jeritan naik lagi. Itu pastilah para imam di dalam katedral. Visi saya berayun dari rasa sakit ketika saya menggunakan kedua tangan saya untuk mengangkat wajah saya.
+Dilemparkan langsung ke kaki patung perak dewi, punggungku membentur batu yang keras dan aku kehabisan napas. Dan pada saat yang sama, teriakan terdengar lagi. Itu pasti teriakan para priest di dalam katedral. pandanganku kabur karena rasa sakit dan aku menggunakan kedua tanganku untuk mengangkat wajahku.
 
-Dengan tenang, iblis hitam berjalan perlahan ke arahku. Aku mencoba untuk mengambil pedangku tetapi itu tidak di sampingku lagi. Aku harus melepaskannya ketika aku dibuang.
+Dengan tenang, iblis hitam berjalan perlahan ke arahku. Aku mencoba untuk mengambil pedangku tetapi itu tidak di sampingku lagi. Aku pasti melepaskannya ketika aku dibuang.
 
-"……Kotoran."
+"...sialan."
 
-Bahkan kata-kataku tidak memiliki kekuatan sekarang. Tubuhku sepertinya kehilangan energinya juga.
+Bahkan kata-kataku tidak bersuara sekarang. Tubuhku sepertinya kehilangan energinya juga.
 
-Kenapa itu berakhir seperti ini? Kami dipanggil untuk menyelamatkan dunia ini oleh sang dewi. Apakah kesimpulan dari realitas situasi seperti dongeng itu seharusnya menyakitkan? Saat saya meletakkan tubuh saya di karpet lembut, kelopak mata saya tampak semakin berat. Jika saya menutup mata sekarang, saya akan tenang. Ketakutan akan hilang. Tanpa merasakan rasa sakit atau takut, sekarat saat tidur adalah ——-
+Kenapa itu berakhir seperti ini? Kami dipanggil untuk menyelamatkan dunia ini oleh sang dewi. Apakah situasi seperti dongeng itu seharusnya menyakitkan? Saat aku meletakkan tubuhku di karpet lembut, kelopak mataku semakin berat. Jika aku menutup mata sekarang, aku akan tenang. Ketakutan akan hilang. Tanpa merasakan rasa sakit atau takut, mati ketika tertidur adalah ——-
 
-"—Tidak apa-apa dengan cara apa pun !!"
+"—Tidak keren bagaimanapun kamu melihatnya !!"
 
-Aku mengangkat kepalaku dengan kuat. Setan hitam itu ………. Masih berdiri di tempat yang sama seperti sebelumnya. Saya tidak mendengar suara-suara para imam yang berteriak minta tolong atau suara penderitaan orang yang terluka lagi.
+Aku mengangkat kepalaku dengan kuat. iblis hitam itu ………. Masih berdiri di tempat yang sama seperti sebelumnya. aku tidak mendengar suara-suara para priest yang berteriak minta tolong atau suara penderitaan orang yang terluka lagi.
 
-Itu melihat tepat di belakangku——
+iblis itu melihat tepat di belakangku——
 
 "Ahn?"
 
-Menelusuri pandangannya, aku berbalik untuk melihat ke belakang juga. Seluruh tubuhku sakit hanya karena membalikkan tubuhku, tetapi aku merasa bisa melupakan rasa sakit itu juga. Di sana, patung dewi perak yang indah dan …… entah kenapa, bersinar. Cahaya itu terasa ilahi, dan hangat. Hati saya yang telah menggigil ketakutan merasa seperti dihangatkan oleh cahaya itu. Hanya dengan melihatnya, keputusasaan di dalam diri saya hilang.
+mengikuti pandangannya, aku berbalik untuk melihat ke belakang juga. Seluruh tubuhku sakit hanya karena membalikkan tubuhku, tetapi aku merasa bisa melupakan rasa sakit itu juga. Di sana, patung dewi perak yang indah dan …… entah kenapa, bersinar. Cahaya itu terasa ilahi, dan hangat. Hatiku yang telah menggigil ketakutan merasa seperti dihangatkan oleh cahaya itu. Hanya dengan melihatnya, keputusasaan di dalam diriku hilang.
 
-Saya tahu cahaya ini. Saya ingat melihatnya. Saya ingat merasakannya .——— Dewi, Astraera.
+aku tahu cahaya ini. aku pernah melihatnya . aku pernah merasakannya .——— Dewi, Astraera.
 
-Cahaya yang memenuhi ruang tempat aku pertama kali bertemu dengannya, itu aura yang dia berikan. Cahaya hangat yang berasal dari patung perak - energi magis, sama dengan yang dilepaskan oleh dewi.
+itu adalah Cahaya yang memenuhi ruang tempat aku pertama kali bertemu dengannya, itulah aura yang dia berikan. Cahaya hangat yang berasal dari patung perak - energi magic, sama dengan yang diberikan oleh dewi.
 
 "Apa ... Apa yang terjadi?"
 
-Rasa sakit menghilang dari tubuh saya. Tidak, bukan hanya rasa sakit, darah yang menodai seluruh tubuhku dibersihkan dan menghilang menjadi cahaya pucat.
+Rasa sakit menghilang dari tubuhku. Tidak, bukan hanya rasa sakit, darah yang menodai seluruh tubuhku dibersihkan dan menghilang menjadi cahaya.
 
-Saya bertanya-tanya apakah itu perlu waktu, atau beberapa detik atau bahkan lebih lama. Saat aku terus menatap patung itu dengan bingung, sebelum aku sadar, seorang wanita dengan rambut emas berdiri di sampingku. Diselimuti oleh energi magis, seolah-olah dia telah diberkati oleh Dewi, atau seolah dia melayani Dewi sendiri, dia berdiri di sampingku.
+aku penasaran berapa lama itu, atau beberapa detik atau bahkan lebih lama. Saat aku terus menatap patung itu dengan bingung, tanpa kusadari, seorang wanita dengan rambut emas berdiri di sampingku. Diselimuti oleh energi magic, seolah-olah dia telah diberkati oleh Dewi, atau seolah dialah Dewi itu sendiri, dia berdiri di sampingku.
 
 Adegan itu terlihat sangat fantastis, dan indah. Dia seperti wanita atau putri suci yang muncul dalam dongeng. Itu membuatku benar-benar lupa bahkan bau darah merembes ke seluruh katedral ........ wanita itu murni, suci, dan hanya cantik.
 
