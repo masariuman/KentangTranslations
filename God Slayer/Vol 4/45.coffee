@@ -354,15 +354,15 @@ dasar pecinta prank, peri idiot. Bagaimana mungkin dia …….
 
 [Ini salah Renji karena tidak bangun meskipun dia terus melakukan itu.]
 
-"Bahkan jika kamu mengatakan itu ... kamu bisa mengatakan sesuatu, setidaknya."
+"walapun begitu ... paling tidak kamu bisa mengatakan sesuatu..."
 
 [Aku mencoba membangunkanmu tetapi kamu tidak bangun. bukankah kamu sudah menjadi terlalu santai?]
 
-"........ Mungkin aku punya."
+"........ Mungkin saja."
 
-Saya tidak punya alasan jadi saya hanya bisa setuju dengan mengangkat bahu. Tapi tetap saja, apa yang harus saya lakukan pada wajah ini? Wajah saya saat ini diajukan dengan coretan dan gambar. Dia pasti ada di dadaku karena dia melakukan ini padaku. Meskipun dia sebenarnya lebih tua dariku, dia masih sangat kekanak-kanakan.
+aku tidak punya alasan jadi aku hanya bisa setuju dan mengangkat bahu. Tapi tetap saja, apa yang harus aku lakukan pada wajah ini? Wajahku saat ini dipenuhi coretan dan gambar. Dia pasti ada di dadaku karena dia melakukan ini padaku. Meskipun dia sebenarnya lebih tua dariku, dia masih sangat kekanak-kanakan.
 
-"Katakan, Ermenhilde?"
+"Ermenhilde...."
 
 [Apa?]
 
