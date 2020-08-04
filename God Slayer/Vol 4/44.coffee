@@ -108,17 +108,17 @@ dia Mencoba menaklukkan goblin meskipun dia tidak memiliki pengalaman, hampir ma
 
 Saya hanya bercanda ketika aku berbicara tentang waktu itu lho...  Tapi sepertinya ketakutan yang dia rasakan saat itu masih berada pada dirinya. yaaah berkat saat itu dia bisa memberikan yang terbaik dan tanpa sembrono dan menempatkan dirinya dalam bahaya sekarang. Bahkan setelah bisa bertarung dengan monster di dekat ibukota dan bahkan setelah memasuki babak utama turnamen pertarungan, dia belum merasa sombong. Bisa dibilang dia dewasa dengan cara yang sangat baik.
 
-“Juga, kamu harus berterima kasih kepada Feirona karena membantu kamu menang daripada aku.” (Renji)
+"dan Juga, kamu harus berterima kasih kepada Feirona karena membantumu menang daripada aku." (Renji)
 
-Rasanya aneh mengatakan ini sendiri, tetapi, saya sama sekali tidak melakukan apa pun yang akan membantunya menang untuk jujur. Paling-paling, satu-satunya hal yang pernah saya ajarkan kepadanya adalah menggunakan sihir perangkap itu kembali ketika kami menghadapi para Orc itu. Dan sedikit pengetahuan umum tentang menjadi seorang petualang dan monster dasar, itu saja.
+Rasanya aneh mengatakannya sendiri, tetapi, aku sama sekali tidak melakukan apa pun yang akan membantunya menang. Paling-paling, satu-satunya hal yang pernah aku ajarkan kepadanya adalah menggunakan sihir perangkap itu ketika kami menghadapi para Orc itu. Dan sedikit pengetahuan umum tentang menjadi seorang petualang dan dasar-dasar monster, itu saja.
 
-Aku bahkan tidak pernah mengajarinya cara mengayunkan pedang, apalagi cara bertarung. Itu sebabnya saya pikir mengatakan sesuatu seperti 'jika bukan untuk saya' tidak sesuai dengan situasi.
+Aku bahkan tidak pernah mengajarinya cara mengayunkan pedang, apalagi cara bertarung. Itu sebabnya aku pikir mengatakan sesuatu seperti 'jika bukan karena aku' tidak sesuai dengan situasi.
 
-“Baik aku dan Mururu juga, hanya mengajarinya bagaimana untuk selalu berhati-hati selama pertempuran. Adapun penggunaan pedangnya, dia belajar hanya dengan menonton. "(Elf)
+"aku dan Mururu hanya mengajarinya bagaimana untuk selalu berhati-hati selama pertempuran. untuk penggunaan pedangnya, dia belajar hanya dengan melihat."(Elf)
 
-"Pedang ……… maksudmu aku? (Renji)
+"Pedang ……… maksudmu aku?" (Renji)
 
-"Umm, ya."
+"Umm, ya."*fran
 
 Feirona menggunakan busurnya lebih dari pedangnya, dan Mururu menggunakan tubuhnya sendiri sebagai senjata. Jadi, jika Nn. Francesca belajar bertarung pedang hanya dengan menonton, itu pasti aku. Sekarang saya merasa agak malu.
 
