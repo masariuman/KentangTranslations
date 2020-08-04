@@ -248,25 +248,25 @@ aku tidak membiarkannya nampak dalam ekspresiku, tetapi tatapanku terhanyut sesa
 
 aku menjawab dengan kasar tetapi aku tidak bisa menahannya sehingga aku merasa malu. aku tidak ingin orang melihatku seperti ini.
 
-"Kamu benar-benar tidak seperti biasanya, Renji."(fei)
+"Kamu benar-benar aneh, Renji."(fei)
 
 "……..maksudnya ?"
 
 Karena itu, saya membalas Feirona dengan suara yang agak kuat juga. Tetapi tanpa memperhatikan hal itu, Feirona melanjutkan.
 
-"Kamu sama sekali tidak seperti pahlawan." (Elf)
+"Kamu sama sekali tidak seperti pahlawan." (fei)
 
-"Yah, bagaimanapun juga aku tidak cocok menjadi satu."
+"Yah, aku tidak cocok menjadi pahlawan."
 
-Saya memberikan balasan standar kepadanya.
+aku memberikan balasan standar kepadanya.
 
 Pahlawan.
 
-Saya tidak cocok menjadi satu. Saya tahu itu lebih baik daripada orang lain.
+aku tidak cocok menjadi pahlawan. aku tahu itu lebih baik daripada orang lain.
 
-"Untukmu, seperti apa pahlawan sejati?" (Elf)
+"bagimu, seperti apa pahlawan sejati?" (fei)
 
-“Ya …… pahlawan adalah harapan bagi semua orang. Mereka menjawab keinginan dan doa rakyat. Bahkan dalam keputus-asaan mereka melihat ke depan dan untuk dunia, untuk orang-orang, untuk siapa pun, untuk kebaikan yang lebih besar, mereka memberikan yang terbaik. Dan yang terpenting, Anda tidak menyebut diri Anda seorang pahlawan, Anda dinamai oleh orang lain. ”
+"Ya …… pahlawan adalah harapan bagi semua orang. Mereka menjawab keinginan dan doa rakyat. Bahkan dalam keputus-asaan mereka melihat ke depan dan untuk dunia, untuk orang-orang, untuk siapa pun, untuk kebaikan yang lebih besar, mereka memberikan yang terbaik. Dan yang terpenting, Anda tidak menyebut diri Anda seorang pahlawan, Anda dinamai oleh orang lain. ”
 
 “Fumu. Itu tentu saja salah satu bentuk pahlawan. "
 
