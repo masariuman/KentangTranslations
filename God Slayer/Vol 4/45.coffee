@@ -348,11 +348,11 @@ Meskipun tidak memahami apa yang dimaksud Ermenhilde, aku mencari cermin. Saat k
 
 "Siapa yang peduli tentang itu ?!"
 
-Saat menjawab tsukkomi Ermenhilde, aku menggosok coretan di wajahku dengan jari-jariku. Karena dia menggunakan tinta, tinta itu menyebar di wajahku saat digosok.
+Saat menjawab Ermenhilde, aku menggosok coretan di wajahku dengan jari-jariku. Karena dia menggunakan tinta, tinta itu menyebar di wajahku saat digosok.
 
-Terkutuk yang bodoh, peri idiot. Bagaimana mungkin dia …….
+dasar pecinta prank, peri idiot. Bagaimana mungkin dia …….
 
-[Ini kesalahan Renji karena tidak bangun meskipun dia terus melakukan itu.]
+[Ini salah Renji karena tidak bangun meskipun dia terus melakukan itu.]
 
 "Bahkan jika kamu mengatakan itu ... kamu bisa mengatakan sesuatu, setidaknya."
 
