@@ -60,19 +60,19 @@ Di dekat patung itu, aku duduk di kursi yang kosong. Hiyuu-chan juga duduk di sa
 
 Hanya dari kata-kata kecil itu, aku merasa hatiku sedikit lebih ringan. Tapi tetap saja, kepalaku sakit memikirkan apa yang harus dilakukan selanjutnya.
 
-Begitu banyak monster yang menyerbu. Jelas bahwa mereka semua harus ditaklukkan. Tetapi, kita tidak memiliki kekuatan untuk melakukannya. Orang, kekuatan, kita kurang dalam semua itu. Bahkan mengesampingkanku, yang paling penting dalam pertempuran, yaitu Souichi-kun saat ini tidak sadar. Dan kita bahkan tidak tahu di mana orang lain berada di antara kekacauan dan kebingungan ini. Bagi orang yang dipanggil untuk menyelamatkan dunia ini, kita sama sekali tidak berguna. Bahkan, kita adalah orang-orang yang dilindungi oleh orang-orang di dunia ini sebagai gantinya.
+Begitu banyak monster yang menyerbu. Jelas mereka semua harus ditaklukkan. Tetapi, kami tidak memiliki kekuatan untuk melakukannya. Orang, kekuatan, kami kurang dalam semua itu. Bahkan jangankan aku, yang paling penting dalam pertempuran, yaitu Souichi-kun saat ini tidak sadar. Dan kami bahkan tidak tahu di mana orang lain berada di antara kekacauan dan kebingungan ini. Bagi orang yang dipanggil untuk menyelamatkan dunia ini, kami sama sekali tidak berguna. Bahkan, kami adalah orang-orang yang dilindungi oleh orang-orang di dunia ini sebagai gantinya.
 
-Dan saat kita membuang waktu, jumlah yang terluka akan bertambah, dan begitu juga yang mati—–
+Dan saat kami membuang-buang waktu, jumlah yang terluka akan bertambah, begitu juga dengan yang mati—–
 
-Jika ini seperti apa sehari-hari di dunia ini, saya akan istirahat. Siapa yang bahkan memikirkan ini? Kami tahu tidak mungkin hanya beberapa manusia untuk menyelamatkan dunia. Apalagi pengalaman bertarung aku bahkan belum pernah memegang pedang sebelum datang ke dunia ini.
+Jika seperti ini keseharian di dunia ini, aku akan hancur. Siapa yang bahkan memikirkan ini? Kami tahu tidak mungkin hanya beberapa manusia untuk menyelamatkan dunia. Apalagi aku tidak memiliki pengalaman bertarung bahkan belum pernah memegang pedang sebelum datang ke dunia ini.
 
-“Onii-chan ……… apa yang kita lakukan?”
+"Onii-chan ……… apa yang kita lakukan?"
 
 "Ah, ya ... .."
 
-Itu benar, saya tidak punya waktu untuk membuat alasan di dalam pikiran saya. Baik aku dan Hiyuu-chan memiliki kemampuan super yang diberikan kepada kita oleh Dewi. Memikirkan itu, saya mengeluarkan medali yang disimpan di dalam saku saya. Itu hanya medali emas. Ini dirancang berbeda dari koin emas yang digunakan di dunia ini, tetapi hanya itu. Itu tidak dapat digunakan untuk membeli sesuatu juga tidak memiliki nilai khusus sebagai barang antik. Saya mendapatkannya dari Dewi tetapi tidak memiliki keaslian. Apa yang bisa saya lakukan hanya dengan medali.
+Itu benar, aku tidak punya waktu untuk membuat alasan di dalam pikiranku. aku dan Hiyuu-chan memiliki kemampuan super yang diberikan oleh Dewi. aku mengeluarkan medali yang disimpan di dalam sakuku. Itu hanya medali emas. bentuknya berbeda dari koin emas yang digunakan di dunia ini, tetapi hanya itu saja. Itu tidak dapat digunakan untuk membeli sesuatu juga tidak memiliki nilai khusus sebagai barang antik. aku mendapatkannya dari Dewi tetapi tidak tahu cara menggunakannya. Apa yang bisa aku lakukan hanya dengan sebuah medali?
 
-Apakah saya seharusnya bertanya bagaimana menggunakannya juga atau apakah Dewi benar-benar mengacaukan saya? Kotoran! Saya mengutuk dan mencengkeram medali itu dengan erat tetapi tetap saja tidak ada yang terjadi. Pertama-tama, saya sudah mencoba ini berkali-kali. Saya memanggilnya untuk memberi saya kekuatan berkali-kali tetapi itu tidak berguna. Mungkin, saya tidak tahu cara menggunakannya. Saya bisa katakan itu. Meskipun aku benar-benar membutuhkan bantuannya sekarang, itu tidak berguna.
+Apakah aku seharusnya bertanya bagaimana menggunakannya juga atau apakah Dewi benar-benar mengerjaiku? sialan! aku mengutuk dan mencengkeram medali itu dengan erat tetapi tetap saja tidak ada yang terjadi. aku sudah mencoba ini berkali-kali. aku memanggilnya untuk memberiku kekuatan berkali-kali tetapi itu tidak berguna. Mungkin, aku tidak tahu cara menggunakannya. Meskipun aku benar-benar membutuhkan bantuannya sekarang, itu tidak berguna.
 
 Karena itulah, sekali lagi—-
 
