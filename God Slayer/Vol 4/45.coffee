@@ -332,13 +332,13 @@ suaranya tiba-tiba terdiam.
 
 aku berdiri dari tempat tidur.
 
-Tiba-tiba menjadi ingin tahu tentang anastasia, saya melihat ke bawah tempat tidur tetapi dia tidak ada lagi. Sementara saya bingung, saya mendengar suara jendela saya terbuka. Sepertinya saat aku melihat ke bawah, dia berlari keluar ruangan. Untuk menggunakan jendela, caranya seperti peri.
+aku melihat ke bawah tempat tidur tetapi anastasia tidak ada lagi. aku bingung dan aku mendengar suara jendela terbuka. Sepertinya saat aku melihat ke bawah, dia berlari keluar ruangan. sungguh caranya benar-benar seperti peri yang hanya menggunakan jendela.
 
-Saya bertanya-tanya apa yang terjadi? Yah eksentrisitasnya bukan hal yang baru, tapi aku tidak marah padanya karena duduk di dadaku juga. Saya menjadi sedikit penasaran melihat dia melarikan diri seperti itu.
+aku penasaran apa yang terjadi? Yah bukan hal yang baru sih, tapi aku tidak marah padanya karena duduk di dadaku juga. aku menjadi sedikit penasaran melihat dia melarikan diri seperti itu.
 
 "Ada apa dengannya?" (Renji)
 
-[Lihatlah cermin.]
+[lihatlah ke cermin.]
 
 Meskipun tidak memahami apa yang dimaksud Eremnhilde, saya mencari cermin. Saat melihat, saya mengerti apa yang dia maksud.
 
