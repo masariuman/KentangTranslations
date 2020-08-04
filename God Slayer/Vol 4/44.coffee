@@ -124,7 +124,7 @@ Feirona lebih menggunakan busurnya daripada pedangnya, dan Mururu menggunakan tu
 
 Tapi tetap saja ..... Aku ingat pertarungan Francesca di colloseum. Bagaimana ya... aku benar-benar tidak yakin bahwa aku bisa bertarung dengan indah seperti dia. Bahkan selama pertarungan pedangnya, dia bisa menggunakan sihir bahkan saat pertempuran jarak dekat. Meskipun masih belum halus, dia masih bertarung seperti petualang yang cukup bagus. Dengan penampilannya, kurasa dia akan menjadi sangat populer suatu hari nanti. Sebagai seseorang yang seharusnya menjadi modelnya untuk bertarung menggunakan pedang, aku merasa sedikit sedih atau lebih tepatnya, menyedihkan.
 
-Aku sebenarnya diajar oleh O'brien-san juga, tapi aku tidak menggunakan gaya pedangnya sama sekali. Nya adalah satu serangan yang luar biasa pasti membunuh jenis serangan sedangkan tambang melibatkan menangani cepat, beberapa serangan lemah untuk menangani kerusakan. Dan Francesca adalah pedang luar biasa yang menggabungkan keterampilan pedang dan sihir. Tidak ada dari kita yang benar-benar mirip dengan gaya masing-masing.
+Aku diajar oleh O'brien-san, tapi nyatanya aku tidak menggunakan gaya pedangnya sama sekali. dia adalah tipe yang menyerang dengan sekali tebas untuk membunuh sedangkan aku adalah tipe yang menyerang dengan cepat dengan beberapa serangan lemah untuk menghasilkan kerusakan. Dan nona Francesca sangat luar biasa karena menggabungkan skill pedang dan sihir. Tidak ada dari kami yang benar-benar mirip gayanya.
 
 "Apakah gayanya benar-benar mirip dengan gayaku?" (Renji)
 
