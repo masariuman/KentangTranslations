@@ -244,9 +244,11 @@ Pandangannya berbalik ...... dan menatapku. Dia memiliki mata seperti permata hi
 
 Dia berbicara kepadaku. Suara itu terasa, seperti anak laki-laki namun seperti suara seorang wanita, hampir androgini dan terasa enak didengarkan. Pemilik suara itu berlutut di sampingku seolah dia bahkan tidak peduli pada iblis itu.
 
-"Sekarang, tolong berdiri."
+"Sekarang, tolong berdirilah."
 
-Dia memberi saya tangannya. Entah bagaimana, tanpa ragu-ragu —- Aku meraih tangannya. Jika aku berdiri aku harus melawan iblis hitam itu sekali lagi. Monster yang tampak seperti perwujudan keputusasaan itu sendiri. Tidak ada peluang kemenangan. Meskipun aku tahu semua itu, aku berdiri tanpa ragu.
+<gambar> vol4 20.png
+
+Dia memberiku tangannya. Entah bagaimana, tanpa ragu-ragu —- Aku meraih tangannya. Jika aku berdiri aku harus melawan iblis hitam itu sekali lagi. Monster yang tampak seperti perwujudan keputusasaan itu sendiri. Tidak ada peluang kemenangan. Meskipun aku tahu semua itu, aku berdiri tanpa ragu.
 
 Tangannya kecil. Lembut, cantik, tangan wanita. Namun, itu memiliki kekuatan.
 
