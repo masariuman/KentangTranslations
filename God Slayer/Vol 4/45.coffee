@@ -392,7 +392,7 @@ Mungkin aku hanya lari...
 
 aku bermimpi. Bukan tentang Ermenhilde, tetapi tentang Eru. Itu telah terjadi berkali-kali sebelumnya dan bukan sesuatu yang baru. Eru tiada. Dan sekarang aku tinggal bersama Ermenhilde.
 
-Hanya saja …… suara mereka sama. Ini seperti berbicara dengan orang yang sama tetapi sebenarnya sangat berbeda. Saya ingin melupakannya. Saya akhirnya merawat dan menindih Ermenhilde dengan orang lain. Itu bagi saya …… ​​dan juga bagi Ermenhilde, sesuatu yang sangat kejam. Itu sebabnya, saya tidak bisa menanyakan kekhawatirannya pada Ermenhilde.
+Hanya saja …… suara mereka sama. Ini seperti berbicara dengan orang yang sama tetapi sebenarnya sangat berbeda. aku ingin melupakannya. aku akhirnya meninggalkan Ermenhilde dengan orang lain. Itu.. bagiku.. ​​dan juga bagi Ermenhilde, sesuatu yang sangat kejam. Itu sebabnya, aku tidak bisa menanyakan kekhawatirannya pada Ermenhilde.
 
 "Apa yang harus saya lakukan dengan wajah ini?" (Renji)
 
