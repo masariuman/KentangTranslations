@@ -386,11 +386,11 @@ Suaranya tidakasing ........ sama seperti ketika dia(eru) khawatir tentang sesua
 
 Haruskah aku bertanya lebih dalam?
 
-aku memikirkannya sebentar, tetapi memutuskan untuk tidak melakukannya. Jika ada masalah, dia akan bertanya padaku sendiri. Sambil memikirkan itu, aku mengubah pikiranku kembali ke masalah yang dihadapi. Apakah aku hanya berlari, atau ini kepercayaanku padanya?
+aku memikirkannya sebentar, tetapi memutuskan untuk tidak melakukannya. Jika ada masalah, dia akan bertanya padaku sendiri. Sambil memikirkan itu, aku mengubah pikiranku kembali ke masalah yang dihadapi. Apakah aku hanya berlari, atau ini kepercayaanku padanya(eru)?
 
-Mungkin yang pertama, saya pikir.
+Mungkin aku hanya lari...
 
-Saya bermimpi. Bukan tentang Ermenhilde, tetapi tentang Eru. Itu telah terjadi berkali-kali sebelumnya dan bukan sesuatu yang baru. Eru meninggal. Dan sekarang saya tinggal bersama Ermenhilde.
+aku bermimpi. Bukan tentang Ermenhilde, tetapi tentang Eru. Itu telah terjadi berkali-kali sebelumnya dan bukan sesuatu yang baru. Eru tiada. Dan sekarang aku tinggal bersama Ermenhilde.
 
 Hanya saja …… suara mereka sama. Ini seperti berbicara dengan orang yang sama tetapi sebenarnya sangat berbeda. Saya ingin melupakannya. Saya akhirnya merawat dan menindih Ermenhilde dengan orang lain. Itu bagi saya …… ​​dan juga bagi Ermenhilde, sesuatu yang sangat kejam. Itu sebabnya, saya tidak bisa menanyakan kekhawatirannya pada Ermenhilde.
 
