@@ -1,4 +1,4 @@
-Bab 45 Pedang Itu
+Bab 45 Pedang Itu...
 
 Aah, ini adalah mimpi.
 
