@@ -266,11 +266,11 @@ aku tidak cocok menjadi pahlawan. aku tahu itu lebih baik daripada orang lain.
 
 "bagimu, seperti apa pahlawan sejati?" (fei)
 
-"Ya …… pahlawan adalah harapan bagi semua orang. Mereka menjawab keinginan dan doa rakyat. Bahkan dalam keputus-asaan mereka melihat ke depan dan untuk dunia, untuk orang-orang, untuk siapa pun, untuk kebaikan yang lebih besar, mereka memberikan yang terbaik. Dan yang terpenting, Anda tidak menyebut diri Anda seorang pahlawan, Anda dinamai oleh orang lain. ”
+"Ya …… pahlawan adalah harapan bagi semua orang. Mereka menjawab keinginan dan harapan orang-orang . Bahkan dalam keputus-asaan mereka melihat ke depan dan untuk dunia, untuk orang-orang, untuk siapa pun, untuk kebaikan yang lebih besar, mereka memberikan yang terbaik. Dan yang terpenting, kamu tidak menyebut dirimu seorang pahlawan, kamu disebut pahlawan oleh orang lain."
 
-“Fumu. Itu tentu saja salah satu bentuk pahlawan. "
+"Fumu. Itu tentu saja salah satu bentuk pahlawan. "
 
-Jawabannya sangat ringan. Dia tidak mengabaikan pendapat saya tetapi juga tidak menerimanya. Begitulah rasanya.
+Jawabannya sangat ringan. Dia tidak mengabaikan pendapatku tetapi juga tidak menerimanya. Begitulah rasanya.
 
 "Lalu, menurutmu seperti apa pahlawan itu?" (Renji)
 
@@ -280,9 +280,9 @@ Pandangannya yang lurus begitu kuat sehingga aku mengalihkan pandangan seolah-ol
 
 Kepercayaan.
 
-Itu kata-kata yang terlalu berat bagi saya. Aya dan yang lainnya menaruh kepercayaan pada saya. Kami bepergian bersama, saling percaya, dan memikirkan saya dengan baik. Bahkan saya tahu itu. Dan bahkan sekarang mereka mempercayai saya seperti sebelumnya. Dan meskipun saya merasa berat, saya masih dimanjakan oleh mereka.
+Itu kata-kata yang terlalu berat bagiku. Aya dan yang lainnya menaruh kepercayaan padaku. Kami bepergian bersama, saling percaya, dan memikirkanku dengan baik. Bahkan aku tahu itu. Dan bahkan sekarang mereka mempercayaiku seperti sebelumnya. Dan meskipun aku merasa berat, aku masih dimanjakan oleh mereka.
 
-Tetapi tetap saja. Tapi tetap saja aku —— di atas orang-orang yang datang dari duniaku sendiri dan seperti keluarga bagiku, aku memilih Eru di atas semuanya. Saya akhirnya memilih untuk melindungi janji saya kepadanya.
+Tetapi tetap saja. tetap saja aku —— daripada orang-orang yang datang dari duniaku sendiri dan seperti keluarga bagiku, aku memilih Eru. aku akhirnya memilih untuk melindungi janjiku kepadanya.
 
 .
 
@@ -292,92 +292,99 @@ Meskipun Eru sudah tidak ada lagi.
 
 "Feirona ……"
 
-"Kamu membuat wajah yang baik sekarang, Renji."
+"Kamu membuat wajah yang bagus sekarang, Renji."
 
 “…………”
 
-Aku menutup mulut atas kata-kata itu. Saya ingin bertanya, bagaimana? Tetapi saya tidak melakukannya.
+Aku menutup mulut atas kata-kata itu. aku ingin bertanya, bagaimana bisa? Tetapi aku tidak melakukannya.
 
-Meskipun saya memilih Eru, saya mencoba untuk menjawab perasaan Aya dan orang lain.
+Meskipun aku memilih Eru, aku mencoba untuk menjawab perasaan Aya dan orang lain.
 
-Ini semua sangat membingungkan saya merasa seperti saya akan menjadi gila.
+Ini semua sangat membingungkanku dan merasa sepertinya aku akan menjadi gila.
 
-“Ketika kami pertama kali bertemu, aku menganggapmu sebagai pria tanpa tekad dan seseorang yang membenci masalah di atas segalanya. Tapi sekarang, kamu melihat ke depan. ”(Elf)
+"Ketika kami pertama kali bertemu, aku menganggapmu sebagai pria tanpa tekad dan seseorang yang membenci masalah. Tapi sekarang, kamu melihat ke depan."(fei)
 
 "Jika tidak, aku akan jatuh dan melukai diriku sendiri."
 
-Saya menjawabnya dengan obrolan ringan tapi sepertinya dia tidak marah.
+aku menjawabnya dengan obrolan ringan tapi sepertinya dia tidak marah.
 
-"Itu benar, jika kamu tidak melihat ke depan, suatu hari kamu akan tersandung dan melukai dirimu sendiri." (Elf)
+"Itu benar, jika kamu tidak melihat ke depan, suatu hari kamu akan tersandung dan melukai dirimu sendiri." (fei)
 
 Dia hanya mengatakan itu kembali padaku. Dengan suara yang sangat ringan dan tenang. Itu masuk langsung di dalam dadaku.
 
-Apakah memilih Eru sebagai 'cedera'?
+Apakah memilih Eru adalah 'kesalahan'?
 
-Apakah keinginan saya untuk Astraera 'tersandung'?
+Apakah permintaanku kepada Astraera adalah sesuatu yang disebut 'tersandung'?
 
-Bukan. Saya meneriakkan itu di dalam hati saya tetapi tidak bisa mengatakannya dengan keras.
+tidak. aku meneriakkan itu di dalam hatiku tetapi tidak bisa mengatakannya dengan keras.
 
-Aah, saya tidak tahu lagi.
+Aah, aku tidak tahu lagi.
 
-“Aku mengatakan ini di sore hari juga. Melihat kerja keras tidak menghasilkan buah adalah hal yang sangat menyakitkan. ”(Elf)
+"Aku mengatakan tadi sore juga, Melihat kerja keras yang tidak menghasilkan adalah hal yang sangat menyakitkan. "(Elf)
 
 "Ya, benar."
 
-“Jangan biarkan kerja keras / ketekunan Francesca sia-sia. Tidak apa-apa jika Anda bukan Pahlawan. Memang benar mungkin kamu benar-benar tidak cocok menjadi pahlawan. ”
+"Jangan biarkan kerja keras / ketekunan Francesca sia-sia. Tidak apa-apa jika kamu bukan Pahlawan. Memang benar mungkin kamu benar-benar tidak cocok menjadi pahlawan."
 
-Melihat ke depan, saya melihat Miss Francesca dan yang lainnya berdiri dan menunggu kami.
+Melihat ke depan, aku melihat nona Francesca dan yang lainnya berdiri dan menunggu kami.
 
-“Tapi sekarang, kamu adalah tujuan / sasaran gadis itu. Bukan dunia atau milik siapa pun, tapi setidaknya jawab kepercayaannya padamu. Saya pikir Anda dapat menanggung setidaknya satu, kan? ”(Peri)
+"Tapi sekarang, kamu adalah tujuan / sasaran gadis itu. Bukan dunia atau milik siapa pun, tapi setidaknya jawablah kepercayaannya padamu. aku pikir kamu dapat melakukannya, kan?"(fei)
 
-Ini, sama seperti saat itu ——– mirip dengan pilihanku ketika aku membunuh Dewa Setan.
+Ini, sama seperti saat itu ——– mirip dengan pilihanku ketika aku membunuh Dewa iblis.
 
-Saya hanya memilih satu.
+aku hanya bisa memilih satu.
 
-Bukan dunia, bukan kawan-kawan saya, tidak semua orang ........ saya memilih Eru.
+Bukan dunia, bukan teman-temanku, tidak semua orang ........ aku memilih Eru.
 
-Itu bukan kesalahan. Benar, saya masih menikmati hidup saya.
+Itu bukan kesalahan. Benar, aku masih menikmati hidupku.
 
-"……… Baiklah, aku ..." (renji)
+"……… yaaah, aku ..." (renji)
 
-Ke depan, saya melihat teman-teman saya saat ini.
+aku melihat rekan-rekanku saat ini.
 
-Saya melihat ke sebelah saya, saya melihat seorang teman saya yang suka ikut campur.
+aku melihat ke sebelahku, aku melihat seorang rekan yang suka ikut campur.
 
-Saya memasukkan tangan saya ke saku. Ada pasangan saya yang sekarang telah berubah dari dulu.
+aku memasukkan tanganku ke saku. Ada partnerku yang sekarang telah berubah sejak saat itu.
 
-"Aku akan mencoba yang terbaik."
+"Aku akan berusaha yang terbaik."(renji)
 
-"Dan itu baik-baik saja."
+"Dan itu juga tidak masalah."(fei)
 
-Jawaban saya pendek, begitu juga jawabannya.
+Jawabanku pendek, begitu juga jawabannya.
 
-Sebanyak itu tidak apa-apa, kan? Mungkin saya cenderung terlalu banyak memikirkan hal-hal. Tapi saya tidak yakin.
+Sebanyak itu tidak apa-apa, kan? Mungkin aku cenderung terlalu banyak berfikir. Tapi aku tidak yakin.
 
-"Katakan, Feirona."
+"Feirona."(renji)
 
 "Apa?"
 
-"Berapa usia kamu?"
+"Berapa umurmu?"
 
 "Dengan perhitungan manusia …… sekitar 150 mungkin?"
 
-"Saya melihat."
+"begitu....."
 
-Saya kira dari sudut pandangnya, saya tidak lebih dari seorang anak kecil. Hanya kata-kata itu saja yang membuat hatiku terasa lebih ringan.
+aku kira dari sudut pandangnya, aku tidak lebih dari seorang anak kecil. Hanya dengan kata-kata itu saja membuat hatiku terasa lebih ringan.
 
-"Katakan, Renji." (Elf)
+"Renji." (fei)
 
 "Apa?"
 
 "Kami tidak mengharapkanmu untuk bertindak seperti pahlawan di depan kami, oke?"
 
-"……Saya melihat."
+"……begitu..."
 
 Orang ini mungkin juga seorang Esper.
 
-Saya hanya bisa memikirkan sesuatu seperti itu untuk mengubah suasana hati saya.
+aku hanya bisa memikirkan sesuatu seperti itu untuk mengubah suasana hatiku.
 
 [………….]
 
-Di dalam sakuku, aku membelai Ermenhilde dengan lembut. Tapi saya tidak mendapat balasan.
+Di dalam sakuku, aku membelai Ermenhilde dengan lembut. Tapi aku tidak mendapat balasan.
+
+
+
+
+-----------------
+
+masariuman : aaaaaaaaaa, fei is best bro !!!!! saya penasaran dengan masa lalu renji dan eru... AAAAAAAAA.. FLASHUBACK PLEASEE !!!!!
