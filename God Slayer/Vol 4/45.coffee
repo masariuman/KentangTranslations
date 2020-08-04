@@ -16,25 +16,25 @@ Tidak, jadi hanya dengan menerima kekuatan super, tanpa pengalaman itu tidak men
 
 "O, onii-chan!"
 
-Hiyuu-chan memanggilku. Tapi bahkan tanpa menjawabnya, aku berlari mati-matian sambil menarik tangan kecilnya. Meskipun langit yang terlihat dari jendela cukup jernih sehingga bisa membutakanmu, mengapa hal seperti ini harus terjadi? Saya ingin melarikan diri dari semua itu di depan musibah yang tiba-tiba ini, tetapi saya menggelengkan kepala dan berusaha menenangkan diri. Tidak perlu membuang energi untuk berpikir, jalankan saja! Jalankan, sejauh mungkin. Jika ini berlangsung, kita semua akan dimusnahkan. Aku mencengkeram tangan Hiyuu-chan lebih erat. Paling tidak, aku harus menyelamatkan setidaknya gadis kecil ini.
+Hiyuu-chan memanggilku. Tapi aku tidak menjawabnya dan aku berlari mati-matian sambil menarik tangan kecilnya. Meskipun langit yang terlihat dari jendela cukup jernih sehingga bisa membutakanmu, mengapa hal seperti ini harus terjadi? aku ingin melarikan diri dari semua itu, tetapi aku menggelengkan kepala dan berusaha menenangkan diri. Tidak perlu membuang energi untuk berpikir, berlari saja! berlari, sejauh mungkin. Jika ini tetap berlangsung, kami semua akan dimusnahkan. Aku mencengkeram tangan Hiyuu-chan lebih erat. Paling tidak, aku setidaknya harus menyelamatkan gadis kecil ini.
 
-"Itu akan baik-baik saja. O'brien-san dan yang lainnya akan mengurus hal seperti itu dalam waktu singkat, jangan khawatir. "(Renji)
+"semua akan baik-baik saja. O'brien-san dan yang lainnya akan mengurusnya dalam waktu singkat, jangan khawatir. "(Renji)
 
 "Uu, n ……"
 
-Saya mengatakan itu tetapi ekspresi Hiyuu-chan tetap buruk. Itu hanya yang diharapkan. Jika ini berlangsung ... tidak, kastil sudah hancur. Bahkan seorang anak pun bisa mengetahuinya. Itulah perbedaan perbedaan kemampuan.
+aku berkata itu tetapi ekspresi Hiyuu-chan tetap buruk. Itu hanya jarapan. Jika ini tetap berlangsung ... tidak, istana sudah hancur. Bahkan seorang anak pun bisa mengetahuinya. Itulah besarnya perbedaan kemampuan yang dialami.
 
-Yang menyerang kastil saat ini bukanlah monster kelas rendah seperti goblin atau orc yang telah kubaca di buku. Mereka adalah iblis yang mengenakan baju besi yang luar biasa bersama dengan monster raksasa. Di antara mereka, ada bahkan chimaeras raksasa dan golem yang sendirian membutuhkan puluhan ksatria untuk dikalahkan. Tetapi jumlah mereka juga bukan hanya satu atau dua.
+Yang menyerang istana saat ini bukanlah monster kelas rendah seperti goblin atau orc yang telah kubaca di buku. Mereka adalah iblis yang mengenakan baju besi yang luar biasa bersama dengan monster raksasa. Di antara mereka, bahkan ada chimaera raksasa dan golem yang dibutuhkan puluhan ksatria untuk mengalahkannya. Tetapi jumlah mereka juga bukan hanya satu atau dua.
 
-Serangan mendadak terjadi entah dari mana. Aku baru saja menuju ke lapangan latihan seperti biasa untuk berlatih ketika ruang terdistorsi dan monster muncul dari ketiadaan. Akan aneh jika kita bisa berurusan dengan sesuatu seperti itu. Souichi-kun yang kebetulan bersamaku mencoba untuk berurusan dengan mereka tetapi hanya berakhir terbawa di pundakku. Tidak peduli seberapa kuat perlindungan ilahi dari dewi yang ia terima, Souichi-kun adalah siswa sekolah menengah sampai hanya beberapa hari yang lalu. Tidak mungkin dia bisa berurusan dengan sesuatu seperti tiba-tiba dikelilingi oleh pusaran kematian. Akibatnya, aku tidak punya pilihan selain membawanya dan menarik Hiyuu-chan dan melarikan diri.
+Serangan mendadak terjadi entah dari mana. Aku baru saja menuju ke lapangan latihan seperti biasa untuk berlatih dan tiba-tiba monster muncul entah darimana. Akan aneh jika kami bisa berurusan dengan sesuatu seperti itu. Souichi-kun yang kebetulan bersamaku mencoba untuk berurusan dengan mereka tetapi hanya berakhir terbawa di pundakku. Tidak peduli seberapa kuat perlindungan ilahi dari dewi yang ia terima, Souichi-kun adalah siswa sekolah menengah sampai hanya beberapa hari yang lalu. Tidak mungkin dia bisa berurusan dengan sesuatu seperti tiba-tiba dikelilingi oleh pusaran kematian. Akibatnya, aku tidak punya pilihan selain membawanya dan menarik Hiyuu-chan dan melarikan diri.
 
-Aku ingin tahu apakah Utano-san dan yang lainnya aman. Saya tidak punya cara untuk memeriksa tetapi setidaknya saya bisa berharap mereka.
+Aku ingin tahu apakah Utano-san dan yang lainnya aman. aku tidak punya cara untuk memeriksa tetapi setidaknya aku bisa terus berharap mereka aman.
 
-Aku bertanya-tanya seberapa jauh aku melarikan diri. Menemukan pintu raksasa yang saya kenal, saya dengan cepat masuk ke dalam.
+Aku penasaran seberapa jauh aku melarikan diri. aku membuka pintu raksasa yang kukenal dan aku dengan cepat masuk ke dalam.
 
-Katedral. Biasanya tempat itu tenang dan damai tetapi sekarang ini dipenuhi dengan orang-orang. Prajurit dan ksatria yang terluka. Imam berusaha menyembuhkan sebanyak mungkin.
+Katedral. Biasanya tempat itu tenang dan damai tetapi sekarang ini dipenuhi dengan orang-orang. Prajurit dan ksatria yang terluka. priest berusaha menyembuhkan sebanyak mungkin.
 
-Itu benar-benar seperti pemandangan dari medan perang yang hanya Anda saksikan di film. Di depan pemandangan seperti itu, aku hanya bisa berdiri dengan linglung. Tubuh saya tidak memiliki kekuatan. Pikiranku tidak bekerja. Bau darah dan tangisan kesakitan terasa menjijikkan. Ini adalah kenyataan, saya tidak bisa menerimanya.
+Itu benar-benar seperti pemandangan dari medan perang yang hanya kamu saksikan di film. Di depan pemandangan seperti itu, aku hanya bisa berdiri dengan linglung. Tubuhku tidak memiliki kekuatan. Pikiranku tidak bekerja. Bau darah dan tangisan kesakitan terasa menjijikkan. Ini adalah kenyataan, aku hanya tidak bisa menerimanya.
 
 Tapi, ada tangan kecil yang menarik tanganku.
 
