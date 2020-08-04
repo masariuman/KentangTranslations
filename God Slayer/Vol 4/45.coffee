@@ -404,13 +404,13 @@ Akan sangat memalukan, tapi mau gimana lagi. aku memutuskan untuk menghukum Anas
 
 Karena aku jarang menggunakannya, aku tidak tahu di mana dan butuh beberapa menit untuk menemukannya. Bel disimpan tepat di tengah meja di tengah ruangan. Bagaimana aku bisa melewatkan itu?
 
-Saya memanggil pelayan untuk mengambil saya air tetapi wajahnya lebih terkejut daripada geli. Yah, kurasa melihat seorang pria yang baru saja bangun dengan mencoret-coret wajahnya akan lebih mengejutkan daripada membuat mereka tertawa?
+aku memanggil pelayan untuk mengambil saya air tetapi wajahnya lebih terkejut daripada geli. Yah, kurasa melihat seorang pria yang baru saja bangun dengan mencoret-coret wajahnya akan lebih mengejutkan daripada membuat mereka tertawa?
 
-Menutup jendela, aku duduk di tempat tidur. Mengambil Ermenhilde dari sisi bantalku, aku membelai ujungnya.
+aku Menutup jendela dan aku duduk di tempat tidur. aku Mengambil Ermenhilde dari sisi bantalku dan aku membelai ujungnya.
 
 [Apa yang terjadi?]
 
-"Tidak, hanya memikirkan betapa damai itu sekarang."
+"Tidak, hanya memikirkan betapa damainya sekarang."
 
 [Hebat dan semua tapi sangat tidak keren untuk mengatakan itu dengan wajah itu, kau tahu?]
 
