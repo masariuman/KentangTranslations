@@ -238,7 +238,7 @@ aku penasaran berapa lama itu, atau beberapa detik atau bahkan lebih lama. Saat 
 
 Adegan itu terlihat sangat fantastis, dan indah. Dia seperti wanita atau putri suci yang muncul dalam dongeng. Itu membuatku benar-benar lupa bau darah merembes ke seluruh katedral ........ wanita itu murni, suci, dan cantik.
 
-Pandangannya berbalik ...... dan menatapku. Dia memiliki mata seperti permata hijau, rambut keemasan yang tampak seperti terbuat dari sutra dan gaun putih murni yang sepertinya hampir memantulkan sinar matahari yang datang dari jendela. Rambutnya sepertinya diikat namun tampak panjang dan berkibar-kibar dalam energi magic yang berasal dari patung itu. Dia mengambil satu langkah ke depan. Dengan *srek* terdengar gaun panjangnya meluncur di atas karpet. Suara itu dengan jelas mencapai telingaku.
+Pandangannya berbalik ...... dan menatapku. Dia memiliki mata seperti giok hijau, rambut keemasan yang tampak seperti terbuat dari sutra dan gaun putih murni yang sepertinya hampir memantulkan sinar matahari yang datang dari jendela. Rambutnya sepertinya diikat namun tampak panjang dan berkibar-kibar dalam energi magic yang berasal dari patung itu. Dia mengambil satu langkah ke depan. Dengan *srek* terdengar gaun panjangnya meluncur di atas karpet. Suara itu dengan jelas mencapai telingaku.
 
 "Apakah kamu baik-baik saja, Renji-sama?"
 
@@ -260,7 +260,7 @@ Untuk beberapa alasan, iblis itu masih belum bergerak bahkan satu langkah pun se
 
 "Ayo, Renji-sama."
 
-"…… .ye..yeah.:
+"…… .ye..yeah."
 
 Akhirnya, suara * gichigichi * terdengar.
 
@@ -270,17 +270,15 @@ Kami saling berhadapan. Di dalam katedral ini, yang seharusnya damai, saat sedan
 
 Seluruh katedral bergetar hebat. Seseorang di luar sana pasti menggunakan sihir yang sangat kuat.
 
-Pada saat itu, wanita berambut emas menghilang dan nebhadu cahaya berwarna giok. akupun terkejut. Kekuatan meningkat dalam diriku. Aku penasaran apakah rasa ini adalah energi magic. Kekuatan dimiliki orang lain tapi tidak untukku. ini pasti energi magic.
+Pada saat itu, wanita berambut emas menghilang dan menjadi cahaya berwarna giok. akupun terkejut. Kekuatan meningkat dalam diriku. Aku penasaran apakah rasa ini adalah energi magic. Kekuatan dimiliki orang lain tapi tidak untukku. ini pasti energi magic.
 
-Wanita itu, yang muncul tiba-tiba, tidak menghilang dan cahaya itu terkonsentrasi di tanganku ........ dan menjadi satu pedang. Bilahnya berwarna hijau jade, gagang dan dekorasi dari emas. Saat aku mengayunkan pedang ringan seperti bulu itu ke arah sofa kosong, pedang itu robek menjadi dua tanpa perlawanan. Wajahku sempit karena ketajaman pedang. Itu benar-benar berbeda dari pedang yang saya gunakan di tempat latihan apakah dalam hal berat, ketajaman, pada dasarnya semuanya.
+Wanita itu, yang muncul tiba-tiba, menjadi cahaya dan cahaya itu terkonsentrasi di tanganku ........ dan menjadi pedang. Bilahnya berwarna giok hijau, gagang berdekorasi emas. Saat aku mengayunkan pedang yang ringan seperti bulu itu ke arah kursi kosong, kursi itu robek menjadi dua bagian seketika. Wajahku menyempit karena ketajaman pedang itu. Itu benar-benar berbeda dari pedang yang aku gunakan di tempat latihan dalam hal berat, ketajaman, pada dasarnya semuanya.
 
-* Gichii * iblis hitam tertawa lagi. Akhirnya kaki itu bergerak —— ke arahku.
+* Gichii * iblis hitam tertawa lagi. Akhirnya kakinya bergerak —— ke arahku.
 
-Aku melihat pedang di tanganku. Bilah indah seperti permata mungkin terlihat lemah, tapi aku merasa kuat. Saya menaruh kekuatan di tangan memegang pedang.
+Aku melihat pedang di tanganku. Bilah indah seperti permata mungkin terlihat lemah, tapi aku merasa kuat. aku menaruh kekuatan di tangan yang memegang pedang.
 
-Saya ingat bahwa mata wanita itu juga berwarna hijau jade. Emas pegangan juga, warnanya sama dengan rambutnya. Ketika aku menyadari itu, rasanya seperti pedang di tanganku adalah gadis itu sendiri.
-
-.
+aku ingat bahwa mata wanita itu juga berwarna hijau giok. Emas pegangan juga, warnanya sama dengan rambutnya. Ketika aku menyadari itu, rasanya seperti pedang di tanganku adalah gadis itu sendiri.
 
 .
 
@@ -288,17 +286,19 @@ Saya ingat bahwa mata wanita itu juga berwarna hijau jade. Emas pegangan juga, w
 
 .
 
-Ketika saya membuka mata saya, wajah yang familier muncul dalam pandangan saya dan melihat saya dari dekat.
+.
 
-“…… .apa yang kamu lakukan Anastasia.” (Renji)
+Ketika aku membuka mataku, wajah yang familier muncul dalam pandanganku dan melihatku dari dekat.
 
-"Hmm. Mengamati? ”(Ana)
+"…… .apa yang kamu lakukan Anastasia." (Renji)
+
+"Hmm. Mengamatimu?"(Ana)
 
 "Kamu berat."
 
-"Saya tidak!?!"
+"aku tidak berat!?!"
 
-Mempertimbangkan apa yang harus dilakukan tentang peri berukuran boneka yang duduk di atasku sebentar, aku menyerah dan bangkit dan dia berguling dan jatuh dari tempat tidur. Dia sepertinya mengeluh sesuatu tapi, itu salahmu sendiri, kau tahu?
+aku menyerah dan bangkit dan dia berguling jatuh ke tempat tidur. Dia sepertinya mengeluhkan sesuatu tapi, itu salahmu sendiri, kan?
 
 Seperti yang saya pikirkan, saya hanya bermimpi dan saya kembali ke kamar yang telah diberikan kepada saya di kastil. Perabotan yang ada di kamarku dan langit cerah di luar masih sama, tetapi tidak ada asap yang naik dan aku tidak bisa mendengar teriakan lagi.
 
