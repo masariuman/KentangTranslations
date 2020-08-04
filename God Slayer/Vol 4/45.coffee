@@ -366,19 +366,19 @@ aku tidak punya alasan jadi aku hanya bisa setuju dan mengangkat bahu. Tapi teta
 
 [Apa?]
 
-"Dalam mimpiku, apakah aku mengatakan sesuatu?"
+"ketika aku bermimpi, apakah aku mengatakan sesuatu?"
 
 [Hm? Tidak………]
 
-Tidak dapat memahami apa yang ingin saya katakan, saya menggaruk kepala. Kurasa aku masih setengah tidur. Saya berpikir untuk meminta pelayan untuk mengambil air untuk mencuci muka saya, tetapi sekali lagi, saya juga tidak ingin pergi dengan wajah ini. Apa yang saya lakukan?
+aku menggaruk kepala. Kurasa aku masih setengah tidur. aku berpikir untuk meminta pelayan untuk mengambil air untuk mencuci mukaku, tetapi sekali lagi, aku juga tidak ingin pergi dengan wajah ini. Apa yang harus aku lakukan?
 
 [Renji.]
 
 "Apa?"
 
-Sementara saya berpikir tentang bagaimana menghadapi coretan di wajah saya, Ermenhilde berbicara dengan suara lemah lembut.
+Ermenhilde berbicara dengan suara lemah lembut.
 
-Suaranya familiar ........ sama seperti ketika dia khawatir tentang sesuatu.
+Suaranya tidakasing ........ sama seperti ketika dia khawatir tentang sesuatu.
 
 [Tidak, tidak apa-apa.]
 
