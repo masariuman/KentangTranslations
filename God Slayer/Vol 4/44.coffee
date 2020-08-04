@@ -114,11 +114,11 @@ Rasanya aneh mengatakannya sendiri, tetapi, aku sama sekali tidak melakukan apa 
 
 Aku bahkan tidak pernah mengajarinya cara mengayunkan pedang, apalagi cara bertarung. Itu sebabnya aku pikir mengatakan sesuatu seperti 'jika bukan karena aku' tidak sesuai dengan situasi.
 
-"aku dan Mururu hanya mengajarinya bagaimana untuk selalu berhati-hati selama pertempuran. untuk penggunaan pedangnya, dia belajar hanya dengan melihat."(Elf)
+"aku dan Mururu hanya mengajarinya bagaimana untuk selalu berhati-hati selama pertempuran. untuk penggunaan pedangnya, dia belajar hanya dengan melihat."(fei)
 
 "Pedang ……… maksudmu aku?" (Renji)
 
-"Umm, ya."*fran
+"Umm, ya."(fran)
 
 Feirona menggunakan busurnya lebih dari pedangnya, dan Mururu menggunakan tubuhnya sendiri sebagai senjata. Jadi, jika Nn. Francesca belajar bertarung pedang hanya dengan menonton, itu pasti aku. Sekarang saya merasa agak malu.
 
