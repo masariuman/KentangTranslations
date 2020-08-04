@@ -154,15 +154,15 @@ aku mengatakan itu pada diriku sendiri.aku mengeraskan tekadku. Lingkunganku dip
 
 Sambil memegang dada yang sakit dengan tangan kiriku, aku mengambil pedang dari tangan seorang prajurit yang kehilangan seluruh tubuhnya. aku telah kehilangan pedangku sebelumnya. Tangan dan kakiku lebih kaku dari yang aku kira. Tapi tetap saja—— jika aku tidak bergerak sekarang, Hiyuu-chan dan Souichi-kun yang akan menjadi bagian dari kumpulan darah ini selanjutnya.
 
-Mendengarku, iblis hitam berhenti. Dan perlahan, dengan mudah, dia menoleh untuk menatapku dari atas bahu. Mata merah itu menatapku dan itu saja membuat tubuhku menyusut ketakutan seolah-olah hatiku dicengkeram langsung. Tapi tetap saja, aku mengarahkan pedang ke iblis itu. Aku pasti terlihat lucu saat aku berdiri seperti itu menggigil dengan pedangku.
+Mendengarku, iblis hitam berhenti. Dan perlahan, dia menoleh untuk menatapku. Mata merah itu menatapku dan itu saja membuat tubuhku menyusut ketakutan seolah-olah hatiku dicengkeram langsung. Tapi tetap saja, aku mengarahkan pedang ke iblis itu. Aku pasti terlihat lucu saat aku berdiri seperti itu gemetaran dengan pedangku.
 
-Dan, seakan mencibir padaku, itu berbalik ke arahku.
+seakan-akan dia berbicara padaku, dia pun berbalik ke arahku.
 
 Apa?
 
-Apakah tujuannya bukan Hiyuu-chan dan Souichi? Saya menjadi curiga tetapi saya senang setidaknya berhenti bergerak. Sekarang yang tersisa adalah —– yang tersisa adalah ……
+Apakah tujuannya bukan Hiyuu-chan dan Souichi? aku menjadi curiga tetapi aku senang setidaknya dia berhenti bergerak. Sekarang yang tersisa adalah —– yang tersisa adalah ……
 
-Apa yang harus saya lakukan selanjutnya? Haruskah aku melawan monster ini? Itu mengalahkan Souichi, menerobos O'brien-san dan yang lainnya. Haruskah aku melawan monster ini, yang menciptakan situasi tragis ini?
+Apa yang harus aku lakukan selanjutnya? Haruskah aku melawan monster ini? dia mengalahkan Souichi, menerobos O'brien-san dan yang lainnya. Haruskah aku melawan monster ini, yang menciptakan situasi tragis ini?
 
 Percuma saja. Kamu tidak bisa menang
 
@@ -172,23 +172,23 @@ Mayat berikutnya hanya akan berubah dari anak-anak menjadi milikmu, itu saja.
 
 Seseorang berbisik lagi.
 
-Melarikan diri.
+larilah.
 
 Lagi.
 
-Melarikan diri.
+larilah.
 
 Suara itu menjadi lebih keras.
 
-Melarikan diri.
+larilah.
 
-Pedangku yang menggigil sedikit diturunkan.
+Pedangku yang gemetaran sedikit merendah.
 
-Melarikan diri.
+larilah.
 
 Tapi tetap saja, aku mencengkeram pedang dengan erat.
 
-Melarikan diri.
+larilah.
 
 "Lawanmu ada di sini, keparat !!"
 
