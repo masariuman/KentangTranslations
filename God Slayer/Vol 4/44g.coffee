@@ -238,7 +238,7 @@ Jika, lawanku di babak pertama bukan Souichi, aku penasaran seberapa jauh aku bi
 
 Pada saat itu, detak jantungku naik seketika. Bagi Ermenhilde itu hanya hal sepele untuk diucapkan tapi suara itu, dan kata-kata itu, itu tidak adil.
 
-Kurasa aku tidak membiarkannya muncul dalam ekspresiku, tetapi tatapanku terhanyut sesaat. Peri tajam yang berjalan di sampingku tidak akan melewatkan itu. Dia tidak mengatakan apa-apa tapi aku bisa melihat bahunya sedikit terguncang karena tawa yang tertahan. Aku melotot ke arahnya tetapi hanya diabaikan. Persetan!
+aku tidak membiarkannya nampak dalam ekspresiku, tetapi tatapanku terhanyut sesaat. elf yang peka yang berjalan di sampingku tidak akan melewatkan itu. Dia tidak mengatakan apa-apa tapi aku bisa melihat bahunya sedikit terguncang karena tawa yang tertahan. Aku melotot ke arahnya tetapi hanya diabaikan. dasar!
 
 [Apa yang terjadi?]
 
@@ -246,11 +246,11 @@ Kurasa aku tidak membiarkannya muncul dalam ekspresiku, tetapi tatapanku terhany
 
 [??]
 
-Saya menjawab dengan kasar tetapi saya tidak bisa menahannya sehingga saya merasa malu. Saya tidak ingin orang melihat saya seperti ini.
+aku menjawab dengan kasar tetapi aku tidak bisa menahannya sehingga aku merasa malu. aku tidak ingin orang melihatku seperti ini.
 
-"Kamu benar-benar tidak biasa, Renji."
+"Kamu benar-benar tidak seperti biasanya, Renji."(fei)
 
-"……..dengan cara apa?"
+"……..maksudnya ?"
 
 Karena itu, saya membalas Feirona dengan suara yang agak kuat juga. Tetapi tanpa memperhatikan hal itu, Feirona melanjutkan.
 
