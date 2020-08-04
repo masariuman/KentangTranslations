@@ -378,11 +378,11 @@ aku menggaruk kepala. Kurasa aku masih setengah tidur. aku berpikir untuk memint
 
 Ermenhilde berbicara dengan suara lemah lembut.
 
-Suaranya tidakasing ........ sama seperti ketika dia khawatir tentang sesuatu.
+Suaranya tidakasing ........ sama seperti ketika dia(eru) khawatir tentang sesuatu.
 
 [Tidak, tidak apa-apa.]
 
-"Saya melihat."
+"begitu...."
 
 Haruskah saya mengejar topik sekarang?
 
