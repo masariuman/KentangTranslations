@@ -52,39 +52,39 @@ Keduanya tampaknya tidak menolak Sashimi. Mungkin mereka hanya mencobanya karena
 
 Mengatakan itu, aku cepat-cepat menggigit untuk menghentikan topik pembicaraan. aku tahu aku adalah orang yang memulai topik itu tetapi aku sama sekali tahu apa-apa selain itu. Dan juga, akan sulit bagi mereka untuk memahaminya jika aku berbicara tentang duniaku. aku lebih suka tidak terlalu membingungkan mereka. membuat orang bingung adalah kegagalan dalam memulai percakapan. Dan, jujur ​​saja, untuk barang kelas atas, aku bisa dengan mudah mendapatkannya bahkan dengan gaya hidupku yang buruk.
 
-Karena Solnea belum diberitahu tentang situasiku sampai sekarang, aku merasa akan sulit untuk membicarakannya di depannya. Tetapi bahkan itu tidak akan bertahan selama itu. Bukannya aku juga harus merawatnya selamanya.
+Karena Solnea belum diberitahu tentang situasiku sampai sekarang, aku merasa akan sulit untuk membicarakannya di depannya. tapi itu tidak akan bertahan lama. karena aku aku juga tidak harus menjaganya selamanya.
 
-"Tapi tetap saja, Anda benar-benar menampilkan Nona Francesca yang hebat."
+"Tapi tetap saja, kamu benar-benar menunjukkan yang terbaik Nona Francesca."(renji)
 
-"Iya?"
+"ya?"
 
-“Prelimnya. Sejujurnya, saya tidak berpikir Anda akan bisa bertarung dengan baik. "
+"babak penyisihan. jujur, aku tidak berpikir kamu akan bisa bertarung dengan baik. "
 
-“……… dia bahkan mengatakan bahwa kamu akan kalah, pada awalnya.” (Mururu)
+"……… dia bahkan mengatakan bahwa kamu akan kalah, pada awalnya." (Mururu)
 
-Tolong diam, Mururu.
+Tolong diamlah, Mururu.
 
-Dan benar saja, ekspresi Ms Francesca membeku sepenuhnya. Aku berdehem dan menyesap tehku.
+Dan benar saja, ekspresi nona Francesca membeku sepenuhnya. Aku terbatuk dan menyesap tehku.
 
-"Selamat. Bisa jadi kita akhirnya akan saling bertarung di turnamen utama juga. ”(Renji)
+"Selamat. mungkin bisa saja kita akan saling bertarung di turnamen utama juga."(Renji)
 
 "Eh?"
 
-"Tidak, yah, aku juga ikut serta dalam pertempuran utama jadi ada kesempatan kan?"
+"yah, aku juga ikut serta dalam pertarungan utama jadi ada kesempatan kan?"
 
-"Uu, ah …… sungguh?"
+"Uu, ah …… benarkah?"
 
-"Yah, agak."
+"Yah, seperti itulah."
 
-"Kau penindas, kau tahu?" (Elf)
+"Kau benar-benar pembuli lho......" (Elf)
 
-Aku hanya mengangkat bahu karena kata-kata Feirona. Lawanku sudah diputuskan sebagai Souichi. Tapi aku satu-satunya yang tahu itu. Jadi saya diizinkan untuk menggodanya sedikit, bukan? Mungkin aku sedikit sedih karena dia tumbuh besar tanpa aku sadari.
+Aku hanya mengangkat bahu karena kata-kata Feirona. Lawanku sudah diputuskan yaitu Souichi. Tapi aku satu-satunya yang tahu itu. Jadi aku boleh mengganggunya sedikit, kan? Mungkin aku sedikit sedih karena dia sudah berkembang tanpa aku sadari.
 
-Ngomong-ngomong, aku benar-benar bahagia atas kemenangannya. Sebagai seseorang yang tahu seperti apa Ms Francesca saat itu, saya benar-benar senang melihat begitu banyak pertumbuhan dalam dirinya dalam beberapa bulan.
+Ngomong-ngomong, aku benar-benar bahagia atas kemenangannya. Sebagai seseorang yang tahu seperti apa nona Francesca saat itu, aku benar-benar senang melihat begitu banyak perkembangan dalam dirinya dalam beberapa bulan.
 
-"Meskipun ketika kita pertama kali bertemu, kamu akan terbunuh oleh beberapa goblin .." (renji)
+"padahal ketika kita pertama kali bertemu, kamu akan terbunuh oleh beberapa goblin .." (renji)
 
-“Kamu masih ingat itu ……”
+"Kamu masih ingat itu ……"
 
 "Aku ragu aku bisa melupakan itu."
 
