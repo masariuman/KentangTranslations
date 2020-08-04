@@ -310,7 +310,7 @@ Apakah itu akan dianggap sebagai mimpi yang baik atau mimpi buruk? aku tidak bis
 
 Tiba-tiba, suara itu bergema di kepalaku.
 
-Mendengar semburan tawa tiba-tiba dari suara yang sangat akrab, aku menoleh untuk melihat ke arah bantalku dalam kebingungan. Di sana, medali emas yang sama persis seperti dari mimpiku disimpan.
+Mendengar tawaan tiba-tiba dari suara yang sangat akrab, aku menoleh untuk melihat ke arah bantalku dengan kebingungan. Di sana, medali emas yang sama persis seperti dari mimpiku tegeletak disitu.
 
 "Selamat Pagi, Ermenhilde."
 
