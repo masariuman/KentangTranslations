@@ -300,9 +300,9 @@ Ketika aku membuka mataku, wajah yang familier muncul dalam pandanganku dan meli
 
 aku menyerah dan bangkit dan dia berguling jatuh ke tempat tidur. Dia sepertinya mengeluhkan sesuatu tapi, itu salahmu sendiri, kan?
 
-Seperti yang saya pikirkan, saya hanya bermimpi dan saya kembali ke kamar yang telah diberikan kepada saya di kastil. Perabotan yang ada di kamarku dan langit cerah di luar masih sama, tetapi tidak ada asap yang naik dan aku tidak bisa mendengar teriakan lagi.
+Seperti yang aku pikirkan, aku hanya bermimpi dan aku kembali ke kamar yang telah diberikan kepadaku di istana. Perabotan yang ada di kamarku dan langit cerah di luar masih sama, tetapi tidak ada asap dan aku tidak mendengar teriakan lagi.
 
-Itu adalah dunia damai yang sama tanpa Dewa Setan.
+ini adalah dunia yang damai tanpa Dewa iblis.
 
 Apakah itu akan dianggap sebagai mimpi yang baik atau mimpi buruk? Saya tidak bisa memutuskan. Haruskah saya merasa nostalgia dan senang bermimpi tentang Eru atau haruskah saya sedih telah menyaksikan banyak nyawa yang hilang?
 
