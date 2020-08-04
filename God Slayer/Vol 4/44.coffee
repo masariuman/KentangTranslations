@@ -210,6 +210,8 @@ Ketika aku memberikan jawaban kepada Erenhilde, Mururu bereaksi sehingga aku han
 
 Dan pada akhirnya, suasananya tetap seperti biasa ketika kami berbicara dan tertawa, daripada membuatnya terasa seperti perayaan kemenangan. Yah, sebagian besar Mururu yang makan. Solnea tampaknya cukup banyak makan juga, tetapi dibawah Mururu. tapi Solnea masih makan lebih banyak daripada nona Francesca.
 
+<gambar> vol4 046.png
+
 Ketika kami membayar tagihan dan meninggalkan gedung, aku menggigil dari udara dingin di lorong yang kosong. Aku mungkin harus pergi dan menyapa Toudou juga, tapi aku merasa tidak enak membuat orang lain menungguku jadi aku memutuskan untuk tidak melakukannya. Ya, saya bisa bertemu kapan saja saya mau nanti, jadi tidak apa-apa.
 
 “Babak utama turnamen akan segera dimulai. Kamu pikir kamu bisa menang? ”(Peri)
