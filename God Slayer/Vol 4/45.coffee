@@ -394,11 +394,11 @@ aku bermimpi. Bukan tentang Ermenhilde, tetapi tentang Eru. Itu telah terjadi be
 
 Hanya saja …… suara mereka sama. Ini seperti berbicara dengan orang yang sama tetapi sebenarnya sangat berbeda. aku ingin melupakannya. aku akhirnya meninggalkan Ermenhilde dengan orang lain. Itu.. bagiku.. ​​dan juga bagi Ermenhilde, sesuatu yang sangat kejam. Itu sebabnya, aku tidak bisa menanyakan kekhawatirannya pada Ermenhilde.
 
-"Apa yang harus saya lakukan dengan wajah ini?" (Renji)
+"Apa yang harus aku lakukan dengan wajah ini?" (Renji)
 
-[Hanya meminta seorang pelayan membawakanmu air untuk mencucinya.]
+[mintalah seorang pelayan membawakanmu air untuk mencucinya.]
 
-"Ya, kurasa, tapi ..."
+"Ya, tapi ..."
 
 Akan sangat memalukan, tapi saya rasa saya tidak bisa menahannya. Untuk saat ini, saya memutuskan untuk membuat hukuman Anastasia 3 kali lebih keras dan mencari bel untuk memanggil pelayan.
 
