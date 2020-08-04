@@ -152,9 +152,9 @@ aku muntah. aku meMuntahkan semua yang aku makan hari ini tetapi masih tidak bis
 
 aku mengatakan itu pada diriku sendiri.aku mengeraskan tekadku. Lingkunganku dipenuhi dengan kematian, indraku menjadi gila. Meskipun aku tidak pernah bisa menandingi monster ini, itu sudah cukup gila karena aku masih berdiri.
 
-Sambil memegang dada yang sakit dengan tangan kiriku, aku mengambil pedang dari tangan seorang prajurit yang kehilangan seluruh tubuhnya. Bagaimanapun juga aku telah kehilangan pedangku sebelumnya. Tangan dan kaki saya lebih kaku dari yang saya kira. Tapi tetap saja—— jika aku tidak bergerak sekarang, itu akan menjadi Hiyuu-chan dan Souichi-kun yang akan menjadi bagian dari kumpulan darah ini selanjutnya.
+Sambil memegang dada yang sakit dengan tangan kiriku, aku mengambil pedang dari tangan seorang prajurit yang kehilangan seluruh tubuhnya. aku telah kehilangan pedangku sebelumnya. Tangan dan kakiku lebih kaku dari yang aku kira. Tapi tetap saja—— jika aku tidak bergerak sekarang, Hiyuu-chan dan Souichi-kun yang akan menjadi bagian dari kumpulan darah ini selanjutnya.
 
-Mendengar saya, iblis hitam berhenti. Dan perlahan, dengan mudah, dia menoleh untuk menatapku dari atas bahu. Mata merah itu menatapku dan itu saja membuat tubuhku menyusut ketakutan seolah-olah hatiku dicengkeram langsung. Tapi tetap saja, aku mengarahkan pedang ke iblis itu. Aku pasti terlihat lucu saat aku berdiri seperti itu menggigil dengan pedangku.
+Mendengarku, iblis hitam berhenti. Dan perlahan, dengan mudah, dia menoleh untuk menatapku dari atas bahu. Mata merah itu menatapku dan itu saja membuat tubuhku menyusut ketakutan seolah-olah hatiku dicengkeram langsung. Tapi tetap saja, aku mengarahkan pedang ke iblis itu. Aku pasti terlihat lucu saat aku berdiri seperti itu menggigil dengan pedangku.
 
 Dan, seakan mencibir padaku, itu berbalik ke arahku.
 
