@@ -212,31 +212,31 @@ Dan pada akhirnya, suasananya tetap seperti biasa ketika kami berbicara dan tert
 
 <gambar> vol4 046.png
 
-Ketika kami membayar tagihan dan meninggalkan gedung, aku menggigil dari udara dingin di lorong yang kosong. Aku mungkin harus pergi dan menyapa Toudou juga, tapi aku merasa tidak enak membuat orang lain menungguku jadi aku memutuskan untuk tidak melakukannya. Ya, saya bisa bertemu kapan saja saya mau nanti, jadi tidak apa-apa.
+Ketika kami membayar tagihan dan meninggalkan gedung, aku menggigil dari udara dingin di lorong yang kosong. Aku mungkin harus pergi dan menyapa Toudou juga, tapi aku merasa tidak enak membuat orang lain menungguku jadi aku memutuskan untuk tidak melakukannya. Ya, aku bisa bertemu kapan saja aku mau nanti, jadi tidak apa-apa.
 
-“Babak utama turnamen akan segera dimulai. Kamu pikir kamu bisa menang? ”(Peri)
+"Babak utama turnamen akan segera dimulai. apakah kamu bisa menang? "(fei)
 
-"Tidak mungkin. Yang mengatakan, saya memang berniat untuk benar-benar berusaha kali ini. "(Renji)
+"Tidak mungkin. tapi yah, aku memang berniat untuk benar-benar berusaha kali ini."(Renji)
 
-"Oh?
+"Oh?"
 
-"Yah, aku tidak akan menang hanya dengan itu."
+"Yah, aku juga tidak akan menang hanya dengan itu."
 
-Para wanita sudah mulai berjalan ketika saya dan Feirona berjalan di belakang mereka ketika dia menanyakan hal itu kepada saya.
+Para wanita sudah mulai berjalan didepan. aku dan Feirona berjalan di belakang mereka dan dia menanyakan hal itu kepadaku.
 
-Saya tidak memiliki kepercayaan diri untuk menang. Aku ragu aku benar-benar menang melawan Souichi. Tapi saya berharap setidaknya memberinya sedikit tantangan.
+aku tidak memiliki kepercayaan diri untuk menang. Aku ragu aku benar-benar menang melawan Souichi. Tapi aku berharap setidaknya memberinya sedikit tantangan.
 
-Jika, lawan saya di babak pertama bukan Souichi, saya bertanya-tanya seberapa jauh saya bisa maju di turnamen. Saya bertanya-tanya seberapa dekat saya dengan kemenangan. Aku dengan cepat menggelengkan kepala. Tidak ada gunanya memikirkan itu. Dunia tidak cukup mudah di mana Anda bisa menang hanya dengan melakukan sedikit usaha. Pertama, itu tidak sopan bagi mereka yang benar-benar bekerja keras untuk turnamen.
+Jika, lawanku di babak pertama bukan Souichi, aku penasaran seberapa jauh aku bisa bertahan di turnamen. aku penasaran seberapa dekat aku dengan kemenangan. Aku dengan cepat menggelengkan kepala. Tidak ada gunanya memikirkan itu. Dunia tidak cukup mudah di mana kamu bisa menang hanya dengan melakukan sedikit usaha. Pada dasarnya itu akan terlihat kasar bagi mereka yang benar-benar bekerja keras untuk turnamen.
 
-"Wajahmu terlihat lebih baik."
+"Wajahmu terlihat lebih baik."(fei)
 
-"Itu wajah normal yang sama dengan yang selalu kumiliki?" (Renji)
+"bukankah Itu wajah normal yang sama dengan yang selalu kumiliki?" (Renji)
 
-"Tidakkah kamu berpikir begitu juga?"
+"Tidakkah kamu berpikir seperti itu juga?"(fei)
 
 [Itu benar. Tidak buruk —— itu wajah yang kusuka.]
 
-Pada saat itu, detak jantungku naik seketika. Bagi Ermenhilde itu hanya hal sepele untuk diucapkan selain suara itu, dan kata-kata itu, itu tidak adil.
+Pada saat itu, detak jantungku naik seketika. Bagi Ermenhilde itu hanya hal sepele untuk diucapkan tapi suara itu, dan kata-kata itu, itu tidak adil.
 
 Kurasa aku tidak membiarkannya muncul dalam ekspresiku, tetapi tatapanku terhanyut sesaat. Peri tajam yang berjalan di sampingku tidak akan melewatkan itu. Dia tidak mengatakan apa-apa tapi aku bisa melihat bahunya sedikit terguncang karena tawa yang tertahan. Aku melotot ke arahnya tetapi hanya diabaikan. Persetan!
 
