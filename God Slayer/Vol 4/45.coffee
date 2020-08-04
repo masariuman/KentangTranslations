@@ -78,25 +78,25 @@ Karena itulah, sekali lagi—-
 
 "Oi ……"
 
-Tepat pada saat itu, pintu besar ke katedral dibuka dengan suara keras. Tidak, akan lebih baik untuk mengatakan bahwa itu meledak. Pintu ganda meledak dan pecahannya mengenai yang terluka dan berhenti hanya ketika menabrak dinding.
+Tepat pada saat itu, pintu besar ke katedral dibuka dengan suara keras. Tidak, itu meledak. Pintu ganda meledak dan pecahannya mengenai yang terluka dan berhenti hanya ketika menabrak dinding.
 
 Karena kejadian yang tiba-tiba ini, katedral kembali membisu. Tapi itu hanya berlangsung sesaat.
 
-Pertama, teriakan naik. Jeritan dan jeritan keputusasaan mencapai telingaku. Para Priest berlari ke sana kemari mencari jalan untuk melarikan diri ketika para prajurit dan ksatria yang bisa bergerak mengambil senjata mereka. Dan hanya kemudian, akhirnya, saya bisa melihat tempat di mana gerbang itu juga. Apa yang muncul adalah iblis hitam. Tidak ada yang mirip dengan setan. Saya belum melihat iblis yang sebenarnya tetapi saya telah membaca tentang mereka di buku-buku jadi saya agak sadar akan seperti apa mereka. Tetapi iblis yang muncul memiliki banyak perbedaan dari apa yang saya baca.
+teriakan-teriakan mulai terdengar. Jeritan dan jeritan keputusasaan mencapai telingaku. Para Priest berlari ke sana kemari mencari jalan untuk melarikan diri serta para prajurit dan ksatria yang bisa bergerak mengambil senjata mereka. Dan akhirnya, aku bisa melihat ke gerbang itu juga. yang muncul adalah iblis hitam. Tidak ada kemiripan dengan iblis lain. sebenarnya aku belum melihat iblis tapi aku telah membaca tentang mereka di buku-buku jadi aku agak mengetahui seperti apa mereka. Tetapi iblis yang muncul memiliki banyak perbedaan dari apa yang aku baca.
 
-2 kaki, 2 lengan dan satu kepala. Penampilan yang mirip dengan manusia adalah karakteristik utama iblis tetapi seluruh tubuhnya saat ini ditutupi dengan baju besi seperti krustasea, dan 4 mata majemuk di kepalanya melepaskan cahaya merah. Dan di atas semua itu, mulutnya tidak kecil sama sekali seperti manusia. Itu membuka ke samping seperti serangga sejati. Itu benar-benar berbeda dari manusia atau iblis.
+2 kaki, 2 lengan dan satu kepala. Penampilan yang mirip dengan manusia adalah karakteristik utama iblis tetapi seluruh tubuhnya saat ini ditutupi dengan baju besi, dan 4 mata di kepalanya mengeluarkan cahaya merah. mulutnya tidak kecil seperti manusia. mulutnya terbuka ke samping seperti serangga. Itu benar-benar berbeda dari manusia atau iblis.
 
-Seluruh tubuhnya dilindungi oleh energi magis. Ia bahkan tidak memakai baju besi seperti manusia atau setan normal. Itu benar-benar berbeda dari apa pun yang saya baca di buku-buku.
+Seluruh tubuhnya dilindungi oleh energi magic. Ia bahkan tidak memakai baju besi seperti manusia atau iblis normal. Itu benar-benar berbeda dari apa pun yang aku baca di buku.
 
-"Haiiii !!"
+"Hiiiiii !!"
 
-"Itu!"
+"ITU!"
 
-Saya ingat iblis itu. Yang berdiri di depan yang menyerang kami di tempat latihan. Dan juga yang membuat Souichi pingsan dengan satu serangan.
+aku ingat iblis itu. itu adalah iblis Yang menyerang kami di tempat latihan. Dan juga yang membuat Souichi pingsan dengan satu serangan.
 
-Meskipun O'brien-san dan yang lain mencoba menahannya, tidak ada artinya di sini. Menyadari apa artinya itu, aku dengan cepat menggelengkan kepala. Pikirkan, tentang situasi yang dihadapi terlebih dahulu!
+Meskipun O'brien-san dan yang lain mencoba menahannya, dia berdiri di sini. Menyadari apa artinya itu, aku dengan cepat menggelengkan kepala. Pikirkan, tentang situasi yang dihadapi terlebih dahulu!
 
-Tetapi ketika melihat para Imam melarikan diri, dan yang terluka tergeletak di sekitar, tubuh saya menolak untuk bergerak. Apakah ketakutan ini, atau sesuatu yang lebih dalam? Tidak bisa menggerakkan tatapanku, aku memandangi iblis itu. Dan untuk beberapa alasan, rasanya mata majemuk iblis itu ——— menatapku.
+Tetapi ketika melihat para priest melarikan diri, dan yang terluka tergeletak di sekitar, tubuhku menolak untuk bergerak. Apakah ini ketakutan, atau sesuatu yang lebih dalam? Tidak bisa menggerakkan tatapanku, aku memandangi iblis itu. Dan untuk beberapa alasan, rasanya mata iblis itu ——— menatapku.
 
 Detik berikutnya, kesatria itu bergegas menuju iblis dengan senjata mereka. Tiga di antaranya. Karena orang-orang yang terluka tergeletak di sekitar dan sofa-sofa di katedral, mustahil bagi terlalu banyak untuk bertarung sekaligus.
 
