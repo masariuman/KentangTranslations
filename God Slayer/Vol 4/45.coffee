@@ -400,9 +400,9 @@ Hanya saja …… suara mereka sama. Ini seperti berbicara dengan orang yang sam
 
 "Ya, tapi ..."
 
-Akan sangat memalukan, tapi saya rasa saya tidak bisa menahannya. Untuk saat ini, saya memutuskan untuk membuat hukuman Anastasia 3 kali lebih keras dan mencari bel untuk memanggil pelayan.
+Akan sangat memalukan, tapi mau gimana lagi. aku memutuskan untuk menghukum Anastasia 3 kali lebih keras dan mencari bel untuk memanggil pelayan.
 
-Karena saya jarang menggunakannya, saya tidak tahu di mana itu dan butuh beberapa menit untuk menemukannya. Bel disimpan tepat di tengah meja di tengah ruangan. Bagaimana aku bisa melewatkan itu?
+Karena aku jarang menggunakannya, aku tidak tahu di mana dan butuh beberapa menit untuk menemukannya. Bel disimpan tepat di tengah meja di tengah ruangan. Bagaimana aku bisa melewatkan itu?
 
 Saya memanggil pelayan untuk mengambil saya air tetapi wajahnya lebih terkejut daripada geli. Yah, kurasa melihat seorang pria yang baru saja bangun dengan mencoret-coret wajahnya akan lebih mengejutkan daripada membuat mereka tertawa?
 
