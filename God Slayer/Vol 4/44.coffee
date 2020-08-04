@@ -164,19 +164,19 @@ Tapi ternyata teman-temanku menganggapnya terampil. Tentu saja, aku telah memoto
 
 "Aku pikir kata 'terampil' tidak cocok untukku."(renji)
 
-Saat aku mengatakan itu sambil menggaruk kepalaku, Ms Francesca dan Mururu menatapku dengan tatapan kosong. Feirona, melihatku bermasalah dengan tatapan mereka, hanya tersenyum. Hanya Solnea, yang menatapku dengan wajah tanpa ekspresi seperti biasanya.
+Saat aku mengatakan itu sambil menggaruk kepalaku, nona Francesca dan Mururu menatapku dengan tatapan kosong. Feirona, melihatku bermasalah dengan tatapan mereka, hanya tersenyum. Hanya Solnea, yang menatapku dengan wajah tanpa ekspresi seperti biasanya.
 
 [Kamu banyak dipercaya, eh?]
 
-"Serius."
+"haaah~...."
 
-Saya kurang percaya diri bahkan pada kata-kata yang saya jawab untuk Ermenhilde. Benar, saya mengalami perjalanan yang sangat berbahaya untuk pergi dan membunuh Dewa Setan dan hidup. Saya tumbuh lebih daripada petualang mana pun yang bisa saya pikirkan. Ini bukan permainan atau manga tapi melawan orang yang lebih kuat, pengalaman dari perjalanan, mereka semua adalah salah satu dari sedikit kekuatan saya.
+aku kurang percaya diri bahkan pada ketika menjawab Ermenhilde. Benar, aku mengalami perjalanan yang sangat berbahaya untuk pergi dan membunuh Dewa iblis dan masih hidup sampai sekarang. aku berkembang lebih daripada petualang mana pun yang bisa aku pikirkan. Ini bukan permainan atau manga tapi melawan orang yang lebih kuat, pengalaman dari perjalanan, mereka semua adalah salah satu dari sedikit kekuatanku.
 
-Dan itu sama dengan Ms. Francesca. Dia mengalami bahaya dan perjalanan, petualang pemula yang baru tidak akan pernah bisa menerimanya. Seorang keturunan Dewa Setan, penyergapan dari Setan, pertemuan di hutan jiwa yang membusuk. Sudah cukup pengalaman untuk sepenuhnya mengubah seseorang.
+Dan itu sama dengan nona Francesca. Dia mengalami bahaya dan perjalanan, petualang pemula yang baru tidak akan pernah bisa sepertinya. Seorang keturunan Dewa iblis, penyergapan dari iblis, kejadian di hutan jiwa yang membusuk. itu Sudah cukup pengalaman untuk mengubah seseorang.
 
-"Yah, aku senang kamu memperhatikan pedangku."
+"Yah, aku senang kamu memperhatikan pedangku."(renji)
 
-"Eh?"
+"Eh?"(fran)
 
 "Betulkah. Kamu telah tumbuh begitu banyak sejak kita bertemu. ”
 
