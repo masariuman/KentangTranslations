@@ -320,17 +320,17 @@ Mendengar tawaan tiba-tiba dari suara yang sangat akrab, aku menoleh untuk melih
 
 [Tapi sepertinya tidak seperti itu bagiku?]
 
-Tapi suaranya yang menikmatinya tiba-tiba terdiam.
+suaranya tiba-tiba terdiam.
 
-[Kamu membuat banyak suara saat tidur, kamu tahu?]
+[Kamu banyak mengigau lho...]
 
-"Karena aku punya mimpi yang bagus."
+"Karena aku bermimpi bagus."
 
 [Oi.]
 
 "Yah, itu mungkin karena Anastasia terlalu berat."
 
-Mengatakan itu, aku berdiri dari tempat tidur.
+aku berdiri dari tempat tidur.
 
 Tiba-tiba menjadi ingin tahu tentang anastasia, saya melihat ke bawah tempat tidur tetapi dia tidak ada lagi. Sementara saya bingung, saya mendengar suara jendela saya terbuka. Sepertinya saat aku melihat ke bawah, dia berlari keluar ruangan. Untuk menggunakan jendela, caranya seperti peri.
 
