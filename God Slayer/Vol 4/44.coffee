@@ -134,35 +134,35 @@ Untuk memastikan aku bertanya kepada Mururu dan dia memberikan balasan langsung.
 
 "Itulah yang kupikirkan juga. Pedangku adalah—– "(renji)
 
-"Pedang Renji jauh lebih ahli." (Mururu)
+"cara berPedang Renji jauh lebih jago." (Mururu)
 
-—Tidak semegah itu. Sebelum aku bisa mengatakan itu, Mururu memotong kata-kataku.
+—Tidak sehebat itu. Sebelum aku bisa mengatakan itu, Mururu memotong kata-kataku.
 
 "Seperti yang dikatakan Mururu-chan ......" (fran)
 
-"Kau benar-benar mendapatkan tanda kelulusan menurutku. Bagaimana menurutmu, hai tuan yang agung? ”(Peri)
+"Kau juga ok menurut penilaianku. Bagaimana menurutmu, hai tuan yang agung?"(fei)
 
-"Siapa yang kamu panggil aster? Saya tidak ingat mengajarkan pedang kepada siapa pun. ”(Renji)
+"Siapa yang kamu panggil tuan? aku tidak ingat mengajarkan pedang kepada siapa pun."(Renji)
 
-“…… Uuu.”
+"…… Uuu."
 
-Saat Ms Francesca mengerang, Mururu memelototiku. Kalian berdua benar-benar berhubungan baik. Sementara merasa sedikit iri, aku berpikir tentang bagaimana menjawabnya.
+Saat nona Francesca mengerang, Mururu memelototiku. Kalian berdua benar-benar berhubungan baik. aku merasa sedikit iri dan aku berpikir tentang bagaimana menjawabnya.
 
-Atau lebih tepatnya, saya merasa bahwa dia sudah sangat luar biasa. Setidaknya, dibandingkan dengan keterampilan pedangku sendiri dalam tiga bulan pertama belajar, aku bahkan tidak tahu apa sebenarnya posisi pedang, aku hanya mengayunkan pedang itu dengan putus asa. Dan tidak peduli seberapa banyak saya belajar mengayunkannya, dalam pertempuran yang sebenarnya, saya hampir tidak bisa menggunakannya. Sebagai seseorang yang tahu itu, saya bisa tahu berapa banyak usaha yang harus dilakukan Ms. Francesca dalam pelatihannya. Apa tanda kelulusan, saya hanya bisa memikirkan memuji dia dengan sangat.
+Atau lebih tepatnya, aku merasa bahwa dia sudah sangat luar biasa. Setidaknya, dibandingkan dengan skill pedangku sendiri ketika aku baru tiga bulan belajar, aku bahkan tidak tahu cara mengarahkan pedang, aku hanya mengayunkan pedang itu dengan putus asa. Dan tidak peduli seberapa banyak aku belajar mengayunkannya, dalam pertempuran yang sebenarnya, aku hampir tidak bisa menggunakannya. Sebagai seseorang yang tahu itu, aku bisa tahu berapa banyak usaha yang harus dilakukan nona Francesca dalam pelatihannya. apanya yang harus diberikan, aku hanya bisa memikirkan hanya memuji dia saja.
 
 "Pertama-tama, aku tidak merasa pedangku setajam itu." (Renji)
 
-"Betulkah?"
+"benarkah?"
 
-“Pedangku masih sangat canggung dan canggung. Aku baru mempelajarinya dengan mati-matian mengayunkan pedang sambil melawan monster yang jauh lebih kuat. Meskipun saya telah diajarkan dasar-dasarnya, itu hanya selama satu bulan. ”
+“Pedangku masih sangat canggung dan aneh. Aku hanya mempelajarinya dengan mati-matian mengayunkan pedang sambil melawan monster yang jauh lebih kuat. Meskipun aku telah diajarkan dasar-dasarnya, itu hanya selama satu bulan."
 
-Selain itu, ada goblin, orc, lizardmen, zombie, hawkmen, vampir dan musuh humanoid lainnya dan juga pengkhianat, Garm, golem, chimaeras, naga, dan makhluk gila lainnya. Dan setelah bertarung dengan mereka, berusaha menjaga diriku agar tetap hidup, aku terus mengayunkan pedangku dan akhirnya berubah menjadi diriku yang sekarang. Itu tidak bisa disebut terampil, masih sangat canggung. Setidaknya, kurasa begitu.
+Selain itu, ada goblin, orc, lizardmen, zombie, hawkmen, vampir dan musuh humanoid lainnya dan juga treant, Garm, golem, chimaeras, naga, dan makhluk gila lainnya. Dan setelah bertarung dengan mereka, berusaha menjaga diriku agar tetap hidup, aku terus mengayunkan pedangku dan akhirnya berubah menjadi diriku yang sekarang. Itu tidak bisa disebut terampil, masih sangat canggung. Setidaknya, kurasa begitu.
 
-Tapi ternyata kawan-kawan saya menganggapnya terampil. Tentu saja, saya telah memotong musuh yang tak terhitung jumlahnya dari berbagai jenis dengan itu tetapi masih, rasanya agak memalukan untuk diberitahu itu.
+Tapi ternyata teman-temanku menganggapnya terampil. Tentu saja, aku telah memotong musuh yang tak terhitung jumlahnya tetapi tetap saja, rasanya agak memalukan untuk dibilang seperti itu itu.
 
 [fufufu.]
 
-"Aku pikir kata 'terampil' tidak cocok untukku."
+"Aku pikir kata 'terampil' tidak cocok untukku."(renji)
 
 Saat aku mengatakan itu sambil menggaruk kepalaku, Ms Francesca dan Mururu menatapku dengan tatapan kosong. Feirona, melihatku bermasalah dengan tatapan mereka, hanya tersenyum. Hanya Solnea, yang menatapku dengan wajah tanpa ekspresi seperti biasanya.
 
