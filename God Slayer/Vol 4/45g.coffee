@@ -428,4 +428,9 @@ Seolah membalas kepadaku, tawa kecil bergema di kepalaku.
 
 [Mungkin memang begitu, kurasa.]
 
-Dan, dia mengatakan itu.
+Dan, dia berkata seperti itu.
+
+
+--------------------
+
+masariuman : aaaaaaaa jangan-jangan eru itu si dewinya ? atau pelayan dewi nya ???????????? aaaaaaaaa... saya penasaran
