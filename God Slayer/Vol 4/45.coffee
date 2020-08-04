@@ -42,21 +42,21 @@ Tapi, ada tangan kecil yang menarik tanganku.
 
 Itu adalah Hiyuu-chan. Orang yang membuatku sadar adalah gadis kecil dengan mata penuh kecemasan dan kegelisahan.
 
-Aah, benar juga. Saya tidak bisa kehilangan ketenangan saya sekarang. Akulah yang memegang tangan gadis ini. Bagaimana saya bisa menjadi orang yang cemas?
+Aah, benar juga. aku tidak boleh kehilangan ketenanganku sekarang. Akulah yang memegang tangan gadis ini. Bagaimana aku bisa menjadi orang yang cemas?
 
 "Hiyuu-chan, mari kita istirahat."
 
-Menutup pintu besar itu, aku mengatakan itu padanya. Menyerahkan Souichi-kun ke salah satu Pendeta yang datang khawatir kepada kami saat kami masuk, aku menuju jauh ke dalam dengan Hiyuu-chan. Ketika saya mencari tempat untuk duduk di lantai yang penuh dengan handuk, selimut, dan alat-alat medis dan barang-barang, saya dadaku mengencang.
+aku mengatakan itu padanya dambil menutup pintu. aku Menyerahkan Souichi-kun ke salah satu priest yang datang kepada kami saat kami masuk dan aku menuju jauh ke dalam dengan Hiyuu-chan. Ketika aku mencari tempat untuk duduk di lantai yang penuh dengan handuk, selimut, dan alat-alat medis dan barang-barang, aku dadaku mengencang.
 
-Meskipun aku dipanggil untuk bertarung, aku lari seperti ini. Fakta itu mengejutkan saya seperti duri. Di bagian paling dalam dari katedral adalah patung perak dewi dan beberapa imam berdoa kepadanya. Tetapi dia tidak akan menjawab doa-doa itu. Dia bahkan tidak ada di dunia ini dan hanya mengawasi dunia ini dari tempat yang berbeda ........ mungkin.
+Meskipun aku dipanggil untuk bertarung, aku lari seperti ini. Fakta itu menusukku seperti duri. Di bagian paling dalam dari katedral adalah patung perak dewi dan beberapa priest berdoa kepadanya. Tetapi dia tidak akan menjawab doa-doa itu. Dia bahkan tidak ada di dunia ini dan hanya mengawasi dunia ini dari tempat yang berbeda ........ mungkin.
 
-Di dekat patung itu, melihat sofa yang kosong, aku duduk. Hiyuu-chan juga duduk di sampingku. Karena longsword di belakang adalah halangan, aku melemparkannya ke tanah membuat suara berdentang. Melihat ke sampingku, ke arah Hiyuu-chan, rambut putihnya, khas albino, menempel di wajahnya karena keringat dan dia terengah-engah cepat-cepat. Kami berlari sangat banyak sehingga bahkan saya, seorang dewasa, lelah, saya hanya bisa membayangkan berapa banyak stamina yang harus dia konsumsi. Menyadari bahwa saya bahkan tidak memikirkan kesejahteraannya saat berlari, saya hanya merasa lebih sedih.
+Di dekat patung itu, aku duduk di kursi yang kosong. Hiyuu-chan juga duduk di sampingku. Karena pedang panjang di belakangku menghalangkiku, aku melemparkannya ke tanah dan membuat suara berdentang. Melihat ke sampingku, ke arah Hiyuu-chan, rambut putihnya, khas albino, keringat menempel di wajahnya dan dia terengah-engah. Kami berlari terlalu banyak sehingga bahkan aku, orang dewasa, kelelahan. aku hanya bisa membayangkan berapa banyak stamina yang harus dia konsumsi. Menyadari bahwa aku bahkan tidak memikirkannya saat berlari, aku hanya merasa lebih sedih.
 
-"Apakah kamu .... Oke?" (Yui)
+"Apakah kamu .... baik-baik saja?" (Yui)
 
-"Ya, kamu, Hiyuu-chan?"
+"Ya, kalau kamu Hiyuu-chan?"
 
-"...... Aku baik-baik saja ... juga."
+"...... Aku.... juga..... baik-baik saja ...."
 
 Hanya dari kata-kata kecil itu, aku merasa hatiku sedikit lebih ringan. Tapi tetap saja, kepalaku sakit memikirkan apa yang harus dilakukan selanjutnya.
 
