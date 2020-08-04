@@ -98,13 +98,13 @@ Meskipun O'brien-san dan yang lain mencoba menahannya, dia berdiri di sini. Meny
 
 Tetapi ketika melihat para priest melarikan diri, dan yang terluka tergeletak di sekitar, tubuhku menolak untuk bergerak. Apakah ini ketakutan, atau sesuatu yang lebih dalam? Tidak bisa menggerakkan tatapanku, aku memandangi iblis itu. Dan untuk beberapa alasan, rasanya mata iblis itu ——— menatapku.
 
-Detik berikutnya, kesatria itu bergegas menuju iblis dengan senjata mereka. Tiga di antaranya. Karena orang-orang yang terluka tergeletak di sekitar dan sofa-sofa di katedral, mustahil bagi terlalu banyak untuk bertarung sekaligus.
+Detik berikutnya, 3 kesatria bergegas menuju iblis dengan senjata mereka. Karena orang-orang yang terluka tergeletak di sekitar dan di kursi katedral, mustahil semuanya bisa bertarung sekaligus.
 
-Tetapi sebelum para ksatria bahkan bisa menyerangnya, iblis itu mengarahkan lengan kanannya ke arah para ksatria. Dan hanya dengan ayunan lengannya, darah menyembur ke udara. Seolah-olah bayangan itu memegang kehendaknya sendiri, itu cocok dengan gerakan lengan iblis dan memotong para ksatria.
+Tetapi sebelum para ksatria bahkan bisa menyerangnya, iblis itu mengarahkan lengan kanannya ke arah para ksatria. Dan hanya dengan ayunan lengannya, darah menyembur ke udara. Seolah-olah bayangannya hidup, bayangannya cocok dengan gerakan lengan iblis dan memotong para ksatria.
 
-Bukan hanya darah yang terbang. Daging —– anggota badan, batang tubuh, potong baju zirah, semuanya terbang di udara.
+Bukan hanya darah yang terbang. Daging —– anggota badan, tubuh, potong baju zirah, semuanya terbang di udara.
 
-Dengan panik, aku memblokir mata Hiyuu-chan dengan tanganku, tapi aku terlalu lambat. Seolah-olah dia kehilangan semua kekuatan, tubuhnya tertatih-tatih ke arahku. Dia pingsan.
+Dengan panik, aku menutup mata Hiyuu-chan dengan tanganku, tapi aku terlalu lambat. Seolah-olah dia kehilangan semua kekuatan, tubuhnya tersandar ke arahku. Dia pingsan.
 
 "Hiyuu-chan!?!"
 
