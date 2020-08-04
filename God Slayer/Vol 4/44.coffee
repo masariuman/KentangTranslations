@@ -14,39 +14,39 @@ Saya penasaran apakah saya satu-satunya yang merasa enak melihat makanan perlaha
 
 Dia tersenyum lebar dan itu sedikit membingungkanku. Tapi, akan aneh untuk memikirkan hal-hal seperti itu dan tidak makan, jadi aku juga menggerakkan sumpitku ke piring. Pesananku adalah Soba. Solnea juga memesan hidangan yang sama, dan saat ini berusaha untuk menggunakan sumpit dan memakannya. Jika itu sulit, kamu bisa menggunakan garpu seperti Mururu lho... Ya, aku menyuruhnya menggunakan garpu, tetapi untuk beberapa alasan dia tampak bersikeras menggunakan sumpit saja. aku tidak mengerti mengapa dia menjadi begitu terobsesi dengan itu tetapi jika dia sendiri menginginkannya, aku pikir itu baik-baik saja walaupun Agak frustasi menontonnya. Mie akan mulai mengembang jadi aku harap dia tidak makan terlalu lama.
 ---------
-nona Francesca dan Feirona tampaknya bukan tipe petualang dalam mencoba makanan karena mereka masih memesan hidangan jenis spaghetti yang sudah umum di dunia ini. Mereka berdua, tentu saja, menggunakan garpu dan makan dengan anggun mungkin. Serius, keduanya terlihat baik apa pun yang mereka lakukan. Solnea adalah …… yah, melihat seorang wanita cantik yang kesulitan makan makanan mungkin punya daya tarik tersendiri karena agak mengejutkan, kurasa?
+nona Francesca dan Feirona tampaknya bukan tipe yang suka mencoba makanan karena mereka masih memesan hidangan jenis spaghetti yang sudah umum di dunia ini. Mereka berdua, tentu saja, makan dengan anggun menggunakan garpu. keduanya terlihat bagus apa pun yang mereka lakukan. Solnea …… yah, melihat seorang wanita cantik yang kesulitan makan mungkin punya daya tarik tersendiri karena agak mengejutkan, kurasa?
 
-Selain itu, ada juga hidangan yang digoreng dan sayur di atas meja. Yang pertama adalah, Sashimi? Hidangan jenis ikan langka di dunia ini, mungkin tidak lebih dari ikan sungai yang digoreng dan dimakan adalah yang bisa saya pikirkan. Laut adalah wilayah monster, jadi pekerjaan seperti nelayan bahkan tidak ada. Bahkan di Kota Ilmu Pengetahuan Komersial yang terletak di pantai, ikan air asin sangat jarang dijual. Mereka tidak ada tetapi jumlah dan variasi terlalu rendah. Dengan demikian, hidangan berdasarkan ikan jarang. Bahkan, mungkin ada orang di daratan yang bahkan tidak menyadari bahwa laut dan laut pun memiliki ikan sendiri. Dan, untuk orang-orang seperti itu, hidangan di mana Anda harus makan ikan pada dasarnya mentah mungkin bukan ide mereka 'segar'. Dan benar, hanya aku, yang memesannya, yang sedang makan hidangan.
+Selain itu, ada juga hidangan yang digoreng dan sayur di atas meja. Yang pertama adalah, Sashimi? Hidangan jenis ikan langka di dunia ini, mungkin terbuat dari ikan sungai yang digoreng dan dimakan. Laut adalah wilayah monster, jadi pekerjaan seperti nelayan bahkan tidak ada. Bahkan di Kota sains Komersial yang terletak di pantai, ikan air asin sangat jarang dijual. Mereka ada tetapi jumlah dan variasi terlalu sedikit. Dengan demikian, hidangan berdasarkan ikan sangat jarang. Bahkan, mungkin ada orang di daratan yang bahkan tidak menyadari bahwa laut dan samudra pun memiliki ikan sendiri. Dan, untuk orang-orang seperti itu, hidangan di mana kamu memakan ikan mentah mungkin tidak 'segar' bagi mereka. Dan benar, hanya aku, yang memesannya, yang sedang memakan hidangan tersebut.
 
-"Tapi tetap saja, siapa yang mengira bahwa masakan dari dunia lain akan begitu lezat." (Elf)
+"Tapi tetap saja, siapa yang mengira bahwa masakan dari dunia lain akan begitu lezat." (fei)
 
-"Sashimi juga cantik, kau tahu?"
+"Sashimi juga enak lho.."
 
-“…… ..Apakah itu seharusnya dimakan mentah?”
+"…… ..Apakah itu memang harus dimakan mentah?"
 
-"Yah begitulah. Jika kita memiliki wasabi untuk digunakan, itu akan menjadi sempurna. ”
+"Yah begitulah. Jika kita memiliki wasabi, itu akan menjadi sempurna."
 
-"Aku tidak benar-benar mengerti tetapi jika kamu mengatakannya, terserahlah."
+"Aku tidak benar-benar mengerti tetapi jika kamu yang mengatakannya, terserahlah."
 
-Sepertinya dia benar-benar tidak punya niat untuk mencobanya. Bagi Feirona yang tinggal di hutan, makanan laut seperti ini dengan sendirinya akan menjadi langka. Dia bahkan tidak mencoba yang goreng yang terbuat dari daging ikan cincang baik.
+Sepertinya dia benar-benar tidak punya niat untuk mencobanya. Bagi Feirona yang tinggal di hutan, makanan laut seperti ini akan menjadi langka. Dia bahkan tidak mencoba ikan yang digoreng.
 
-Sambil tersenyum masam saat aku mengulurkan sumpitku ke arah Sahsimi, Ms Francesca dan SOlnea juga mengulurkannya ke arah itu.
+Sambil tersenyum kecut saat aku mengarahkan sumpitku ke arah Sahsimi, nona Francesca dan SOlnea juga mengarahkannya ke arah itu.
 
 "Oh."
 
-"Apa itu?"
+"ada apa?"
 
 "Tidak, tidak ada."
 
-Keduanya tampaknya tidak menunjukkan banyak ketidaksetujuan terhadap Sashimi. Mungkin mereka hanya mencobanya sejak saya memakannya. Francesca menggunakan garpunya untuk memotongnya dan dengan canggung Solnea, sambil gemetaran, menggunakan sumpitnya untuk meletakkan beberapa di piring kecilnya.
+Keduanya tampaknya tidak menolak Sashimi. Mungkin mereka hanya mencobanya karena aku memakannya. noja Francesca menggunakan garpunya untuk memotongnya dan Solnea, sambil gemetaran, menggunakan sumpitnya untuk mengambilnya dan meletakkannya di piring kecilnya.
 
-"Di mana aku tinggal, Sashimi dianggap sebagai barang kelas tinggi lho?"
+"Di tempat tinggalku dulu, Sashimi dianggap sebagai barang kelas tinggi lho?"(renji)
 
-"Benarkah?"
+"Benarkah?"(fran)
 
-“Karena bagaimanapun dimakan mentah. Karena tingkat kesegaran sangat berarti, berbagai metode yang merepotkan harus digunakan untuk menjaga kesegarannya. ”
+"Karena itu dimakan mentah dan tingkat kesegaran sangat berarti, berbagai metode yang merepotkan harus digunakan untuk menjaga kesegarannya."
 
-"Berbagai metode?"
+"Berbagai metode?"(fran)
 
 "Yup, berbagai metode."
 
