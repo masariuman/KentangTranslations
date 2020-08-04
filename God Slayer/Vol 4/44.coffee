@@ -130,9 +130,9 @@ Aku diajar oleh O'brien-san, tapi nyatanya aku tidak menggunakan gaya pedangnya 
 
 "Tidak sama sekali." (Mururu)
 
-Untuk memastikan saya bertanya kepada Mururu dan dia memberikan balasan instan. Saya setuju juga.
+Untuk memastikan aku bertanya kepada Mururu dan dia memberikan balasan langsung. aku setuju juga.
 
-“Itulah yang kupikirkan juga. Pedangku adalah—– “(renji)
+"Itulah yang kupikirkan juga. Pedangku adalah—– "(renji)
 
 "Pedang Renji jauh lebih ahli." (Mururu)
 
