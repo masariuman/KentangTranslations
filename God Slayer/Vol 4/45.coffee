@@ -386,7 +386,7 @@ Suaranya tidakasing ........ sama seperti ketika dia(eru) khawatir tentang sesua
 
 Haruskah aku bertanya lebih dalam?
 
-Saya memikirkannya sebentar, tetapi memutuskan untuk tidak melakukannya pada akhirnya. Jika ada masalah, dia akan bertanya pada saya sendiri. Sambil memikirkan itu, saya mengubah pikiran saya kembali ke masalah yang dihadapi. Apakah saya hanya berlari, atau ini kepercayaan saya padanya?
+aku memikirkannya sebentar, tetapi memutuskan untuk tidak melakukannya. Jika ada masalah, dia akan bertanya padaku sendiri. Sambil memikirkan itu, aku mengubah pikiranku kembali ke masalah yang dihadapi. Apakah aku hanya berlari, atau ini kepercayaanku padanya?
 
 Mungkin yang pertama, saya pikir.
 
