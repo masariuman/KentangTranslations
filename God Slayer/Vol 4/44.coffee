@@ -178,15 +178,15 @@ Dan itu sama dengan nona Francesca. Dia mengalami bahaya dan perjalanan, petuala
 
 "Eh?"(fran)
 
-"Betulkah. Kamu telah tumbuh begitu banyak sejak kita bertemu. ”
+"serius, Kamu telah berkembang begitu banyak dari pertama kali kita bertemu."
 
-"Mouu, tolong cukupkan itu!"
+"Mouu, sudah cukup!"
 
-Hahahaha. Saya tidak ingin diri saya menjadi satu-satunya yang merasa malu jadi saya memutuskan untuk melibatkan Ms. Francesca juga. Mengingat Ibu Francesca saat itu, dan wajahnya yang menangis setelah hampir mati karena goblin, hatiku terasa lebih ringan. Aah, ini menenangkanku.
+Hahahaha. aku tidak ingin diriku menjadi satu-satunya yang merasa malu jadi aku memutuskan untuk melibatkan nona Francesca juga. Mengingat nona Francesca saat itu, dan wajahnya yang menangis setelah hampir mati karena goblin, hatiku terasa lebih ringan. Aah, ini menenangkanku.
 
-[Kamu benar-benar pengganggu / pria jahat.]
+[Kamu benar-benar pembully / pria jahat.]
 
-Bukankah itu normal untuk saya?
+Bukankah itu normal untukku?
 
 Ketika saya menggoda Ms Francesca sambil makan Surimi (T / N: ikan cincang.), Feirona dan Mururu tertawa kecil. Mungkin, mereka sudah memperhatikan rasa malu saya juga. Apakah saya mudah dimengerti?
 
