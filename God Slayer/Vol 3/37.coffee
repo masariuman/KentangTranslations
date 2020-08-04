@@ -566,5 +566,3 @@ apakah aku berhalusinasi? tapi,a ku merasa kalau suara itu memberikanku sedikit 
 [..........................Apa??]
 
 sambil slah mengira caraku menggunakan keberanianku, walaupun begitu, aku akan melunasinya...
-
-<gambar> vol4 20.png
