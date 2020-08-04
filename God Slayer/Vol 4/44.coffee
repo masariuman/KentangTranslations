@@ -188,29 +188,29 @@ Hahahaha. aku tidak ingin diriku menjadi satu-satunya yang merasa malu jadi aku 
 
 Bukankah itu normal untukku?
 
-Ketika saya menggoda Ms Francesca sambil makan Surimi (T / N: ikan cincang.), Feirona dan Mururu tertawa kecil. Mungkin, mereka sudah memperhatikan rasa malu saya juga. Apakah saya mudah dimengerti?
+Ketika aku mengganggu nona Francesca sambil makan Surimi, Feirona dan Mururu tertawa kecil. Mungkin, mereka sudah menyadari rasa maluku juga. Apakah aku mudah dimengerti? (masariuman: surimi itu ikan yang dicincang ya.. bukan indomie sarimi, apalagi yang isi 2.. bukan..)
 
-“Jadi, apakah Surimi enak?” (Renji)
+"Jadi, apakah Surimi enak?" (Renji)
 
-"Itu aneh. Memang enak karena saya terus menggigit. ”(Mururu)
+"rasanya aneh. tapi itu terasa enak kalau aku mengunyahnya terus."(Mururu)
 
-"Haha, itu aneh sekali."
+"Haha, itu memang aneh sekali."
 
-Itu harus menjadi tekstur makanan baru untuknya, karena Mururu membuat wajah yang rumit saat makan. Ketika saya tertawa melihat wajahnya, saya ditendang di bawah meja. Tendangan itu tidak memiliki kekuatan untuk itu sehingga tidak sakit sama sekali.
+Itu pasti menjadi tekstur makanan baru untuknya, karena Mururu membuat wajah yang rumit saat makan. Ketika aku tertawa melihat wajahnya, aku ditendang di bawah meja. Tendangan itu tidak memiliki kekuatan sehingga tidak sakit sama sekali.
 
 [Apa yang sedang kalian lakukan?]
 
-“…… .messing sekitar?” (Renji)
+“…… .bermain-main?” (Renji)
 
-"Apa itu?" (Mururu)
+"ada apa?" (Mururu)
 
 "Tidak apa."
 
-Ketika saya memberikan jawaban kepada Erenhilde, Mururu bereaksi terhadapnya sehingga saya hanya memberikan jawaban yang samar-samar untuk itu. Ms francesca dengan senang hati memandang kami, melakukan percakapan seperti ini. Mururu pasti menyadari bahwa aku sedang berbicara dengan Ermenhilde. Baru-baru ini, indranya tentang hal itu semakin tajam.
+Ketika aku memberikan jawaban kepada Erenhilde, Mururu bereaksi sehingga aku hanya memberikan jawaban yang samar-samar untuknya. nona francesca dengan senang memandang kami. Mururu pasti menyadari bahwa aku sedang berbicara dengan Ermenhilde. Baru-baru ini, indranya tentang hal itu semakin tajam.
 
-Dan pada akhirnya, suasananya tetap seperti biasa ketika kami berbicara dan tertawa, daripada membuatnya terasa seperti perayaan kemenangan yang sebenarnya, saat kami selesai makan. Yah, sebagian besar Mururu yang makan. Solnea tampaknya cukup pemakan besar juga, tetapi masih belum cocok untuk Mururu. Konon, Solnea masih makan lebih banyak daripada Ms Francesca.
+Dan pada akhirnya, suasananya tetap seperti biasa ketika kami berbicara dan tertawa, daripada membuatnya terasa seperti perayaan kemenangan. Yah, sebagian besar Mururu yang makan. Solnea tampaknya cukup banyak makan juga, tetapi dibawah Mururu. tapi Solnea masih makan lebih banyak daripada nona Francesca.
 
-Ketika kami membayar tagihan dan meninggalkan gedung, saya menggigil dari udara dingin di lorong yang kosong. Aku mungkin harus pergi dan menyapa Toudou juga, tapi aku merasa tidak enak membuat orang lain menungguku jadi aku memutuskan untuk tidak melakukannya. Ya, saya bisa bertemu kapan saja saya mau nanti, jadi tidak apa-apa.
+Ketika kami membayar tagihan dan meninggalkan gedung, aku menggigil dari udara dingin di lorong yang kosong. Aku mungkin harus pergi dan menyapa Toudou juga, tapi aku merasa tidak enak membuat orang lain menungguku jadi aku memutuskan untuk tidak melakukannya. Ya, saya bisa bertemu kapan saja saya mau nanti, jadi tidak apa-apa.
 
 “Babak utama turnamen akan segera dimulai. Kamu pikir kamu bisa menang? ”(Peri)
 
