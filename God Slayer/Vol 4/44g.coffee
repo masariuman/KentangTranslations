@@ -1,6 +1,6 @@
 Babak 44 Turnamen pertarungan (3)
 
-Saya penasaran apakah saya satu-satunya yang merasa enak melihat makanan perlahan berkurang dari hidangan yang banyak yang diatur di atas meja. Aku melihat Mururu memakan Udon dengan garpu setelah meletakkan sumpit yang sulit. Setelah beberapa saat, Mururu, yang hanya fokus pada makanannya, menyadari tatapanku dan menatapku.
+aku penasaran apakah aku satu-satunya yang merasa enak melihat makanan perlahan berkurang dari hidangan yang banyak yang diatur di atas meja. Aku melihat Mururu memakan Udon dengan garpu setelah meletakkan sumpit yang sulit. Setelah beberapa saat, Mururu, yang hanya fokus pada makanannya, menyadari tatapanku dan menatapku.
 
 "…… Apa?" (Mururu)
 
@@ -8,7 +8,7 @@ Saya penasaran apakah saya satu-satunya yang merasa enak melihat makanan perlaha
 
 "itu karena Enak sekali."
 
-"Yah, aku senang mendengarnya. Itu dibuat oleh temanku jadi mendengarnya juga  membuat saya senang juga. "
+"Yah, aku senang mendengarnya. Itu dibuat oleh temanku jadi mendengarnya juga membuatku senang juga. "
 
 "begitu."
 
@@ -76,7 +76,7 @@ Dan benar saja, ekspresi nona Francesca membeku sepenuhnya. Aku terbatuk dan men
 
 "Yah, seperti itulah."
 
-"Kau benar-benar pembuli lho......" (Elf)
+"Kau benar-benar pembuli lho......" (fei)
 
 Aku hanya mengangkat bahu karena kata-kata Feirona. Lawanku sudah diputuskan yaitu Souichi. Tapi aku satu-satunya yang tahu itu. Jadi aku boleh mengganggunya sedikit, kan? Mungkin aku sedikit sedih karena dia sudah berkembang tanpa aku sadari.
 
@@ -106,7 +106,7 @@ dia Mencoba menaklukkan goblin meskipun dia tidak memiliki pengalaman, hampir ma
 
 "Tidak, jika bukan karena Renji-sama, aku tidak akan pernah memenuhi mimpiku untuk tampil di ronde utama turnamen pertarungan."
 
-Saya hanya bercanda ketika aku berbicara tentang waktu itu lho...  Tapi sepertinya ketakutan yang dia rasakan saat itu masih berada pada dirinya. yaaah berkat saat itu dia bisa memberikan yang terbaik dan tanpa sembrono dan menempatkan dirinya dalam bahaya sekarang. Bahkan setelah bisa bertarung dengan monster di dekat ibukota dan bahkan setelah memasuki babak utama turnamen pertarungan, dia belum merasa sombong. Bisa dibilang dia dewasa dengan cara yang sangat baik.
+aku hanya bercanda ketika aku berbicara tentang waktu itu lho...  Tapi sepertinya ketakutan yang dia rasakan saat itu masih berada pada dirinya. yaaah berkat saat itu dia bisa memberikan yang terbaik dan tanpa sembrono dan menempatkan dirinya dalam bahaya sekarang. Bahkan setelah bisa bertarung dengan monster di dekat ibukota dan bahkan setelah memasuki babak utama turnamen pertarungan, dia belum merasa sombong. Bisa dibilang dia dewasa dengan cara yang sangat baik.
 
 "dan Juga, kamu harus berterima kasih kepada Feirona karena membantumu menang daripada aku." (Renji)
 
@@ -252,7 +252,7 @@ aku menjawab dengan kasar tetapi aku tidak bisa menahannya sehingga aku merasa m
 
 "……..maksudnya ?"
 
-Karena itu, saya membalas Feirona dengan suara yang agak kuat juga. Tetapi tanpa memperhatikan hal itu, Feirona melanjutkan.
+Karena itu, aku membalas Feirona dengan suara yang agak kuat juga. Tetapi tanpa memperhatikan hal itu, Feirona melanjutkan.
 
 "Kamu sama sekali tidak seperti pahlawan." (fei)
 
@@ -320,7 +320,7 @@ tidak. aku meneriakkan itu di dalam hatiku tetapi tidak bisa mengatakannya denga
 
 Aah, aku tidak tahu lagi.
 
-"Aku mengatakan tadi sore juga, Melihat kerja keras yang tidak menghasilkan adalah hal yang sangat menyakitkan. "(Elf)
+"Aku mengatakan tadi sore juga, Melihat kerja keras yang tidak menghasilkan adalah hal yang sangat menyakitkan. "(fei)
 
 "Ya, benar."
 
