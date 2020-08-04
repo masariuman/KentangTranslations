@@ -120,9 +120,9 @@ Aku bahkan tidak pernah mengajarinya cara mengayunkan pedang, apalagi cara berta
 
 "Umm, ya."(fran)
 
-Feirona menggunakan busurnya lebih dari pedangnya, dan Mururu menggunakan tubuhnya sendiri sebagai senjata. Jadi, jika Nn. Francesca belajar bertarung pedang hanya dengan menonton, itu pasti aku. Sekarang saya merasa agak malu.
+Feirona lebih menggunakan busurnya daripada pedangnya, dan Mururu menggunakan tubuhnya sendiri sebagai senjata. Jadi, jika nona Francesca belajar bertarung pedang hanya dengan melihat, pasti aku yang dilihatnya. Sekarang aku merasa agak malu.
 
-Tapi tetap saja ..... Aku ingat pertarungan Francesca di colloseum. Bagaimana saya harus mengatakan ini, saya benar-benar tidak memiliki keyakinan bahwa saya akan bisa bertarung dengan kemegahan sebanyak dia. Bahkan selama pertarungan pedangnya, dia bisa menggunakan sihir bahkan saat pertempuran jarak dekat. Meskipun masih ada kekasaran dalam bentuknya, dia masih berjuang tampak seperti petualang yang cukup bagus. Dengan penampilannya, kurasa dia akan menjadi sangat populer suatu hari. Sebagai seseorang yang seharusnya menjadi modelnya untuk bertarung pedang, aku merasa sedikit sedih atau lebih tepatnya, menyedihkan.
+Tapi tetap saja ..... Aku ingat pertarungan Francesca di colloseum. Bagaimana ya... aku benar-benar tidak yakin bahwa aku bisa bertarung dengan indah seperti dia. Bahkan selama pertarungan pedangnya, dia bisa menggunakan sihir bahkan saat pertempuran jarak dekat. Meskipun masih belum halus, dia masih bertarung seperti petualang yang cukup bagus. Dengan penampilannya, kurasa dia akan menjadi sangat populer suatu hari nanti. Sebagai seseorang yang seharusnya menjadi modelnya untuk bertarung menggunakan pedang, aku merasa sedikit sedih atau lebih tepatnya, menyedihkan.
 
 Aku sebenarnya diajar oleh O'brien-san juga, tapi aku tidak menggunakan gaya pedangnya sama sekali. Nya adalah satu serangan yang luar biasa pasti membunuh jenis serangan sedangkan tambang melibatkan menangani cepat, beberapa serangan lemah untuk menangani kerusakan. Dan Francesca adalah pedang luar biasa yang menggabungkan keterampilan pedang dan sihir. Tidak ada dari kita yang benar-benar mirip dengan gaya masing-masing.
 
