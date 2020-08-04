@@ -1,4 +1,4 @@
-Bab 46 Turnamen Turing (4)
+Bab 46 Turnamen pertarungan (4)
 
 Di dalam ruang yang tenang, suara dering yang jelas terdengar. Di dalam Katedral yang dibangun di kastil, di depan patung Dewi, seorang wanita mengenakan jubah mewah sedang berdoa sambil berlutut. Itu adalah kata-kata yang memuji Dewi Astraera dan dipenuhi dengan rasa hormat. Aku ingin tahu perasaan macam apa yang dialami Dewi ketika dia melihat orang-orang menyembahnya seperti ini. Nama wanita yang mengucapkan doa itu adalah Amalda Imnesia. Putri raja negara ini. yaitu Putri Kerajaan.
 
