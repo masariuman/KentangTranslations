@@ -356,7 +356,7 @@ dasar pecinta prank, peri idiot. Bagaimana mungkin dia …….
 
 "Bahkan jika kamu mengatakan itu ... kamu bisa mengatakan sesuatu, setidaknya."
 
-[Aku mencoba membangunkanmu tetapi kamu tidak bangun. bukankah kamu sudah terlalu santai?]
+[Aku mencoba membangunkanmu tetapi kamu tidak bangun. bukankah kamu sudah menjadi terlalu santai?]
 
 "........ Mungkin aku punya."
 
