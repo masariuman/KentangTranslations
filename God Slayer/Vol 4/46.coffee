@@ -1,7 +1,7 @@
 Bab 46 Turnamen pertarungan (4)
 
 Di dalam ruang yang tenang, suara dering terdengarn jelas. Di dalam Katedral yang dibangun di istalah, di depan patung Dewi, seorang wanita mengenakan jubah mewah sedang berdoa sambil berlutut. dia memuji Dewi Astraera dan dipenuhi dengan rasa hormat. Aku penasaran perasaan macam apa yang dirasakan Dewi ketika dia melihat orang-orang menyembahnya seperti ini. Nama wanita yang mengucapkan doa itu adalah Amalda Imnesia. Putri raja negara ini.
-
+-----
 Jubahnya terbuat dari bahan seperti sutra murni dengan sulaman perak yang cocok dengan rambut peraknya. Tangannya yang disambungkan dalam doa kecil dan tubuhnya tampak halus sehingga ornamen berlebihan pada dirinya tampaknya sulit untuk bergerak masuk. Di sisinya ada seorang ksatria tinggi tetapi dia tampak lebih tinggi di sampingnya karena dia sedikit lebih pendek daripada tinggi rata-rata.
 
 Biasanya, memanggilnya imut daripada cantik akan lebih tepat tetapi sekarang, bahkan dia hanya bisa disebut sebagai kecantikan yang bermartabat. Di sisinya ada seorang ksatria jangkung, kekasihnya, mengenakan baju besi mithril yang dihiasi dengan permata. Pasangan yang sangat tampan. Bahkan 'celah' / perbedaan antara tubuh tinggi dan perawakan pendek mereka sepertinya membuat mereka terlihat lebih baik. Saya bertanya-tanya berapa banyak dari mereka di sini yang benar-benar melihat mereka berdua sekarang. Si cantik dan si buruk rupa. Tunggu, itu analogi yang salah.
