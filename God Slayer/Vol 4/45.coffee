@@ -126,19 +126,19 @@ Kemudian, akhirnya, iblis itu berhenti bergerak dan menatapku dengan matanya. De
 
 "Gu, ahh"
 
-"Aku tidak bisa bernapas dengan benar. Apakah saya mematahkan beberapa tulang saya adalah saya hanya terluka parah. Merasakan rasa sakit yang belum pernah saya rasakan sebelumnya, saya bahkan lupa bagaimana cara bernapas. Dadaku sakit. Apakah saya ditinju? Atau apakah saya ditendang? Atau apakah itu menggunakan sihir pada saya? Sementara dalam kebingungan, saya berguling berusaha menahan rasa sakit.
+Aku tidak bisa bernapas dengan benar. Apakah tulangku patah atau aku hanya terluka parah. Merasakan rasa sakit yang belum pernah aku rasakan sebelumnya, aku bahkan lupa bagaimana cara bernapas. Dadaku sakit. Apakah aku dipikul? Atau apakah aku ditendang? Atau apakah dia menggunakan magic padaku? aku berguling berusaha menahan rasa sakit.
 
-Menatapku sekilas, tatapan iblis itu berbalik - ke arah Hiyuu-chan.
+iblis itu Menatapku sekilas dan  tatapan itu berbalik - ke arah Hiyuu-chan.
 
 "Ah."
 
-Suara tak bernyawa keluar dari saya.
+Suara tak bernyawa keluar dariku.
 
-Para pastor berkumpul di ujung katedral, menggigil ketakutan dan para ksatria semuanya terbunuh. Tidak ada orang yang menyelamatkannya. Nomor satu. Di. Semua.
+Para priest berkumpul di ujung katedral, gemetar ketakutan dan para ksatria semuanya terbunuh. Tidak ada orang yang menyelamatkan hiyuu-chan . tidak. ada. sama. sekali.
 
 "Tidak.."
 
-Aku mengulurkan tangan. Tidak ada artinya. Di atas segalanya, saya masih berbaring di dekat gerbang di genangan darah dan iblis itu berada di tengah-tengah katedral. Bahkan jaraknya sangat jauh.
+Aku meluruskan tanganku. Tidak ada artinya. Di atas segalanya, saya masih berbaring di dekat gerbang di genangan darah dan iblis itu berada di tengah-tengah katedral. Bahkan jaraknya sangat jauh.
 
 Dalam kepanikan, saya mencoba berdiri hanya untuk menyelipkan darah dan jatuh kembali. Tanganku menyentuh tangan seseorang yang berbaring di depanku. Itu hanya pergelangan tangan yang tergeletak di sana. Ada yang lain, bagian tubuh, isi perut, kepala dengan mata lebar putus asa, kepala dengan masih ada helm di ……… ..aku dikelilingi oleh daging.
 
