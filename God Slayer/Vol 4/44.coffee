@@ -50,7 +50,7 @@ Keduanya tampaknya tidak menolak Sashimi. Mungkin mereka hanya mencobanya karena
 
 "Yup, berbagai metode."
 
-Mengatakan itu, aku cepat-cepat menggigit topik. Saya tahu saya adalah orang yang memulai topik itu tetapi saya sama sekali tidak menyadari hal lain tentang hal itu. Dan juga, akan sulit bagi mereka untuk memahami bahkan jika saya berbicara tentang dunia saya. Saya lebih suka tidak terlalu membingungkan mereka. Itu adalah kegagalan dalam memulai percakapan. Dan, jujur ​​saja, untuk item kelas atas, saya bisa dengan mudah mendapatkannya bahkan dengan gaya hidup saya yang buruk.
+Mengatakan itu, aku cepat-cepat menggigit untuk menghentikan topik pembicaraan. aku tahu aku adalah orang yang memulai topik itu tetapi aku sama sekali tahu apa-apa selain itu. Dan juga, akan sulit bagi mereka untuk memahaminya jika aku berbicara tentang duniaku. aku lebih suka tidak terlalu membingungkan mereka. membuat orang bingung adalah kegagalan dalam memulai percakapan. Dan, jujur ​​saja, untuk barang kelas atas, aku bisa dengan mudah mendapatkannya bahkan dengan gaya hidupku yang buruk.
 
 Karena Solnea belum diberitahu tentang situasiku sampai sekarang, aku merasa akan sulit untuk membicarakannya di depannya. Tetapi bahkan itu tidak akan bertahan selama itu. Bukannya aku juga harus merawatnya selamanya.
 
