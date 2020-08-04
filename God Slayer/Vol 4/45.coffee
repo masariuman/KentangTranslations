@@ -110,13 +110,13 @@ Dengan panik, aku menutup mata Hiyuu-chan dengan tanganku, tapi aku terlalu lamb
 
 aku memanggil namanya tetapi tidak mendapat reaksi. lengan iblis mengayun lagi. Sekali lagi, teriakan terdengar dan darah tumpah. Sambil mendengar ratapan dan tangisan kematian para ksatria, aku mengambil pedangku yang tergeletak di tanah. Dan pada saat itu, aku menghunus pedangku, hanya kami dan para priest yang telah berlari sampai akhir katedral masih hidup. Setiap ksatria dan prajurit yang menantang iblis sekarang berbaring dalam genangan darah. Tidak ada yang bergerak. Aroma darah dan pemandangan di depanku membuat aku ingin memuntahkan apa yang aku makan di pagi hari tetapi entah bagaimana aku menahannya dan berjalan di atas pusat katedral dengan pedang di tanganku. Bukannya aku sudah punya rencana, Di kepalaku, aku tahu bahwa bunuh diri menantang monster ini yang bahkan Souichi tidak bisa mengalahkannya.
 
-Tapi tetap saja, saya berdiri di sana. Setan maju selangkah. Itu menginjak genangan darah, * percikan * Aku merasa seperti mendengar suara seperti itu.
+Tapi tetap saja, aku berdiri di sana. iblis maju selangkah. dia menginjak genangan darah, * splash * Aku merasa seperti mendengar suara seperti itu.
 
-Ujung pedangku menggigil karena ketakutan, tetapi aku tidak bisa menahannya. Keberadaan di hadapanku terlalu menakutkan. Aku bahkan tidak memikirkan sesuatu seperti 'Aku harus melawannya', 'Aku harus menghentikannya'. Tubuh saya hanya tergerak oleh naluri. Kemungkinan besar, itu juga sama untuk prajurit dan ksatria lainnya.
+Ujung pedangku bergetar karena ketakutan, tetapi aku tidak bisa menahannya. Keberadaannya di hadapanku terlalu menakutkan. Aku bahkan tidak memikirkan sesuatu seperti 'Aku harus melawannya', 'Aku harus menghentikannya'. Tubuhku hanya tergerak oleh naluri. Kemungkinan besar, itu juga sama terjadi kepada prajurit dan ksatria lainnya.
 
-Sambil mengangkat teriakan yang menyakiti tenggorokanku, aku menebas iblis itu. Apakah itu berkat pelatihan O'brien-san atau hanya keajaiban bahwa saya bisa bereaksi pada waktunya? Saat iblis itu mengayunkan tangannya, aku membungkuk dan menghindari serangan bayangan itu. Menyelip di atas genangan darah aku mengayunkan pedangku saat itu mengenai kepalanya dan membuat bunga api terbang. Alih-alih menyebutnya hanya keras, rasanya seperti saya baru saja memukul sesuatu yang raksasa raksasa dan sesuatu yang tangguh. Setan itu sama sekali tidak menunjukkan reaksi ditabrak pedang. Jangankan mundur, itu bahkan tidak bergerak sedikit pun.
+Sambil berteriakan yang menyakiti tenggorokanku, aku menebas iblis itu. Apakah itu berkat pelatihan O'brien-san atau hanya keajaiban bahwa aku bisa bereaksi tepat waktu? Saat iblis itu mengayunkan tangannya, aku membungkuk dan menghindari serangan bayangan itu. aku mengayunkan pedangku saat itu mengenai kepalanya dan membuat percikan api. bukannya hanya keras, rasanya seperti aku baru saja memukul sesuatu yang sangat besar dan sesuatu yang kuat. iblis itu sama sekali tidak menunjukkan reaksi terkena pedang. Jangankan mundur, itu bahkan tidak bergerak sedikit pun.
 
-“Uu, ah.”
+"Uu, ah."
 
 Sebaliknya, saya malah mundur selangkah. Mungkin itu kehilangan minat pada saya, itu hanya mengabaikan saya dan berjalan melewatiku. Meskipun ukurannya tidak lebih tinggi dariku, tekanan yang diberikannya berada pada level yang sama sekali berbeda. * percikan * * percikan * saat berjalan itu merusak karpet indah dan sofa di sekitarnya. Tujuannya adalah —— Hiyuu-chan dan Souichi-kun yang tidak sadar yang masih menerima perawatan.
 
