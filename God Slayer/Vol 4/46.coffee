@@ -10,13 +10,13 @@ Bahkan di depan umum, jarak antara keduanya kecil. aku penasaran apakah mereka t
 
 doa berlanjut dengan suara indah sang putri. Meskipun katedral dipenuhi hampir seratus orang, suaranya dapat didengar dengan sangat jelas. Semua orang diam, dan mendengarkannya seolah-olah mereka lupa bernapas. Rasanya suaranya seperti bergema langsung di dalam tubuh kami.
 
-"Aku ingin tahu sampai berapa lama mereka menikah?"
+"Aku penasaran kapan mereka menikah?"(renji)
 
 "Ssst!"
 
-Ketika saya berbicara, saya dimarahi oleh Utano-san di samping saya.
+Ketika aku berbicara, aku dimarahi oleh Utano-san di sampingku.
 
-Mengapa semua upacara di dunia ini begitu lama? Setidaknya di dunia fantasi, mereka bisa lebih pendek bukan? Atau mungkin itu karena keberadaan Dewa adalah fakta, doa mereka bahkan lebih lama dan lebih rinci daripada doa kita. Saya tidak benar-benar religius bahkan saat itu jadi saya belum benar-benar mendengar banyak dari doa itu.
+Mengapa semua upacara di dunia ini begitu lama? Setidaknya di dunia fantasi, mereka bisa lebih pendek bukan? Atau mungkin itu karena keberadaan dewi adalah fakta, doa mereka bahkan lebih lama dan lebih rinci daripada doa kami. aku tidak benar-benar religius jadi aku belum benar-benar mendengar doa itu.
 
 Di sisi berlawanan saya, Souichi juga tampaknya gelisah dalam ketidaknyamanan. Meskipun mungkin tidak sebanyak saya, dia juga cukup bosan. Dan Aya tampaknya memarahinya juga untuk itu. Yang lain tidak menyadari tetapi dia sepertinya sudah menginjak kaki Souichi beberapa kali.
 
