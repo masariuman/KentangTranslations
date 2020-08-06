@@ -17,7 +17,7 @@ doa berlanjut dengan suara indah sang putri. Meskipun katedral dipenuhi hampir s
 Ketika aku berbicara, aku dimarahi oleh Utano-san di sampingku.
 
 Mengapa semua upacara di dunia ini begitu lama? Setidaknya di dunia fantasi, mereka bisa lebih pendek bukan? Atau mungkin itu karena keberadaan dewi adalah fakta, doa mereka bahkan lebih lama dan lebih rinci daripada doa kami. aku tidak benar-benar religius jadi aku belum benar-benar mendengar doa itu.
-
+---------
 Di sisi berlawanan saya, Souichi juga tampaknya gelisah dalam ketidaknyamanan. Meskipun mungkin tidak sebanyak saya, dia juga cukup bosan. Dan Aya tampaknya memarahinya juga untuk itu. Yang lain tidak menyadari tetapi dia sepertinya sudah menginjak kaki Souichi beberapa kali.
 
 Mungkin dia melihat saya menyembunyikan menguap, Utano-san juga menyodok baju zirah saya. Melihatnya, saya melihat matanya tampak lebih dingin dan lebih sempit dari biasanya. Jujur saja, ini menakutkan. Dia sudah memiliki mata runcing yang tajam, tetapi ketika dia semakin mempersempitnya, aku akhirnya mengibarkan bendera putih karena insting. Dia sendiri cukup sadar akan matanya. Aku merasa matanya sangat cocok dengan wajahnya.
