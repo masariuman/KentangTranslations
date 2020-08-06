@@ -6,9 +6,9 @@ Jubahnya terbuat dari bahan sutra murni dengan sulaman perak yang cocok dengan r
 
 normalnya, memanggilnya imut daripada cantik terasa tepat tetapi sekarang, dia memiliki kecantikan yang bermartabat. Di sisinya ada seorang ksatria, kekasihnya, mengenakan baju besi mithril yang dihiasi dengan permata. Pasangan yang sangat bagus. Bahkan perbedaan tinggi tubuh mereka sepertinya membuat mereka terlihat lebih bagus. aku penasaran berapa banyak orang di sini melihat mereka berdua sekarang. Si cantik dan si buruk rupa. Tunggu, itu analogi yang salah.
 
-Bahkan di depan umum, jarak antara keduanya kecil. aku penasaran apakah mereka tidak sadar akan hal itu. Tapi tidak ada yang berani bertanya juga . Bahkan tidak juga sang raja, ayahnya. Betapa hebatnya itu. Melihat temanku dari bumi menikahi sang putri hampir membuatku merasa sedikit iri. Jika hubungan mereka terus membaik, suatu hari dia akan menjadi raja berikutnya di negara ini. Tapi mengetahui pria seperti apa Kuuki, aku sama sekali tidak bisa membayangkannya sebagai raja.
+Bahkan di depan umum, jarak antara keduanya kecil. aku penasaran apakah mereka tidak sadar akan hal itu. Tapi tidak ada yang berani bertanya juga . Bahkan tidak juga sang raja, ayahnya. Betapa hebatnya itu. Melihat temanku dari bumi menikahi sang putri hampir membuatku merasa sedikit iri. Jika hubungan mereka terus membaik, dia bisa menjadi raja berikutnya di negara ini. Tapi ketika aku mengingat pria seperti apa Kuuki, aku sama sekali tidak bisa membayangkannya sebagai raja.
 
-Sementara saya memikirkan hal-hal acak seperti itu, doa berlanjut dengan suara indah sang putri. Meskipun katedral dipenuhi hampir seratus orang, suaranya dapat didengar dengan sangat jelas dan jelas. Semua orang diam, dan mendengarkannya seolah-olah mereka lupa bernapas. Rasanya seolah suaranya bergema langsung di dalam tubuh kami.
+doa berlanjut dengan suara indah sang putri. Meskipun katedral dipenuhi hampir seratus orang, suaranya dapat didengar dengan sangat jelas. Semua orang diam, dan mendengarkannya seolah-olah mereka lupa bernapas. Rasanya suaranya seperti bergema langsung di dalam tubuh kami.
 
 "Aku ingin tahu sampai berapa lama mereka menikah?"
 
