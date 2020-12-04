@@ -1,54 +1,54 @@
 Bab 47 Pertarungan Tim (1)
 
-Langit cerah. Hanya sedikit awan putih yang terlihat dan matahari bersinar terang membuat kami merasa lebih hangat dari yang seharusnya seperti saat musim dingin.
+Langit cerah, Hanya sedikit awan putih yang terlihat, matahari bersinar terang, membuat kami merasa lebih hangat di musim dingin ini.
 
-Seolah kehangatan ini adalah alasannya, ibu kota dipenuhi dengan energi dan keaktifan dan jalan utama dipenuhi orang. Di sepanjang sisi jalan, banyak toko yang menjual berbagai jenis makanan berbaris dan aroma daging panggang dan buah-buahan segar yang menggugah selera memenuhi udara.
+Seolah-olah kehangatan ini adalah alasannya, ibu kota dipenuhi dengan keaktifan dan jalan utama dipenuhi orang. Di sepanjang sisi jalan, banyak toko yang menjual berbagai jenis makanan serta aroma daging panggang dan buah-buahan segar yang menggugah selera memenuhi udara.
 
-Selain itu, toko-toko yang menjual aksesoris, pedang dan perisai yang dibuat dengan hati-hati untuk keperluan dekoratif juga ada di sana. Tentu saja, warung-warung seperti itu juga sama ramai.
+Selain itu, toko-toko yang menjual aksesoris, pedang dan perisai yang dibuat dengan hati-hati untuk keperluan dekoratif juga ada di sana. Tentu saja, toko-toko seperti itu juga sama ramai.
 
-Bangunan batu telah didekorasi dan jendela yang terbuka atau pintu ayun menunjukkan lebih banyak pelanggan di dalam daripada biasanya. Terutama di dalam penginapan dan bar. Meski masih siang, banyak orang yang sudah minum bir dengan gembira.
+Bangunan batu telah didekorasi. jendela yang terbuka menunjukkan lebih banyak pelanggan di dalam daripada biasanya. Terutama di dalam penginapan dan bar. Meski masih siang, banyak orang yang sudah minum bir dengan gembira.
 
-Semua orang sangat menikmati hari ini. Seluruh suasana membuat saya merasa riang juga. Melihat pemandangan seperti itu membuatku merasakan kedamaian sisi dunia ini.
+Semua orang sangat menikmati hari ini. Seluruh suasana membuatku merasa riang juga. Melihat pemandangan seperti itu membuatku merasakan kedamaian sisi dunia ini.
 
 “Meskipun ada begitu banyak orang di jalanan, kamu yakin tidak ingin restoran tetap buka?” (Renji)
 
-“Yah, aku dipanggil oleh raja sendiri, aku tidak bisa memprioritaskan restoranku daripada itu sekarang kan?”
+“Yah, aku dipanggil oleh raja sendiri, aku tidak bisa memprioritaskan restoranku sekarang kan?”
 
 “Yah, kurasa itu benar.”
 
-Mengatakan itu, dia menghela nafas. Ini lebih ringan dari biasanya tapi desahan adalah desahan. Aku juga merasa kasihan padanya.
+dia menghela nafas. tidak terlalu berat tapi helaan nafas tetaplah helaan nafas. Aku juga merasa kasihan padanya.
 
-Sungguh luar biasa bisa dipanggil oleh raja. Meskipun pria itu merasa lebih seperti pria tua energik yang tinggal di lingkungan Anda daripada Raja tetapi jika seseorang mendengar saya mengatakan itu, saya akan dijebloskan ke penjara karena lese majeste jadi saya tidak akan melakukannya. Dan saya masih menghormati pria itu.
+Sungguh luar biasa bisa dipanggil oleh raja. Meskipun pria itu merasa lebih seperti pria tua energik yang tinggal di lingkunganmu daripada Raja tetapi jika seseorang mendengar aku mengatakan itu, aku akan dijebloskan ke penjara karenanya jadi aku tidak akan melakukannya. Dan aku masih menghormati pria itu.
 
-Dan Raja Joshua juga tidak bermaksud jahat saat memanggilnya. Faktanya, raja bahkan mendengarkan semua permintaan kami sebanyak yang dia bisa. Tapi tetap saja, dia tidak suka berdiri seperti itu. Dia adalah rakyat jelata yang tepat pada intinya.
+Raja Joshua juga tidak bermaksud jahat saat memanggilnya. Faktanya, raja bahkan mendengarkan semua permintaan kami sebanyak yang dia bisa. Tapi tetap saja, dia tidak suka menonjol seperti itu. Dia tetap saja adalah rakyat jelata.
 
-[Kamu mengatakan itu tapi kamu tidak membencinya juga kan?]
+[Kamu berkata seperti itu tapi kamu tidak membencinya juga kan?]
 
-“Yah, kurasa tidak. Sangat jarang bagi kita semua untuk berkumpul bersama seperti ini biasanya. "
+"Yah, kurasa tidak. Sangat jarang kita semua bisa berkumpul bersama seperti ini biasanya."
 
-“Itu menyedihkan dengan caranya sendiri.” (Renji)
+“Itu terdengar menyedihkan.” (Renji)
 
-“…… .Yamada-san, kamu adalah salah satu alasan utama untuk itu, tahu?”
+“…… .Yamada-san, kamu adalah salah satu alasan utamanya lho...”
 
-"Tapi aku tidak punya niat untuk melakukannya?"
+"walaupun aku tidak berniat melakukannya?"
 
-Saat aku mengangkat bahu saat melewati kerumunan orang, aku bisa mendengar desahannya yang dalam bahkan di antara semua keributan ini. Apakah hanya imajinasiku saja yang aku rasakan bahkan kedinginan dan keheranan dalam desahannya? Menurutnya, alasan mengapa kami bertiga tidak bersama adalah karena aku pergi dalam perjalananku.
+aku bisa mendengar helaan nafasnya yang dalam bahkan di antara semua keributan ini. Apakah hanya imajinasiku saja tapi aku merasakan rasa dingin pada helaan nafasnya ? Menurutnya, alasan mengapa kami bertiga tidak bersama adalah karena aku pergi dalam perjalananku.
 
-Saat dia mengatakannya seperti itu, kurasa dia tidak salah. Saya, misalnya, tidak suka tinggal di satu tempat untuk waktu yang lama. Padahal aku menghabiskan hampir berbulan-bulan bermalas-malasan di desa yang sama. Bisa dikatakan, hampir sama saja jika bukan kota besar seperti ibu kota. Hampir sama dengan saya yang tidak berada di sana. Dan di atas itu, Souichi dan yang lainnya tinggal di kota sihir, Masaki-chan berada di Kota Taktik dan Yui-chan berada ……… .di mana dia sebelumnya? Saya merasa seperti seseorang mengatakan bahwa dia telah bepergian ke mana-mana dengan Fafnir-nya.
+Saat dia mengatakannya seperti itu, kurasa dia tidak salah. aku, tidak suka tinggal di satu tempat untuk waktu yang lama. Padahal aku menghabiskan hampir berbulan-bulan bermalas-malasan di desa yang sama. Bisa dikatakan, hampir sama saja jika bukan kota besar seperti ibu kota. Hampir sama dengan aku yang tidak berada di sana. Dan juga, Souichi dan yang lainnya tinggal di kota sihir, Masaki-chan berada di Kota Taktik dan Yui-chan berada ……… .di mana dia sebelumnya? aku merasa seperti seseorang mengatakan bahwa dia telah bepergian ke mana-mana dengan Fafnir-nya.
 
-Aku bahkan tidak tahu dimana sisanya, jadi kurasa, kesempatan seperti itu jarang terjadi. Meski begitu, masih belum semuanya 13 dari kita.
+Aku bahkan tidak tahu dimana sisanya, jadi kurasa, kesempatan seperti itu jarang terjadi. Meski begitu, masih belum semuanya 13 yang berkumpul.
 
 "Tapi tetap, apakah tidak apa-apa memakai pakaian itu Toudou?" (Renji)
 
-"Kau orang terakhir yang ingin kudengar dari ini, Yamada-san." (Toudou)
+"Kau orang terakhir yang ingin kudengar tentang hal itu , Yamada-san." (Toudou)
 
-[Serius.]
+[haa~~.]
 
 Toudou saat ini mengenakan pakaian yang sangat kasual yang terbuat dari kain bagus yang dikenakan oleh kebanyakan orang di kota ini. Jika bukan karena rambutnya yang hitam legam, tidak ada yang akan berpikir bahwa dia adalah salah satu dari 13 pahlawan. Begitulah kemiripan pakaiannya dengan orang normal.
 
-Demikian pula, saya terlihat hampir sama seperti petualang mana pun. Karena sekarang musim dingin, saya memiliki mantel bulu dan pakaian tebal. Tanpa mantel dan pedang mithril yang tergantung di pinggangku, aku juga akan terlihat tidak berbeda dari orang normal. Sebenarnya aku merasa para elf atau beastmen yang berjalan-jalan terasa lebih seperti petualang daripada diriku.
+Demikian pula, aku terlihat hampir sama seperti petualang mana pun. Karena sekarang musim dingin, aku memakai mantel bulu dan pakaian tebal. Tanpa mantel dan pedang mithril yang tergantung di pinggangku, aku juga akan terlihat tidak berbeda dari orang normal. Sebenarnya aku merasa para elf atau beastmen yang berjalan-jalan terasa lebih seperti petualang daripada diriku.
 
-Aku ingin tahu apa yang dia pikirkan tentang kita saat Ermenhilde menghela nafas lagi. Sangat nyaman bagaimana suaranya langsung bergema di kepalaku terutama di kerumunan dan kebisingan seperti itu.
+Aku ingin tahu apa yang dia pikirkan tentang kami saat Ermenhilde menghela nafas lagi. Sangat nyaman bagaimana suaranya langsung bergema di kepalaku terutama di kerumunan dan kebisingan seperti itu.
 
 “Bisa dibilang, aku kagum kamu benar-benar merasa ingin ikut serta dalam turnamen kali ini, Yamada-san.” (Toudou)
 
@@ -56,39 +56,39 @@ Aku ingin tahu apa yang dia pikirkan tentang kita saat Ermenhilde menghela nafas
 
 “Lagipula, kamu tidak bisa menggunakan Eru-san di turnamen dan bukankah kamu benci bertarung sejak awal?”
 
-Aku melihat ke arah pria di sampingku yang sedikit lebih pendek dariku. Rambut sebahu panjangnya, yang menurutnya terlalu sulit untuk dipotong, diikat di belakang kepalanya dengan kuncir kuda kecil dan diayunkan saat dia berjalan. Tumbuh lebih dewasa dari waktu kami bepergian saat itu, ekspresi lembutnya membuat wajahnya terlihat jauh lebih ramah.
+Aku melihat ke arah pria di sampingku yang sedikit lebih pendek dariku. Rambut sebahu panjangnya, yang menurutnya terlalu sulit untuk dipotong, diikat di belakang kepalanya dengan kuncir kuda kecil dan berayun saat dia berjalan. Tumbuh lebih dewasa dari waktu kami bepergian saat itu, ekspresi lembutnya membuat wajahnya terlihat jauh lebih ramah.
 
-Toudou Hiiragi. Salah satu dari 13, dan teman saya.
+Toudou Hiiragi. Salah satu dari 13 pahlawan, dan temanku.
 
-Toudou, yang merupakan teman baikku, sambil menggerak-gerakkan tubuhnya yang montok, berjalan dengan sangat santai seolah menikmati suasana kota.
+Toudou, yang merupakan teman baikku, sambil menggerak-gerakkan tubuhnya yang gemuk, berjalan dengan sangat santai seolah menikmati suasana kota.
 
-"Yah, saya memiliki keadaan saya yang membuat saya mengambil bagian."
+"Yah, aku memiliki alasan sendiri mengapa aku ikut serta dalam turnamen ini."
 
 "Hmmm."
 
-“Aku mungkin tidak melihatnya tapi aku sibuk dengan berbagai hal, tahu?”
+“Aku tidak terlihat seperti itu tapi aku sibuk juga lho...”
 
-"'Berbagai hal', eh?"
+"sibuk, eh?"
 
-Ya, berbagai hal.
+Ya, sibuk dalam berbagai hal.
 
 [Apa yang kalian bicarakan?]
 
-Berbagai hal tersebut antara lain, pembayaran hutang dan hal-hal seperti itu. Agak menyedihkan untuk memberi tahu orang lain tentang hal itu. Dan mendengarkan Utano-san membalasnya juga ……… Aku merasa seperti suami yang didominasi. Tolong biarkan ini hanya imajinasi saya.
+Berbagai hal tersebut antara lain, pembayaran hutang dan hal-hal seperti itu. Agak menyedihkan untuk memberi tahu orang lain tentang hal itu. Dan melakukan apa yang diminta Utano-san juga dapat melunasinya  ……… Aku merasa seperti suami yang didominasi. semoga ini hanya imajinasiku saja.
 
-“Di cae saya, saya merasa kesepian karena tidak ada lagi yang datang ke restoran saya. Yuuko-san memang mengunjungi sesekali sampai beberapa waktu yang lalu. "
+"untuk kasusku, aku merasa kesepian karena tidak ada lagi yang datang ke restoranku. Yuuko-san memang mengunjungi sesekali sampai beberapa waktu yang lalu. "
 
-“Yah dia sibuk dengan turnamen dan sebagainya. Dia sudah terlalu memikirkan dirinya sendiri, atau lebih tepatnya, mencoba melakukan semuanya sendiri. ”
+“Yah dia sibuk dengan turnamen dan hal lain-lain juga. terlalu mengurusnya sendiri, atau lebih tepatnya, mencoba melakukan semuanya sendiri. ”
 
-“Ya, saya mengerti apa yang Anda katakan. Meski begitu, itu karena kami tidak banyak membantu sehingga hal ini terjadi. "
+"Ya, aku mengerti apa yang kamu katakan. Meski begitu, itu karena kami tidak banyak membantu sehingga hal ini terjadi. "
 
-"Itu benar."
+"iya."
 
-Toudou tidak memiliki keterampilan bertarung, bagaimanapun juga pekerjaannya secara harfiah adalah juru masak. Dialah yang selalu menyiapkan makanan untuk kami selama perjalanan kami. Dalam kasus saya, saya hanya bisa bertarung melawan monster dengan bantuan Ermenhilde. Hasilnya, semua pekerjaan yang menggunakan otak jatuh ke tangan Utano-san.
+Toudou tidak memiliki keterampilan bertarung, bagaimanapun juga pekerjaannya secara harfiah adalah juru masak. Dialah yang selalu menyiapkan makanan untuk kami selama perjalanan kami. Dalam kasusku, aku hanya bisa bertarung melawan monster dengan bantuan Ermenhilde. Hasilnya, semua pekerjaan yang menggunakan otak jatuh ke tangan Utano-san.
 
-……… .baiklah mungkin aku sedikit melebih-lebihkan. Bahkan kami menggunakan kepala kami sesekali saat dibutuhkan. Tapi seringkali, rencana kita penuh dengan lubang atau tidak bisa menjelaskan apa yang kita pikirkan dengan benar. Dan juga, karena kami telah menerima cheat bertenaga super dari Dewi, kami selalu memiliki opsi untuk langsung menyerang. Kami memiliki cara bertarung yang mustahil bagi manusia di dunia ini. Sekarang apakah itu hal yang baik atau tidak masih bisa diperdebatkan. Menurut pendapat saya, mungkin yang terakhir. Sekarang saya memikirkannya, sungguh menakjubkan bagaimana kami bisa bertahan hidup begitu sembrono seperti itu. Tidak peduli seberapa baik Anda bisa menggunakan senjata atau sihir, kami masih orang biasa di kepala kami, itu membuat kami menyadarinya.
+……… .baiklah mungkin aku sedikit melebih-lebihkan. Bahkan kami menggunakan kepala kami sesekali saat dibutuhkan. Tapi seringkali, rencana kita penuh dengan lubang atau tidak bisa menjelaskan apa yang kita pikirkan dengan benar. Dan juga, karena kami telah menerima cheat super dari Dewi, kami selalu memiliki opsi untuk langsung menyerang. Kami memiliki cara bertarung yang mustahil bagi manusia di dunia ini. Sekarang apakah itu hal yang baik atau tidak masih bisa diperdebatkan. Menurut pendapatku, mungkin yang alasan kedua. Sekarang aku memikirkannya, sungguh menakjubkan bagaimana kami bisa bertahan hidup begitu sembrono seperti itu. Tidak peduli seberapa baik kamu bisa menggunakan senjata atau sihir, kami masih orang biasa, itu kami menyadarinya.
 
-Bahkan jika Anda mempelajari hasil atau sejarah perang, kami tidak diajarkan bagaimana mengatur tentara dan formasi atau taktik perang mereka, dll. Itu selalu Utano-san yang dapat mengubah dia dan ide-ide kami menjadi [rencana] yang tepat. Jauh lebih efisien dan lebih aman daripada menyerang langsung, dia memimpin kami melewati pertempuran.
+Bahkan jika kamu mempelajari hasil atau sejarah perang, kami tidak diajarkan bagaimana mengatur tentara dan formasi atau taktik perang mereka, dll. Itulah mengapa Utano-san yang selalu dapat ide-idenya dan ide kami menjadi [rencana] yang tepat. Jauh lebih efisien dan lebih aman daripada menyerang langsung, dia memimpin kami melewati pertempuran.
 
 “Sudah satu tahun sejak itu tapi dia masih suka memerintah orang lain.” (Renji)
 
@@ -96,15 +96,15 @@ Bahkan jika Anda mempelajari hasil atau sejarah perang, kami tidak diajarkan bag
 
 [Lagipula dia lembut terhadap wanita.]
 
-“Berhentilah mengatakan hal-hal yang menyesatkan, bukan?”
+“Berhentilah mengatakan hal-hal yang menyesatkan.”
 
-Mengatakan itu, aku dengan ringan memukul Ermenhilde dari sakuku.
+aku dengan ringan memukul Ermenhilde dari sakuku.
 
-"Entah bagaimana rasanya aneh." (Toudou)
+"Entah bagaimana, rasanya aneh." (Toudou)
 
 “Hm?”
 
-“Agar Yamada-san memanggil Eru-san dengan nama lengkapnya.”
+“Yamada-san memanggil Eru-san dengan nama lengkapnya.”
 
 [Betulkah?]
 
@@ -118,9 +118,9 @@ Mengatakan itu, aku dengan ringan memukul Ermenhilde dari sakuku.
 
 Pada saat itu, Toudou benar-benar menghentikan langkahnya dan menatapku dengan kebingungan.
 
-Mengambil pandangannya, saya mengabaikannya dan terus berjalan.
+aku mengabaikannya dan terus berjalan.
 
-"Nah, hal-hal yang terjadi di sini juga." (Renji)
+"Nah, sesuatu juga terjadi." (Renji)
 
 “……… ..begitu?” (Toudou)
 
@@ -128,71 +128,71 @@ Mengambil pandangannya, saya mengabaikannya dan terus berjalan.
 
 [Serius. Seperti mendapatkan rekan baru, dan hutang besar.]
 
-“Kawan-kawan, tidak bisakah kamu berbicara tentang yang terakhir?”
+“kesampingkan rekan, tidak bisakah kamu berbicara tentang yang terakhir?”
 
-Mengatakan itu, aku memukul Ermenhilde untuk membungkamnya.
+aku memukul Ermenhilde untuk membungkamnya.
 
 Serius, dia mulai mengatakan hal-hal yang tidak berguna saat aku berhenti memperhatikan.
 
 “Yah, tidak banyak yang berubah ……… Kurasa?” (Toudou)
 
-"Siapa tahu? Kami mungkin telah berubah agak pasti. Sepertinya berat badanmu bertambah. "
+"entahlah? mungkin kita telah berubah. Sepertinya berat badanmu bertambah. "
 
-Saat aku mengolok-oloknya, dia menusukku dengan sikunya. Karena dia tidak mengeluh berarti dia juga menyadarinya.
+dia menusukku dengan sikunya. Karena dia tidak mengeluh berarti dia juga menyadarinya.
 
-Yah dia selalu berada di sisi yang lebih gemuk tetapi tidak sebanyak sekarang. Sepertinya dia cukup sadar tentang itu.
+Yah dia selalu berada di sisi yang lebih gemuk tetapi tidak segemuk sekarang. Sepertinya dia cukup sadar tentang itu.
 
-Aku menghela nafas setelah berhasil mengubah topik. Suatu hari saya harus memberi tahu mereka tetapi entah bagaimana, saya tidak memiliki keberanian untuk itu. Menyembunyikan itu jauh di dalam hatiku, aku terus berjalan sambil menghadap ke depan. Toudou tampaknya telah melepaskannya juga.
+Aku menghela nafas setelah berhasil mengubah topik. Suatu hari aku harus memberi tahu mereka tetapi entah bagaimana, aku tidak memiliki keberanian untuk itu. Menyembunyikan itu jauh di dalam hatiku, aku terus berjalan sambil menghadap ke depan. Toudou tampaknya juga mengabaikannya.
 
 “Aku sudah berhenti melakukan perjalanan, dan bahkan tidak harus melawan monster lagi. Kamu bisa mendapatkan daging Orc hanya dengan memesan dari guild petualang. ”(Toudou)
 
-[Menurut pendapat saya, Anda harus, setidaknya, menggerakkan tubuh Anda.]
+[Menurut pendapatku, kamu harus, setidaknya, menggerakkan tubuhmu.]
 
 "Menjadi juru masak masih merupakan pekerjaan yang menghabiskan energi."
 
-Mendengar itu, meskipun saya merasa tidak enak, saya akhirnya tertawa. Orang ini tidak akan bepergian lagi. Kurasa, aku yakin.
+Mendengar itu, meskipun aku merasa tidak enak, aku akhirnya tertawa. Orang ini tidak akan berpetualang lagi. aku yakin.
 
-Mengelola restorannya sendiri, memiliki karyawan, dia sudah menikmati kehidupan dunianya yang berbeda. Dia sudah menjadi bagian dari dunia ini sepenuhnya. Sebagai warga ibu kota. Dengan bahaya bagi dunia yang sekarang telah hilang, dia tidak punya alasan untuk bepergian seperti dulu.
+Mengelola restorannya sendiri, memiliki karyawan, dia sudah menikmati kehidupan dunianya yang berbeda. Dia sudah menjadi bagian dari dunia ini sepenuhnya. Sebagai warga ibu kota. Dengan bahaya yang sekarang telah hilang, dia tidak punya alasan untuk bepergian seperti dulu.
 
-Dia mungkin menerima permintaan penaklukan monster sesekali tapi itu saja. Ketika saya memikirkannya seperti itu, teman saya yang tertawa di samping saya tiba-tiba merasa seperti dia jauh membuat saya merasa sedikit iri.
+Dia mungkin menerima permintaan penaklukan monster sesekali tapi itu saja. Ketika aku memikirkannya seperti itu, temanku yang tertawa di sampingku tiba-tiba merasa seperti dia telah jauh dan membuatku merasa sedikit iri.
 
 “Kedengarannya bagus dan damai, jadi itu bagus.” (Renji)
 
-"Tentu saja. Meski bahaya monster dan iblis masih ada, masalah utamanya telah diatasi. ”
+"Tentu saja. Meski bahaya monster dan iblis masih ada, masalah utamanya telah diatasi."
 
-Sambil tertawa dia mengatakan itu tapi dia menusukku dengan sikunya lagi. Menyadari apa yang dia maksud, saya merasa sedikit lebih berat di dalam.
+Sambil tertawa dia mengatakan itu tapi dia menusukku dengan sikunya lagi. Menyadari apa yang dia maksud, aku merasa sedikit lebih berat di dalam hatiku.
 
 Masalah utama yang dia bicarakan ——- penaklukan Dewa Iblis. Akulah yang menyelesaikannya dan jumlah pengorbanan yang dilakukan untuk mencapai itu tidak terhitung. Di antara mereka, orang yang paling ingin aku lindungi juga termasuk. Tapi ....... ibukota dipenuhi dengan senyuman. Pria dan wanita, baik di kanan atau kiriku, apakah itu manusia, demi-human, beastmen, semuanya memiliki senyuman di wajah mereka.
 
 Meskipun ada begitu banyak bahaya di dunia, mereka masih bisa berkata dengan yakin bahwa mereka memiliki kedamaian.
 
-Kadang-kadang saya menyadari betapa baiknya kita beradaptasi dengan dunia ini. Kembali ke dunia kita sendiri, saya bahkan tidak memikirkan hal-hal seperti itu.
+Kadang-kadang aku menyadari betapa baiknya kita beradaptasi dengan dunia ini. Kembali ke dunia kita sendiri, aku bahkan tidak memikirkan hal-hal seperti itu.
 
 Meskipun ibu kota dilindungi oleh tembok besar, ancaman dari monster tidaklah nol. Meskipun tidak umum di Imnesia, ada monster yang bisa terbang. Iblis juga bisa terbang dengan sihir. selalu ada kemungkinan bahwa pesta yang meriah ini bisa langsung berubah menjadi jeritan dan keputusasaan.
 
-Meskipun mengetahui hal itu, kami masih menganggap dunia ini damai. Tetap saja, kami tertawa seperti ini. Tidak menangis dan tertekan karena orang-orang yang meninggal karena alasan ini sama sekali bukan penghinaan bagi pria dan wanita tersebut. Bagaimanapun, mereka mempertaruhkan nyawa mereka semata-mata untuk ini.
+Meskipun mengetahui hal itu, kami masih menganggap dunia ini damai. Tetap saja, kami tertawa seperti ini. Tidak menangis dan tertekan karena orang-orang yang gugur karena alasan ini sama sekali bukan penghinaan bagi pria dan wanita tersebut. Bagaimanapun, mereka mempertaruhkan nyawa mereka semata-mata untuk ini.
 
 “Jadi Yamada-san, apakah kamu ikut serta dalam pertandingan tim hari ini?” (Toudou)
 
-“Tidak, tidak untuk yang ini. Tapi salah satu teman saya di pesta saya saat ini ikut serta jadi saya pikir saya akan mendukung mereka. ”(Renji)
+“Tidak, tidak untuk yang ini. Tapi salah satu rekanku di timku saat ini ikut serta jadi aku pikir aku akan mendukung mereka. ”(Renji)
 
-"Saya melihat."
+"begitu...."
 
 Saat aku mengatakan itu, Toudou terdengar senang karena suatu alasan.
 
 Sambil menatapnya sekilas, aku membeli dua daging Orc yang ditusuk dan memberikan satu untuk Toudou.
 
-"Terima kasih. Ngomong-ngomong tentang rekan, kemana kamu bepergian sampai sekarang? ”(Toudou)
+"Terima kasih. Ngomong-ngomong tentang rekan, kemana kamu bepergian sampai sekarang?"(Toudou)
 
 [Hanya berkeliaran di sekitar benua ini. Dia menghabiskan hampir setengah tahun bermalas-malasan hanya di desa.]
 
 "Kamu tidak seharusnya membicarakan itu." (Renji)
 
-“……… ..apa-apaan ini, Yamada-san?”
+“……… ..apa-apaan itu, Yamada-san?”
 
-Saya melihat keheranan bercampur dengan desahannya pada saya. Yah, aku mengerti maksudmu.
+aku melihat keheranan bercampur dengan helaan nafasnya padaku. Yah, aku mengerti maksudmu.
 
-“Setengah tahun itu berlebihan. Itu lebih seperti, ya, 3 bulan bermalas-malasan. ”(Renji)
+“Setengah tahun itu berlebihan. lebih seperti, ya, 3 bulan bermalas-malasan. ”(Renji)
 
 “Itu masih cukup banyak lho ……….”
 
@@ -202,27 +202,27 @@ Saya melihat keheranan bercampur dengan desahannya pada saya. Yah, aku mengerti 
 
 [Ya, itu seorang wanita.]
 
-Di sana, untuk beberapa alasan, keduanya sepertinya memiliki pemahaman yang sama. Keduanya rukun seperti biasanya.
+untuk beberapa alasan, keduanya sepertinya memiliki pemahaman yang sama. Keduanya rukun seperti biasanya.
 
-"Apa-apaan kalian, apa kalian sangat menikmati menggodaku?" (Renji)
+"Apa-apaan kalian, apa kalian sangat menikmati menggangguku?" (Renji)
 
-“Bagaimana menggoda ini? Kami tidak melakukan hal seperti itu kan, Eru-san? ”(Toudou)
+“mengganggu bagaimana? Kami tidak melakukan hal seperti itu kan, Eru-san? ”(Toudou)
 
-[Ya. Saya hanya memberikan laporan tentang Anda, Renji.]
+[Ya. aku hanya memberikan laporan tentangmu, Renji.]
 
-"Hentikan itu, kan?" (Renji)
+"Hentikan itu." (Renji)
 
-Mengatakan itu, aku memukulnya dengan ringan sekali lagi.
+aku memukulnya dengan ringan sekali lagi.
 
 "Tunggu, apakah kamu juga mengatakan hal yang sama kepada Utano-san?" (Renji)
 
-[Jika aku punya, kamu pasti akan terkurung di dalam kastil sekarang.]
+[Jika iya, kamu pasti akan terkurung di dalam istana sekarang.]
 
 "Uwaahh."
 
 "Berhenti dengan 'uwaahh', aku tidak tertawa, sialan." (Renji)
 
-“Tidak, itu terdengar sangat realistis sehingga saya…”
+“Tidak, itu terdengar sangat realistis sehingga aku…”
 
 “Tidak, bukan itu!”
 
@@ -232,15 +232,15 @@ Ada apa dengan pembicaraan 'kurungan' ini. Bahkan Utano-san tidak akan bertindak
 
 "Jika ini sesuatu yang konyol lagi, aku akan memukul wajahmu, oke?"
 
-"Tidak tidak. Saya ingin bertanya apakah hubungan Anda berkembang lebih dari itu. "
+"Tidak tidak. aku ingin bertanya apakah hubungan kalian berkembang lebih dari itu. "
 
 Saat dia mengatakan itu, aku meninju wajahnya. Aku hanya mengayunkannya tanpa ayunan yang tepat atau apapun tapi dia tetap menghindarinya bahkan tanpa terkena tinjuku.
 
 "Hampir saja!" (Toudou)
 
-“Serius. Anda ingin tahu tentang hal-hal yang paling aneh. ”(Renji)
+“Serius. kamu ingin tahu tentang hal-hal yang paling aneh. ”(Renji)
 
-"Itu tidak berarti kamu bisa memukulku, tahu?"
+"Itu tidak berarti kamu bisa memukulku lho.."
 
 "Tapi kamu menghindar, bukan?"
 
@@ -252,19 +252,19 @@ Saat dia mengatakan itu, aku meninju wajahnya. Aku hanya mengayunkannya tanpa ay
 
 [...... Kalian pasti menikmati ini.]
 
-Yah, sepertinya. Lagipula, aku tidak punya banyak orang yang bisa aku mainkan seperti ini. Bukan karena dia mengerti lelucon saya atau apa, tetapi lebih karena kita biasanya mengambil lelucon kita terlalu jauh. Meskipun itu biasanya berakhir dengan aku membuat hidupku dalam bahaya.
+Yah, sepertinya. Lagipula, aku tidak punya banyak orang yang bisa membuatku bermain-main seperti ini. Bukan karena dia mengerti leluconku, tetapi lebih karena kami biasanya mengambil lelucon kami terlalu jauh. Meskipun itu biasanya berakhir dengan aku membuat hidupku dalam bahaya.
 
 Bahkan dari serangan mendadak Toudou tidak merasa terganggu sama sekali. Bahkan kecepatan berjalannya pun sama.
 
-Tinjuku pasti tampak seperti bergerak lambat padanya. Meskipun itu adalah serangan mendadak. Sungguh menyedihkan bagaimana bahkan anggota non-petarung dari kami 13 masih memiliki tingkat kemampuan fisik seperti itu. Jika saya harus melawan Masaki-chan yang merupakan pejuang sampai inti, seberapa besar celah kekuatan yang akan ada? Saya sudah merasa murung. Nah, untuk melawannya, aku harus menang dulu melawan O'brien-san.
+Tinjuku pasti tampak seperti bergerak lambat padanya. Meskipun itu adalah serangan mendadak. Sungguh menyedihkan bagaimana bahkan anggota bukan-petarung dari kami 13 masih memiliki tingkat kemampuan fisik seperti itu. Jika aku harus melawan Masaki-chan yang merupakan petarung inti, seberapa besar celah kekuatan yang akan ada? aku sudah merasa murung. Nah, untuk melawannya, aku harus menang dulu melawan O'brien-san.
 
 “Ngomong-ngomong, kenapa memilih baju maid untuk karyawanmu?” (Renji)
 
-“Ini bagus bukan? Bisa dikatakan, mereka tidak diminati di dunia ini seperti di dunia kita. "(Toudou)
+"Ini bagus bukan? Bisa dikatakan, mereka tidak diminati di dunia ini seperti di dunia kita. "(Toudou)
 
 "Betulkah?"
 
-“Pelayan adalah hal yang biasa di sini. Tidak seperti di bumi, ini bukan pekerjaan yang dipenuhi dengan harapan dan impian manusia. "
+"Pelayan adalah hal yang biasa di sini. Tidak seperti di bumi, ini bukan pekerjaan yang dipenuhi dengan harapan dan impian manusia. "
 
 "Ya."
 
@@ -274,25 +274,25 @@ Tinjuku pasti tampak seperti bergerak lambat padanya. Meskipun itu adalah serang
 
 [??]
 
-Pastinya, seperti yang Toudou katakan, pelayan biasa di sini. Orang normal mungkin tidak akan mempekerjakan satu tapi pelayan yang bekerja untuk bangsawan melakukan hal-hal seperti berbelanja dll adalah pemandangan yang umum. Tugas mereka adalah melayani tuan mereka seperti di dunia kita tapi para pelayan disini jauh lebih halus dan halus dari pada yang ada di dunia kita menurut pendapat saya. Bukannya aku pergi ke maid cafe atau apa pun jadi aku tidak benar-benar tahu.
+Pastinya, seperti yang Toudou katakan, pelayan sudah biasa di sini. Orang normal mungkin tidak akan mempekerjakan satu tapi pelayan yang bekerja untuk bangsawan melakukan hal-hal seperti berbelanja dll adalah pemandangan yang umum. Tugas mereka adalah melayani tuan mereka seperti di dunia kita tapi para pelayan disini jauh lebih halus dan terlatih dari pada yang ada di dunia kita menurut pendapatku. aku tidak pergi ke maid cafe atau apa pun jadi aku tidak benar-benar tahu.
 
-Mungkin Toudou harus lebih berpengetahuan dalam pengertian itu. Dia telah menyewa pelayan untuk restorannya. Nah, ada sesuatu tentang seragam maid yang membuatmu terpesona, aku setuju dengan itu. Sebagai seorang pria, saya tidak dapat menyangkalnya. Saya dapat terus memujinya tanpa hambatan jika saya mendapat kesempatan. Yup, menjadi maid adalah pekerjaan yang layak.
+Mungkin Toudou lebih berpengetahuan dalam pengertian itu. Dia telah menyewa pelayan untuk restorannya. Nah, ada sesuatu tentang seragam maid yang membuatmu terpesona, aku setuju dengan itu. Sebagai seorang pria, aku tidak dapat menyangkalnya. aku dapat terus memujinya tanpa hambatan jika aku mendapat kesempatan. Yup, menjadi maid adalah pekerjaan yang layak.
 
-"Dari mana Anda mendapatkan seragam itu?" (Renji)
+"Dari mana kamu mendapatkan seragam itu?" (Renji)
 
-"Mereka punya cadangan di kastil jadi aku mengambilnya."
+"Mereka punya cadangan di istana jadi aku mengambilnya."
 
 Begitu, itu masuk akal.
 
-Memiliki karyawan Anda berseragam harus terlihat lebih baik dari sudut pandang orang lain, bukan karena saya memiliki pengalaman sebagai manajer toko atau pemilik. Bisa dikatakan, itu mungkin tidak benar di dunia ini juga.
+Memiliki karyawan berseragam harus terlihat lebih baik dari sudut pandang orang lain, bukan karena aku memiliki pengalaman sebagai manajer toko atau pemilik. Bisa dikatakan, itu mungkin tidak benar di dunia ini juga.
 
-Seragam, sebagai sebuah konsep, tidak benar-benar ada di dunia ini. Ini lebih seperti mendesain pakaian yang semudah mungkin untuk dipindahkan dan tidak menghalangi pekerjaan Anda. Dia pasti berpikir untuk menerapkan seragam dengan benar sebagai salah satu cara agar menarik bagi pelanggan.
+Seragam, sebagai sebuah konsep, tidak benar-benar ada di dunia ini. Ini lebih seperti mendesain pakaian yang semudah mungkin dan tidak menghalangi pekerjaanmu. Dia pasti berpikir untuk menerapkan seragam dengan benar sebagai salah satu cara agar menarik bagi pelanggan.
 
-Ini pendekatan yang cukup bagus menurut saya. Saya kira itu juga berasal dari pengetahuan dunia lain? Padahal dia masih mengakhirinya dengan baju maid. Tidak peduli seberapa serius kamu memikirkannya, pada akhirnya, dia mengakhirinya dengan pakaian maid. Sebagai seorang pria, bukan berarti saya tidak memahaminya tetapi mungkin dia harus mencoba mengubah sedikit titik fokusnya.
+Ini pendekatan yang cukup bagus menurutku. aku kira itu juga berasal dari pengetahuan dunia lain? walaupun pada akhirnya memilih dia masih baju maid. Tidak peduli seberapa serius kamu memikirkannya, pada akhirnya, dia mengakhirinya dengan pakaian maid. Sebagai seorang pria, bukan berarti aku tidak memahaminya tetapi mungkin dia harus mencoba mengubah sedikit titik fokusnya.
 
-Atau lebih tepatnya, bukankah dia harus lebih fokus pada masakannya sendiri daripada pakaian pembantu? Apalagi masakan dan olahannya yang tidak ada di dunia ini.
+Atau lebih tepatnya, bukankah dia harus lebih fokus pada masakannya sendiri daripada pakaian maid? Apalagi masakan dan olahannya yang tidak ada di dunia ini.
 
-Saya memintanya untuk bercerita lebih banyak tentang masakannya daripada terus mengoceh tentang pakaian pembantu.
+aku memintanya untuk bercerita lebih banyak tentang masakannya daripada terus mengoceh tentang pakaian maid.
 
 "Yah, aku telah memikirkan berbagai hal." (Toudou)
 
@@ -300,19 +300,19 @@ Saya memintanya untuk bercerita lebih banyak tentang masakannya daripada terus m
 
 “……… bisakah kalian berdua tidak terdengar begitu terkejut?”
 
-Saat kami berdua melihatnya terkejut karena dia benar-benar memikirkannya, Toudou membuat wajah sedih. Dia pasti berpikir bahwa saya hampir yakin dia sama sekali tidak memikirkan apa-apa sebelum membuka restorannya.
+Saat dia melihat kami terkejut karena dia benar-benar memikirkannya, Toudou membuat wajah sedih. Dia pasti berpikir bahwa aku hampir yakin dia sama sekali tidak memikirkan apa-apa sebelum membuka restorannya.
 
-Nah, reaksinya lucu jadi saya biarkan apa adanya. Meskipun seperti ini, saya menghormati pria itu.
+Nah, reaksinya lucu jadi aku biarkan saja. Meskipun seperti ini, aku menghormati pria itu.
 
-Meskipun tidak memiliki kemampuan bertarung, dia tetap bersama kami sampai akhir perjalanan kami. Saya masih ingat dia mati-matian memasak untuk orang-orang yang menangis di desa-desa yang terbakar, dengan orang-orang sekarat di sekitarnya.
+Meskipun tidak memiliki kemampuan bertarung, dia tetap bersama kami sampai akhir perjalanan kami. aku masih ingat dia mati-matian memasak untuk orang-orang yang menangis di desa-desa yang terbakar, dengan orang-orang sekarat di sekitarnya.
 
-Dengan masakannya, sesuatu yang tidak bisa kami lakukan, dia menyelamatkan banyak orang. Saya ragu ada orang lain yang bisa melakukan apa yang dia lakukan.
+Dengan masakannya, sesuatu yang tidak bisa kami lakukan, dia menyelamatkan banyak orang. aku ragu ada orang lain yang bisa melakukan apa yang dia lakukan.
 
-Tidak peduli seberapa banyak Anda memikirkannya, membicarakannya, sampai Anda mengambil tindakan, perasaan Anda tidak mencerminkan apa pun. Tidak peduli seberapa tinggi cita-cita yang Anda pegang, percuma jika tidak bisa dilihat dalam tindakan Anda.
+Tidak peduli seberapa banyak kamu memikirkannya, membicarakannya, sampai kamu mengambil tindakan, perasaanmu tidak mencerminkan apa pun. Tidak peduli seberapa tinggi cita-cita yang kamu pegang, percuma jika tidak bisa dilihat dalam tindakanmu.
 
 Seperti itulah rasanya benar-benar menyelamatkan orang.
 
-Karena itulah, dari lubuk hatiku, aku menghormatinya. Padahal dia tidak pernah membicarakannya.
+Karena itulah, dari lubuk hatiku, aku menghormatinya. walaupun dia tidak pernah membicarakannya.
 
 Setelah memakan dagingnya, dia memutar dan memainkan tusuk sate di tangannya.
 
@@ -320,17 +320,17 @@ Setelah memakan dagingnya, dia memutar dan memainkan tusuk sate di tangannya.
 
 “Sudah waktunya, eh?”
 
-Mengatakan itu, dia melihat ke langit. Itu karena turnamen akan dimulai saat matahari mencapai puncaknya. Saya pikir hanya satu atau dua jam tersisa untuk itu. Aku harus kembali, tampil dan memakai armor berat sialan itu sekali lagi. Saya merasa lesu hanya dengan memikirkannya. Ini sangat berat; baju besi sialan itu. Padahal hanya karena aku tidak terbiasa memakainya.
+dia melihat ke langit. Itu karena turnamen akan dimulai saat matahari mencapai puncaknya. mungkin sekitar satu atau dua jam lagi. Aku harus kembali, tampil dan memakai armor berat sialan itu sekali lagi. aku merasa lesu hanya dengan memikirkannya. Ini sangat berat; baju besi sialan itu. walaupun hanya karena aku tidak terbiasa memakainya.
 
-“Aku akan datang juga. Lebih baik kita temui ini, Francesca-san kan? Perkenalkan aku padanya, kay? ”(Toudou)
+“Aku akan datang juga. mungkin juga akan bertemu, Francesca-san kan? Perkenalkan aku padanya, kay? ”(Toudou)
 
 "Ya, tentu. Tunggu, aku belum melakukannya? ”(Renji)
 
-“Tidak, kamu belum ………”
+“Tidak, belum ………”
 
 “Kami bahkan makan di restoranmu.”
 
-“Dia datang ke restoran saya!?! Kalau begitu kenapa kamu tidak memperkenalkanku ...... ”
+“Dia datang ke restoranku!?! Kalau begitu kenapa kamu tidak memperkenalkanku ...... ”
 
 “Tidak, yah, kupikir kamu akan sibuk jadi aku akan merasa tidak enak untuk mengalihkan perhatianmu.”
 
