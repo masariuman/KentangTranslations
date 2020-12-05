@@ -244,9 +244,9 @@ Tch, tidak seru.
 
 Seperti biasa dia kurang percaya diri dengan penampilannya, bahkan menyangkal kata-kata Kuuki dengan senyuman. Tinggi badan yang pendek dan tubuh gemuk. aku kira kompleksnya tidak akan hilang dalam setahun.
 
-Meskipun demikian, bahkan saya pikir Toudou sebenarnya mungkin memiliki popularitas. Bukan karena penampilannya tapi kepribadiannya. Dan, dia memang memiliki prestasi telah menaklukkan Dewa Iblis juga. Meskipun dia mungkin tidak akan dikuburkan pada wanita seperti Kuuki dan Souichi, aku cukup yakin mungkin ada wanita yang mendukung Toudou.
+bahkan aku pikir Toudou sebenarnya mungkin memiliki popularitas. Bukan karena penampilannya tapi karena kepribadiannya. Dan, dia memang memiliki prestasi telah menaklukkan Dewa Iblis juga. Meskipun dia mungkin tidak akan dekerumuni oleh wanita seperti Kuuki dan Souichi, aku cukup yakin mungkin ada wanita yang mendukung Toudou.
 
-Tapi, aku mengerti bagaimana perasaan Toudou. Jika Anda memiliki seorang pemberani yang hampir cantik dan kesatria yang menarik dan tinggi di samping Anda, siapa pun akan mendapatkan kerumitan tentang penampilan mereka. Dan Toudou di atas segalanya, seorang hikkikomori, atau lebih tepatnya, seorang NEET di dunia kita. Seseorang yang tidak percaya diri dengan penampilannya dan mengurung diri di kamarnya.
+Tapi, aku mengerti bagaimana perasaan Toudou. Jika kamu memiliki seorang brave yang cantik dan kesatria yang menarik dan tinggi di sampingmu, siapa pun akan mendapatkan masalah tentang penampilan mereka. Dan Toudou pasti sangat memikirkannya, seorang hikkikomori, atau lebih tepatnya, seorang NEET dari dunia kita. Seseorang yang tidak percaya diri dengan penampilannya dan mengurung diri di kamarnya.
 
 Meskipun dia akhirnya tidak punya pilihan selain berada di luar setelah dipanggil ke dunia lain, itu tidak akan menghilangkan kerumitan penampilannya dengan mudah. Kami menertawakannya sekarang tapi saat itu hanya menyebutkan lemak atau tinggi pendek akan menghilangkan reaksi berlebihan darinya. Yah, kurasa dia sudah cukup dewasa untuk bisa mengolok-olok penampilannya sendiri.
 
