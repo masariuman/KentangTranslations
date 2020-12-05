@@ -420,23 +420,23 @@ Jika Yui-chan memberikan tatapan seperti itu kepada seseorang, aku akan bergabun
 
 "Sekarang, sepertinya semua orang telah berkumpul." (Renji)
 
-"Umu, jadi sepertinya." (Raja)
+"Umu, sepertinya iya." (Raja)
 
-Dengan kata-katanya, sebelum Raja bangkit, aku berdiri dan berbaris dengan O'brien-san. Dengan raja di tengah, O'brien-san di sebelah kanan dan saya di sebelah kirinya.
+sebelum Raja bangkit, aku berdiri dan berbaris dengan O'brien-san. Dengan raja di tengah, O'brien-san di sebelah kanan dan aku di sebelah kirinya.
 
 Saat pedang mithril di pinggangku membuat suara * kacha * saat aku bergerak, O'brien-san membuat senyuman yang jelas.
 
 “Sepertinya ekspresi wajahmu menjadi lebih baik lagi.” (Ob)
 
-"Apakah begitu?"
+"begitu?"
 
-Tanpa cermin, saya tidak bisa mengatakan itu. Tetapi jika dia berkata demikian, itu pasti benar.
+Tanpa cermin, aku tidak bisa mengatakan itu. Tetapi jika dia berkata demikian, itu pasti benar.
 
 Di belakangku adalah Utano-san dan di sampingnya adalah Kudou dan yang lainnya. Di samping O'brien-san berdiri Kuuki dan Warren-san, Yui-chan dan KNIGHT.
 
 "Baiklah, kita seharusnya tidak membuat orang menunggu lebih lama lagi." (Raja)
 
-“Dan peserta juga, ayah.” (Amalda)
+“Dan pesertanya juga, ayah.” (Amalda)
 
 Di bagian paling depan berdiri Raja dan sang putri. Biasanya, ratu harus berdiri di sisi Raja tetapi orang itu kehilangan nyawanya dalam perang satu tahun yang lalu.
 
@@ -444,12 +444,12 @@ Di bagian paling depan berdiri Raja dan sang putri. Biasanya, ratu harus berdiri
 
 Baik raja dan putri.
 
-Meskipun, bahkan setelah satu tahun, saya masih terpuruk olehnya.
+Meskipun, bahkan setelah satu tahun, aku masih tidak bisa lepas dari semua itu.
 
-Saat Raja dan sang putri mencapai tepi balkon, seluruh Coliseum perlahan terdiam.
+Saat Raja dan sang putri mencapai tepi balkon, seluruh collesium perlahan terdiam.
 
 “Semuanya —–“ (raja)
 
-Dan dengan demikian, suara yang diperkuat oleh sihir bergema di semua Coliseum
+Dan dengan demikian, suara yang diperkuat oleh sihir bergema di semua collesium
 
 Dan festival dimulai.
