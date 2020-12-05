@@ -248,7 +248,7 @@ bahkan aku pikir Toudou sebenarnya mungkin memiliki popularitas. Bukan karena pe
 
 Tapi, aku mengerti bagaimana perasaan Toudou. Jika kamu memiliki seorang brave yang cantik dan kesatria yang menarik dan tinggi di sampingmu, siapa pun akan mendapatkan masalah tentang penampilan mereka. Dan Toudou pasti sangat memikirkannya, seorang hikkikomori, atau lebih tepatnya, seorang NEET dari dunia kita. Seseorang yang tidak percaya diri dengan penampilannya dan mengurung diri di kamarnya.
 
-Meskipun dia akhirnya tidak punya pilihan selain berada di luar setelah dipanggil ke dunia lain, itu tidak akan menghilangkan kerumitan penampilannya dengan mudah. Kami menertawakannya sekarang tapi saat itu hanya menyebutkan lemak atau tinggi pendek akan menghilangkan reaksi berlebihan darinya. Yah, kurasa dia sudah cukup dewasa untuk bisa mengolok-olok penampilannya sendiri.
+Meskipun dia akhirnya tidak punya pilihan selain berada di luar setelah dipanggil ke dunia ini, itu tidak akan menghilangkan kerumitan penampilannya dengan mudah. Kami menertawakannya sekarang tapi ketika kami menyebutkan lemak atau tingginya yang pendek, dia tidak terlalu bereaksi berlebihan. Yah, kurasa dia sudah cukup dewasa untuk bisa mengolok-olok penampilannya sendiri.
 
 “Kamu juga akan berusia 26 tahun ini kan? Bukankah seharusnya kamu sudah mencari pasangan yang baik? ”(Renji)
 
@@ -266,45 +266,45 @@ Ohh.
 
 "Beberapa saat yang lalu, mereka mengatakan bahwa Kuuki-kun adalah orang yang memperkenalkan kami." (Toudou)
 
-“Saya merasa tidak enak karenanya. Tapi aku tidak lebih dari seorang ksatria. Saya tidak punya pilihan selain menjawab harapan para bangsawan. "
+"aku merasa tidak enak karenanya. Tapi aku tidak lebih dari seorang ksatria. aku tidak punya pilihan selain menjawab harapan para bangsawan. "
 
 “Selain Toudou dan Koutarou, bahkan Itou pun terlibat.… ..?” (Renji)
 
-“Dia cukup populer, tahu? Dunia ini melihat kekuatan sebagai titik pesona utama. "
+"Dia cukup populer lho.... Dunia ini melihat kekuatannya sebagai titik pesona utama. "
 
 "Waah."
 
-Toudou menghela nafas. Jangan khawatir. Setidaknya Anda lebih kuat dari saya.
+Toudou menghela nafas. Jangan khawatir. Setidaknya aku lebih kuat dariku.
 
 Selain itu, Itou eh? Itou Takashi, dia adalah seorang pahlawan yang dapat menggunakan senjata apapun dengan cukup sempurna untuk disebut sebagai [Raja Senjata].
 
-Saya tidak mendengar banyak rumor tentang dia tetapi dari apa yang saya dengar di sana-sini, dia tampaknya bekerja sebagai monster pemburu tentara bayaran. Bahkan sejak saat itu, dia selalu menjadi tipe yang menikmati pertempuran.
+aku tidak mendengar banyak rumor tentangnya tetapi dari apa yang aku dengar di sana-sini, dia tampaknya bekerja sebagai pemburu monster bayaran. Bahkan sejak saat itu, dia selalu menjadi tipe yang menikmati pertempuran.
 
-Mengingat kemampuannya juga, bagi Itou Takashi, medan pertempuran pasti tampak seperti tempat terbaik untuk memanfaatkannya. Aku bukan dia jadi aku tidak bisa memastikannya. Bagaimanapun, saya hanya bertarung jika benar-benar diperlukan.
+Mengingat kemampuannya juga, bagi Itou Takashi, medan pertempuran pasti tampak seperti tempat terbaik untuk memanfaatkannya. Aku bukan dia jadi aku tidak bisa memastikannya. Bagaimanapun juga, aku hanya bertarung jika benar-benar diperlukan.
 
 Karena dia memiliki kepribadian seperti itu, dia mungkin menjadi sangat populer di kalangan wanita di dunia ini. Dengan pertarungan melawan Dewa Iblis dan ancaman terus menerus dari monster dan iblis, bertarung untuk hidup dan mati telah menjadi bagian utama dari orang-orang di dunia ini. Jadi seseorang seperti Itou pasti terlihat seperti orang yang meyakinkan bagi mereka.
 
-“Itu seperti itu untuk Toudou-san dan Takashi-kun tapi bagaimana dengan Yamada-san? (Kuuki)
+"seperti itulah situasi untuk Toudou-san dan Takashi-kun tapi bagaimana dengan Yamada-san?" (Kuuki)
 
-“Bahkan jika kamu menanyakan itu padaku, aku baik-baik saja.”
+“aku baik-baik saja.”
 
-Aku dengan ringan mengayunkan gauntletku memakai lengan kanan. Suara tumpul mencapai telingaku saat itu bergerak.
+Aku dengan ringan mengayunkan gauntletku. Suara tumpul mencapai telingaku saat itu bergerak.
 
 "Itu benar, bukan aku, kasus Yamada-san lebih penting." (Toudou)
 
-"Sudah mendapatkan semua energimu kembali, kau bajingan ......" (renji)
+"kau Sudah mendapatkan semua energimu kembali, kau bajingan ......" (renji)
 
-"Beberapa waktu lalu, aku meminjamkan seragam maid ke Utano-san beberapa waktu lalu, mau menjelaskan tentang apa itu?"
+"Beberapa waktu lalu, aku meminjamkan seragam maid ke Utano-san, mau menjelaskan untuk apa itu?"
 
-“Seperti aku tahu!”
+“Mana KUTAHU!”
 
-[?? Apakah Yuuko membutuhkan pakaian Pembantu? Dengan kepribadiannya, saya ragu dia akan memakainya.]
+[?? Apakah Yuuko membutuhkan pakaian Pembantu? Dengan kepribadiannya, aku ragu dia akan memakainya.]
 
-“Itu karena kepribadiannya seperti itu, itu bagus! Eru-san, kamu tidak mengerti. ”(Toudou)
+“karena kepribadiannya seperti itu, itu bagus! Eru-san, kamu tidak mengerti. ”(Toudou)
 
 [fumu.]
 
-“Jangan terlalu memikirkannya. Kebodohannya akan menginfeksimu juga. "
+"Jangan terlalu memikirkannya. Kebodohannya akan menginfeksimu juga. "
 
 “Kenapa tiba-tiba jadi kasar?”
 
@@ -314,29 +314,29 @@ Koutarou dan Kudou sudah lebih dari cukup untuk mengajari Ermenhilde hal-hal ane
 
 "Pakaian pembantu?" (Kuuki)
 
-"Yah, aku tidak tahu tentang apa itu." (Toudou)
+"Yah, aku tidak tahu untuk apa itu." (Toudou)
 
-"Betapa iri." (Kuuki)
+"Betapa irinya diriku." (Kuuki)
 
-"Dari sudut pandang saya, Anda dan cinta Anda yang penuh gairah dengan sang putri lebih iri." (Renji)
+"Dari sudut pandangku, kamu dan cintamu yang penuh gairah dengan sang putri lebih membuat iri." (Renji)
 
 “Bisakah kamu mengatakan itu di depan Yuuko-san dan Aya-chan?” (Kuuki)
 
-“Sayangnya, saya tidak berniat bunuh diri.” (Renji)
+“Sayangnya, aku tidak berniat bunuh diri.” (Renji)
 
-Dan saat ini, saya tidak memiliki cukup emosi masa muda untuk bertanya-tanya tentang siapa yang saya sukai juga.
+Dan saat ini, aku tidak memiliki cukup emosi masa muda untuk bertanya-tanya tentang siapa yang aku sukai juga.
 
-[Nafsu Anda pada wanita tidak berubah sama sekali, Renji.]
+[Nafsumu pada wanita tidak berubah sama sekali, Renji.]
 
-“Berhenti mengatakannya seperti itu kan? Orang akan salah paham. "
+"Berhenti mengatakannya seperti itu... Orang akan salah paham. "
 
 [Tapi itu tidak salah. Faktanya-]
 
-Di dalam kepalaku, omelan Ermenhilde bergema di kepalaku. Tapi itu baru tentang kasus baru-baru ini. Tentang gadis dari desa yang saya selamatkan dari Ogre, Ms Francesca, Mururu. Telingaku sakit.
+Di dalam kepalaku, omelan Ermenhilde bergema di kepalaku. Tapi itu tentang kasus baru-baru ini. Tentang gadis dari desa yang aku selamatkan dari Ogre, nona Francesca, Mururu. Telingaku sakit.
 
-Ketika saya membuat alasan, itu adalah hal yang wajar untuk dilakukan sebagai seorang pria dan saya dapat mengatakan dengan bangga bahwa saya hanya merasa sedikit bersalah tentang itu semua. Meskipun begitu, alasan saya tidak akan berhasil. Jika Utano-san mendengar ini, aku akan tamat. Pastinya.
+Ketika aku membuat alasan, itu adalah hal yang wajar untuk dilakukan sebagai seorang pria dan aku dapat mengatakan dengan bangga bahwa aku hanya merasa sedikit bersalah tentang itu semua. Meskipun begitu, alasanku tidak akan berhasil. Jika Utano-san mendengar ini, aku akan tamat. Pastinya.
 
-"Oh iya, kali ini, murid Renji-san juga ikut ambil bagian kan?" (Kuuki)
+"Oh iya, kali ini, murid Renji-san juga ikut berpatisipasi kan?" (Kuuki)
 
 “Murid?” (Renji)
 
