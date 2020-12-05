@@ -346,39 +346,39 @@ Mendengar sesuatu yang seaneh itu, aku dan Toudou akhirnya menanyakan hal itu la
 
 Toudou juga menatapku. Jangan lihat aku seperti itu, ya?
 
-Saya belum mendengar apapun tentang murid ini. Satu-satunya yang terpikir olehku adalah Aya. Apa itu dia? Karena aku mengajari dia sihir perangkap itu ……… atau lebih tepatnya, bahkan kita memikirkannya bersama, itu saja. Kami kawan bukan tuan dan murid. Kuuki tahu itu juga jadi dia tidak akan berbicara seperti itu.
+aku belum mendengar apapun tentang murid ini. Satu-satunya yang terpikir olehku adalah Aya. Apa itu dia? Karena aku mengajari dia sihir perangkap itu ……… atau lebih tepatnya, bahkan kita memikirkannya bersama, itu saja. Kami adalah teman dan bukan tuan atau murid. Kuuki tahu itu juga jadi dia tidak akan berbicara seperti itu.
 
 Maka satu-satunya pilihan lain adalah.
 
-“Apakah itu Ms Francesca?” (Renji)
+“Apakah itu nona Francesca?” (Renji)
 
 “Ohh. Yang bepergian dengan Yamada-san? ”
 
-"Ya. Ini sebenarnya cukup terkenal. Ikut serta dalam turnamen utama sebagai pelajar dan kecantikan di atas. Di atas segalanya, dia bepergian dengan [Pahlawan] Yamada Renji. ”(Kuuki)
+"Ya. Ini sebenarnya cukup terkenal. Ikut serta dalam turnamen utama sebagai pelajar dan kecantikan di atas rata-rata. Di atas segalanya, dia bepergian dengan [Pahlawan] Yamada Renji."(Kuuki)
 
-“Yah itu ……… kebetulan menjadi topik seperti itu. Dan dia hanya bepergian dengan saya dan bukan murid saya juga. "
+"oh itu ……… kebetulan menjadi topik seperti itu. Dan dia hanya bepergian denganku dan bukan muridku juga. "
 
-"Saya melihat."
+"begitu...."
 
 “Aku bahkan belum mengajarinya apa pun yang mungkin membuatnya menjadi muridku dan juga, aku bukan [Pahlawan].”
 
 Belum lagi, kami baru bepergian bersama selama beberapa bulan. Sungguh rumor yang meledak-ledak.
 
-Saya merasa kasihan pada Nona Francesca. Mendapatkan perhatian seperti itu juga berarti orang-orang akan waspada terhadapnya. Sekarang, lawannya tidak akan lengah karena mengira mereka melawan siswa.
+aku merasa kasihan pada Nona Francesca. Mendapatkan perhatian seperti itu juga berarti orang-orang akan waspada terhadapnya. Sekarang, lawannya tidak akan lengah karena mengira mereka melawan siswa.
 
 "Yah, kurasa dengan penampilan dan keterampilan bertarungnya, dia akan tetap mendapat perhatian."
 
-Jika dia tidak bisa memanfaatkan celah, dia hanya perlu menggunakan kekerasan. Jika dia ingin pergi dengan hasil yang bagus, itu mungkin lebih baik ……… sekarang, aku bertanya-tanya seberapa jauh dia bisa menang dan bangkit.
+Jika dia tidak bisa memanfaatkan celah, dia hanya perlu menggunakan kekerasan. Jika dia ingin mendapatkan hasil yang bagus, itu mungkin lebih baik ……… sekarang, aku penasaran seberapa jauh dia bisa menang dan bangkit.
 
-Meski dia dipanggil muridku masih terasa aneh, aku tetap ingin dia menang sebanyak mungkin.
+Meski dia dipanggil muridku, masih terasa aneh, aku tetap ingin dia menang.
 
-“Jadi kamu bepergian dengan cantik lagi? Betapa irinya …… ​​”(toudou)
+“Jadi kamu bepergian dengan wanita cantik lagi? Betapa irinya …… ​​”(toudou)
 
 “Mau ikut dan jalan-jalan denganku? Ini akan menjadi diet yang baik untukmu juga. ”(Renji)
 
-“Diet sambil mempertaruhkan hidup saya? Aku akan menjadi sangat kurus. ”
+“Diet sambil mempertaruhkan hidupku? Aku akan menjadi sangat kurus. ”
 
-“Lagipula kamu memang menjadi agak lebih kurus saat itu.”
+“Lagipula kamu memang menjadi agak lebih waktu itu.”
 
 "Ya, tapi hampir mati juga."
 
@@ -386,9 +386,9 @@ Saat kami mengobrol, pintu diketuk.
 
 Setelah beberapa saat dibiarkan, maid yang sedang melayani Kuuki memasuki ruangan.
 
-Karena persiapan sudah selesai kami dipanggil ke Coliseum dan kami keluar kamar dengan dipimpin oleh maid.
+Karena persiapan sudah selesai kami dipanggil ke Colleseum dan kami keluar kamar dengan dipimpin oleh maid.
 
-"Saya merasa gugup." (Renji)
+"aku merasa gugup." (Renji)
 
 “Seharusnya aku yang merasa gugup. Armorku tidak terlihat aneh kan? ”(Toudou)
 
@@ -396,17 +396,17 @@ Karena persiapan sudah selesai kami dipanggil ke Coliseum dan kami keluar kamar 
 
 “Sungguh tidak bertanggung jawab!?!”
 
-[Diamlah kalian semua. Betapa memalukan ……]
+[Diamlah kalian semua. memalukan ……]
 
-Saat berjalan menyusuri koridor batu, saya melihat ke luar jendela.
+Saat berjalan menyusuri koridor batu, aku melihat ke luar jendela.
 
-Langit cerah cerah seakan menandakan cuaca hari ini. Suara gugup Toudou dan tawa Kuuki bergema bersama dengan suara kering yang dibuat oleh pedang, tergantung di pinggang kami, saat kami berjalan.
+Langit cerah cerah seakan menandakan cuaca hari ini. Suara gugup Toudou dan tawa Kuuki bergema bersama dengan suara kring yang dibuat oleh pedang, tergantung di pinggang kami, saat kami berjalan.
 
-Langit biru dan awan putih. Di bawah sinar matahari, kehijauan bersinar cerah dan burung-burung terbang di udara. Ini iklim yang sempurna untuk turnamen. Dengan energi dan antusiasme para penonton dan semangat dari para peserta pasti akan membuat segalanya memanas bahkan di musim dingin ini.
+Langit biru dan awan putih. Di bawah sinar matahari, bersinar cerah dan burung-burung terbang di udara. Ini iklim yang sempurna untuk turnamen. Dengan energi dan antusiasme para penonton dan semangat dari para peserta pasti akan membuat segalanya memanas bahkan di musim dingin ini.
 
-Ya, cukup jelas untuk memberi saya firasat.
+Ya, cukup jelas.
 
-Souichi, Aya, Masaki-chan, Ms Francesca.
+Souichi, Aya, Masaki-chan, nona Francesca.
 
 Senyuman muncul di wajahku.
 
