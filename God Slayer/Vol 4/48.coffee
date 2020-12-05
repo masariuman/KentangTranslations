@@ -84,7 +84,7 @@ Baik Kuuki dan aku, daripada menonton orang lain, lebih suka melakukannya sendir
 
 Saat aku menghela nafas, dia tertawa kecil.
 
-Yah, bukannya aku tidak suka menghabiskan waktu dengan raja. Saya suka alkohol juga dan saya suka Raja Joshua juga. Saya tidak bisa membenci siapa pun yang mengkhawatirkan saya seperti itu tanpa memiliki niat jahat atau niat buruk di belakangnya. Fakta bahwa dia menjadi terlalu santai saat pergi dengan suasana pesta yang meriah adalah sedikit masalah.
+Yah, bukannya aku tidak suka menghabiskan waktu dengan raja. aku suka alkohol juga dan aku suka Raja Joshua juga. aku tidak bisa membenci siapa pun yang mengkhawatirkanku seperti itu tanpa memiliki niat jahat atau niat buruk di belakangnya. Fakta bahwa dia menjadi terlalu santai saat pergi dengan suasana pesta yang meriah adalah sedikit masalah.
 
 “Jadi?” (Renji)
 
@@ -92,67 +92,67 @@ Yah, bukannya aku tidak suka menghabiskan waktu dengan raja. Saya suka alkohol j
 
 “Menurutmu siapa yang akan menang?”
 
-[Saya bertaruh pada tim Souichi untuk menang.]
+[aku bertaruh pada tim Souichi untuk menang.]
 
 Terima kasih atas jawaban yang tidak menarik, Ermenhilde.
 
 [Muu.]
 
-Mengatakan itu, saya duduk di kursi terdekat. Karena armor itu terasa sangat tidak nyaman.
+aku duduk di kursi terdekat. Karena armor itu terasa sangat tidak nyaman.
 
-Tapi tetap saja, rasanya sangat aneh memiliki seorang pelayan bahkan menarik kursi untukku duduk. Sepertinya aku benar-benar orang biasa sampai ke inti. Tapi tanpa membiarkan hal seperti itu muncul di wajahku, aku melihat ke arah Kuuki.
+Tapi tetap saja, rasanya sangat aneh memiliki seorang pelayan yang bahkan menarik kursi untukku duduk. Sepertinya aku benar-benar orang biasa pada akarnya. Tapi tanpa membiarkan hal seperti itu muncul di wajahku, aku melihat ke arah Kuuki.
 
-Melihat ke arah pria jangkung ini, dia melipat lengannya seolah sedang memikirkannya. Serius, iri bagaimana dia terlihat baik melakukan segalanya. Bahkan pelayan yang ditunjuk untuknya tampak melirik ke arahnya tetapi dia sepertinya tidak menyadarinya. Betapa berdosanya dia.
+Melihat ke arah pria tinggi ini, dia melipat lengannya seolah sedang memikirkannya. Serius, aku iri bagaimana dia terlihat baik melakukan segalanya. Bahkan pelayan yang ditunjuk untuknya tampak melirik ke arahnya tetapi dia sepertinya tidak menyadarinya. Betapa berdosanya dia.
 
-“Saya pikir itu akan menjadi tim Knight. Mereka atau tim petualang dari kota Taktik. Mereka memiliki keterampilan yang cukup tinggi dibandingkan dengan yang ada di sini, di ibukota. ”(Kuuki)
+“aku pikir mungkin tim ksatria. Mereka atau tim petualang dari kota Taktik. Mereka memiliki keterampilan yang cukup tinggi dibandingkan dengan yang ada di sini, di ibukota. ”(Kuuki)
 
 "Fumu."
 
-Saya melihat sebagai seseorang yang bekerja dengan Ksatria, dia harus lebih berpengetahuan tentang hal-hal seperti itu daripada saya. Harus seperti yang dia katakan.
+begitu... sebagai seseorang yang bekerja dengan Ksatria, dia pasti lebih berpengetahuan tentang hal-hal seperti itu daripada aku. seperti yang dia katakan.
 
-Seperti yang disarankan oleh nama Kota Taktik, seluruh fokus mereka adalah pada pertempuran. Itu karena, meski ada lautan di antaranya, ia masih merupakan kota terdekat dengan benua Abenelm.
+Seperti yang namanya Kota Taktik, seluruh fokus mereka adalah pada pertempuran. Itu karena, meski ada lautan di sekitarnya, ia masih merupakan kota terdekat dengan benua Abenelm.
 
 Dulu ketika Dewa Iblis masih hidup, monster dan iblis yang bisa terbang, dan monster yang bisa melintasi air akan menyerang hampir setiap hari. Akibatnya, jumlah pertarungan yang dilakukan di sana lebih banyak dari kota lain dan secara otomatis level skill prajurit di sana bertambah tinggi.
 
-Itu adalah garis depan neraka. Itu lebih merupakan pembentukan pertahanan dan kota hanya dalam nama. Para petualang dan tentara bayaran yang datang dari sana sangat percaya pada skill mereka.
+Itu adalah garis depan neraka. Itu lebih merupakan pembentukan pertahanan/benteng pertahanan dan kota nama saja. Para petualang dan tentara bayaran yang datang dari sana sangat percaya pada skill mereka.
 
-Dan kepercayaan diri adalah hal terpenting yang harus dimiliki. Tanpanya, Anda tidak bisa melawan dan sekali hancur, semuanya berakhir. Aku ingin tahu siapa yang mengatakan itu.
+Dan kepercayaan diri adalah hal terpenting yang harus dimiliki. Tanpanya, kamu tidak bisa melawan dan sekali saja hancur, semuanya berakhir. Aku ingin tahu siapa yang mengatakan itu.
 
 Ermenhilde bertaruh pada tim Souichi sedangkan Kuuki bertaruh pada Ksatria.
 
 “Renji, menurutmu siapa yang akan menang?” (Kuuki)
 
-“Aku ........ mari kita lihat.”
+“Aku ........ hmm.....”
 
-Peluang paling besar untuk menang adalah dengan tim Souichi atau ksatria. The Brave dan Grand Magus. Di sisi lain, kami memiliki ksatria veteran yang telah berperang dalam perang. Dalam Ordo Ksatria, ada banyak yang datang dari Kota Taktik juga. Dalam hal kekuatan komposit, saya pikir Ksatria adalah yang terkuat.
+Peluang paling besar untuk menang adalah dengan tim Souichi atau ksatria. The Brave dan Grand Magus. Di sisi lain, kami memiliki ksatria veteran yang telah berperang dalam perang. Dalam ksatria Ordo, ada banyak yang datang dari Kota Taktik juga. Dalam hal kekuatan komposit, aku pikir Ksatria adalah yang terkuat.
 
-Tapi itu berarti aku juga akan memihak Kuuki. Itu tidak akan menarik. Ini tidak seperti kita benar-benar berjudi tetapi tetap tidak menyenangkan jika tidak banyak perbedaan pendapat. Tapi itu artinya, pilihan yang saya miliki terbatas. Atau lebih tepatnya, hanya satu yang tersisa.
+Tapi itu berarti aku juga akan memihak Kuuki. Itu tidak akan menarik. bukannya kami benar-benar bertaruh tetapi tetap tidak menyenangkan jika tidak banyak perbedaan pendapat. Tapi itu artinya, pilihan yang aku miliki terbatas. Atau lebih tepatnya, hanya satu yang tersisa.
 
 "Kalau begitu, aku akan bertaruh pada tim Masaki-chan."
 
-"Oh wow. Anda akan berada pada posisi yang cukup dirugikan? ”(Kuuki)
+"Oh wow. kamu akan berada pada posisi yang cukup dirugikan?"(Kuuki)
 
-“Ini tidak seperti kita benar-benar mempertaruhkan apapun. Ini kesempatan bagus untuk pergi ke tim yang tidak diunggulkan sekali. ”
+“kita tidak benar-benar bertaruh. Ini kesempatan bagus untuk pergi ke tim yang tidak diunggulkan sekali. ”
 
-“Eh, kami sebenarnya tidak bertaruh apapun?”
+“Eh, kita sebenarnya tidak bertaruh apapun?”
 
-"……..yang kamu ingin?"
+"……..kamu mau bertaruh?"
 
 “Ayo bertaruh!”
 
-[Kalian berdua, kamu sedang tidak pantas.]
+[Kalian berdua, kalian bertindak tidak pantas.]
 
-Meskipun demikian, saya tidak benar-benar memiliki apa pun untuk dipertaruhkan. Ermenhilde sepertinya mengatakan sesuatu juga tapi aku mengabaikannya.
+Meskipun demikian, aku tidak benar-benar memiliki apa pun untuk dipertaruhkan. Ermenhilde sepertinya mengatakan sesuatu juga tapi aku mengabaikannya.
 
-Saya memikirkan berbagai hal yang saya miliki tetapi tidak ada yang berharga untuk dijual. Saya juga tidak memiliki sesuatu yang langka atau baru.
+aku memikirkan berbagai hal yang aku miliki tetapi tidak ada yang berharga untuk dijual. aku juga tidak memiliki sesuatu yang langka atau baru.
 
 Sambil menyeruput teh yang dibuat oleh maid, Toudou, yang akhirnya mengenakan armor, juga mendatangi kami. Seperti yang diharapkan, itu juga tidak cocok untuknya, sama sepertiku.
 
-“Pakaian bagus memang membuat pria itu, eh?”
+“Pakaian bagus memang membuat seseorang terlihat seperti pria, eh?”
 
 "Aku bisa mengatakannya kembali padamu."
 
-Mengatakan itu, kami berdua mendesah bersama. Dan sekarang kami berdua harus pergi ke depan orang-orang dengan pakaian yang tidak pantas, mendesah itu wajar. Saya mungkin akan berhenti memikirkannya setelah saya berhenti memperhatikannya. Tapi tetap saja, awalnya memang terasa memalukan.
+kami berdua menghela nafas bersama. Dan sekarang kami berdua harus pergi ke depan orang-orang dengan pakaian yang tidak pantas, menghela nafas itu wajar. aku mungkin akan berhenti memikirkannya setelah aku berhenti memperhatikannya. Tapi tetap saja, awalnya memang terasa memalukan.
 
 Di kepalaku aku mendengar [Jangan membicarakannya jika itu hanya membuatmu lebih tertekan.] Tapi aku mengabaikannya.
 
@@ -160,39 +160,39 @@ Di kepalaku aku mendengar [Jangan membicarakannya jika itu hanya membuatmu lebih
 
 "Kami bertaruh pada tim mana yang akan menang." (Kuuki)
 
-“Kamu benar-benar menyukai hal-hal seperti itu bukan?”
+“Kalian benar-benar menyukai hal-hal seperti itu bukan?”
 
-“Lagipula itu salah satu dari sedikit hiburan saya. Jadi yang mana yang Anda pertaruhkan? "
+"Lagipula itu salah satu dari sedikit hiburanku. Jadi apa yang kamu pertaruhkan? "
 
 Aku juga memberitahunya bahwa kami sudah memilih Souichi, Masaki-chan dan tim Knight.
 
-“Kalian sudah memilih favorit…”
+“Kalian sudah memilih terhebat…”
 
 Dia menurunkan bahunya. Nah, itu salahmu karena kamu menghabiskan begitu banyak waktu hanya untuk memakai baju besi.
 
 "Sebelum itu, apa yang kita pertaruhkan?" (Kuuki)
 
-“Akan sulit untuk mempertaruhkan uang. Setelah turnamen selesai, bagaimana kalau makan malam yang mentraktir? ”(Renji)
+“Akan sulit untuk mempertaruhkan uang. Setelah turnamen selesai, bagaimana kalau yang kalah mentraktir makan malam? ”(Renji)
 
-"Terdengar bagus. Meskipun kita semua di sini, kita laki-laki sendiri belum pernah pergi bersama bahkan sekali. ”(Kuuki)
+"Terdengar bagus. Meskipun kita semua di sini, kita laki-laki sendiri belum pernah pergi bersama bahkan sekali."(Kuuki)
 
-"Ya. Sebuah suguhan di restoran Toudou. ”
+"Ya. persembahan dari restoran Toudou."
 
 “Tunggu sebentar …… ..bukankah itu berarti aku harus menyiapkan tempat, makanan dan tenaga?” (Toudou)
 
-"Akan baik-baik saja jika kamu memenangkan taruhan, kan?"
+"semuanya akan baik-baik saja kalau kamu yang menang taruhan, kan?"
 
-“Sebuah tim dengan pemberani dan para kesatria ……… ..semua bendera menunjukkan bahwa aku kalah!” (Toudou)
+“Sebuah tim dengan brave dan para kesatria ……… ..semua bendera menunjukkan bahwa aku kalah!” (Toudou)
 
 "Itu akan baik-baik saja."
 
-"Bagaimana?! Atas dasar apa!?! ”(Toudou)
+"Bagaimana?! Atas dasar apa!?!"(Toudou)
 
 * Kakaka * saat aku tertawa, Toudou membuat suara yang menyedihkan.
 
 Tapi, oh baiklah,
 
-“Makanan yang kamu buat terlalu enak. Saya ingin makan bersama dengan semua orang. Lagipula, kita tidak perlu terlalu perhatian hanya dengan laki-laki. ”(Renji)
+“Makanan yang kamu buat terlalu enak. aku ingin makan bersama dengan semuanya. Lagipula, kita tidak hanya kita-kita saja. ”(Renji)
 
 “Yamada-san …… ..”
 
@@ -200,49 +200,49 @@ Tapi, oh baiklah,
 
 “……… Yah, kurasa bukan berarti diputuskan aku akan kalah juga.”
 
-Mengatakan itu, Toudou tersenyum senang. Pria yang lembut.
+Toudou tersenyum senang. Pria yang lembut.
 
 Yah, aku juga tidak berbohong. Meski begitu, masih lucu melihat dia menerimanya dengan begitu mudah. Ini cara menggoda yang berbeda dari apa yang aku lakukan pada Ermenhilde.
 
-Kuuki juga menyeringai sambil melihat kami berbicara. Aku ingin tahu apa yang mereka pikirkan saat para pelayan di ruangan itu membungkuk dan diam-diam meninggalkan ruangan. Jangankan langkah kaki, bahkan tidak ada suara pintu yang ditutup. Seolah-olah memamerkan keterampilan seorang maid sejati. Yang terpenting, mereka bahkan bisa membaca suasana hati. Saya berharap medali tertentu akan mempelajarinya juga.
+Kuuki juga tersenyum sambil melihat kami berbicara. Aku ingin tahu apa yang para pelayan pikirkan saat para pelayan di ruangan itu membungkuk dan diam-diam meninggalkan ruangan. Jangankan langkah kaki, bahkan tidak ada suara pintu yang ditutup. Seolah-olah memamerkan keterampilan seorang maid sejati. Yang terpenting, mereka bahkan bisa membaca suasana hati. aku berharap medali tertentu akan mempelajarinya juga.
 
-“Fuu, pelayan pasti melelahkan untuk berada di sekitar.”
+“Fuu, sungguh melelahkan berada disekitar pelayan.”
 
-“Bagaimana Anda bisa mengatakannya ketika Anda memiliki beberapa orang yang bekerja di restoran Anda?”
+“Bagaimana kamu bisa berkata seperti itu ketika kamu memiliki beberapa orang seperti itu bekerja di restoranmu?”
 
-“Mereka hanya bertingkah seperti pelayan. Itu bukan yang sebenarnya. Pertama-tama, pelayan sejati tidak akan bekerja sebagai pelayan di restoran, menurutku. ”
+“Mereka hanya bertingkah seperti pelayan. Pada dasarnya, pelayan sejati tidak akan bekerja sebagai pelayan di restoran, menurutku. ”
 
 “Yah, itu benar.”
 
-"Oh benar, kamu telah membuat gaun cadangan yang kamu pakai untuk seragam restoranmu, kan Toudou-san?" (Kuuki)
+"Oh benar, kamu telah membuat gaun cadangan yang kamu pakai untuk seragam restoranmu kan, Toudou-san?" (Kuuki)
 
-Menurut apa yang Kuuki katakan, pakaian yang Toudou dapatkan sama dengan yang dikenakan oleh pelayan kastil.
+Menurut apa yang Kuuki katakan, pakaian yang Toudou dapatkan sama dengan yang dikenakan oleh pelayan istana.
 
-Sepertinya dia meminta kepala pelayan untuk cadangan yang mungkin tersisa. Mengingat wajahnya yang telah membantuku cukup sering, sungguh menakjubkan bagaimana Toudou bisa mengatakan itu langsung padanya.
+Sepertinya dia meminta kepala pelayan untuk cadangan yang mungkin tersisa. Mengingat wajahnya yang telah membantuku cukup banyak, sungguh menakjubkan bagaimana Toudou bisa mengatakan itu langsung padanya.
 
-Dengan rambut coklat panjang yang diikat, Kepala Pelayan cantik dengan aura kesempurnaan di sekelilingnya. Mendengar itu mungkin membuat Anda berpikir bahwa saya akan bernafsu padanya, tetapi dia sebenarnya sangat ketat dan formal. Dia menginginkan kesempurnaan dari semua jenis pekerjaan, atau lebih tepatnya, terlalu keras kepala. Saya tidak berpikir dia pernah mengambil jalan pintas dalam hidupnya. Bagaimanapun, dia hanya ketat. Dan sangat menakutkan. Kecuali untuk apa yang diperlukan, fakta bahwa dia bahkan tidak berbicara ketika di tempat kerja rupanya terkenal dengan pelayan lainnya.
+Dengan rambut coklat panjang yang diikat, Kepala Pelayan cantik dengan aura kesempurnaan di sekelilingnya. Mendengar itu mungkin membuat kamu berpikir bahwa aku akan bernafsu padanya, tetapi dia sebenarnya sangat ketat dan formal. Dia menginginkan kesempurnaan dari semua jenis pekerjaan, atau lebih tepatnya, terlalu keras kepala. aku tidak berpikir dia pernah mengambil jalan pintas dalam hidupnya. dia hanya ketat. Dan sangat menakutkan. Kecuali untuk apa yang diperlukan, fakta bahwa dia bahkan tidak berbicara ketika di tempat kerja rupanya terkenal dengan pelayan lainnya.
 
 Sungguh menakjubkan bagaimana dia bisa mengatakan sesuatu seperti 'tolong berikan pakaian pembantu cadangan kepadaku' langsung padanya.
 
-“Dia sebenarnya tidak menakutkan, tahu? Biasanya, secara pribadi, dia adalah orang yang cukup menarik. ”(Toudou)
+“Dia sebenarnya tidak menakutkan, tahu? secara pribadi, dia adalah orang yang cukup menarik. ”(Toudou)
 
-Itulah yang Toudou katakan. Saya tidak mendengar banyak tapi ternyata dia benar-benar berbeda dari apa yang kita lihat. Aku bahkan tidak bisa membayangkannya seperti itu.
+Itulah yang Toudou katakan. aku tidak mendengar banyak tapi ternyata dia benar-benar berbeda dari apa yang kita lihat. Aku bahkan tidak bisa membayangkannya seperti itu.
 
-Atau lebih tepatnya melihat betapa bahagianya toudou berbicara tentang dia, itu mungkin memberikan ide yang salah kepada anak-anaknya tentang Toudou dan hubungannya. Atau mungkin saya hanya orang dewasa yang kotor?
+Atau lebih tepatnya melihat betapa bahagianya toudou berbicara tentangnya, itu mungkin memberikan ide yang salah kepada anak-anaknya(anak si kepala pelayan) tentang Toudou dan hubungannya. Atau mungkin aku hanya orang dewasa yang kotor?
 
-Saya mencoba bertanya kepadanya tetapi dia menghindari topik itu. Atau lebih tepatnya, Toudou tidak pandai berbohong. Mungkin tidak seperti itu.
+aku mencoba bertanya kepadanya tetapi dia menghindari topik itu. Atau lebih tepatnya, Toudou tidak pandai berbohong. Mungkin tidak seperti itu.
 
-Tch, betapa tidak menariknya.
+Tch, tidak seru.
 
 “Tepat ketika aku berpikir bahwa akhirnya musim semi telah tiba untuk Toudou juga ………” (renji)
 
 "Aku ragu musim semi akan datang untuk orang sepertiku." (Toudou)
 
-“Merendahkan diri seperti biasa, ya? Saya tidak berpikir Anda tidak sepopuler yang Anda buat, tahu? ”(Kuuki)
+“Merendahkan diri seperti biasa, ya? aku tidak berpikir kamu tidak sepopuler yang kamu kira lho... ”(Kuuki)
 
 "Berhenti berbohong." (Toudou)
 
-Seperti biasa dia kurang percaya diri dengan penampilannya, bahkan menyangkal kata-kata Kuuki dengan senyuman. Tinggi badan pendek dan tubuh gemuk. Saya kira kompleksnya tidak akan hilang dalam setahun.
+Seperti biasa dia kurang percaya diri dengan penampilannya, bahkan menyangkal kata-kata Kuuki dengan senyuman. Tinggi badan yang pendek dan tubuh gemuk. aku kira kompleksnya tidak akan hilang dalam setahun.
 
 Meskipun demikian, bahkan saya pikir Toudou sebenarnya mungkin memiliki popularitas. Bukan karena penampilannya tapi kepribadiannya. Dan, dia memang memiliki prestasi telah menaklukkan Dewa Iblis juga. Meskipun dia mungkin tidak akan dikuburkan pada wanita seperti Kuuki dan Souichi, aku cukup yakin mungkin ada wanita yang mendukung Toudou.
 
