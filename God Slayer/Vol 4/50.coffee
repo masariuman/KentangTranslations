@@ -6,15 +6,15 @@ Toudou di sampingku sepertinya sama juga karena dia juga menghembuskan nafas yan
 
 Mengenakan gaun one-piece hitam dengan celemek putih di atas, dan rambut setengah panjang diikat di belakang kepalanya dan ikat kepala ikonik di kepalanya, dia memiliki penampilan sempurna sebagai seorang pelayan. Bahkan suasananya yang ketat tidak berubah membuat orang lain fokus pada tugas mereka juga ……… ..tapi hari ini, atau lebih tepatnya, sekarang, Kepala pelayan ini, yang terkenal selalu tegas dan kasar, nampaknya memiliki ekspresi lembut ketika dia berinteraksi dengan Toudou. Setidaknya, dibandingkan dengan saat aku berada di istana setahun yang lalu, suasananya tampak sangat berbeda. Dia tampak seperti seseorang yang berurusan dengan adik laki-lakinya yang bermasalah, atau mungkin anaknya; dekat namun tetap menjaga jarak di antara mereka.
 
-aku pasti tidak membayangkan ini. Bahkan seperti diriku, aku cukup yakin dengan kemampuanku untuk mengukur wanita.
+aku pasti tidak mengkhayalkan ini. Bahkan orang seperti diriku, aku cukup yakin dengan kemampuanku untuk mengukur wanita.
 
-“Katakan, Toudou.” (Renji)
+“Toudou...” (Renji)
 
 “Hm, Ada apa?”
 
-“Apakah kamu sering muncul di kastil atau apa?”
+“Apakah kamu sering muncul di istana?”
 
-Ketika saya menanyakan itu, dia menatap saya dengan wajah bingung karena tidak mengerti mengapa saya menanyakan itu.
+Ketika aku menanyakan itu, dia menatapku dengan wajah bingung karena tidak mengerti mengapa aku menanyakan itu.
 
 "Tidak, tidak juga, Kenapa?" (Toudou)
 
@@ -26,9 +26,9 @@ Ketika saya menanyakan itu, dia menatap saya dengan wajah bingung karena tidak m
 
 [Kenapa, ada apa?]
 
-Sepertinya dia benar-benar tidak mengerti apa yang aku maksud saat toudou memiringkan kepalanya dengan bingung. Dan Angela-san juga, menjawab tanpa menunjukkan ekspresi apapun di wajahnya.
+Sepertinya dia benar-benar tidak mengerti apa yang aku maksud karena toudou memiringkan kepalanya dengan bingung. Dan Angela-san juga, menjawab tanpa menunjukkan ekspresi apapun di wajahnya.
 
-Apa ini? Bagaimana saya harus mengatakannya, saya merasa ada dinding di antaranya. Mungkin hanya imajinasiku tapi aku cukup sensitif terhadap perubahan seperti itu tahu? ...... Aku yakin ada perbedaan antara bagaimana dia bertindak denganku dan dia.
+Apa ini? Bagaimana aku harus mengatakannya, aku merasa ada dinding di antara mereka. Mungkin hanya imajinasiku saja tapi aku cukup sensitif terhadap perubahan seperti itu lho ...... Aku yakin ada perbedaan antara bagaimana dia bertindak denganku dan dia.
 
 “Fuun ..”
 
@@ -38,45 +38,45 @@ Apa ini? Bagaimana saya harus mengatakannya, saya merasa ada dinding di antarany
 
 [Kamu membuat wajah aneh, Renji.]
 
-Jatuhkan, maukah kamu bermitra Saya lahir dengan wajah aneh ini oke? Sambil merasa sedikit sedih di dalam, saya menjawab itu.
+lupakan itu, aku lahir dengan wajah aneh ini oke? aku menjawab itu Sambil merasa sedikit sedih di dalam hatiku.
 
-Tidak seperti Ermenhilde dan Toudou, Angela-san menyadari sesuatu …… tapi dia terus dengan cepat membantu Toudou melepas armornya. Dia benar-benar pelayan model, aku tidak bisa menemukan cara untuk menggodanya. Saya mungkin akan dimarahi jika saya bertindak terlalu jauh juga jadi saya tidak tahu seberapa jauh saya bisa melakukannya. Setelah dengan rapi menempatkan armor yang telah dilepas di atas meja, aku sedang memikirkan bagaimana cara menggoda Toudou ketika Angela-san melirikku. Di sana, di bawah mata dingin yang menyerupai mata Utano-san, aku merasa aku juga melihat sedikit rasa malu.
+Tidak seperti Ermenhilde dan Toudou, Angela-san menyadari sesuatu …… tapi dia lanjut dengan cepat membantu Toudou melepas armornya. Dia benar-benar pelayan panutan, aku tidak bisa menemukan cara untuk menggodanya. aku mungkin akan dimarahi jika aku bertindak terlalu jauh juga jadi aku tidak tahu seberapa jauh aku bisa melakukannya. Setelah dengan rapi menempatkan armor yang telah dilepas di atas meja, aku sedang memikirkan bagaimana cara menggoda Toudou ketika Angela-san melirikku. Di sana, di bawah mata dingin yang menyerupai mata Utano-san, aku merasa aku juga melihat sedikit rasa malu.
 
 “Apa?” (Renji)
 
 “Seperti biasa, kebiasaanmu menggoda sepertinya belum hilang.” (Angela)
 
-“Meski begitu, aku merasa sebenarnya aku cukup perhatian, tahu?”
+“Meski begitu, aku merasa sebenarnya aku cukup perhatian lho...”
 
 “…… haah.”
 
-Apakah desahannya ditujukan untukku atau untuk Toudou? Atau mungkin itu dimaksudkan untuk dirinya sendiri.
+Apakah hembusan nafasnya ditujukan untukku atau untuk Toudou? Atau mungkin itu dimaksudkan untuk dirinya sendiri.
 
-Kepadatan Toudou jelas merupakan masalah tapi Angela-san tidak membiarkan rasa malunya muncul sama sekali adalah masalah juga. Dia pasti merasa tidak enak badan untuk menunjukkan sisi kepribadiannya.
+Toudou yang kurang peka jelas merupakan masalah tapi Angela-san tidak membiarkan rasa malunya muncul sama sekali adalah masalah juga. Dia pasti merasa tidak enak untuk menunjukkan sisi pribadinya.
 
-Pelayan adalah makhluk yang tampaknya membunuh keinginan pribadi mereka untuk bekerja hanya untuk tuannya. Dia pasti merasa bahwa adalah suatu kesalahan untuk membiarkan sisi kepribadiannya diperlihatkan. Dia tampak sangat mirip dengan Utano-san awal membuat saya merasa sedikit nostalgia. Yah, dia masih bukan tipe yang mengekspresikan banyak emosi dengan mudah.
+Pelayan adalah makhluk yang membunuh keinginan pribadinya sendiri untuk bekerja hanya untuk tuannya. Dia pasti merasa bahwa adalah suatu kesalahan untuk membiarkan sisi pribadinya diperlihatkan. Dia tampak sangat mirip dengan Utano-san dulu dan membuatku merasa sedikit nostalgia. Yah, dia masih bukan tipe yang mengekspresikan banyak emosi dengan mudah.
 
-Sambil memberikan pandangan sekilas pada keduanya yang tampak 'menggoda' sambil melepas armornya, aku dengan lembut membelai set armor yang aku simpan di atas meja. Satu set baju besi mithril lengkap. Saya bertanya-tanya berapa banyak koin perak yang dihabiskan untuk membeli semua ini. (T / N: pengingat, perak> emas di dunia ini)
+Sambil memberikan pandangan sekilas pada keduanya yang tampak 'menggoda' sambil melepas armornya, aku dengan lembut membelai set armor yang aku simpan di atas meja. Satu set baju besi mithril lengkap. aku penasaran berapa banyak koin perak yang dihabiskan untuk membeli semua ini. (TN: ingat, perak > emas di dunia ini)
 
 [Apa yang sedang kamu lakukan?]
 
-"Tidak, hanya, kamu tahu."
+"Tidak ada apa-apa."
 
 [Itu tidak benar-benar memberitahuku apa-apa.]
 
-Biasanya saya tidak memperlakukan Ermenhilde sama berharganya dengan saya memperlakukan set baju besi ini, itu lebih seperti menjentikkannya dengan jari saya atau memukulnya saat berada di saku dll. Suaranya sepertinya agak kesal. Reaksinya sangat lucu sehingga saya menggodanya hanya untuk mendapatkan balasan yang lebih merajuk darinya. Aku, yang benar-benar menikmati suaranya yang kesal, mungkin tidak memiliki kepribadian yang baik.
+Biasanya aku tidak memperlakukan Ermenhilde sama berharganya dengan aku memperlakukan set baju besi ini, seperti menjentikkannya dengan jari atau memukulnya saat berada di sakuku atau hal lainnya. Suaranya sepertinya agak kesal. Reaksinya sangat lucu sehingga aku menggodanya hanya untuk mendapatkan balasan dia semakin merajuk. Aku, yang benar-benar menikmati suaranya yang kesal, mungkin tidak memiliki kepribadian yang baik.
 
-"Bagi saya, yamada-san dan Eru-san tampaknya lebih baik?" (Toudou)
+"Bagiku, hubungan yamada-san dan Eru-san tampaknya menjadi lebih baik?" (Toudou)
 
 [………Betulkah?]
 
-"Yah, ya." (Renji)
+"yeah." (Renji)
 
-Dia sepertinya menyeringai berpikir bahwa dia menggodaku sebagai balasan tapi itu fakta sebenarnya. Sesuatu seperti itu tidak akan menggangguku.
+Dia sepertinya tersenyum angkuh berpikir bahwa dia menggodaku. Sesuatu seperti itu tidak akan menggangguku.
 
-Ermenhilde menjawab itu dengan suara kesal tapi nadanya berubah menjadi lebih baik pada akhirnya mendengar itu. Dia sangat mudah dimengerti. Jadi ketika saya setuju tanpa ragu-ragu, semua mood buruknya menghilang seketika.
+Ermenhilde menjawab itu dengan suara kesal tapi nadanya berubah menjadi lebih baik. Dia sangat mudah dimengerti. Jadi ketika aku setuju tanpa ragu-ragu, semua mood buruknya menghilang seketika.
 
-“Sungguh, kalian berdua sangat rukun.”
+“Sungguh, kalian berdua sangat akur.”
 
 "Tapi siapa yang dia ambil setelah itu, dia mulai memarahiku baru-baru ini." (Renji)
 
