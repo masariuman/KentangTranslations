@@ -314,11 +314,11 @@ Sambil memikirkan itu, aku menutup pintu di belakangku.
 
 "Jika kau tahu tentang itu maka bantu aku sialan."
 
-Duduk di seberangnya, saya berbicara sambil memberikan senyum masam.
+aku duduk didepannya sambil memberikan senyum masam.
 
-Saya teringat kejadian di [Hutan Jiwa yang Membusuk] dan menjadi tidak bisa mengatakan apa-apa lagi. Aku tidak mengerti mengapa dia menghubungi Yui-chan untuk membantuku ketika dia meramalkan kematianku daripada mengambil tindakan sendiri secara langsung. Aku tahu dia menyelamatkanku tapi tetap saja aku tidak mengerti apa yang dipikirkan penyihir chunnibyou wannabe ini.
+aku teringat kejadian di [Hutan Jiwa yang Membusuk] dan tidak bisa mengatakan apa-apa lagi. Aku tidak mengerti mengapa dia menghubungi Yui-chan untuk membantuku ketika dia meramalkan kematianku daripada mengambil tindakan sendiri secara langsung. Aku tahu dia menyelamatkanku tapi tetap saja aku tidak mengerti apa yang dipikirkan penyihir chunnibyou wannabe ini.
 
-Aku ingin tahu apa yang dia pikirkan saat dia tidak mengatakan apa-apa dan menyesap tehnya.
+Aku penasaran apa yang dia pikirkan sekarang dengan dia tidak mengatakan apa-apa dan menyesap tehnya.
 
 [Kamu tampak energik seperti biasanya.]
 
@@ -330,17 +330,15 @@ Cara dia berbicara membuatku merasa seolah-olah hatiku telah dicengkeram.
 
 "Ya, aku dan Ermenhilde baik-baik saja." (Renji)
 
-"Itu hebat. Aku benar-benar mengkhawatirkan kalian berdua, tahu? ”
+"Itu hebat. Aku benar-benar mengkhawatirkan kalian berdua lho..."
 
-Sambil merasa sedikit kehilangan kata-kata, saya mengatakan itu.
-
-Dulu ketika kami dalam perjalanan untuk menaklukkan Dewa Iblis, semua rekan saya memanggil Ermenhilde sebagai Eru.
+Dulu ketika kami dalam perjalanan untuk menaklukkan Dewa Iblis, semua rekanku memanggil Ermenhilde sebagai Eru.
 
 Itu karena aku pernah memanggilnya begitu.
 
-Lagipula, bukankah Ermenhilde adalah nama yang panjang? Jadi saya memberinya sesuatu seperti nama panggilan. Saya menggunakan nama yang lebih mudah diucapkan dan bersahabat.
+Lagipula, bukankah Ermenhilde adalah nama yang panjang? Jadi aku memberinya sesuatu seperti nama panggilan. aku menggunakan nama yang lebih mudah diucapkan dan bersahabat.
 
-Dan ——- Jika Ermenhilde dilahirkan sebagai Senjata Pembunuh Dewa, sebagai alat Dewi ……… Aku ingin memanggilnya dengan nama yang berbeda, itu tidak akan menyebut dia sebagai alat atau senjata. Aku merasa seperti itulah alasan awalnya….
+Dan ——- Jika Ermenhilde dilahirkan sebagai Senjata Pembunuh Dewa, sebagai alat Dewi ……… Aku ingin memanggilnya dengan nama yang berbeda, aku tidak akan menyebut dia sebagai alat atau senjata. Aku merasa seperti itulah alasan awalnya….
 
 ……… .untuk memanggilnya, Eru.
 
@@ -351,47 +349,47 @@ Dan ——- Jika Ermenhilde dilahirkan sebagai Senjata Pembunuh Dewa, sebagai al
 
 "Tidak, tidak apa-apa."
 
-Diatasi dengan nostalgia yang luar biasa sesaat, saya segera menggelengkan kepala untuk melupakannya.
+aku segera menggelengkan kepala untuk melupakannya.
 
 Dan kemudian, aku melihat ke arah Koutarou.
 
-Saya tidak tahu mengapa dia ada di kamar saya tetapi pasti ada alasan jika dia muncul di depan saya. Sejujurnya, aku akan lebih bahagia jika dia datang hanya untuk bersenang-senang denganku.
+aku tidak tahu mengapa dia ada di kamarku tetapi pasti ada alasan jika dia muncul di depanku. Sejujurnya, aku akan lebih bahagia jika dia datang hanya untuk bersenang-senang denganku.
 
-"Dilihat dari kelihatannya, sepertinya kamu belum memberitahunya." (Kou)
+"kelihatannya, sepertinya kamu belum memberitahunya." (Kou)
 
 "Yah begitulah. Aku memang pengecut. "
 
-"Saya melihat. Tentu, seperti yang Anda katakan. "
+"begitu ya... Tentu saja, seperti yang kamu katakan, kamu memang pengecut. "
 
-Bagaimana saya bisa menjelaskannya kepada Ermenhilde?
+Bagaimana aku bisa menjelaskannya kepada Ermenhilde?
 
-Bahwa Anda mati sekali, dan kemudian dihidupkan kembali. Bahwa kamu telah kehilangan sebagian besar ingatanmu dan dirimu yang asli sudah ......
+Bahwa kamu mati sekali, dan kemudian dihidupkan kembali. Bahwa kamu telah kehilangan sebagian besar ingatanmu dan dirimu yang asli sudah ......
 
-…… ..jika aku bisa mengatakan itu, seberapa damai aku lagi? Jika saya mengatakan itu hanya ketika dia dihidupkan kembali, itu akan jauh lebih mudah tetapi bahkan setelah satu tahun berlalu, saya masih tidak tahu bagaimana mengatakan itu padanya. Dan yang terpenting, hubungan kita saat ini juga tidak buruk. Dia bukan Eru sekarang tapi Ermenhilde tapi tetap saja, perjalananku bersamanya adalah ……… ..
+…… ..jika aku bisa mengatakan itu, seberapa damai aku dengannya lagi? Jika aku mengatakan itu hanya ketika dia dihidupkan kembali, itu akan jauh lebih mudah tetapi bahkan setelah satu tahun berlalu, aku masih tidak tahu bagaimana mengatakan itu padanya. Dan yang terpenting, hubungan kami saat ini juga tidak buruk. Dia bukan Eru sekarang tapi Ermenhilde tapi tetap saja, perjalananku bersamanya adalah ……… ..
 
 [Apa yang kalian bicarakan?]
 
 “Aku akan …… menjelaskannya padamu dalam waktu dekat.”
 
-Setelah saya mengatakan itu padanya, berpikir masih enggan, dia sepertinya sudah mengerti untuk saat ini.
+Setelah aku mengatakan itu padanya, mungkin masih kepikiran, tapi dia sepertinya sudah mengerti untuk saat ini.
 
 "Mari berharap bahwa 'segera' milikmu datang segera." (Kou)
 
-Dia berbicara seolah-olah dia mengerti segalanya tentang saya tetapi itu tidak membuat saya kesal sama sekali.
+Dia berbicara seolah-olah dia mengerti segalanya tentangku tetapi itu tidak membuatku kesal sama sekali.
 
-Dia adalah tipe pria yang seperti ini. Dia bertindak seolah-olah pandangan masa depannya menceritakan segalanya dan akan selalu berbicara secara tidak langsung tetapi akan sering membuat kesalahan karena itu.
+Dia adalah tipe pria yang seperti ini. Dia bertindak seolah-olah pandangan masa depannya menceritakan segalanya dan akan selalu berbicara secara tidak langsung tetapi akan sering berakhir salah karena itu.
 
-Dan kita semua yang harus membereskan kekacauannya. Pandangan masa depannya pasti nyaman tapi itu pasti tidak mahakuasa. Masa depan tersebar tanpa batas dan mata Koutarou hanya bisa melihat salah satu kemungkinan kejadian di masa depan yang tak terhitung jumlahnya. Apakah kemampuannya ternyata nyaman atau tidak tergantung pada bagaimana Anda bertindak di atasnya.
+Dan kita semua yang harus membereskan kekacauannya. Pandangan masa depannya pasti nyaman tapi itu pasti tidak terlalu hebat. Masa depan tersebar tanpa batas dan mata Koutarou hanya bisa melihat salah satu kemungkinan kejadian di masa depan yang tak terhitung jumlahnya. Apakah kemampuannya ternyata nyaman atau tidak tergantung pada bagaimana kamu menggunakannya.
 
 Dan saat ini, Koutarou sedang membicarakan tentang bagaimana aku masih belum memberitahu Ermenhilde, Souichi dan yang lainnya …… ​​..tentang Eru.
 
-Ketika Eru meninggal, hanya Utano-san dan Koutarou yang ada di sana. Yah, fafnir tampaknya telah menyadari apa yang terjadi juga.
+Ketika Eru meninggal, hanya Utano-san dan Koutarou yang ada di sana. Yah, fafnir tampaknya telah menyadari apa yang terjadi.
 
 "Kamu seharusnya tidak menyimpan begitu banyak rahasia atau kamu akan berakhir seperti aku, seseorang yang membuat orang lain tidak perlu berhati-hati di sekitarmu." (Kou)
 
 "Jika kau tahu itu maka perbaiki kepribadianmu itu, dasar bodoh."
 
-“Apa, tapi milikku hanya untuk bersenang-senang, Renji-dono.”
+“Apa, tapi aku hanya untuk bersenang-senang, Renji-dono.”
 
 Persetan, idiot.
 
@@ -423,27 +421,27 @@ Sambil menghela nafas, aku akan menyesap tehku ……… menyadari bahwa cangkir
 
 “Jadi, apa yang ingin kamu katakan.” (Renji)
 
-“Umu, benar.”
+“Umu, iya....”
 
-[Seperti biasa, jika kalian berdua, percakapan tidak dilanjutkan, bukan?]
+[Seperti biasa, jika kalian hanya berdua, percakapan pasti tidak berlanjut.]
 
-"Itu benar. Aku, untuk satu, tidak keberatan dengan olok-olok seperti itu tapi Yuuko-dono sangat pemarah sehingga merepotkan. ”(Kou)
+"Itu benar. Aku, tidak keberatan di olok-olok seperti itu tapi Yuuko-dono sangat pemarah jadi itu merepotkan."(Kou)
 
-“Utano-san, yah, ya.”
+“Utano-san ya....., ya.”
 
-Faktanya, sangat bagus bahwa dia setidaknya tahan dengan pembicaraan Anda bahkan sedikit. Jika itu Aya, ada bahaya dia mungkin mulai menembakkan sihir.
+Faktanya, sangat bagus bahwa dia setidaknya tahan dengan pembicaraanmu bahkan sedikit. Jika itu Aya, ada bahaya dia mungkin mulai menembakkan sihir.
 
 “Faktanya, terakhir kali, aku sedikit panik ketika dia benar-benar memindahkanku jauh-jauh ke benua Elfreim.”
 
-"Sungguh menakjubkan bahwa yang Anda lakukan hanyalah sedikit panik pada hal itu."
+"Sungguh menakjubkan bahwa yang kamu lakukan hanyalah sedikit panik pada hal itu."
 
 Jika itu aku, aku mungkin akan diserang oleh beberapa monster dan hampir mati.
 
 Monster di sana jauh lebih terspesialisasi dengan hutan tempat mereka tinggal dan dipenuhi dengan makhluk yang menembakkan hal-hal yang menyebabkan kelainan seperti keracunan, kelumpuhan, dll.
 
-Jika Anda memasuki hutan itu tanpa persiapan apa pun, bahkan saya, yang terbiasa bepergian ke mana pun, tidak akan percaya diri untuk kembali dengan selamat.
+Jika kamu memasuki hutan itu tanpa persiapan apa pun, bahkan aku, yang terbiasa bepergian ke mana pun, tidak akan percaya diri untuk kembali dengan selamat.
 
-“Tapi tetap saja, saya cukup terkejut Renji-dono.”
+“Tapi tetap saja, aku cukup terkejut Renji-dono.”
 
 [Terkejut?]
 
@@ -453,19 +451,19 @@ Jika Anda memasuki hutan itu tanpa persiapan apa pun, bahkan saya, yang terbiasa
 
 Apa yang dia katakan begitu tiba-tiba?
 
-Anda tidak bisa disalahkan untuk terdengar bodoh seperti itu, bukan?
+kamu tidak bisa disalahkan untuk terdengar bodoh seperti itu, bukan?
 
-[Jangan membuat suara bodoh seperti itu. Betapa menyedihkan …… ..]
+[Jangan membuat suara bodoh seperti itu. menyedihkan …… ..]
 
 Oh iya, aku lupa ada orang yang akan menyalahkanku untuk itu, tepat di sampingku.
 
-"Yah itu yang biasa bagimu kurasa." (Kou)
+"Yah itu sudah biasa bagimu kurasa." (Kou)
 
-"Tidak bisakah kamu membuatnya terdengar seperti itu benar-benar normal bahwa aku harus mengurus setiap hal yang merepotkan?" (Renji)
+"Tidak bisakah kamu tidak membuatnya terdengar seperti itu benar-benar normal bahwa aku harus mengurus setiap hal yang merepotkan?" (Renji)
 
-Pertama-tama, saya benci masalah. Bukankah itu tugas Brave?
+Pertama-tama, aku benci masalah. Bukankah itu tugas Brave?
 
-Namun, Koutarou terus tertawa kecil padaku. Karena dia memiliki wajah yang tampak androgini, Anda mungkin salah mengira dia adalah perempuan. Tentu saja tidak.
+Namun, Koutarou terus tertawa kecil padaku. Karena dia memiliki wajah yang tampak androgini, kamu mungkin salah mengira dia adalah perempuan. Tentu saja aku tidak akan mengiranya begitu.
 
 “Jadi, apa yang membuatmu terkejut?” (Renji)
 
@@ -475,11 +473,11 @@ Namun, Koutarou terus tertawa kecil padaku. Karena dia memiliki wajah yang tampa
 
 Saat dia mengatakan itu, wajah pertama yang muncul di benakku adalah Nona Francesca dan yang lainnya, tapi ........ Aku tidak begitu mengerti bagaimana mereka bisa terlibat dalam masalah yang Koutarou bicarakan.
 
-Ms Francesca adalah putri dari keluarga bangsawan tapi dia hanya manusia. Adapun Feirona dan Mururu, yah sepertinya aku tidak tahu segalanya tentang keduanya tapi, aku ragu mereka seseorang yang istimewa.
+nona Francesca adalah putri dari keluarga bangsawan tapi dia hanya manusia. Adapun Feirona dan Mururu, yah sepertinya aku tidak tahu segalanya tentang keduanya tapi, aku ragu mereka seseorang yang istimewa.
 
 Seolah dia bisa merasakan emosiku, Koutarou berdiri dari kursinya.
 
-"Jika Anda penasaran, pergi dan temui Astraera." (Kou)
+"Jika kamu penasaran, pergi dan temui Astraera." (Kou)
 
 [Astraera-sama?]
 
@@ -487,25 +485,25 @@ Seolah dia bisa merasakan emosiku, Koutarou berdiri dari kursinya.
 
 “………… ..”
 
-Tidak dapat menjawab, aku menggaruk pipiku.
+aku diam dan aku menggaruk pipiku.
 
-Sekarang aku memikirkannya, selama satu tahun terakhir, setelah aku membunuh Dewa Iblis ...... aku belum pernah bertemu dengannya sama sekali. Saya sedikit khawatir tentang itu tetapi pada saat yang sama, entah bagaimana saya merasa sulit untuk bertemu dengannya lagi.
+Sekarang aku memikirkannya, selama satu tahun terakhir, setelah aku membunuh Dewa Iblis ...... aku belum pernah bertemu dengannya sama sekali. aku sedikit khawatir tentang itu tetapi pada saat yang sama, entah bagaimana aku merasa sulit untuk bertemu dengannya lagi.
 
-Kami juga memiliki sedikit keadaan kami sendiri, Anda tahu.
+Kami juga memiliki sedikit keadaan kami sendiri.
 
 “Renji-dono, kamu harus segera menghadapi Astraera.” (Kou)
 
-"Ini tidak seperti aku menghindarinya atau semacamnya?"
+"aku tidak bermaksud menghindarinya..."
 
 "Oh benarkah?"
 
 “Ya, itu benar, kamu mantan NEET (hikikomori).”
 
-“I, itu tidak ada hubungannya dengan percakapan kita sekarang, kan !?”
+“aku, itu tidak ada hubungannya dengan percakapan kita sekarang, kan !?”
 
-Melihat dia kehilangan semua fasadnya dengan mudah, seperti biasa, dia sangat lemah terhadap pukulan dan hinaan. Dia tidak berubah, serius.
+Melihat dia kehilangan semua ketenangannya dengan mudah, seperti biasa, dia sangat lemah terhadap hinaan. Dia tidak berubah sama sekali.
 
-Tapi tetap saja —— Astraera, eh? Mencoba mengingatnya, entah bagaimana, aku bahkan tidak bisa mengingat seperti apa penampilannya dengan benar. Yah, kurasa setelah tidak melihatnya selama setahun penuh, wajar kalau wajahnya mulai menghilang dari ingatanku, kurasa. Sedikit menyedihkan untuk jujur.
+Tapi tetap saja —— Astraera, eh? entah bagaimana, aku bahkan tidak bisa mengingat seperti apa penampilannya dengan benar. Yah, kurasa setelah tidak melihatnya selama setahun penuh, wajar kalau wajahnya mulai menghilang dari ingatanku,
 
 Dia wanita cantik dengan rambut perak. Memiliki sedikit kepribadian yang buruk tapi mungkin itu sebabnya, aku juga memiliki kedekatan dengannya ....... tapi, hanya itu yang bisa kuingat.
 
@@ -513,7 +511,7 @@ Dia wanita cantik dengan rambut perak. Memiliki sedikit kepribadian yang buruk t
 
 Tapi tetap saja, ada sedikit perasaan canggung dalam diriku.
 
-Ketika kami menghidupkan kembali Eru, Ermenhilde, saya masih ingat apa yang dia katakan. Saya merasa saya seharusnya mendengarkan apa yang dia katakan dengan baik.
+Ketika kami menghidupkan kembali Eru, Ermenhilde, aku masih ingat apa yang dia katakan. aku merasa aku seharusnya mendengarkan apa yang dia katakan dengan baik.
 
 Karena itulah ………. Rasanya agak canggung untuk pergi dan menemuinya setelah sekian lama.
 
@@ -523,7 +521,7 @@ Ini bukan tentang apa yang dia katakan padaku. Dia hanya akan merasa sedih melih
 
 “Hm?”
 
-Bencana akan terjadi.
+"sebuah Bencana akan terjadi."
 
 Hanya mengucapkan kata-kata itu, Koutarou berjalan menuju jendela.
 
@@ -531,17 +529,17 @@ Saat aku melihat punggungnya, mungil untuk seorang pria, berjalan pergi, cahaya 
 
 "Seperti biasa, kamu tidak bisa berbicara langsung kan?" (Renji)
 
-"Bagaimanapun juga, itu hanya sifat saya."
+"Bagaimanapun juga, itulah sifatku."
 
 "Begitu? Bencana, kedengarannya tidak terlalu lembut. "
 
-“Baiklah, tanyakan tentang itu darinya. Dari wanita yang mengetahui dan memahami kelainan yang terjadi di dunia ini. "
+"Baiklah, tanyakan tentang itu darinya. Dari wanita yang mengetahui dan memahami kelainan yang terjadi di dunia ini. "
 
 Salah satu dari tiga pilar yang menciptakan dunia ini dan makhluk yang disembah sebagai Dewi —- Astraera.
 
-Berbicara tentang kelainan, saya teringat pembicaraan saya dengan Utano-san tempo hari. Perubahan dan stimulasi dalam pergerakan monster. Dan fakta bahwa keturunan Dewa Iblis sedang bergerak.
+Berbicara tentang kelainan, aku teringat pembicaraanku dengan Utano-san tempo hari. Perubahan dan stimulasi dalam pergerakan monster. Dan fakta bahwa keturunan Dewa Iblis sedang bergerak.
 
-Sepertinya Koutarou sangat ingin aku bertemu dengan Astraera. Haruskah saya menganggap dia hanya usil atau menolak dia dengan mengatakan bahwa itu bukan urusannya?
+Sepertinya Koutarou sangat ingin aku bertemu dengan Astraera. Haruskah aku menganggap dia hanya usil atau menolak dia dengan mengatakan bahwa itu bukan urusannya?
 
 ……… kecil, sangat kecil, Aku menghela nafas kecil yang bahkan Ermenhilde tidak menyadarinya.
 
@@ -551,7 +549,7 @@ Dan bahkan tanpa menunggu jawabanku, sosok Koutarou perlahan mulai menghilang �
 
 Sihir teleportasi. Di seluruh dunia ini, hanya dia dan Utano-san yang bisa menggunakannya.
 
-Benua Elfreim, itu benua tempat Demi-manusia seperti Elf dan Beastmen tinggal ——- dan negara yang diawasi oleh Dewa Roh Zwenelia.
+Benua Elfreim, itu benua tempat setengah-manusia seperti Elf dan Beastmen tinggal ——- dan negara yang diawasi oleh Dewa Roh Zwenelia.
 
 [Renji?]
 
@@ -559,15 +557,15 @@ Benua Elfreim, itu benua tempat Demi-manusia seperti Elf dan Beastmen tinggal �
 
 Mengistirahatkan punggungku sepenuhnya di kursi, aku menatap langit-langit.
 
-Mengapa dunia harus selalu melibatkan saya dalam masalahnya? Aku sudah muak bertarung. Hidup sebagai petualang saja sudah lebih dari cukup bagiku.
+Mengapa dunia harus selalu melibatkanku dalam masalahnya? Aku sudah muak bertarung. Hidup sebagai petualang saja sudah lebih dari cukup bagiku.
 
-Tidak lebih —— Aku tidak ingin menempatkannya dalam bahaya lagi.
+dan juga —— Aku tidak ingin menempatkannya dalam bahaya lagi.
 
 Aku tidak tahu berapa lama aku terus menatap langit-langit.
 
-Setelah beberapa saat, pintunya sedikit di ketuk. Saat berbicara, seorang pelayan diam-diam masuk. Itu adalah Angela-san.
+Setelah beberapa saat, ada yang mengetuk pintu. seorang pelayan diam-diam masuk. Itu adalah Angela-san.
 
-"Maafkan intrusi." (Angela)
+"Maaf." (Angela)
 
 “Eh, ya?”
 
@@ -575,25 +573,25 @@ Setelah beberapa saat, pintunya sedikit di ketuk. Saat berbicara, seorang pelaya
 
 Di tangannya ada nampan perak. Dan di atasnya ada sebotol anggur dengan dua gelas.
 
-Oh benar, aku memang mengatakan sesuatu yang acak seperti itu untuk mengirim Toudou kembali ke Angela-san, bukan? Mengingat itu, seolah-olah dia telah melihat melalui diriku yang telah melupakannya, matanya menyipit.
+Oh iya, aku memang mengatakan sesuatu yang acak seperti itu untuk mengirim Toudou kembali ke Angela-san, bukan? Mengingat itu, seolah-olah dia telah melihat melalui diriku yang telah melupakannya, matanya menyipit.
 
 “Apakah kamu akan minum sendirian?” (Angela)
 
 "Tidak, yah, aku sedang berpikir untuk mengundang seseorang nanti."
 
-"Saya melihat."
+"begitu...."
 
-Mengatakan itu, tanpa bersuara, dia meletakkan botol wine di atas meja, Tentu saja, hanya dengan satu gelas.
+tanpa bersuara, dia meletakkan botol wine di atas meja, Tentu saja, hanya dengan satu gelas.
 
 “Ara?” (Angela)
 
-Melihat dua cangkir teh di atas meja, dia menyuarakan keterkejutannya. Dia pasti sadar bahwa tidak ada yang membawa teh ke kamar ini kurasa. Di atas segalanya, tidak ada poci teh. Hanya dua cangkir acak.
+Melihat dua cangkir teh di atas meja, dia terkejut. Dia pasti sadar bahwa tidak ada yang membawa teh ke kamar ini kurasa. dan juga, tidak ada poci teh. Hanya dua cangkir acak.
 
-“Cangkir ini adalah …… ..?” (Angela)
+“Cangkir ini …… ..?” (Angela)
 
-"Seorang teman saya ada di sini, beberapa saat yang lalu." (Renji)
+"Seorang temanku ada di sini, beberapa saat yang lalu." (Renji)
 
-"Saya melihat…"
+"begitu…"
 
 Wajahnya menunjukkan bahwa dia tidak puas dengan jawaban itu tetapi dia tidak bertanya apa-apa lagi dan diam-diam membersihkan cangkirnya.
 
