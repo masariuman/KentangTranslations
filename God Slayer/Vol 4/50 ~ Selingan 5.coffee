@@ -475,13 +475,13 @@ Alasan aku berhasil sejauh ini adalah berkat teman-temanku, yang selalu melindun
 
 Tetapi tetap saja--
 
-“Lalu kenapa, kamu ambil bagian dalam pertunjukan seperti ini?” (Sol)
+“Lalu kenapa, kamu ikut serta dalam pertunjukan seperti ini?” (Sol)
 
-"Tapi menurutku tidak benar menyebut ini 'pertunjukan' .." (fran)
+"menurutku tidak benar menyebut ini 'pertunjukan' .." (fran)
 
-Saya akhirnya memberikan senyum masam pada kata-kata yang begitu jujur ​​olehnya. Ada banyak orang yang putus asa untuk ambil bagian dalam [pertunjukan] ini, tahu?
+aku akhirnya memberikan senyum masam pada kata-kata yang begitu tepat sasaran. Ada banyak orang yang putus asa untuk ikut dalam [pertunjukan] ini lho...
 
-"Aku, ingin tahu seberapa kuat aku, seberapa banyak aku tumbuh, itu saja." (Fran)
+"Aku, ingin tahu seberapa kuat diriku, seberapa banyak aku telah tumbuh, itu saja." (Fran)
 
 "Pertumbuhan?" (Sol)
 
@@ -489,15 +489,15 @@ Saya akhirnya memberikan senyum masam pada kata-kata yang begitu jujur ​​ole
 
 Saat aku mengatakan itu, dia menatapku dengan tatapan bingung.
 
-Wajahnya yang bingung namun tanpa ekspresi sangat mirip dengannya sehingga saya merasa itu sedikit lucu.
+Wajahnya yang bingung namun tanpa ekspresi cocok dengannya sehingga aku merasa itu sedikit lucu.
 
-Saya ingin tahu seberapa besar saya, yang hanya menahan orang lain, menjadi lebih kuat. Saya ingin tahu seberapa besar saya, yang tidak memiliki bakat sama sekali, dapat berkembang. Hal-hal yang saya pelajari dalam perjalanan saya, hal-hal yang saya pelajari di sekolah, saya ingin tahu seberapa jauh saya bisa melangkah sendiri. Turnamen ini adalah kesempatan terbaik untuk mempelajarinya.
+aku ingin tahu seberapa besar aku, yang hanya menahan orang lain, menjadi lebih kuat. aku ingin tahu seberapa besar aku, yang tidak memiliki bakat sama sekali, dapat berkembang. Hal-hal yang aku pelajari dalam perjalananku, hal-hal yang aku pelajari di sekolah, aku ingin tahu seberapa jauh aku bisa melangkah sendiri. Turnamen ini adalah kesempatan terbaik untuk mempelajarinya.
 
-"Saya tidak mengerti." (Sol)
+"aku tidak mengerti." (Sol)
 
-"Saya melihat."
+"begitu ya...."
 
-Itu sebabnya, saya tidak merasa sedih bahkan ketika dia mengatakan itu.
+Itu sebabnya, aku tidak merasa sedih bahkan ketika dia mengatakan itu.
 
 Sekali lagi, aku membelai gagang pedang pendekku. Aku merasa seperti mendapatkan keberanian hanya dengan menyentuh pedang yang telah bersamaku sejak awal perjalananku.
 
@@ -505,15 +505,15 @@ Sekali lagi, aku membelai gagang pedang pendekku. Aku merasa seperti mendapatkan
 
 “Un, semoga berhasil.” (Mururu)
 
-"Ya, pergi dan bersenang-senanglah." (Peri)
+"Ya, pergi dan bersenang-senanglah." (fei)
 
 “........ Kupikir akan sulit bersenang-senang.” (Fran)
 
-Bagaimanapun, kali ini lawan saya akan lebih besar dalam kemampuan dan bakat daripada saya. Dan mereka juga tidak akan lengah terhadap saya.
+Bagaimanapun juga, kali ini lawanku akan lebih kuat dalam kemampuan dan bakat daripada diriku. Dan mereka juga tidak akan lengah terhadapku.
 
-“Lebih percaya diri. Kamu tidak harus mengikuti contoh Renji di daerah itu juga. "(Peri)
+"percaya dirilah. Kamu tidak harus mengikuti Renji untuk hal seperti itu juga. "(fei)
 
-"Apakah saya sangat mirip dengannya?" (Fran)
+"Apakah aku sangat mirip dengannya?" (Fran)
 
 "Jangan terdengar begitu senang tentang itu."
 
@@ -521,7 +521,7 @@ Dia juga terdengar sangat senang. Mururu-chan juga.
 
 Solnea-san terus menatap kami dengan bingung seperti biasanya.
 
-Penasaran saya melihat kembali padanya tetapi tidak seperti dia akan melakukan sesuatu hanya dari itu. Seperti biasa, saya tidak mendapatkannya.
+saya melihat kembali padanya tetapi ya dia tidak berkata apa-apa. Seperti biasa, saya memahaminya.
 
 .
 
