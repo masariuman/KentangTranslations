@@ -597,7 +597,7 @@ Wajahnya menunjukkan bahwa dia tidak puas dengan jawaban itu tetapi dia tidak be
 
 Sungguh hebat bahwa dia tidak mencoba untuk ikut campur sama sekali. Dan saat dia keluar dari kamar,
 
-"Oh, benar," (angela)
+"Oh, iya," (angela)
 
 Tidak dengan cara bicaranya yang formal, dia berbicara dengan nada yang lebih lembut.
 
@@ -619,18 +619,18 @@ Dan hampir tidak membuat suara sama sekali, dia pergi setelah menutup pintu.
 
 Mengingat kata-kata Koutarou, aku berpikir sambil memikirkannya.
 
-Hal-hal yang merepotkan, hal-hal yang sulit, itu semua hal yang biasa bagi saya.
+Hal-hal yang merepotkan, hal-hal yang sulit, itu semua hal yang biasa bagiku.
 
 Souichi, Utano-san, Toudou, dan semua orang tampaknya bekerja keras dengan caranya sendiri dan menikmati dunia ini. Aku tidak bisa membiarkan apapun menghancurkannya.
 
-Saya membuka botol anggur. Saat saya menuangkannya ke dalam gelas, bau yang kaya datang kepada saya.
+aku membuka botol anggur. Saat aku menuangkannya ke dalam gelas, baunya datang kepadaku.
 
-"Sangat sepi untuk minum sendirian, serius." (Renji)
+"sungguh sepi untuk minum sendirian, serius." (Renji)
 
-[Itu karena kamu bertindak sok tanpa alasan. Karena Yuuko dan yang lainnya akan sibuk dengan persiapan besok, mungkin ingin mengundang Hiiragi?]
+[Itu karena kamu bertindak sok tanpa alasan. Karena Yuuko dan yang lainnya akan sibuk dengan persiapan besok, ingin mengundang Hiiragi?]
 
 “Jika aku melakukan itu, aku akan ditendang bukan oleh kuda tapi oleh Angela-san langsung ke neraka.”
 
 [Hah, apa maksudnya itu?]
 
-"Siapa tahu." (T / N: Saya juga tidak tahu: P.)
+"Entalah~~."
