@@ -591,29 +591,29 @@ Lawanku adalah pria dengan wajah yang tampak tangguh sebagai seorang siswa. Deng
 
 “……….”
 
-"Oh, bahkan tidak akan menyapa?" (Nak)
+"Oh, tidak menyapa?" (pria)
 
 Saat aku merasa gugup saat melihat pedang raksasanya, dia memanggilku. Sepertinya dia pria yang cukup ramah.
 
-Di sela-sela arena, aku meliriknya. Saya telah melihat gaya bertarungnya berkali-kali selama turnamen. Dia tipe yang lincah mengayunkan pedang raksasa itu. Dia menunjukkan beberapa celah tetapi tidak mungkin untuk menangkisnya dengan pedang pendekku.
+Di sela-sela arena, aku meliriknya. aku telah melihat gaya bertarungnya berkali-kali selama turnamen. Dia tipe yang lincah mengayunkan pedang raksasa itu. Dia menunjukkan beberapa celah tetapi tidak mungkin untuk menangkisnya dengan pedang pendekku.
 
-Saya mencoba melakukan banyak tindakan balasan selama waktu istirahat tetapi saya bertanya-tanya seberapa baik mereka akan bekerja.
+aku mencoba memikirkan bagaimana cara untuk membalas seranngannya selama waktu istirahat tetapi aku tidak yakin seberapa baik mereka akan bekerja.
 
 “Hm …… ..”
 
-Aku bertanya-tanya apa yang dia pikirkan saat aku tidak menjawab saat dia menggaruk kepalanya dengan tangannya yang bebas.
+Aku penasaran apa yang dia pikirkan saat aku tidak menjawab karena dia menggaruk kepalanya dengan tangannya.
 
 Pada saat yang sama, perkenalan kami berdua akhirnya berakhir.
 
-Sekali lagi, saya menarik napas dalam-dalam.
+Sekali lagi, aku menarik napas dalam-dalam.
 
 "Sekarang,"
 
 Aku menaruh lebih banyak kekuatan di lenganku yang memegang pedang pendek.
 
-Saat dia mengubah posisi dan memegang pedangnya dengan kedua tangannya, di saat yang sama dia mulai mendekat ke arahku tanpa ragu. Pedangnya memiliki jangkauan yang lebih luas, dan dia juga lebih ahli dalam menggunakan pedang. Bahkan jika aku ingin menggunakan sihir, aku ragu dia akan membiarkan itu terjadi. Bagaimanapun, ini adalah ronde ke-3. Melawan lawan yang datang sejauh ini, sihir lusuhku tidak akan bekerja semudah itu.
+Saat dia mengubah posisi dan memegang pedangnya dengan kedua tangannya, di saat yang sama dia mulai mendekat ke arahku tanpa ragu. Pedangnya memiliki jangkauan yang lebih luas, dan dia juga lebih ahli dalam menggunakan pedang. Bahkan jika aku ingin menggunakan sihir, aku ragu dia akan membiarkan itu terjadi. Bagaimanapunjuga , ini adalah ronde ke-3. Melawan lawan yang datang sejauh ini, sihir lusuhku tidak akan bekerja semudah itu.
 
-Sambil memberondong dalam lingkaran di tengah arena, aku mengukur jarak di antara kami. Aku akan mengalihkan perhatiannya dengan pedangku dan menggunakan sihir untuk memberikan pukulan terakhir. Sama seperti biasanya. Atau lebih tepatnya, hanya itu yang bisa saya lakukan.
+Sambil menyerang terus-menerus dalam lingkaran di tengah arena, aku mengukur jarak di antara kami. Aku akan mengalihkan perhatiannya dengan pedangku dan menggunakan sihir untuk memberikan pukulan terakhir. Sama seperti biasanya. Atau lebih tepatnya, hanya itu yang bisa aku lakukan.
 
 “—–Fuh !!”
 
@@ -627,29 +627,29 @@ Aku menerima ayunan pedang yang datang dengan suara hembusan angin dengan pedang
 
 “Waa !!”
 
-Dari pedangku, suara nyaring yang belum pernah kudengar sebelumnya datang. Dihadapkan pada serangan dari pedang yang jelas-jelas jauh lebih besar jumlahnya, pedangku terasa seperti sedang menjerit.
+Dari pedangku, suara nyaring yang belum pernah kudengar sebelumnya datang. Dihadapkan pada serangan dari pedang yang jelas-jelas jauh lebih besar, pedangku terasa seperti sedang menjerit.
 
-Mengalami kesulitan untuk menahan kekuatan pedang, saya mundur beberapa langkah.
+Mengalami kesulitan untuk menahan kekuatan pedang, aku mundur beberapa langkah.
 
-Sangat berat. Ini jauh lebih berat dari yang saya kira.
+Sangat berat. Ini jauh lebih berat dari yang aku kira.
 
 “……… uu.”
 
 “Sungguh menakjubkan kamu bisa menangkisnya dengan pedang tipis itu.”
 
-Tanganku yang memegang pedang sudah mati rasa. Berusaha untuk tidak menunjukkan itu di wajahku, aku memegang pedang dengan kedua tangan. Saya tidak bisa mengambil yang itu hanya dengan satu tangan.
+Tanganku yang memegang pedang sudah mati rasa. aku Berusaha untuk tidak menunjukkan itu di wajahku dan memegang pedang dengan kedua tangan. aku tidak bisa menangkisnya hanya dengan satu tangan.
 
-Mungkin dia menyadarinya ketika pria itu, seolah ingin segera mengakhiri pertempuran ini, bergegas menyerang lagi. Kali ini, dia mengangkat pedangnya tinggi-tinggi.
+Mungkin dia menyadarinya karena pria itu, seolah ingin segera mengakhiri pertempuran ini, bergegas menyerangku lagi. Kali ini, dia mengangkat pedangnya tinggi-tinggi.
 
-Dan dia mengayunkannya ke arahku. Aku menghindari serangan itu dengan menerimanya di bagian terluas pedang pendekku. Suara pedang yang bertabrakan dengan pedang bergema, dan suara pedang besar yang menghantam tanah terdengar jelas bahkan di atas semua sorakan dan teriakan kerumunan .. Permukaan arena pecah dan pecahannya beterbangan.
+Dan dia mengayunkannya ke arahku. Aku menghindari serangan itu dengan menangkisnya pada di bagian terluas pedang pendekku. Suara pedang yang bertabrakan bergema, dan suara pedang besar yang menghantam tanah terdengar jelas bahkan di atas semua sorakan dan teriakan kerumunan .. Permukaan arena pecah dan pecahannya beterbangan.
 
-Aku mencoba untuk terjun ke dadanya tapi pedang besar itu melompat mundur lebih cepat. Tepinya ditujukan untuk kakiku.
+Aku mencoba untuk menyerang dadanya tapi pedang besar itu melompat mundur lebih cepat. ujung pedang itu mengarah kepadaku.
 
-Saya menjadi sedikit terkejut dari serangan tiba-tiba tetapi saya bisa melompat kembali pada saat-saat terakhir dan menghindarinya. Meskipun itu menghantam tanah, pedang besarnya terlihat baik-baik saja.
+aku menjadi sedikit terkejut tetapi aku bisa melompat kembali pada saat-saat terakhir dan menghindarinya. Meskipun itu menghantam tanah, pedang besarnya terlihat baik-baik saja.
 
 “Bukan penghindaran yang buruk.”
 
-"Mengapa, terima kasih." (Fran)
+"terima kasih." (Fran)
 
 Dia mengayunkan pedangnya lagi. Dengan ayunan yang sepertinya bisa memotong bahkan angin, rambutku sedikit bergoyang darinya.
 
