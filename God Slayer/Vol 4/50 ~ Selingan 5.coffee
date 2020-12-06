@@ -521,7 +521,7 @@ Dia juga terdengar sangat senang. Mururu-chan juga.
 
 Solnea-san terus menatap kami dengan bingung seperti biasanya.
 
-saya melihat kembali padanya tetapi ya dia tidak berkata apa-apa. Seperti biasa, saya memahaminya.
+aku melihat kembali padanya tetapi ya dia tidak berkata apa-apa. Seperti biasa, saya memahaminya.
 
 .
 
@@ -531,33 +531,33 @@ saya melihat kembali padanya tetapi ya dia tidak berkata apa-apa. Seperti biasa,
 
 Sorakan meningkat dan aku memusatkan tatapanku.
 
-Yang memasuki area, dengan arena persegi di antara mereka, ada 10 orang. Tidak ada satu pun dari 10 yang lebih tua dari 20 tahun dan merupakan pelajar, namun saya merasa sorakan yang paling besar saat ini dibandingkan dengan semua hari ini.
+ada 10 orang yang memasuki arena persegi. Tidak ada satu pun dari 10 yang lebih tua dari 20 tahun dan merupakan pelajar, namun aku merasa sorakannya paling besar adalah saat ini saat ini dibandingkan dengan sebelum sebelumnya.
 
-Itu wajar saja. Di sisi ini ada Souichi-san dan Aya-san. Di sisi itu adalah Masaki-sama. Ini mungkin pertandingan terbesar hari ini yang paling membuat orang-orang bersemangat.
+Itu wajar saja. Di sisi sini ada Souichi-san dan Aya-san. Di sisi sana adalah Masaki-sama. Ini mungkin pertandingan terbesar hari ini yang paling membuat orang-orang bersemangat.
 
-Saya yakin kita semua tidak lebih dari figuran sekarang. Berpikir seperti itu sebenarnya membuat saya merasa sedikit lebih rileks tetapi tetap tidak membuat kegugupan saya hilang.
+aku yakin kita semua tidak lebih dari figuran sekarang. Berpikir seperti itu sebenarnya membuatku merasa sedikit lebih rileks tetapi tetap tidak membuat kegugupanku hilang.
 
-Tidak peduli siapa penonton yang lebih tertarik, saya masih harus berjuang. Saya belum bisa merasa santai. Saya petarung pertama dari tim kami.
+Tidak peduli siapa yang penonton fokuskan, aku masih harus berjuang. aku belum bisa merasa santai. aku petarung pertama dari tim kami.
 
 "Uwahh."
 
-Di dekatnya, Aya-san membuat suara terkejut dan agak muak. Karena aku, yang berada di ujung terjauh, bisa mendengarnya, aku yakin semua orang juga bisa. Saat melihat, dia meletakkan tangan di dahinya dan mendesah.
+Aya-san membuat suara terkejut dan agak muak. Karena aku, yang berada di ujung terjauh, bisa mendengarnya, aku yakin semua orang juga bisa mendengarnya. Saat melihat, dia meletakkan tangan di dahinya dan menghela nafas.
 
-Di sampingnya, bahkan Souichi-san, meski dia tidak mendesah, wajahnya jelas menegang.
+Di sampingnya, bahkan Souichi-san, meski dia tidak menghela nafas, wajahnya jelas menegang.
 
-Mengikuti pandangan mereka, saya juga melihat pemimpin mereka, Masaki-sama. Bahkan 4 lainnya hanya berseragam sekolah, hanya Masaki-san yang memiliki persenjataan lengkap.
+aku melihat mengikuti arah pandangan mereka, aku melihat pemimpin mereka, Masaki-sama. Bahkan 4 lainnya hanya berseragam sekolah, hanya Masaki-san yang memiliki persenjataan lengkap.
 
-Bisa dikatakan, itu bukanlah baju besi berat atau semacamnya. Dengan rambut hitam panjang yang indah diikat di belakang punggungnya, dia tidak mengenakan seragamnya tapi pakaian tebal seperti petualang. Di atasnya, dia mengenakan pelindung dada bersama dengan sarung tangan di lengan dan pelindung kaki di kakinya. Ini mungkin ringan dan dimaksudkan untuk membatasi gerakan sesedikit mungkin.
+Bisa dikatakan, itu bukanlah baju besi berat atau semacamnya. Dengan rambut hitam panjang yang indah diikat di belakang punggungnya, dia tidak mengenakan seragamnya tapi pakaian tebal seperti petualang. dia mengenakan pelindung dada bersama dengan sarung tangan di lengannya dan pelindung kaki di kakinya. Ini mungkin ringan dan dimaksudkan untuk membatasi gerakan sesedikit mungkin.
 
-Di pinggangnya ada pedang dengan bentuk yang belum pernah kulihat sebelumnya. Itu tidak hanya tergantung di pinggangnya seperti milikku, itu dipasang dengan benar di ikat pinggangnya.
+Di pinggangnya ada pedang dengan bentuk yang belum pernah kulihat sebelumnya. pedang itu di ikat pinggangnya.
 
-Dia tampak persis seperti yang dia lakukan saat mereka kembali ke ibu kota satu tahun yang lalu dengan para pahlawan lainnya setelah mengalahkan Dewa Iblis. Pada dasarnya, dia mengenakan pakaian yang persis seperti yang dia gunakan saat bertarung selama penaklukan Dewa Iblis.
+Dia tampak persis seperti saat mereka kembali ke ibu kota satu tahun yang lalu dengan para pahlawan lainnya setelah mengalahkan Dewa Iblis. Pada dasarnya, dia mengenakan pakaian yang persis seperti yang dia gunakan saat bertarung selama penaklukan Dewa Iblis.
 
 ……… ..Aku bisa memahami reaksi Aya-san dan Souichi-san.
 
-Saya teringat percakapan kembali di dalam ruang tunggu. Masaki-sama benar-benar ingin bertarung melawan Souichi-san dengan serius.
+aku teringat percakapan kembali di dalam ruang tunggu. Masaki-sama benar-benar ingin bertarung melawan Souichi-san dengan serius.
 
-Ekspresinya adalah, dengan senyum berani dia menatap langsung ke Souichi-san.
+dengan senyum berani dia menatap langsung ke Souichi-san.
 
 Melihatnya seperti itu, Souichi-san menggumamkan sesuatu dengan suara rendah. Mungkin, dia pasti sedang membicarakan tentang bagaimana menghadapi Masaki-sama yang sebenarnya serius tentang ini.
 
@@ -569,9 +569,9 @@ Karena Souichi-san yang harus melawannya, sepertinya kita tidak bisa melakukan a
 
 Melihatnya berpakaian seperti itu, dua gadis lainnya juga gelisah dan cemas. Di saat yang sama, setiap anggota dari sisi lain tampak dipenuhi dengan tatapan percaya diri.
 
-Saya bertanya-tanya apakah penampilan pemimpin saja yang mampu membawa perbedaan sebesar ini. Meskipun saya tidak bisa menyebutnya moral, tetapi tim lain pasti memiliki kekuatan lebih dari kami. Dan bahkan di antara penonton, yang bersorak untuk mereka tampaknya lebih tinggi.
+aku penasaran apakah penampilan pemimpin saja mampu membawa perbedaan sebesar ini. Meskipun aku tidak bisa menyebutnya moral, tetapi tim lain pasti memiliki kekuatan lebih dari kami. Dan bahkan di antara penonton, yang bersorak untuk mereka tampaknya lebih nyaring.
 
-Hari sudah malam. Mungkin, dari pertandingan berikutnya mereka akan menggunakan sihir untuk menerangi arena.
+Hari sudah malam. Mungkin, pertandingan berikutnya akan menggunakan sihir untuk menerangi arena.
 
 Dan saat pencahayaan di sekitar berubah, terlepas dari sorakan dari penonton, sebuah [suara] yang ditingkatkan oleh sihir bergema di kepala semua orang. Di saat yang sama, sorakan juga berhenti.
 
@@ -583,11 +583,11 @@ Lakukan yang terbaik, Senpai.
 
 “Dapatkan kemenangan pertama itu untuk kami!”
 
-Di kepalaku, perkenalanku diberikan oleh [suara]. Sekolah tempat saya bersekolah, dan bagaimana saya akhirnya mengambil bagian dalam turnamen. Dan fakta bahwa saya bepergian dengan Renji-sama.
+Di kepalaku, perkenalanku diberikan oleh [suara]. Sekolah tempat aku bersekolah, dan bagaimana aku akhirnya ikut serta dalam turnamen. Dan fakta bahwa aku bepergian dengan Renji-sama.
 
-Agak memalukan, tetapi setelah 3 ronde, Anda akan sedikit terbiasa. Tanpa mempedulikannya, aku menghunus pedang pendekku dan memegangnya di tangan kananku. Aku melihat lurus ke depan tanpa mengalihkan pandangan dari musuh. Mengambil satu napas dalam-dalam, semua pikiran kosong di dalam kepalaku menghilang.
+Agak memalukan, tetapi setelah 3 ronde, kamu akan sedikit terbiasa. Tanpa mempedulikannya, aku menghunus pedang pendekku dan memegangnya di tangan kananku. Aku melihat lurus ke depan tanpa mengalihkan pandangan dari musuh. Mengambil napas dalam-dalam, semua pikiran tidak berguna di dalam kepalaku menghilang.
 
-Lawan saya adalah pria dengan wajah yang tampak tangguh sebagai seorang siswa. Dengan rambut pirang pendek, matanya seolah menahan kekuatan. Menurut perkenalannya, dia seharusnya seumuran denganku tapi struktur tubuhnya terlihat sama dengan pria dewasa. Di tangannya dia memegang pedang yang mungkin tidak akan bisa aku pegang bahkan dengan kedua tangan. Dia saat ini memikulnya.
+Lawanku adalah pria dengan wajah yang tampak tangguh sebagai seorang siswa. Dengan rambut pirang pendek, matanya seolah memiliki kekuatan. Menurut perkenalannya, dia seharusnya seumuran denganku tapi struktur tubuhnya terlihat sama dengan pria dewasa. Di tangannya dia memegang pedang yang mungkin tidak akan bisa aku pegang bahkan dengan kedua tangan. Dia saat ini memikulnya.
 
 “……….”
 
