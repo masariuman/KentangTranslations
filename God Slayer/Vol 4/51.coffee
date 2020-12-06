@@ -136,33 +136,33 @@ Meskipun biasanya dia tidak akan memperhatikan hal-hal seperti ini.
 
 Apakah panjang rambut benar-benar penting baginya sekarang?
 
-"Renji, aku milikmu. itu diperlukan untuk mencari apa yang menurutmu paling menyenangkan. "
+"Renji, aku milikmu. jadi itu diperlukan untuk mencari apa yang menyenangkan dirimu. "
 
 "Tidak, tidak perlu seperti itu."
 
 aku langsung menolak kata-katanya.
 
-aku benar-benar tidak suka bagaimana wanita ini akan memprioritaskanku daripada dirinya sendiri. Anda harus belajar memperlakukan diri sendiri dengan lebih berharga.
+aku benar-benar tidak suka bagaimana wanita ini memprioritaskanku daripada dirinya sendiri. kamu harus belajar memperlakukan dirimu sendiri dengan lebih berharga.
 
-Yah, meski seperti ini, ini jauh lebih baik daripada bagaimana dia kembali saat kita bertemu. Tapi tetap saja, saya sangat berharap dia belajar memberi preferensi pada pendapatnya sendiri daripada pendapat saya. Yah, kita akan mengubahnya perlahan dan pasti saat kita bepergian, kurasa.
+Yah, meski seperti ini, ini jauh lebih baik daripada bagaimana dulu saat pertama kali bertemu. Tapi tetap saja, aku sangat berharap dia belajar memberi preferensi pada pendapatnya sendiri daripada pendapatku. Yah, kita akan mengubahnya perlahan.
 
 Selagi aku memikirkan itu, gadis berambut hitam yang tidak ikut serta dalam percakapan terus menatapku.
 
-"Apa itu?" (Renji)
+"ada apa?" (Renji)
 
 "……..tidak apa."
 
-Dan setelah beberapa saat, dia cemberut dan mengalihkan pandangannya. Mungkin aku memperburuk suasana hatinya dengan hanya berbicara dengan wanita pirang itu. Meskipun dia lebih terlihat seperti orang dewasa, seperti yang diharapkan pemikirannya masih sesuai dengan usianya, seperti anak-anak.
+Dan setelah beberapa saat, dia cemberut dan mengalihkan pandangannya. Mungkin aku memperburuk suasana hatinya dengan hanya berbicara dengan wanita pirang itu. Meskipun dia lebih terlihat seperti orang dewasa, pemikirannya masih sesuai dengan usianya, seperti anak-anak.
 
 “Jadi, Renji, apa yang kamu suka, rambut panjang atau rambut pendek?”
 
-“Saya suka keduanya. Pada dasarnya, itu tergantung pada apakah itu cocok untuk orangnya atau tidak. "
+"aku suka keduanya. Pada dasarnya, tergantung apakah itu cocok untuk orangnya atau tidak. "
 
-"Saya melihat."
+"begitu...."
 
-Jika saya harus memilih, saya lebih suka rambut panjang. Tapi agak memalukan untuk mengatakannya dengan lantang.
+Jika aku harus memilih, aku lebih suka rambut panjang. Tapi agak memalukan untuk mengatakannya dengan lantang.
 
-Ketika saya mengatakan itu sambil berpura-pura bahwa saya tidak terlalu peduli tentang itu, wanita itu meletakkan jarinya ke bibirnya. Kapanpun dia memikirkan sesuatu, wanita ini punya kebiasaan melakukan itu.
+Ketika aku mengatakan itu sambil berpura-pura bahwa aku tidak terlalu peduli tentang itu, wanita itu meletakkan jarinya ke bibirnya. Kapanpun dia memikirkan sesuatu, wanita ini punya kebiasaan melakukan itu.
 
 Dan, gadis berambut hitam, aku tidak tahu apa yang dia pikirkan, terus melirikku. Aah, bahkan memahami apa yang ingin dia katakan tampak sedikit merepotkan dalam situasi seperti itu.
 
@@ -170,17 +170,17 @@ Dan, gadis berambut hitam, aku tidak tahu apa yang dia pikirkan, terus melirikku
 
 "Lalu, Renji, apakah rambutku cocok untukku?" (Eru)
 
-Saya yakin dia tidak terlalu memikirkannya. Saat dia sampai pada kesimpulan ini, dia angkat bicara. Saya yakin itu saja.
+aku yakin dia tidak terlalu memikirkannya.
 
-Tapi tetap saja, rasanya agak salah untuk berbicara seperti itu sambil menutupi apa yang akan dikatakan gadis itu. Meskipun ekspresi gadis itu saat dia panik karena tidak bisa mengatakan apapun juga terlihat manis, dia juga terlihat sedikit menyedihkan.
+Tapi tetap saja, rasanya agak salah berbicara seperti itu sambil menutupi apa yang akan dikatakan gadis itu. Meskipun ekspresi gadis itu dia panik karena tidak bisa mengatakan apapun juga terlihat manis, dia juga terlihat sedikit menyedihkan.
 
-Tapi oh baiklah, saya tidak bisa membantunya di sini dan hanya bisa memberikan senyum masam untuk saat ini.
+Tapi, aku tidak bisa membantunya di sini dan hanya bisa memberikan senyum terpaksa untuk saat ini.
 
-"Saya pikir itu cocok untuk Anda." (Renji)
+"aku pikir itu cocok untukmu." (Renji)
 
-"Saya melihat."
+"begitu ya...."
 
-Lihat, sudah kubilang.
+Lihatlah, sudah kubilang.
 
 Dia tidak berpikir lebih jauh dari itu. Tidak ada perubahan dalam dirinya bahkan setelah aku mengatakan itu. Dia hanya terus memutar dan memainkan rambutnya, itu saja. Karena dia mulai pergi juga, aku juga tidak bisa melihat ekspresinya.
 
@@ -188,15 +188,15 @@ Dia tidak berpikir lebih jauh dari itu. Tidak ada perubahan dalam dirinya bahkan
 
 “………….”
 
-Gadis itu menyimpan sedikit ketidakpuasan namun ingin mengatakan ekspresi seperti sesuatu dan berdiri di sana untuk sementara waktu.
+Gadis itu menyimpan sedikit ketidakpuasan namun ekpresinya mengatakan ingin berdiri di sana untuk sementara waktu.
 
-Tapi gadis itu juga, dengan cepat menyesuaikan kecepatannya dengan wanita itu dan mulai berjalan. Seperti biasa, saya akhirnya harus mengikuti mereka, berjalan sedikit di belakang mereka berdua seperti biasa. Saya bertanya-tanya mengapa saya merasa agak kesepian karenanya.
+Tapi gadis itu juga, dengan cepat menyesuaikan kecepatannya dengan wanita itu dan mulai berjalan. Seperti biasa, aku akhirnya harus mengikuti mereka, berjalan sedikit di belakang mereka berdua seperti biasa.
 
 Setelah berjalan sebentar, angin bertiup kembali.
 
 Aah, ini sangat dingin, serius.
 
-Memikirkan kembali sekarang, ini mungkin pertama kalinya dia menanyakan sesuatu yang berhubungan dengan dirinya sendiri, sesuatu yang tidak berhubungan dengan misinya, menurut saya.
+ini mungkin pertama kalinya dia menanyakan sesuatu yang berhubungan dengan dirinya sendiri, sesuatu yang tidak berhubungan dengan misinya.
 
 .
 
@@ -206,13 +206,13 @@ Memikirkan kembali sekarang, ini mungkin pertama kalinya dia menanyakan sesuatu 
 
 [Apa yang terjadi, Renji?]
 
-“Hm? Ahh. "
+"Hm? Ahh. "
 
-Entah bagaimana, saya tidak merasa mengantuk atau lelah.
+Entah bagaimana, aku tidak merasa mengantuk atau lelah.
 
-Nyatanya, setelah beberapa lama, saya merasa terjaga dan sadar meskipun saya baru saja bangun.
+aku merasa segar dan sadar meskipun aku baru saja bangun.
 
-...... Cukup untuk mengingat mimpi yang baru saja aku lihat.
+...... bahkan bisa mengingat dengan jelas mimpi yang baru saja aku lihat.
 
 [Apa yang terjadi?]
 
@@ -222,31 +222,31 @@ Nyatanya, setelah beberapa lama, saya merasa terjaga dan sadar meskipun saya bar
 
 "Ya."
 
-Bahkan tidak dapat berbicara tentang apa yang saya lihat, saya menggelengkan kepala.
+aku menggelengkan kepala.
 
-Bangun dari tempat tidur, aku melihat ke jendela. Pasti cuaca cerah di luar karena sinar matahari sepertinya menembus bahkan tirai. Terasa cukup hangat meski saat itu musim dingin. Hari ini, kita akan memiliki cuaca yang cukup bagus sepertinya.
+Bangun dari tempat tidur, aku melihat ke jendela. cuaca cerah karena sinar matahari sepertinya menembus tirai. Terasa cukup hangat meski saat itu musim dingin. Hari ini, sepertinya cuaca akan nampak bagus.
 
-[Anda baik-baik saja?]
+[kamu baik-baik saja?]
 
-Sepertinya aku terus merasa sedikit linglung seperti itu, saat Ermenhilde menanyakan itu dengan suara khawatir.
+Sepertinya aku terus merasa sedikit linglung karena Ermenhilde menanyakan itu dengan suara khawatir.
 
-"Ya. Saya pikir saya mungkin tidak cukup tidur. "
+"Ya. aku pikir aku mungkin tidak cukup tidur. "
 
-[Serius. Apakah Anda minum terlalu banyak tadi malam? Betapa menyedihkan ………]
+[Serius. Apakah kamu minum terlalu banyak tadi malam? menyedihkan ………]
 
-“Jangan katakan itu. Minum adalah salah satu dari sedikit kesenangan saya dalam hidup, Anda tahu? "
+"Jangan berkata begitu. Minum adalah salah satu dari sedikit kesenanganku dalam hidupku lho..."
 
-[Kubilang jangan minum terlalu banyak. Saya tidak menyuruh Anda untuk tidak minum sama sekali.]
+[Kubilang jangan minum terlalu banyak. aku tidak menyuruhmu untuk tidak minum sama sekali.]
 
 Sangat kasar, serius.
 
-Saat mendengarkan Ermenhilde, saya akhirnya memberikan senyuman masam. Saya tidak berniat untuk minum terlalu banyak tapi saya yakin orang lain akan mengatakan hal yang sama.
+Saat mendengarkan Ermenhilde, aku akhirnya memberikan senyuman paksa. aku tidak berniat untuk minum terlalu banyak tapi aku yakin orang lain akan mengatakan hal yang sama.
 
-Saat itu, pintu saya diketuk. Ketika aku bangkit dari tempat tidurku dan memberikan jawaban, pintu terbuka dan Aya mengintip dari balik pintu dan, memastikan bahwa aku sudah bangun, masuk. Tidak seperti di dalam mimpiku, rambut panjangnya diikat ke samping dan wajahnya juga terlihat lebih dewasa dari waktu itu. Membandingkan Aya dulu dengan yang sekarang, aku jadi tidak bisa mengatakan apapun. Saya merasa itu tidak sopan.
+Saat itu, pintu diketuk. Ketika aku bangkit dari tempat tidurku dan memberikan jawaban, pintu terbuka dan Aya mengintip dari balik pintu dan, memastikan bahwa aku sudah bangun, dan masuk. Tidak seperti di dalam mimpiku, rambut panjangnya diikat ke samping dan wajahnya juga terlihat lebih dewasa dari waktu itu. Membandingkan Aya dulu dengan yang sekarang, aku jadi tidak bisa mengatakan apapun.
 
-Tanpa menyadari apa yang kupikirkan, Aya mendatangiku dengan ekspresi cerah. Di belakangnya, Souichi dan Yayoi-chan juga datang. Sepertinya trio teman masa kecil itu bersenang-senang bersama hari ini seperti biasa.
+Tanpa menyadari apa yang kupikirkan, Aya mendatangiku dengan ekspresi ceria. Di belakangnya, Souichi dan Yayoi-chan juga datang. Sepertinya trio teman masa kecil itu bersenang-senang bersama hari ini seperti biasa.
 
-Aya dan yayoi-chan tidak akan ambil bagian dalam pertarungan individu jadi mereka memakai seragam akademi sekolah mereka. Tapi Souichi mengenakan pakaian perjalanan / pertarungannya yang biasa kulihat.
+Aya dan yayoi-chan tidak akan ikut serta dalam pertarungan individu jadi mereka memakai seragam akademi sekolah mereka. Tapi Souichi mengenakan pakaian pertarungannya yang biasa kulihat.
 
 Mengenakan pakaian tebal dan terlihat kokoh, dia memiliki pedang tanpa dekorasi di pinggangnya.
 
@@ -254,19 +254,19 @@ Mengenakan pakaian tebal dan terlihat kokoh, dia memiliki pedang tanpa dekorasi 
 
 “Kami mendengar suaramu di dalam jadi berpikir untuk mengundangmu sarapan.”
 
-"Saya melihat."
+"begitu ya...."
 
 Apa sudah waktunya sarapan?
 
-Memikirkan hal itu, saya hendak bangun tetapi menyadari bahwa saya masih mengenakan piyama.
+Memikirkan hal itu, aku hendak bangun tetapi mendadak menyadari bahwa aku masih mengenakan piyama.
 
-"Maaf, saya baru saja bangun." (Renji)
+"Maaf, aku baru saja bangun." (Renji)
 
 “Seperti biasa, kamu lemah di pagi hari saat kamu tidur di ranjang, eh?”
 
-“Untuk beberapa alasan, ya. Padahal aku akan baik-baik saja bahkan tidak tidur sama sekali saat kita berada di luar berkemah. ”(Renji)
+“Untuk beberapa alasan, ya. Padahal aku akan baik-baik saja bahkan tidak tidur sama sekali saat kita berada di luar berkemah.”(Renji)
 
-Terutama tempat tidur di kastil yang sangat lembut sehingga merepotkan. Mungkin karena pelayan mengeringkannya setiap hari, baunya juga harum.
+Terutama tempat tidur di istana yang sangat lembut. Mungkin karena pelayan mengeringkannya setiap hari, baunya juga harum.
 
 Mereka bertiga tidak terlalu mempermasalahkan penampilanku saat ini tapi Aya sendiri sedikit mengalihkan pandangannya dengan pipi merah.
 
@@ -280,7 +280,7 @@ Tapi tetap saja Aya, suara apa yang baru saja kamu buat itu?
 
 Aku tidak mengatakannya tetapi menyadari tatapanku, dia semakin tersipu. Dan Yayoi-chan semakin menggodanya.
 
-"Seperti biasa, kalian rukun." (Renji)
+"Seperti biasa, kalian akrab ya." (Renji)
 
 "Tapi tidak juga."
 
@@ -288,25 +288,25 @@ Souichi mengatakan itu dengan suara lelah sambil terus menggerakkan lengan dan b
 
 Kelihatannya bodoh, tapi kurasa dia pasti mencoba menunjukkan betapa lelahnya dia. Melihat tindakan Souichi, Aya menoleh padanya berharap bisa menyelamatkan dirinya dari godaan.
 
-"Apa, ingin mengatakan sesuatu padaku? (Aya)
+"Apa, ingin mengatakan sesuatu padaku?" (Aya)
 
 "Oh tidak, tidak sama sekali .."
 
 [……… .Cara bicaramu agak aneh Souichi.]
 
-Saya menduga sesuatu pasti telah terjadi setelah dia kalah dari Masaki-chan kemarin. Saya dapat dengan mudah membayangkan apa yang telah terjadi sehingga saya menyadari bahwa saya, juga, telah bersama ketiganya cukup lama sekarang.
+aku menduga sesuatu pasti telah terjadi setelah dia kalah dari Masaki-chan kemarin. aku dapat dengan mudah membayangkan apa yang telah terjadi sehingga aku menyadari bahwa aku, juga, telah bersama ketiganya cukup lama sekarang.
 
-“Jangan terlalu banyak menggertak onii-chan, Aya-chan.” (Yayoi)
+“Jangan terlalu banyak membuli onii-chan, Aya-chan.” (Yayoi)
 
-“Saya tidak menindasnya. Pertama-tama, ini salah Souichi. Kenapa dia harus menggunakan kekuatan Zwenelia disana? ”(Aya)
+“aku tidak membulinya. ini salahnya Souichi. Kenapa dia harus menggunakan kekuatan Zwenelia? ”(Aya)
 
-“Saya, saya tidak melakukannya dengan sengaja, itu terjadi begitu saja. Aku tidak bisa menahannya! ”(Souichi)
+“aku, aku tidak melakukannya dengan sengaja, itu terjadi begitu saja. Aku tidak bisa menahannya! ”(Souichi)
 
 “Kalau begitu belajarlah untuk mengontrol diri sendiri. Bahkan Masaki-san tidak menggunakan pedang iblisnya, kan? ”
 
 “Uu …….”
 
-Saya tidak terlalu peduli tetapi tidak datang ke kamar saya di pagi hari hanya untuk bertarung. Yah, itu hidup jadi aku tidak terlalu membencinya. Melihat mereka bertengkar seperti itu hanya membuatku tersenyum. Biasanya, dengan teman masa kecil dan saudara laki-laki dan perempuan, mereka tumbuh semakin terpisah seiring bertambahnya usia.
+aku tidak terlalu peduli tetapi jangan datang ke kamarku di pagi hari hanya untuk bertengkar. aku juga tidak terlalu membencinya. Melihat mereka bertengkar seperti itu hanya membuatku tersenyum. Biasanya, dengan teman masa kecil dan saudara laki-laki dan perempuan, mereka tumbuh semakin terpisah seiring bertambahnya usia.
 
 Setidaknya dalam kasus saya, hanya beberapa teman saya dari masa kecil saya yang berhubungan dengan saya setelah kami berusia dua puluhan.
 
