@@ -42,7 +42,7 @@ Faktanya, harus dikatakan bahwa dia beruntung baru saja mengalami kerusakan dan 
 
 Aku tidak ragu sedikitpun saat mengatakan itu.
 
-Tentu saja, Aya adalah salah satu yang dipanggil seperti kita dan bahkan cukup kuat untuk disebut sebagai grand magus, yang mencapai puncak sihir.
+Tentu saja, Aya adalah salah satu yang dipanggil seperti kami dan bahkan cukup kuat untuk disebut sebagai grand magus, yang mencapai puncak sihir.
 
 Tapi, aku tahu bahwa kata seperti [pasti] tidak ada.
 
@@ -56,47 +56,47 @@ Seorang manusia yang dikenal sebagai [Pahlawan] tidak diperbolehkan kalah. Itu, 
 
 [Pahlawan] yang dimaksudkan untuk menjadi harapan rakyat harus menang apapun yang terjadi.
 
-Tidak ada hal seperti 'pasti' di dunia ini, namun, kita harus pasti menang.
+Tidak ada hal seperti 'pasti' di dunia ini, namun, kami harus pasti menang.
 
-…… ..kita seperti itu.
+…… ..itulah keberadaan kami.
 
-Meskipun ada saat-saat ketika kami diberitahu bahwa kami hanya berpikir terlalu banyak tentang hal itu tetapi saya percaya bahwa itulah yang dimaksud dengan [Pahlawan].
+Meskipun ada saat-saat ketika kami diberitahu bahwa kami berpikir terlalu banyak tentang hal itu tetapi aku percaya bahwa itulah yang dimaksud dengan [Pahlawan].
 
 Nah, definisi Pahlawan bervariasi dari orang ke orang.
 
-"Daripada itu, awasi dia dengan hati-hati." (Souichi)
+"Daripada itu, tolong perhatikan dia dengan baik." (Souichi)
 
-Mengatakan itu, aku berbalik untuk melihat arena.
+aku berbalik untuk melihat arena.
 
-Di tangan Aya hanya ada tongkat yang terbuat dari kayu ek yang bisa dengan mudah disalahartikan sebagai tongkat biasa.
+Di tangan Aya hanya ada tongkat yang terbuat dari kayu oak yang bisa dengan mudah disalahartikan sebagai tongkat biasa.
 
 Lawannya, meski tumpul, memiliki pedang panjang yang sangat bagus. Dilihat dari caranya sepertinya mahir dengan pedang asing yang disediakan oleh administrasi turnamen, pria itu pasti petarung yang sangat mahir.
 
-Bahkan ekspresinya tampak memegang kepercayaan diri. Biarpun lawannya adalah Aya, dia adalah seorang penyihir. Dia pasti berpikir bahwa jika dia bisa mendorong pertarungan ini menjadi lebih dekat, dia akan bisa mengalahkannya dengan ayunan pedang.
+Bahkan ekspresinya tampak percaya diri. Biarpun lawannya adalah Aya, dia adalah seorang penyihir. Dia pasti berpikir bahwa jika dia bisa mendorong pertarungan ini menjadi lebih dekat, dia akan bisa mengalahkannya dengan ayunan pedang.
 
 Ekspresinya dengan jelas menunjukkan itu.
 
-"Menurutku, ini akan menjadi pengalaman belajar yang baik untukmu juga." (Souichi)
+"Menurutku, ini akan menjadi pembelajaran yang baik untukmu juga." (Souichi)
 
 Di dalam kepalaku, [suara] sihir bergema. Perkenalan lawan dan Aya dimulai.
 
 Sepertinya petarung lawan cukup terkenal di sekolahnya. Dia setahun lebih tua dari kami, dan juga sepertinya memiliki pengalaman sebagai petualang seperti Francesca-senpai.
 
-Sepertinya dia bukan seorang bangsawan yang lahir itulah mengapa dia terlihat bangga dengan skill pedangnya.
+Sepertinya dia bukan seorang bangsawanitulah mengapa dia terlihat bangga dengan skill pedangnya.
 
-Di hadapannya adalah Aya, siswa top Akademi Sihir dan Magus Agung. Salah satu [Pahlawan] yang menaklukkan Dewa Iblis dan juga penyihir terhebat di dunia.
+Di hadapannya adalah Aya, siswa top Akademi Sihir dan grand magus. Salah satu [Pahlawan] yang menaklukkan Dewa Iblis dan juga penyihir terhebat di dunia.
 
-Keduanya saling berhadapan di arena. Yang satu memegang pedang panjang tumpul sementara yang lainnya memegang tongkat kayu yang tampak seperti tongkat.
+Keduanya saling berhadapan di arena. Yang satu memegang pedang panjang tumpul sementara yang lainnya memegang tongkat kayu yang tampak seperti tongkat biasa.
 
-Saya pikir Francesca-senpai juga khawatir karena perbedaan senjata mereka juga. Karena dia tidak mampu menangani pedang besar yang digunakan lawannya dengan pedang pendeknya, dia pasti mengkhawatirkan Aya yang baru saja memiliki tongkat.
+kupikir Francesca-senpai juga khawatir karena perbedaan senjata mereka juga. Karena dia tidak mampu menangani pedang besar yang digunakan lawannya dengan pedang pendeknya, dia pasti mengkhawatirkan Aya yang baru saja memiliki tongkat.
 
 "Sudah dimulai."
 
-Saat aku mengatakan itu, [suara] sihir menyatakan pertandingan dimulai dan pada saat yang sama, pendekar pedang, seperti akal sehat akan mendikte, langsung bergerak untuk mengurangi jarak di antara mereka. Untuk menghentikan Aya mengaktifkan sihir.
+Saat aku mengatakan itu, [suara] sihir menyatakan pertandingan dimulai dan pada saat yang sama, pendekar pedang, langsung bergerak untuk mengurangi jarak di antara mereka. Untuk menghentikan Aya mengaktifkan sihir.
 
-Sihir terwujud dari imajinasi si perapal mantra. Kemudian pertama, agar pesulap menjadi tidak dapat membayangkan dengan bebas, untuk menghalangi proses berpikir mereka, dianggap dasar untuk memberikan tekanan sebanyak mungkin dengan mendekati si penyihir sebanyak mungkin.
+Sihir terwujud dari imajinasi si perapal mantra. Kemudian pertama, agar penyihir menjadi tidak dapat membayangkan dengan bebas, untuk menghalangi proses berpikir mereka, dasarnya adalah memberikan tekanan sebanyak mungkin dengan mendekati si penyihir sebanyak mungkin.
 
-Tentu saja, melawan pesulap normal itu adalah taktik yang sangat berguna.
+Tentu saja, melawan penyihir normal itu adalah taktik yang sangat berguna.
 
 Di dunia ini, pekerjaan penyihir sama dengan artileri. Menggunakan serangan jarak jauh dengan efek area luas untuk menghancurkan kelompok musuh. Itulah harapan pertama dan terpenting dari seorang pesulap di medan perang.
 
