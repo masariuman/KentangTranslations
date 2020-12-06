@@ -2,59 +2,59 @@ Selingan 5
 
 (Francesca POV)
 
-Saat aku duduk di kursi yang disediakan di ruang tunggu, aku menghela nafas.
+aku duduk di kursi yang disediakan di ruang tunggu dan aku menghela nafas.
 
-Perut saya terasa agak berat karena baru saja makan siang tapi itu akan segera dicerna setelah saya beraktivitas di turnamen.
+Perutku terasa agak berat karena baru saja makan siang tapi itu akan baik-baik saja setelah aku beraktivitas di turnamen.
 
-Dibandingkan dengan saat itu dimulai, jumlah peserta sudah menjadi setengah dari jumlah sebelumnya dan kontestan yang tersisa sedang berbicara dengan rekan mereka dengan bebas sekarang. Tidak ada satu tim pun selain kami yang mengenakan seragam sekolah lagi.
+jumlah peserta sudah menjadi setengah dari jumlah sebelumnya dan kontestan yang tersisa sedang berbicara dengan rekan mereka dengan bebas sekarang. Tidak ada satu tim pun selain kami yang mengenakan seragam sekolah lagi.
 
 Di antara dua ruang tunggu yang disiapkan untuk para kontestan, satu lagi digunakan oleh satu-satunya tim pelajar lain, selain kami, yang tersisa di turnamen. Tim [Pengguna Pedang Iblis] Masaki-sama dari kota Taktik.
 
-“Tapi tetap, sangat menyenangkan mengetahui bahwa baik Souichi-sama dan Aya-sama adalah orang yang berhati ringan, kan?”
+“Tapi tetap saja, sangat menyenangkan mengetahui bahwa baik Souichi-sama dan Aya-sama adalah orang yang rendah hati, kan?”
 
-Orang yang mengatakan itu adalah salah satu gadis, lebih muda dariku, di tim kami.
+Orang yang mengatakan itu adalah salah satu seorang gadis, lebih muda dariku, di tim kami.
 
 Dengan wajah dan perawakan kecil, dia terlihat manis dengan rambut pendek berwarna emas yang diikat dengan pita merah. Dia terlihat lebih kekanak-kanakan dari Aya-san, yang juga setahun lebih muda dariku, tapi tetap saja dia memiliki pesonanya sendiri.
 
 Apa yang dia bicarakan adalah kata-kata yang diucapkan kepada kami hari ini ketika kami semua berada di ruangan itu.
 
-'Kami tidak suka disebut dengan sufiks' -sama 'jadi setidaknya coba gunakan' -san '.'
+'Kami tidak suka dipanggil dengan -sama jadi setidaknya coba gunakan -san .'
 
 “Ya, untuk orang-orang yang menyandang gelar Pahlawan, mereka bahkan dengan sigap mendengarkan pikiran dan pendapat kita juga.”
 
-Orang yang menjawab juga adalah seorang gadis dari tim kami —– dan seusia denganku.
+Orang yang menjawabnya juga adalah seorang gadis dari tim kami —– dan seusia denganku.
 
-Dengan rambut merah cerah dan mata yang terlihat percaya diri, ekspresinya dipenuhi dengan kepercayaan diri. Dia memiliki pesona yang tidak saya miliki.
+Dengan rambut merah cerah dan mata yang terlihat percaya diri, ekspresinya dipenuhi dengan kepercayaan diri. Dia memiliki pesona yang tidak aku miliki.
 
-Dia juga hanya sedikit lebih pendek dariku, masih cukup tinggi untuk seorang gadis. Bahkan seragamnya yang dia kenakan dengan sempurna di sekolah, karena tidak ada orang di sini untuk menegurnya, kancing dadanya lebih terbuka dari biasanya. Saya pikir dia adalah tipe orang yang serius tapi saya rasa ini lebih merupakan kepribadian alaminya.
+Dia juga hanya sedikit lebih pendek dariku, masih cukup tinggi untuk seorang gadis. Bahkan seragam yang dia kenakan di sekolah, karena tidak ada orang di sini untuk menegurnya, kancing dadanya lebih terbuka dari biasanya. aku pikir dia adalah tipe orang yang serius tapi aku rasa ini merupakan kepribadian alaminya.
 
-“Aku benar-benar terkejut …… bahwa keduanya begitu lalai dengan formalitas dan hal-hal seperti itu.”
+“Aku benar-benar terkejut …… bahwa keduanya begitu santai dengan formalitas dan hal-hal seperti itu.”
 
-"Ya. Saya selalu berpikir bahwa mereka memiliki kepribadian yang lebih ketat. Bagaimana menurutmu, Francesca? ”
+"Ya. aku selalu berpikir bahwa mereka memiliki kepribadian yang lebih ketat. Bagaimana menurutmu, Francesca?"
 
-Memiliki topik tiba-tiba beralih ke arah saya, saya terkejut karena saya hanya mendengarkan obrolan mereka dengan linglung. Reaksiku pasti terlihat lucu karena keduanya tertawa.
+karena tiba-tiba dia bertanya kepadaku, aku terkejut karena aku hanya mendengarkan obrolan mereka dengan linglung. Reaksiku pasti terlihat lucu karena keduanya tertawa.
 
 “Sepertinya kamu sudah bekerja keras hari ini, senpai.”
 
-“Yah, semua yang dikatakan dan dilakukan, dia memang menang dalam pertarungannya di pertandingan babak pertama dan babak kedua. Kamu benar-benar luar biasa. ”
+“Yah, dia memang menang dalam pertarungannya di pertandingan babak pertama dan babak kedua. Kamu benar-benar luar biasa. ”
 
 “Sungguh, aku sangat terkejut.”
 
-“…… ..Aku pikir lawan hanya lengah saja terhadapku.” (Fran)
+“…… ..Aku pikir lawanku hanya lengah saja terhadapku.” (Fran)
 
 “Meski begitu, itu bagus.”
 
-Bagi mereka yang mengetahui nilai saya di sekolah, perasaan mereka pasti lebih rumit dari sekedar kejutan murni. Sebagian besar bangsawan sangat mementingkan status dan peringkat. Turnamen seperti ini berdampak besar pada skor kelulusan dan bahkan peringkat seluruh keluarga begitu banyak yang mengincar kemenangan di dalamnya. Meskipun kemenangan saja tidak akan meningkatkan nilai Anda tetapi baginya yang pasti bertujuan untuk evaluasi yang baik namun kalah pasti tidak menganggap ini lucu.
+Bagi mereka yang mengetahui nilaiku di sekolah, perasaan mereka pasti lebih rumit dari sekedar terkejut. Sebagian besar bangsawan sangat mementingkan status dan peringkat. Turnamen seperti ini berdampak besar pada skor kelulusan dan bahkan peringkat seluruh keluarga maka dari itu begitu banyak yang mengincar kemenangan diturnamen ini. Meskipun kemenangan saja tidak akan meningkatkan nilaimu tetapi yang pasti bertujuan untuk mendapatkan evaluasi yang baik dan bila kalah jangan memalukan.
 
 Gadis yang lebih muda, tampaknya benar-benar terkejut.
 
-Pesulap bukanlah pekerjaan yang bertarung satu lawan satu. Itu diajarkan saat di sekolah dan fakta yang saya pelajari saat bepergian juga.
+penyihir bukanlah pekerjaan yang bertarung satu lawan satu. Itu diajarkan saat di sekolah dan faktanya aku juga mempelajarinya saat bepergian juga.
 
-Kami perlu dilindungi sambil bersiap untuk menembakkan sihir kami dan ketika Anda kehabisan energi magis, Anda tidak berguna. Meski kita memiliki banyak kelemahan, begitu sihir menjadi aktif, kita bisa bertarung dengan kekuatan luar biasa.
+Kami perlu dilindungi sambil bersiap untuk menembakkan sihir kami dan ketika kamu kehabisan energi magis, kamu tidak berguna. Meski kita memiliki banyak kelemahan, begitu sihir menjadi aktif, kita bisa bertarung dengan kekuatan luar biasa.
 
-Meskipun kami perlu dilindungi, kami melampaui ksatria atau tentara dalam hal daya tembak. Eksistensi yang cukup ekstrim jika saya mengatakannya sendiri.
+Meskipun kami perlu dilindungi, kami melampaui ksatria atau tentara dalam hal daya tembak. bisa kubilang Eksistensi kami cukup ekstrim juga.
 
-Dan bagi mereka berdua yang merupakan penyihir stereotip, mereka dikalahkan sebelum mereka dapat mengaktifkan sihir mereka.
+Dan bagi mereka berdua yang merupakan penyihir stereotipe, mereka dikalahkan sebelum mereka dapat mengaktifkan sihir mereka.
 
 Meskipun mereka belajar untuk saat-saat seperti itu, masih sulit untuk mengalahkan seseorang yang dapat bertarung secara normal tanpa perlindungan. Faktanya, meskipun aku tidak belajar bagaimana menggunakan pedang, tapi pertama kali aku pergi dalam perjalanan, aku hampir dibunuh oleh goblin. Keduanya mungkin beruntung setidaknya tidak ada bahaya bagi hidup mereka di sini.
 
@@ -66,13 +66,13 @@ Meskipun mereka belajar untuk saat-saat seperti itu, masih sulit untuk mengalahk
 
 "Iya."
 
-Itu benar jadi aku bisa menatap matanya dan mengangguk. Gadis berambut merah itu bertanya tentang apa selama perjalananku ....... apa aku diajari oleh Renji-sama.
+Itu benar jadi aku bisa menatap matanya dan mengangguk. Gadis berambut merah itu bertanya tentang perjalananku ....... apa aku diajari oleh Renji-sama.
 
-Tapi sebenarnya, aku hanya bepergian bersamanya dan satu-satunya hal yang dia ajarkan padaku adalah dasar-dasar perjalanan dan bagaimana menerapkannya …… ​​..sebagai diajari sesuatu, hanya ada sihir perangkap dan pentingnya itu. Juga, dia menjelaskan tentang ekologi monster.
+Tapi sebenarnya, aku hanya bepergian bersamanya dan satu-satunya hal yang dia ajarkan padaku adalah dasar-dasar perjalanan dan bagaimana menerapkannya …… ​​..hanya ada sihir perangkap yg kupelajari. dia dia menjelaskan tentang ekologi monster.
 
-Alasan saya bisa menang seperti ini adalah karena pengalaman saya melawan monster.
+Alasan aku bisa menang seperti ini adalah karena pengalamanku melawan monster.
 
-Monster jauh lebih kuat dan lebih cepat dari manusia normal. Dan selama setengah bulan terakhir, saya terus-menerus menghadapi lawan seperti itu. Itu dan lawan saya pasti lengah karena mengira mereka hanya menghadapi seorang siswa. Saya tidak jika saya bisa menang sekali lagi.
+Monster jauh lebih kuat dan lebih cepat dari manusia normal. Dan selama setengah bulan terakhir, aku terus-menerus menghadapi lawan seperti itu. lawanku pasti lengah karena mengira mereka hanya menghadapi seorang siswa. aku tidak akan bisa menang sekali lagi.
 
 “Bagaimanapun juga, kamu bepergian dengan [Pahlawan] kan? Apakah dia mengajarimu sesuatu yang istimewa atau sesuatu ……… .. ”
 
@@ -80,23 +80,23 @@ Monster jauh lebih kuat dan lebih cepat dari manusia normal. Dan selama setengah
 
 Renji-sama mengutamakan pertarungan menggunakan pengalamannya sendiri sebagai fokus. Tak terhitung, berkali-kali, dia telah bertarung melawan monster, membunuh dan menghargai pengalaman hidup melalui pertarungan itu.
 
-Dan karena Renji-sama seperti itu, dengan bepergian bersamanya dan mengawasinya, saya belajar hal-hal yang berguna bagi saya. Saya belajar berbagai hal seperti kebiasaan dan spesialisasi monster juga.
+Dan karena Renji-sama seperti itu, dengan bepergian bersamanya dan mengawasinya, aku belajar hal-hal yang berguna bagiku. aku belajar berbagai hal seperti kebiasaan dan spesialisasi monster juga.
 
-Dia tidak pernah membicarakannya tapi saya pikir dia mungkin lebih tahu tentang monster dan ekologi mereka daripada Feirona-san dan Mururu-chan. Dia sendiri mengatakan bahwa dia telah menghabiskan banyak waktu untuk mempelajari hal-hal seperti itu.
+Dia tidak pernah membicarakannya tapi aku pikir dia mungkin lebih tahu tentang monster dan ekologi mereka daripada Feirona-san dan Mururu-chan. Dia sendiri mengatakan bahwa dia telah menghabiskan banyak waktu untuk mempelajari hal-hal seperti itu.
 
-Semua dikatakan dan dilakukan, tidak peduli seberapa banyak bakat yang Anda miliki, tidak peduli kekuatan seperti apa yang Anda terima dari dewi, dia percaya bahwa belajar adalah hal yang paling penting.
+Semua dikatakannya dan dilakukannya, tidak peduli seberapa banyak bakat yang kamu miliki, tidak peduli kekuatan seperti apa yang kamu terima dari dewi, dia percaya bahwa belajar adalah hal yang paling penting.
 
 Tapi, yah, dia spesial dengan caranya sendiri. Dia memang memiliki senjata khusus yang disebut Ermenhilde-sama.
 
 "Apakah begitu?"
 
-"Iya. Setelah berbicara, saya mengetahui bahwa dia sebenarnya orang yang cukup ramah. Dia tidak meninggalkan seorang amatir sepertiku. "(Fran)
+"Iya. Setelah berbicara dengannya, aku mengetahui bahwa dia sebenarnya orang yang cukup ramah. Dia tidak meninggalkan seorang amatir sepertiku. "(Fran)
 
 "hmmm.."
 
-Topik telah berubah dari Souichi-san dan Aya-san di beberapa titik tetapi jika mereka ingin terus berbicara, saya tidak keberatan.
+Topik telah berubah dari Souichi-san dan Aya-san di beberapa titik tetapi jika mereka ingin terus berbicara, aku tidak keberatan.
 
-Untuk beberapa alasan, setelah diketahui bahwa saya bepergian dengan Renji-sama, entah bagaimana mereka menjadi lebih jauh di sekitar saya. Meskipun saya beruntung bertemu dengannya.
+Untuk beberapa alasan, setelah diketahui bahwa aku bepergian dengan Renji-sama, entah bagaimana mereka menjadi lebih jauh dariku. Meskipun aku beruntung bertemu dengannya.
 
 “Oh iya, Renji-sama bahkan mengatakan hal yang sama dengan Souichi-san juga.” (Fran)
 
@@ -108,25 +108,25 @@ Untuk beberapa alasan, setelah diketahui bahwa saya bepergian dengan Renji-sama,
 
 Saat aku mengatakan itu pada mereka, keduanya membuat suara terkejut dengan suara nyaring. Tapi saat berikutnya, mereka dengan cepat melihat ke peserta lain yang berdiri di dekatnya dan dengan cepat menutup mulut mereka sambil tersipu malu.
 
-Apakah itu benar-benar aneh? Tapi saya merasa sama terkejutnya saat mendengar ini pertama kali.
+Apakah itu benar-benar aneh? Tapi aku merasa sama terkejutnya saat mendengar ini pertama kali.
 
 Setelah berbicara sebentar, karena lelah berbicara, kami mengambil nafas.
 
-“Tapi semua dikatakan dan dilakukan, kami akhirnya maju jauh lebih dari yang diharapkan.”
+“Tapi yaah, kita akhirnya maju jauh lebih dari yang diharapkan.”
 
 Gadis yang lebih tua menggumamkan itu.
 
 Kami melewati 2 putaran.
 
-Itu sangat antiklimaks sehingga kami tidak dapat benar-benar merasakan bahwa itu benar. Itu karena tidak seperti kami, para siswa, kami bertarung bersama dengan dua orang yang berada di level yang sama sekali berbeda.
+Itu sangat antiklimaks sehingga kami tidak dapat benar-benar merasakan bahwa itu nyata. karena tidak seperti kami, para siswa, kami bertarung bersama dengan dua orang yang berada di level yang sama sekali berbeda.
 
 Souichi-san dan Aya-san.
 
 Mereka sangat riang dan mudah diajak bicara, tetapi sebagai pemegang gelar pahlawan yang menyelamatkan dunia, perbedaan kemampuan kami jelas.
 
-Setelah berjuang mati-matian, kami menang sedikit tetapi keduanya menang tanpa sedikit pun dalam bahaya. Bahkan melawan, petualang yang lebih tua dan berpengalaman, itu tidak berubah.
+Setelah berjuang mati-matian, kami menang sedikit tetapi keduanya menang tanpa sedikit pun dalam bahaya. Bahkan melawan petualang yang lebih tua dan berpengalaman, itu tidak berubah.
 
-"Saya bisa memberi tahu teman-teman saya tentang ini."
+"aku bisa memberi tahu teman-temanku tentang ini."
 
 "Fufu, itu benar."
 
@@ -136,9 +136,9 @@ Yah, itu akan sama jika bukan karena keduanya.
 
 “Selain itu, Francesca, apakah kamu juga berniat menggunakan pedang itu di pertempuran berikutnya?”
 
-Mengatakan itu, tatapannya mengarah ke pedang pendek yang tergantung di pinggangku.
+tatapannya mengarah ke pedang pendek yang tergantung di pinggangku.
 
-"Ya, saya berencana untuk, mengapa?" (Fran)
+"Ya, mengapa?" (Fran)
 
 Apakah ada masalah?
 
@@ -148,57 +148,57 @@ Aku memiringkan kepalaku dalam kebingungan tidak mengerti apa yang dia maksud ke
 
 “Lagipula, itu hanya pedang besi kan?”
 
-"Baiklah."
+"iya."
 
 Saat aku mengatakan itu, mereka menghela nafas lagi.
 
-“Turnamen ini adalah kesempatan yang langka. Bukankah seharusnya Anda menggunakan pedang yang lebih baik? Ayo, mau pergi tapi yang baru sekarang? ”
+“Turnamen ini adalah kesempatan yang langka. Bukankah seharusnya kamu menggunakan pedang yang lebih baik? Ayo, mau beli yang baru sekarang? ”
 
 "Ah."
 
-“Benar, senpai. Jika Anda memiliki pedang yang lebih kuat, Anda akan bisa tampil lebih baik. "
+"Benar, senpai. Jika kamu memiliki pedang yang lebih kuat, kamu akan bisa tampil lebih baik. "
 
-Saya ingin tahu tentang itu.
+entahlaah...
 
-Mereka mungkin berbicara dengan niat baik tetapi saya ragu hasil saya akan berubah, apakah baik atau buruk, bahkan jika saya membeli pedang baru sekarang.
+Mereka mungkin berbicara dengan niat baik tetapi aku ragu hasilku akan berubah, apakah baik atau buruk, bahkan jika aku membeli pedang baru sekarang.
 
-“Itu karena aku terbiasa menggunakan yang ini.” (Fran)
+“aku terbiasa menggunakan ini.” (Fran)
 
 "Yang itu?"
 
 "Iya."
 
-Saya mengerti, meskipun hanya sedikit, mengerti apa yang ingin mereka katakan. Mungkin tampak aneh bagi seseorang yang ikut serta dalam turnamen menggunakan pedang biasa seperti itu.
+aku mengerti, meskipun hanya sedikit, mengerti apa yang ingin mereka katakan. Mungkin tampak aneh bagi seseorang yang ikut serta dalam turnamen menggunakan pedang biasa seperti itu.
 
-Tapi tetap saja, itu adalah pedang yang telah saya gunakan sejak pertama kali saya mulai bepergian. Saya terikat padanya dan juga terbiasa dengannya. Bahkan jika aku mendapat pedang baru sekarang, aku ragu aku akan bisa menggunakannya sebaik pedang pendek ini.
+Tapi tetap saja, itu adalah pedang yang telah aku gunakan sejak pertama kali aku mulai bepergian. aku terikat padanya dan juga terbiasa dengannya. Bahkan jika aku mendapat pedang baru sekarang, aku ragu aku akan bisa menggunakannya sebaik pedang pendek ini.
 
-Sambil merasakan tatapan mereka, aku dengan lembut menepuk gagang pedangku. Ketika saya melakukannya, entah bagaimana, saya merasa lebih berani.
+Sambil merasakan tatapan mereka, aku dengan lembut menepuk gagang pedangku. Ketika aku melakukannya, entah bagaimana, aku merasa lebih berani.
 
-“Kamu harus menggunakan sihir yang di-enchant atau setidaknya pedang yang dibuat dengan bahan yang lebih baik. Seperti yang dilakukan siswa Akademi. ”
+“Kamu harus menggunakan sihir penguat atau setidaknya pedang yang dibuat dengan bahan yang lebih baik. Seperti yang dilakukan siswa Akademi. ”
 
 "Haa." (Fran)
 
-Diberitahu bahwa saya tidak bisa mengatakan apa-apa.
+aku tidak bisa mengatakan apa-apa.
 
-Senjata penyihir adalah tongkat / tongkat. Bertindak sebagai katalis saat menggunakan sihir dan juga bisa digunakan sebagai senjata tumpul saat dibutuhkan. Bahkan Aya-san biasanya menggunakan tongkat kayu dengan keahlian.
+Senjata penyihir adalah tongkat. Bertindak sebagai katalis saat menggunakan sihir dan juga bisa digunakan sebagai senjata tumpul saat dibutuhkan. Bahkan Aya-san biasanya menggunakan tongkat kayu dengan keahlian.
 
 Meskipun dia meningkatkan kemampuan fisiknya dengan sihir, dia masih bisa mengalahkan petualang veteran hanya dengan tongkat kayu. Sampai sekarang dia belum memiliki lawan yang membutuhkan penggunaan sihir yang sebenarnya tapi aku masih bisa membayangkan bagaimana penampilannya saat bertarung di medan perang. Seperti itulah seharusnya seorang penyihir sejati.
 
-Tapi apakah aku salah menggunakan pedang sebagai ganti tongkat? Jika pedang ini digosok dengan sihir atau pedang mithril, itu masih akan baik-baik saja.
+Tapi apakah aku salah menggunakan pedang sebagai ganti tongkat? Jika pedang ini tanamkan dengan sihir atau pedang ini adalah pedang mithril, itu masih akan baik-baik saja.
 
-Saya berpikir seperti itu tetapi saya tidak perlu terlalu memikirkannya sekarang. Saya tahu saya tidak bisa tiba-tiba mengubah cara saya bertarung. Saya tidak begitu ahli. Jika saya meributkan hal-hal seperti itu, itu hanya akan berakhir dengan kegagalan saya.
+aku berpikir seperti itu tetapi aku tidak perlu terlalu memikirkannya sekarang. aku tahu aku tidak bisa tiba-tiba mengubah caraku bertarung. aku tidak begitu ahli. Jika aku memusingkan hal-hal seperti itu, itu hanya akan berakhir dengan kegagalanku.
 
-Saat saya memberikan anggukan samar kepada teman-teman saya, pintu kamar membuat suara dan terbuka. Tatapan semua orang beralih ke sana.
+Saat aku memberikan anggukan samar kepada teman-temanku, pintu kamar membuat suara dan terbuka. Tatapan semua orang beralih ke sana.
 
 “Terima kasih atas kerja kerasmu, Aya-sama.”
 
-“Ah, ya. Terima kasih. "(Aya)
+"Ah, ya. Terima kasih. "(Aya)
 
-Aya-san membalas sapaan mereka dengan cara yang agak lelah. Aku ingat betapa dia tidak suka dipanggil dengan sufiks '-sama' ketika aku bepergian bersamanya sebentar.
+Aya-san membalas sapaan mereka dengan tampak lelah. Aku ingat dia tidak suka dipanggil dengan '-sama' ketika aku bepergian bersamanya sebentar.
 
-Dia sangat mirip dengan Renji-sama dalam hal itu. Souichi-sama memberikan gambaran untuk mengesampingkan semuanya tapi Renji-sama dan Aya-sama selalu membuat ekspresi yang sulit setiap kali seseorang berbicara kepada mereka seperti ini.
+Dia sangat mirip dengan Renji-sama dalam hal itu. Souichi-sama selalu bilang abaikan saja tapi Renji-sama dan Aya-sama selalu membuat ekspresi yang kerepotan setiap kali seseorang berbicara kepada mereka seperti ini.
 
-Bukan seperti Pahlawan yang merasa menyenangkan dan menawan sebagai gantinya. Aku bertanya-tanya apakah aku tidak sopan untuk berpikir seperti itu?
+rasanya tidak seperti pahlawan tapi terasa hangat. apakah aku tidak sopan untuk berpikir seperti itu?
 
 “Apa yang terjadi Aya-san, kamu sepertinya sedikit lelah.”
 
@@ -206,9 +206,9 @@ Bukan seperti Pahlawan yang merasa menyenangkan dan menawan sebagai gantinya. Ak
 
 "Yang selanjutnya?"
 
-Siapa itu? Saya mencoba mengingat.
+Siapa itu?
 
-Itu akan menjadi pemenang pertandingan berikutnya …… ​​..itu artinya, baik tim petualang ibukota atau tim pelajar kota Taktik.
+antara tim petualang ibukota atau tim pelajar kota Taktik.
 
 Itu artinya, lawan kita berikutnya haruslah tim pelajar kota taktik.
 
@@ -216,37 +216,37 @@ Itu artinya, lawan kita berikutnya haruslah tim pelajar kota taktik.
 
 Saat aku bertanya, bukan hanya Aya-san, bahkan dua gadis lainnya membuat wajah terkejut.
 
-Kupikir hasil matematikanya sudah cukup jelas hanya dari ekspresi Aya-san?
+Kupikir sudah cukup jelas hanya dari ekspresi Aya-san?
 
-"ya itu betul. Saya bertemu Masaki-san, sedikit. ”
+"ya itu betul. aku bertemu Masaki-san, sebentar. "
 
-"Sedikit?"
+"sebentar?"
 
 “…… ..yeah, sesuatu seperti itu.”
 
-Apa yang terjadi, saya bertanya-tanya?
+Apa yang terjadi?
 
 Saat aku memiringkan kepalaku dalam kebingungan ke arah Aya-san yang tidak terlalu jelas, selanjutnya Souichi-san datang melalui pintu. Ekspresinya sama bermasalahnya dengan Aya-san.
 
 “Terima kasih atas kerja kerasmu, Souichi-sama.”
 
-Mengatakan itu, gadis seumuran denganku dengan tersenyum pergi untuk berbicara dengannya. Yang lebih muda, tertinggal satu langkah, dengan cepat mengikutinya menuju Souichi-san.
+gadis seumuran denganku tersenyum pergi untuk berbicara dengannya. Yang lebih muda, tertinggal satu langkah, dengan cepat mengikutinya menuju Souichi-san.
 
-Dikelilingi oleh gadis-gadis itu, biasanya Souichi-san akan memiliki ekspresi bahagia, namun tidak jelas seperti biasanya, tetapi saat ini, seolah-olah dia bahkan tidak menyadari gadis-gadis itu ada di sana, dia memiliki wajah yang benar-benar bermasalah.
+Dikelilingi oleh gadis-gadis itu, biasanya Souichi-san akan memiliki ekspresi bahagia, namun tidak seperti biasanya, saat ini, seolah-olah dia bahkan tidak menyadari gadis-gadis itu ada di sana, dia memiliki wajah yang benar-benar bermasalah.
 
-Sekali lagi, saya melihat ke arah Aya-san.
+Sekali lagi, aku melihat ke arah Aya-san.
 
-"Masaki-san, telah mengusulkan Souichi untuk bertarung satu sama lain dengan serius." (Aya)
+"Masaki-san, telah meminta Souichi untuk bertarung dengan serius." (Aya)
 
 Serius?
 
 "Yah, mereka tetap tidak akan menggunakan senjata masing-masing."
 
-Serius, yaitu dengan kekuatan penuh. Bahkan sekarang saya merasa mereka sudah terlalu bertenaga. Untuk melangkah lebih jauh dari itu …… ..aku bahkan tidak bisa membayangkan betapa menakjubkannya mereka. Bukannya aku pernah menginjak medan perang yang berlangsung sampai setahun yang lalu bahkan sekali. Hanya para prajurit dan ksatria veteran yang aktif yang akan menyadari kekuatan penuh keduanya.
+Serius, yaitu dengan kekuatan penuh. Bahkan sekarang aku merasa mereka sudah terlalu kuat. Untuk melangkah lebih jauh dari itu …… ..aku bahkan tidak bisa membayangkan betapa menakjubkannya mereka. aku tidak pernah menginjak medan perang yang berlangsung sampai setahun yang lalu bahkan sekali jadi Hanya para prajurit dan ksatria veteran yang aktiflah yang akan menyadari kekuatan penuh keduanya.
 
 Siswa seperti kami hanya bisa membayangkan betapa menakjubkannya mereka.
 
-Bayangan Renji-sama muncul di kepalaku tapi bahkan dia belum menunjukkan kekuatan penuhnya. Satu-satunya saat dia bahkan memegang Ermenhilde-sama adalah saat melawan para Orc itu dan dalam pertempuran melawan Ogre di dekat Magic CIty. Dan dalam kedua kasus itu, menurut Souichi-san, itu jauh dari kekuatan penuh Renji-sama.
+Bayangan Renji-sama muncul di kepalaku tapi bahkan dia belum menunjukkan kekuatan penuhnya. Satu-satunya yang bisa dibayangkan saat dia memegang Ermenhilde-sama adalah saat melawan para Orc itu dan dalam pertempuran melawan Ogre di dekat Magic CIty. Dan dalam kedua kasus itu, menurut Souichi-san, itu jauh sekali dari kekuatan penuh Renji-sama.
 
 Saat aku duduk di sana tidak bisa membayangkan betapa luar biasanya kekuatan penuh Souichi-san dan Masaki-sama, Aya san tertawa sambil menatapku.
 
