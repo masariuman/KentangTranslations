@@ -78,39 +78,39 @@ Ermenhilde menjawab itu dengan suara kesal tapi nadanya berubah menjadi lebih ba
 
 “Sungguh, kalian berdua sangat akur.”
 
-"Tapi siapa yang dia ambil setelah itu, dia mulai memarahiku baru-baru ini." (Renji)
+"Tapi dia jadi mirip siapa, dia mulai memarahiku baru-baru ini." (Renji)
 
 [Itu karena kamu selalu tidak disiplin.]
 
-Saat Toudou mengatakan itu, Ermenhilde menjawab dengan suara keras seolah-olah aku telah mengatakan sesuatu yang salah. Tapi tetap saja, suaranya masih tampak lebih bahagia dari biasanya. Kurasa suasana hatinya pasti sudah lebih baik.
+Ermenhilde menjawab dengan suara keras seolah-olah aku telah mengatakan sesuatu yang salah. Tapi tetap saja, suaranya masih tampak lebih bahagia dari biasanya. Kurasa suasana hatinya pasti sudah lebih baik.
 
 Mungkin karena aku tidak terlalu memperhatikannya akhir-akhir ini. Atau mungkin karena aku telah memegang pedang mithril itu sebagai gantinya selama beberapa hari terakhir.
 
 “Jadi, bagaimana kabarmu akhir-akhir ini, Angela-san?”
 
-"baru saja?"
+"akhir-akhir ini?"
 
 “Aku sedang membicarakanmu, Toudou.” (Renji)
 
 Ketika aku mengatakan itu sambil tertawa, Toudou hanya memiringkan kepalanya dalam kebingungan dan di belakangnya, Angela-san menyipitkan matanya tanpa membiarkan Toudou menyadarinya.
 
-Bahkan matanya yang dingin dan kuat sekarang hanya tampak seperti cara untuk menyembunyikan rasa malunya.
+Bahkan matanya yang dingin dan kuat sekarang hanya tampak seperti caranya untuk menyembunyikan rasa malunya.
 
 "Aku akan menyerahkannya pada imajinasimu, Renji-sama." (Angela)
 
-Bahkan saat mendengarkan percakapan kami, dia terus melepas armor Toudou dengan terampil. Seperti yang diharapkan dari Kepala Pelayan, kurasa. Mungkin dia telah menyadari niat saya, dia tidak membiarkan emosi mengalir ke kata-katanya, apalagi ekspresinya.
+Bahkan saat mendengarkan percakapan kami, dia terus melepas armor Toudou dengan terampil. Seperti yang diharapkan dari Kepala Pelayan. Mungkin dia telah menyadari niatku, dia tidak membiarkan emosi mengalir ke kata-katanya, apalagi ekspresinya.
 
 Seperti yang diharapkan, aku pasti bisa merasakan dinding perbedaan antara aku dan Toudou.
 
-Saya tidak benar-benar merasa sedih tentang itu, sebenarnya itulah yang membuat ini sangat lucu.
+aku tidak benar-benar merasa sedih tentang itu, sebenarnya itulah yang membuat ini sangat lucu.
 
 [Kamu membuat wajah menggoda lagi, Renji.]
 
-“Apa yang Anda maksud dengan, 'lagi'?”
+“Apa yang kamu maksud dengan, 'lagi'?”
 
-Saya tidak ingat pernah membuat wajah seperti itu sebelumnya.
+aku tidak ingat pernah membuat wajah seperti itu sebelumnya.
 
-Dan Toudou seperti biasa membuat wajah bingung tidak benar-benar mengerti apa yang sedang terjadi ....... Orang ini begitu bebal!
+Dan Toudou seperti biasa membuat wajah bingung tidak benar-benar mengerti apa yang sedang terjadi ....... Orang ini begitu tidak peka!
 
 Apa dia bahkan tidak menyadari bahwa aku tidak mendapat bantuan dari seorang maid pun karena persiapan untuk turnamen sangat sibuk?
 
@@ -118,37 +118,37 @@ Apa dia bahkan tidak menyadari bahwa aku tidak mendapat bantuan dari seorang mai
 
 “Taruhan?” (Renji)
 
-"Bukankah kita bertaruh bahwa pemenang akan disuguhi makanan?"
+"Bukankah kita bertaruh bahwa pemenang akan ditraktir makan?"
 
-[Oh ya.]
+[Oh iya.]
 
-“Untuk apa kamu 'oh yeah'-ing? Kamu yang pertama kalah, Ermenhilde. ”(Renji)
+“Untuk apa kamu 'oh iya'? Kamu juga kalah, Ermenhilde. ”(Renji)
 
 [………]
 
-Jadi dia diam saat itu melawannya ya?
+Jadi dia akan diam kalau itu tidak sesuai dengan kemauannya ya?
 
-Yah, bagaimanapun juga Ermenhilde tidak bisa memasak. Atau lebih tepatnya, saya ragu ada yang mengira bahwa di antara tim yang kami pilih, tim Souichi akan menjadi yang pertama kalah.
+Yah, bagaimanapun juga Ermenhilde tidak bisa memasak. Atau lebih tepatnya, aku ragu ada yang mengira bahwa di antara tim yang kami pilih, tim Souichi akan menjadi yang kalah.
 
-Jika saya harus mengatakannya, kami semua mengira tim petualang dari Kota Niaga tempat Toudou bertaruh akan keluar yang pertama. Lagipula, biarpun mereka memiliki equipment yang bagus, mereka tetaplah amatir ......... yah, mungkin itu terlalu banyak bicara tapi memang benar pengalaman mereka rendah. Meskipun alasannya mungkin karena tidak banyak monster di dekat sana. Itu mungkin efek dari keturunan dewa iblis juga tapi mari kita kesampingkan itu untuk saat ini.
+Jika aku harus mengatakannya, kami semua mengira tim petualang dari Kota Niaga tempat Toudou bertaruh akan menjadi yang pertama kalah. Lagipula, biarpun mereka memiliki equipment yang bagus, mereka tetaplah amatir ......... yah, mungkin aku terlalu banyak bicara tapi memang benar pengalaman mereka rendah. Meskipun alasannya mungkin karena tidak banyak monster di dekat sana. Itu mungkin efek dari keturunan dewa iblis juga tapi mari kita kesampingkan itu untuk saat ini.
 
-Yang lebih penting adalah duel Souichi dan Masaki-chan. Saya tidak menyangka Souichi akan kalah karena melanggar aturan. Yah, itu menyenangkan untuk ditonton sendiri dan itu benar-benar membuat penonton bersemangat juga jadi tidak apa-apa.
+Yang lebih penting adalah duel Souichi dan Masaki-chan. aku tidak menyangka Souichi akan kalah karena melanggar aturan. Yah, itu benar-benar membuat penonton bersemangat juga jadi tidak apa-apa.
 
-Transformasi Souichi. Dia memiliki tidak hanya dewi Astraera tetapi juga perlindungan ilahi Dewa Jiwa Zwenelia. Itu adalah karakteristik khusus dari Brave only dan juga bukti bahwa dia adalah pengguna Pedang Suci juga. Di antara kita semua 13, hanya dia yang telah menerima perlindungan ilahi dari 2 dewa.
+Transformasi Souichi. Dia memiliki tidak hanya dewi Astraera tetapi juga perlindungan ilahi Dewa Jiwa Zwenelia. Itu adalah karakteristik khusus dari Brave dan juga bukti bahwa dia adalah pengguna Pedang Suci juga. Di antara kita semua 13, hanya dia yang telah menerima perlindungan ilahi dari 2 dewa.
 
-Saat digunakan, rambutnya menjadi perak dan matanya menjadi emas. Memang tidak sebanyak Koutarou tapi penampilannya sedikit berubah. Selain berwajah anak-anak juga, Souichi akhirnya terlihat lebih seperti perempuan. Jika dia sedikit lebih tinggi, dia benar-benar akan terlihat seperti Astraera seperti yang dikatakan orang.
+Saat digunakan, rambutnya menjadi perak dan matanya menjadi emas. Memang tidak seperti Koutarou tapi penampilannya sedikit berubah. Selain berwajah anak-anak juga, Souichi akhirnya terlihat lebih seperti perempuan. Jika dia sedikit lebih tinggi, dia benar-benar akan terlihat seperti Astraera seperti yang dikatakan orang-orang.
 
 "Yah pada akhirnya, orang yang memenangkan taruhan itu adalah Kuuki." (Renji)
 
-"ya. Aku akan menyiapkan tempat dan bahan jadi setidaknya bantu aku memasak, oke? ”(Toudou)
+"ya. Aku akan menyiapkan tempat dan bahan jadi setidaknya bantu aku memasak, oke? "(Toudou)
 
 "Tentu. Yah, bahkan aku akan merasa tidak enak jika aku tidak banyak membantu. "
 
-[Apa yang harus saya lakukan?]
+[Apa yang harus aku lakukan?]
 
-“Bersorak dan dorong kami saat kami bekerja atau sesuatu.”
+“Bersorak dan semangati kami saat kami melakukannya atau sesuatu seperti itu.”
 
-[Baik.]
+[Baiklah.]
 
 “Tidak, tunggu, itu akan sangat tidak biasa baginya untuk melakukan hal seperti itu atau lebih tepatnya, bagaimana aku harus mengatakan ini ………” (toudou)
 
@@ -156,31 +156,29 @@ Melihat pembicaraan kami, Toudou berbicara dengan nada bermasalah. Dia pasti san
 
 Tentu saja, bahkan jika Ermenhilde bersorak untuk kami seperti [Lakukan yang terbaik! ~] Bahkan aku tidak akan tahu wajah seperti apa yang harus dibuat setelahnya.
 
-Saat kami melanjutkan obrolan seperti itu, Angela-san selesai melepas armor dari Toudou. Mengapa butuh lebih banyak waktu daripada saya untuk melepas baju besinya saat saya melakukannya sendiri? Saya ragu saya akan mendapatkan jawabannya meskipun saya bertanya.
+Saat kami melanjutkan obrolan seperti itu, Angela-san selesai melepas armor dari Toudou. Mengapa butuh lebih banyak waktu daripada aku untuk melepas baju besinya? aku ragu aku akan mendapatkan jawabannya meskipun aku bertanya.
 
 "Yah, hadiahnya akan diberikan setelah turnamen sepenuhnya berakhir." (Renji)
 
-“Entah bagaimana, kedengarannya seperti kamu baru saja mengibarkan bendera sejujurnya.” (Toudou)
+“Entah bagaimana, jujur kedengarannya seperti kamu baru saja mengibarkan suatu bendera.” (Toudou)
 
-“Oi, idiot, diamlah. Jangan sial. ”
+“Oi, idiot, diamlah. ”
 
 Serius kenapa dia mengatakan sesuatu seperti itu.
 
-“Saya tidak berniat untuk mengibarkan bendera apapun sekarang.
+"aku tidak berniat untuk mengibarkan bendera apapun sekarang."
 
-Mengatakan itu, aku melonggarkan kerah kemeja yang aku kenakan di bawah armor.
+aku melonggarkan kerah kemeja yang aku kenakan di bawah armor.
 
-Kerahnya pasti ketat dan dia bergerak di sekitar leher dan bahunya sambil tersenyum.
+"Sekarang, aku akan mengambil armourmu untuk disimpan." (Angela)
 
-"Sekarang, aku akan mengambil armourmu untuk diamankan." (Angela)
+dia bertepuk tangan dan beberapa pelayan, mereka mungkin menunggu di balik pintu, masuk.
 
-Mengatakan itu, dia bertepuk tangan ketika beberapa pelayan, mereka mungkin menunggu di balik pintu, masuk.
+Tunggu jika begitu sebanyak itu, tidak bisakah salah satu dari ini membantuku melepas baju besi juga? aku tidak merasa itu tidak masuk akal tetapi entah bagaimana, aku merasa sedikit tidak meyakinkan, membuatku merasa agak aneh.
 
-Tunggu jika begitu banyak yang tersedia, tidak bisakah salah satu dari ini membantu saya melepas baju besi juga? Saya tidak merasa itu tidak masuk akal tetapi entah bagaimana, saya merasa sedikit tidak yakin, membuat saya merasa agak aneh.
+aku Memberikan ucapan terima kasih kepada para pelayan dan mulai meninggalkan ruangan.
 
-Memberikan ucapan terima kasih kepada para pelayan, saya mulai meninggalkan ruangan.
-
-Tapi, ketika saya pergi, salah satu dari mereka berkata "Tolong belajar membaca suasana hati lebih banyak." sebagai balasan.
+Tapi, ketika aku pergi, salah satu dari mereka berkata "Tolong belajar membaca suasana hati lebih baik lagi.".
 
 [Jadi Renji buruk dalam membaca suasana hati ya?]
 
@@ -188,21 +186,21 @@ Tapi, ketika saya pergi, salah satu dari mereka berkata "Tolong belajar membaca 
 
 Memberikan jawaban singkat, aku menghela nafas.
 
-Tapi ayolah, aku hanya bisa menggodanya. Seorang pelayan bertali lurus dan juru masak yang padat. Aku yakin bahkan para pelayan, yang tampaknya mengawasi perkembangan mereka dengan hati-hati, seharusnya menikmati ini juga.
+Tapi ayolah, aku hanya bisa menggodanya. Seorang pelayan dan juru masak yang gemuk. Aku yakin bahkan para pelayan, yang tampaknya mengawasi perkembangan mereka dengan hati-hati, seharusnya menikmati ini juga.
 
-Mungkin karena aku tidak memakai armor lagi, tubuhku terasa dingin saat aku berjalan melewati koridor batu bersama Toudou. Kami tidak melewati orang lain mungkin karena semua orang menonton turnamen. Hanya pelayan dan penjaga berbaju baja yang tersisa. Semua akan membungkuk saat mereka melewati kita tetapi pikiran mereka sepertinya tidak ada di sini. Saya yakin mereka ingin menonton turnamen juga.
+Mungkin karena aku tidak memakai armor lagi, tubuhku terasa dingin saat aku berjalan melewati koridor batu bersama Toudou. Kami tidak melewati orang lain mungkin karena semua orang menonton turnamen. Hanya pelayan dan penjaga berbaju baja yang tersisa. Semua akan membungkuk saat mereka melewati kami tetapi pikiran mereka sepertinya tidak ada di sini. aku yakin mereka ingin menonton turnamen juga.
 
 "Ada apa?" (Toudou)
 
-“Nah, hanya memikirkan betapa indah dan damai itu sekarang.”
+“Nah, hanya memikirkan betapa indah dan damai sekarang.”
 
-"Ya. Itu bagus. ”
+"Ya. Itu bagus."
 
 Baik aku dan Toudou menggumamkan hal yang sama.
 
-Mungkin terasa seperti kita orang tua ketika mengatakan itu. Sambil memikirkan itu, saya belok kiri di persimpangan jalan.
+Mungkin terasa seperti kita orang tua ketika mengatakan itu. Sambil memikirkan itu, aku belok kiri di persimpangan jalan.
 
-Oh benar.
+Oh iya...
 
 Di sana, aku teringat sesuatu dan meninggikan suaraku dan melihat ke arah Toudou. Sambil melihatku yang berhenti tiba-tiba, Toudou juga berhenti.
 
@@ -228,7 +226,7 @@ Ada apa dengan tatapan muak itu? Saat dihadapkan dengan tatapan jijik Toudou, ak
 
 “Jangan katakan itu.” (Renji)
 
-Keluarkan Ermenhilde dari sakuku, aku mengelus tepi medalinya dengan lembut.
+kuKeluarkan Ermenhilde dari sakuku, aku mengelus tepi medalinya dengan lembut.
 
 Atau lebih tepatnya, aku bertindak sebagai dewa asmara antara kamu dan Angela-san oke? Bukannya aku terluka saat pelayan menyuruhku membaca suasana hati atau apapun, oke?
 
@@ -236,11 +234,11 @@ Atau lebih tepatnya, aku bertindak sebagai dewa asmara antara kamu dan Angela-sa
 
 “Tapi, bukankah Angela-san akan marah?”
 
-“Jangan khawatir. Faktanya, dia akan senang. "
+"Jangan khawatir. Faktanya, dia akan senang. "
 
-[Faktanya, dia akan muak dengan kamu untuk jujur.]
+[Faktanya, dia akan muak dengan kamu.]
 
-Yah, tidak bisa menyangkal itu. Bahkan Ermenhilde sedang berbicara dengan suara lelah sekarang. Sambil mengatakan itu saat aku berjalan meninggalkan Toudou, aku mendengar desahan dari belakang. Dan kemudian aku mendengar langkah kakinya ke arah lain.
+Yah, aku tidak bisa menyangkal itu. Bahkan Ermenhilde sedang berbicara dengan suara lelah sekarang. Sambil mengatakan itu saat aku berjalan meninggalkan Toudou, aku mendengar helaan nafas dari belakang. Dan kemudian aku mendengar langkah kakinya ke arah lain.
 
 [Bahkan aku merasa kasihan pada Hiiragi sekarang …….]
 
@@ -248,39 +246,39 @@ Yah, tidak bisa menyangkal itu. Bahkan Ermenhilde sedang berbicara dengan suara 
 
 [haah …… ..]
 
-Nah jika ini menghasilkan kemajuan pada keduanya, dia akan menjadi orang yang berterima kasih kepada saya.
+Nah jika ini menghasilkan kemajuan pada keduanya, dia akan menjadi orang yang berterima kasih kepadaku.
 
-………… Saya mungkin harus menebusnya, saya rasa.
+………… aku mungkin harus menebusnya, kurasa.
 
-Sudah setahun sejak saya pergi dalam perjalanan saya. Mereka mungkin telah membuat beberapa kemajuan sejak mereka bertemu sementara itu, tetapi mereka pasti tidak bisa disebut pasangan. Maka hal seperti ini mungkin tidak akan menghasilkan kemajuan sama sekali ………… yah, itu akan menjadi hasil yang memuaskan jika mereka setidaknya bisa menikmati satu sama lain saat dalam suasana pesta.
+Sudah setahun sejak aku pergi dalam perjalananku. Mereka mungkin telah membuat beberapa kemajuan sejak mereka bertemu, tetapi mereka pasti tidak bisa disebut pasangan. Maka hal seperti ini mungkin tidak akan menghasilkan kemajuan sama sekali ………… yah, itu akan menjadi hasil yang memuaskan jika mereka setidaknya bisa menikmati satu sama lain saat dengan mood yang enak.
 
-Mungkin saya sendiri belum menyadari dan mereka sebenarnya lebih dekat dari yang saya kira? Maka itu akan bagus juga. Selalu menyenangkan melihat rekan Anda sendiri menerima kebahagiaan.
+Mungkin aku sendiri belum menyadari dan mereka sebenarnya lebih dekat dari yang aku kira? Maka itu akan bagus juga. Selalu menyenangkan melihat rekanmu sendiri menerima kebahagiaan.
 
-“Nah, apa yang harus dilakukan selanjutnya?”
+“Nah, apa yang harus kulakukan selanjutnya?”
 
 [Bagaimana kalau pergi ke Souichi dan yang lainnya?]
 
 “Mereka mungkin bersama teman sekolah mereka.”
 
-Saya tidak akan mengganggu mereka di sana. Saya yakin mereka ingin menghabiskan waktu dengan teman-teman mereka yang bertengkar bersama. Saya berpikir untuk mengolok-olok Souichi karena tampil habis-habisan di depan penonton, tetapi saya akan meninggalkannya nanti. Utano-san dan Kuuki sepertinya sibuk dengan pekerjaan juga dan aku tidak tahu dimana Kudou atau Yui-chan berada.
+aku tidak akan mengganggu mereka di sana. aku yakin mereka ingin menghabiskan waktu dengan teman-teman mereka yang bertengkar bersama. aku berpikir untuk mengolok-olok Souichi karena tampil habis-habisan di depan penonton, tetapi aku akan melakukannya nanti saja. Utano-san dan Kuuki sepertinya sibuk dengan pekerjaan juga dan aku tidak tahu dimana Kudou atau Yui-chan berada.
 
-Memutuskan untuk kembali ke kamar saya pada akhirnya, saya kembali ke tempat saya datang. Saya memang mengatakan sesuatu tentang pergi ke kamar Utano-san nanti tetapi sebenarnya saya tidak punya rencana seperti itu dan itu hanya alasan jadi saya benar-benar bebas sekarang.
+aku Memutuskan untuk kembali ke kamarku. aku memang mengatakan sesuatu tentang pergi ke kamar Utano-san nanti tetapi sebenarnya aku tidak punya rencana seperti itu dan itu hanya alasan jadi aku benar-benar bebas sekarang.
 
 Aku bisa pergi menemui Feirona dan yang lainnya tapi di luar sudah gelap. Tidak realistis untuk pergi mencari seseorang di ibu kota begitu larut.
 
 “Kurasa, aku harus ganti baju dulu.”
 
-Meskipun aku telah melepas armornya, aku masih mengenakan pakaian kain mahal berkualitas tinggi yang akan dikenakan bangsawan. Ini bisa robek hanya dengan digerakkan sedikit kasar atau itu membuat saya merasa ketika saya memakainya membuat saya merasa gugup.
+Meskipun aku telah melepas armornya, aku masih mengenakan pakaian kain mahal berkualitas tinggi yang dikenakan bangsawan. Ini bisa robek hanya dengan digerakkan sedikit kasar dan itu membuatku merasa gugup.
 
-Karena terlalu terbiasa bertualang, saya lebih suka pakaian yang berfokus pada kepraktisan di atas ini. Sekarang apakah itu hal yang baik atau buruk masih dipertanyakan.
+Karena terlalu terbiasa bertualang, aku lebih suka pakaian yang praktis. entah itu hal yang baik atau buruk masih bisa dipertanyakan.
 
-Sambil memikirkan itu, saya mencapai kamar dan merasakan kehadiran sudah di dalam kamar saya.
+Sambil memikirkan itu, aku kekamar dan merasakan kehadiran seseorang ada di dalam kamarku.
 
-Saya pikir itu mungkin Kudou atau Yui-chan tapi saya masih sedikit berhati-hati melihat seseorang sudah ada di dalam kamar saya. Memegang kenop pintu dengan tangan kiri saya, saya memegang Ermenhilde di tangan kanan saya.
+aku pikir itu mungkin Kudou atau Yui-chan tapi aku masih sedikit berhati-hati mengingat seseorang sudah ada di dalam kamarku. Memegang kenop pintu dengan tangan kiriku, aku memegang Ermenhilde di tangan kananku.
 
 Ermenhilde.
 
-[Ya aku tahu."
+[Ya aku tahu.]
 
 Energi magis berwarna giok bocor dan satu pisau pendek bermata muncul di tanganku.
 
