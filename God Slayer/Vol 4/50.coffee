@@ -280,35 +280,35 @@ Ermenhilde.
 
 [Ya aku tahu.]
 
-Energi magis berwarna giok bocor dan satu pisau pendek bermata muncul di tanganku.
+Energi magis berwarna giok muncul dan satu pisau pendek bermata muncul di tanganku.
 
 Saat aku membuka pintu dengan hati-hati ——-
 
-Yaa.
+"Yaa."
 
 “………………”
 
-Penyusup di kamar saya mengangkat tangan dan menyapa saya dengan senyuman. Duduk di kursi dekat meja tengah, di meja sudah ada dua cangkir teh dengan uap yang keluar sudah disiapkan.
+Penyusup di kamarku mengangkat tangan dan menyapaku dengan senyuman. Duduk di kursi dekat meja tengah, di meja sudah ada dua cangkir teh dengan uap yang keluar sudah disiapkan.
 
 Dengan rambut keriting perak, satu mata merah dan satu emas, dan dengan penampilan yang bisa membuat orang salah mengira dia cantik, dia tersenyum dan menatap langsung ke arahku.
 
-Meskipun matahari telah terbenam, dia juga tidak repot-repot menyalakan lampu. Hanya cahaya redup bulan merah yang bersinar di dalam ruangan. Tapi tetap saja fakta bahwa itu terasa cerah di dalam pasti karena beberapa sihir digunakan.
+Meskipun matahari telah terbenam, dia juga tidak menyalakan lampu. Hanya cahaya redup bulan merah yang bersinar di dalam ruangan. Tapi tetap saja fakta bahwa itu terasa cerah di dalam pasti karena beberapa sihir digunakan.
 
-Melihatnya, aku merasa bodoh karena berhati-hati dan aku menghela nafas. Pada saat yang sama, pisau itu menghilang dengan berubah menjadi energi magis berwarna hijau giok.
+aku merasa bodoh karena berhati-hati dan aku menghela nafas. Pada saat yang sama, pisau itu menghilang dengan berubah menjadi energi magis berwarna hijau giok.
 
 “Kenapa kamu jadi santai di dalam kamar orang lain, Koutarou?”
 
-“Aku tidak bisa menahannya Renji-dono. Ini merepotkan jika orang melihatku. "
+"mau bagaimana lagi renji-dono. Ini merepotkan jika orang melihatku. "
 
-Anda hanya buruk dalam menjadi tertutup dan juga tertangkap oleh Utano-san itu saja. Tidak ada yang akan mengganggu Anda jika Anda hanya sampai pada intinya dan dengan jujur ​​memberi tahu semua orang apa yang dilihat mata melihat masa depan.
+kamu hanya buruk dalam menyelinap dan juga tertangkap oleh Utano-san itu saja. Tidak ada yang akan mengganggumu jika kamu dengan jujur ​​memberi tahu semua orang apa yang dilihat mata mau yang bisa melihat masa depan.
 
 Sambil memikirkan itu, aku menutup pintu di belakangku.
 
 “Waktu yang bagus. Lagipula aku mulai bosan. ”(Renji)
 
-"Megah. Sungguh hal yang menyenangkan jika kita tidak melakukan apa-apa. ”(Kou)
+"BAGUS. Sungguh hal yang menyenangkan jika kita tidak melakukan apa-apa."(Kou)
 
-Serius.
+"Serius."
 
 “Tapi tetap saja, kamu sepertinya terlibat dalam masalah lagi, eh?”
 
