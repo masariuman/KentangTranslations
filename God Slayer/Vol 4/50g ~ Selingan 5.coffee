@@ -708,3 +708,6 @@ Bahkan Souichi-san dan Aya-san memberikan senyuman pahit.
 Gadis yang lebih muda memberikan jawaban yang energik.
 
 Ini membuat satu kemenangan. Sekarang jika Aya-san dan Souichi-san menang ……… ..Aku ingin tahu apakah kita bisa maju sekali lagi?
+
+<gambar> vol 4 124.png
+
