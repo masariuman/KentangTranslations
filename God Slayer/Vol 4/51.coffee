@@ -308,23 +308,23 @@ aku menduga sesuatu pasti telah terjadi setelah dia kalah dari Masaki-chan kemar
 
 aku tidak terlalu peduli tetapi jangan datang ke kamarku di pagi hari hanya untuk bertengkar. aku juga tidak terlalu membencinya. Melihat mereka bertengkar seperti itu hanya membuatku tersenyum. Biasanya, dengan teman masa kecil dan saudara laki-laki dan perempuan, mereka tumbuh semakin terpisah seiring bertambahnya usia.
 
-Setidaknya dalam kasus saya, hanya beberapa teman saya dari masa kecil saya yang berhubungan dengan saya setelah kami berusia dua puluhan.
+Setidaknya dalam kasusku, hanya beberapa teman dari masa kecilku yang berhubungan denganku setelah kami berusia dua puluhan.
 
 Itu sebabnya, melihat ketiganya rukun dengan baik hanya membuatku merasa hangat di dalam.
 
-"Yah, Aya-chan sepertinya bekerja keras untuk motif yang tidak murni." (Yayoi)
+"Yah, Aya-chan sepertinya bekerja keras untuk maksud yang tidak sebenarnya." (Yayoi)
 
-“Apa, apa yang kamu katakan, yayoi!?” 9aya)
+“Apa, apa yang kamu katakan, yayoi!?” (aya)
 
-Aya terus memarahi Souichi tapi hanya dengan satu kata dari Yayoi-chan, tabelnya langsung berubah.
+Aya terus memarahi Souichi tapi hanya dengan satu kata dari Yayoi-chan, semuanya langsung berubah.
 
-[Motif tidak murni?]
+[maksud yang salah?]
 
-Ermenhilde diam bersamaku sampai sekarang, tetapi dia berbicara di sana.
+Ermenhilde diam bersamaku sampai sekarang, tetapi dia berbicara juga.
 
-Ketika dia melakukannya, seolah dia sedang menunggu seseorang untuk bertanya, Yayoi-chan melihat ke arahku dan Ermenhilde dengan senyum lebar. Meski biasanya dia bertingkah seperti gadis bangsawan yang terlindung, ketika hanya ada ketiganya …… ​​..Sebenarnya, baik Aya dan Yayoi-chan langsung menunjukkan wajah asli mereka saat mereka berduaan dengan orang yang mereka sukai.
+Ketika dia melakukannya, seolah dia sedang menunggu seseorang untuk bertanya, Yayoi-chan melihat ke arahku dan Ermenhilde dengan senyum lebar. Meski biasanya dia bertingkah seperti gadis bangsawan yang terlindungi, ketika hanya ada mereka bertiga …… ​​..Sebenarnya, baik Aya dan Yayoi-chan langsung menunjukkan wajah asli mereka saat mereka berduaan dengan orang yang mereka sukai.
 
-"Benar, benar. Kamu tahu Aya-chan adalah ……… .. ”(Yayoi)
+"Benar, benar. Kamu tahu kan kalau Aya-chan ……… .."(Yayoi)
 
 “Waahh !!”
 
