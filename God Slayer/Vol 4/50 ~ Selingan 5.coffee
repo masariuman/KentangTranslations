@@ -256,13 +256,13 @@ Saat aku duduk di sana tidak bisa membayangkan betapa luar biasanya kekuatan pen
 
 “Tidak seperti yang terlihat di wajahnya, dia sebenarnya sangat luar biasa.”
 
-"Wajahku tidak berhubungan, oke!?!"
+"Wajahku tidak ada hubungannya!!"
 
-Atas kata-kata Aya-san, Souichi-san bereaksi dengan suara keras. Dia selalu sangat sadar akan wajahnya, hampir putus asa.
+Souichi-san bereaksi dengan suara keras.
 
 Tapi kemudian, semua tatapan di ruangan itu terfokus pada Souichi-san, dan menyadari kalau dia dengan cepat menundukkan kepalanya karena malu. Lucunya.
 
-Kurasa aku menyadari mengapa semua gadis sangat terobsesi padanya.
+Kurasa aku sadar mengapa semua gadis sangat terobsesi padanya.
 
 "Jadi, apa yang akan kamu lakukan?" (Aya)
 
@@ -280,35 +280,35 @@ Aya-san tertawa lagi mendengarnya. Dia pasti benar-benar menganggap tampilan ber
 
 Aya-san mengangguk setuju.
 
-Aku tidak bisa membayangkan Renji-sama marah tapi Yuuko-sama marah pasti ……… benar-benar menakutkan kurasa. Setelah menerima gelar seperti [Penyihir Ibukota], dia pasti orang yang menakutkan.
+Aku tidak bisa membayangkan Renji-sama marah tapi Yuuko-sama marah pasti ……… benar-benar menakutkan kurasa. Setelah menerima gelar seperti [Penyihir Ibukota](witch, bukan magician atau mage), dia pasti orang yang menakutkan.
 
-Saya teringat kembali ketika Renji-sama pingsan dan kami membawanya ke ibukota, saya bertemu dengannya di ruang tamu.
+aku teringat kembali ketika Renji-sama pingsan dan kami membawanya ke ibukota, aku bertemu dengannya di ruang tamu.
 
 Saat itu, dia sangat menakutkan. Mata yang sangat dingin, sepertinya mereka bisa melihatku sepenuhnya.
 
-Mengingat itu, saya merasakan wajah saya sedikit kram.
+Mengingat itu, aku merasakan wajahku sedikit kram.
 
-"Juga, orang akan salah paham dengan cara Anda mengatakan bahwa Anda tahu?" (Aya)
+"orang akan salah paham dengan caramu berkata seperti itu lho..." (Aya)
 
 "Hah, salah paham?" (Souichi)
 
-“……… Baiklah, terserah. Berhati-hatilah dengan hal-hal di belakang Anda (baca sebagai Yayoi) di malam hari oke? ”(Aya)
+“……… terserahlah. Berhati-hatilah dengan hal-hal di belakangmu (maksud aya si Yayoi) di malam hari oke? ”(Aya)
 
 “Uh, tentu. Untuk saat ini, masalahnya adalah pertarungan berikutnya. Aku ingin terlihat keren di depan nii-chan dan aku ingin menang juga. ”(Souichi)
 
 Jelas.
 
-Tapi dia pasti ragu-ragu tentang apa yang harus dilakukan. Meskipun dia menolak, dia berubah pikiran sekarang.
+Tapi dia pasti ragu tentang apa yang harus dilakukan. Meskipun dia menolak, dia berubah pikiran sekarang.
 
-Kekuatan penuh dari [Brave] Souichi-san. Saya ingin melihatnya tetapi saya juga bertanya-tanya apakah itu adalah sesuatu yang ingin saya lihat hanya karena penasaran juga.
+Kekuatan penuh dari [Brave] Souichi-san. aku ingin melihatnya tetapi aku juga penasaran apakah itu adalah sesuatu yang ingin aku lihat hanya karena penasaran saja.
 
-Itu kekuatan yang diberikan oleh Dewi Astraera sendiri. Kekuatan untuk melindungi dunia dan kekuatan yang menyelamatkan dunia. Saya tidak percaya bahwa kekuatan harus dilihat hanya karena rasa ingin tahu. Di tempat pertama--
+kekuatan itu diberikan oleh Dewi Astraera sendiri. Kekuatan untuk melindungi dunia dan kekuatan yang menyelamatkan dunia. aku tidak percaya bahwa kekuatannya harus dilihat hanya karena rasa ingin tahu.
 
-"Apakah tidak apa-apa untuk dengan bebas menggunakan kekuatan penuhmu di dalam Coliseum, Souichi-san?" (Fran)
+"Apakah tidak apa-apa untuk dengan bebas menggunakan kekuatan penuhmu di dalam collesium, Souichi-san?" (Fran)
 
-"Ya, Anda benar." (Souichi)
+"Ya, kamu benar." (Souichi)
 
-Mengatakan itu, dia menggaruk kepalanya karena merasa bermasalah.
+dia menggaruk kepalanya karena merasa bermasalah.
 
 Aku percaya bahwa kekuatan penuh mereka akan terlalu berlebihan untuk ditanggung oleh arena, Lagipula itu adalah kekuatan yang menyaingi Dewa — Dewa Iblis.
 
@@ -316,17 +316,17 @@ Aku percaya bahwa kekuatan penuh mereka akan terlalu berlebihan untuk ditanggung
 
 "Aku pikir begitu."
 
-"……..berarti?"
+"……..artinya?"
 
 “Jangan membuat wajah yang menakutkan. Biarpun aku menolak, aku yakin Masaki-san akan mendatangiku dengan kekuatan penuh. ”
 
-“Ya, saya rasa itu benar.”
+“Ya, aku rasa itu benar.”
 
 Aku tidak begitu mengerti tapi apakah itu berarti Masaki-sama tidak akan puas dengan penolakan Souichi-san?
 
 "Yah dengan senjata biasa, aku ragu senjata itu akan mampu menahannya dalam waktu yang lama." (Souichi)
 
-"Seperti yang diharapkan, bahkan dia tidak akan menghunus pedang iblisnya tepat di depan Yuuko-san dan yang lainnya …… ​​..Benar?" (Aya)
+"bahkan dia tidak akan menghunus pedang iblisnya tepat di depan Yuuko-san dan yang lainnya …… ​​..kan?" (Aya)
 
 Jika itu terjadi, aku akan mati.
 
@@ -334,15 +334,15 @@ Percakapan tampaknya menjadi semakin berbahaya tetapi tidak seperti apa pun yang
 
 "Apakah hubunganmu tidak terlalu baik?" (Fran)
 
-“Sebenarnya justru sebaliknya. Masaki-san ingin bertarung serius dengan Souichi. "(Aya)
+"Sebenarnya justru sebaliknya. Masaki-san ingin bertarung serius dengan Souichi. "(Aya)
 
-“Saya tidak mengerti.”
+“aku tidak mengerti.”
 
-“Dia yang kau sebut pecandu cinta pertempuran …… ..dia menyukai hal-hal seperti itu, pikirkan saja seperti itu.”
+“Dia adalah orang yang bisa kau sebut pecandu pertempuran …… ..dia menyukai hal-hal seperti itu, pikirkan saja seperti itu.”
 
 "Haa."
 
-Aku tidak begitu mengerti apa arti battle junkie tapi pada dasarnya Masaki-sama sangat ingin bertarung serius dengan Souichi-san sehingga dia tidak bisa menahannya?
+Aku tidak begitu mengerti apa arti pecandu pertempuran tapi pada dasarnya Masaki-sama sangat ingin bertarung serius dengan Souichi-san sehingga dia tidak bisa menahannya?
 
 Baik Renji-sama maupun Feirona-san tidak menunjukkan ketertarikan untuk bertarung jadi aku tidak benar-benar mengerti.
 
@@ -350,15 +350,15 @@ Baik Renji-sama maupun Feirona-san tidak menunjukkan ketertarikan untuk bertarun
 
 “Hm?”
 
-“Jika Anda punya waktu sebelum pertandingan berikutnya, bagaimana kalau —–“ (gadis 1)
+“Jika kamu punya waktu sebelum pertandingan berikutnya, bagaimana kalau —–“ (gadis 1)
 
-"Kami pergi untuk minum teh atau sesuatu?" (Gadis 2)
+"kita pergi untuk minum teh atau sesuatu?" (Gadis 2)
 
-Serius, pikirku. Sangat menyenangkan bahwa Anda tanpa beban tetapi kami masih berada di tengah-tengah turnamen, tahu?
+ya ampuun... apakah itu bagus kalau kamu seperti tidak ada beban di tengah-tengah turnamen?
 
 Aya-san terus saja tertawa sambil melihat Souichi-san mempermasalahkan ini.
 
-………… Apakah mereka benar-benar terputus dengan konsep gugup? Saya merasa cemburu pada rekan satu tim saya saat saya turun bahu tanpa membiarkan orang lain menyadarinya.
+………… Apakah mereka benar-benar terputus dengan konsep gugup? aku merasa cemburu pada rekan satu timku dan aku menurunkan bahuku tanpa membiarkan orang lain menyadarinya.
 
 .
 
@@ -369,45 +369,45 @@ Aya-san terus saja tertawa sambil melihat Souichi-san mempermasalahkan ini.
 
 (Bagian 2 )
 
-Sekarang ronde ke-3. Jika kami menang 3 kali lagi, kami akan memenangkan turnamen, tetapi sekarang hanya prajurit veteran yang tidak dapat ditahan oleh siswa normal seperti kami yang tersisa di turnamen. Sambil melihat meja turnamen yang tergantung di pintu masuk Coliseum, aku menghela nafas. Di dekatnya ada orang-orang yang melewatkan waktu hingga pertandingan berikutnya dimulai atau mereka yang bertaruh siapa yang akan menang di pertandingan berikutnya.
+Sekarang ronde ke-3. Jika kami menang 3 kali lagi, kami akan memenangkan turnamen, tetapi sekarang hanya prajurit veteran yang tidak dapat ditahan oleh siswa normal seperti kami yang tersisa di turnamen. Sambil melihat meja turnamen yang tergantung di pintu masuk collesium, aku menghela nafas. Di dekatnya ada orang-orang yang menunggu hingga pertandingan berikutnya dimulai atau mereka yang bertaruh siapa yang akan menang di pertandingan berikutnya.
 
-Kami bisa maju sejauh ini hanya berkat Souichi-san dan Aya-san. Juga, karena lawan kami pasti meremehkan kami sejak kami masih pelajar. Tapi itu tidak akan terjadi lagi. Karena kita akan menghadapi sekolah lain selanjutnya. Hanya yang lebih kuat yang akan menang.
+Kami bisa maju sejauh ini hanya berkat Souichi-san dan Aya-san. Juga, karena lawan kami pasti meremehkan kami karena kami masih pelajar. Tapi itu tidak akan terjadi lagi. Karena kita akan menghadapi sekolah lain selanjutnya. Hanya yang lebih kuat yang akan menang.
 
 “Tapi tetap saja, menang adalah kemenangan.”
 
-Sambil membelai gagang pedang pendek yang tergantung di pinggangku, aku mengangguk pada diriku sendiri. Matahari yang tadinya berada di titik tertinggi saat turnamen dimulai sudah mulai terbenam sekarang. Dan itu hanya masalah waktu sebelum sepenuhnya terbenam. Dan dengan itu, turnamen pertarungan tim juga akan berakhir. Apa pun hasilnya, hari ini setengah dari turnamen lengkap akan berakhir. Itu membuatku merasa sedikit sedih.
+Sambil membelai gagang pedang pendek yang tergantung di pinggangku, aku mengangguk pada diriku sendiri. Matahari yang tadinya berada di titik tertinggi saat turnamen dimulai sudah mulai terbenam sekarang. Dan itu hanya masalah waktu saja sebelum sepenuhnya terbenam. Dan dengan itu, turnamen pertarungan tim juga akan berakhir. Apa pun hasilnya, hari ini setengah dari acara turnamen akan berakhir. Itu membuatku merasa sedikit sedih.
 
-Besok, pertarungan individu akan dimulai. Akan sangat bagus jika saya bisa menang besok juga.
+Besok, pertarungan individu akan dimulai. Akan sangat bagus jika aku bisa menang besok juga.
 
-“Di babak pertama, saya sangat gugup sehingga saya bahkan tidak menyadari bahwa saya telah menang hingga beberapa waktu kemudian.
+“Di babak pertama, aku sangat gugup sehingga aku bahkan tidak menyadari bahwa aku telah menang.
 
-Saya bahkan tidak dapat mengingat bagaimana saya bertarung atau gerakan apa yang saya gunakan untuk menyelesaikan pertempuran. Sebelum saya sadar, lawan saya hanya terbaring di arena kalah. Di ronde kedua juga, lawan saya lengah dan saya bisa menang. Karena saya adalah seorang pelajar dan seorang wanita. Dia tampak seperti petualang yang kasar tetapi karena dia mendekati saya dengan sembarangan, saya bisa menang dengan mudah. Bahkan goblin lebih waspada dari itu.
+aku bahkan tidak dapat mengingat bagaimana aku bertarung atau gerakan apa yang aku gunakan untuk menyelesaikan pertempuran. Sebelum aku sadar, lawanku hanya terbaring di arena kalah. Di ronde kedua juga, lawanku lengah dan aku bisa menang. Karena aku adalah seorang pelajar dan seorang wanita. Dia tampak seperti petualang yang kasar tetapi karena dia mendekatiku dengan sembarangan, aku bisa menang dengan mudah. Bahkan goblin lebih waspada dari itu.
 
-Kemenangan. Pada awalnya, saya hanya puas dengan ambil bagian dalam turnamen, tetapi setelah sejauh ini, saya akan bisa meraih semua kemuliaan itu hanya dengan tiga kemenangan lagi. Itu sangat dekat dengan jangkauan saya.
+Kemenangan. Pada awalnya, aku hanya puas dengan mengikuti turnamen, tetapi setelah sejauh ini, aku akan bisa meraih semuanya hanya dengan tiga kemenangan lagi. Itu sangat dekat dengan jangkauanku.
 
-Aku bertanya-tanya seberapa besar aku tumbuh saat bepergian dengan Renji-sama? Apakah saya menjadi lebih kuat?
+Aku penasaran seberapa besar aku tumbuh saat bepergian dengan Renji-sama? Apakah aku menjadi lebih kuat?
 
-Jika saya bisa mendapatkan bukti kuat tentang itu ...
+Jika aku bisa mendapatkan bukti kuat tentang itu ...
 
-"Anda baik-baik saja?"
+"Anda kau baik-baik saja?"
 
-Saat aku berpikir, sebuah tangan diletakkan di pundakku.
+ketika aku sedang berpikir, sebuah tangan menepuk pundakku.
 
-Melihat ke belakang, seorang peri berambut emas yang tampan, Feirona-san berdiri di sana. Di sampingnya adalah Mururu-chan dan Solnea-san juga.
+Melihat ke belakang, seorang elf berambut emas yang tampan, Feirona-san berdiri di sana. Di sampingnya adalah Mururu-chan dan Solnea-san juga.
 
 "Hah?" (Fran)
 
-“Apa yang terjadi, membuat wajah terkejut. Kami datang untuk menyemangatimu tapi kamu tidak terlihat gugup. "(Peri)
+"ada apa? kok kaget?. Kami datang untuk menyemangatimu tapi kamu tidak terlihat gugup. "(fei)
 
-“Ah, tidak, tidak seperti itu.”
+“Ah, tidak, bukan seperti itu.”
 
-Gugup ……… Aku sudah menang dua kali, itu sedikit memudar. Tapi, aku hanya terkejut dipanggil oleh Feirona-san dan yang lainnya. Atau lebih tepatnya, pada kenyataan bahwa mereka semua ada di sini.
+Gugup ……… Aku sudah menang dua kali, jadi rasanya agak sedikit berkurang. Tapi, aku terkejut dipanggil oleh Feirona-san dan yang lainnya. Atau lebih tepatnya, pada kenyataan bahwa mereka semua ada di sini.
 
-"Saya pikir Anda tidak baik dengan orang banyak?" (Fran)
+"aku pikir kamu tidak enak dengan keramaian?" (Fran)
 
-Jadi, saya pikir dia tidak akan datang untuk melihat turnamen. Di pagi hari, dia juga sudah mengatakan 'semoga sukses' padaku.
+aku pikir dia tidak akan datang untuk melihat turnamen. Di pagi hari, dia juga sudah mengatakan 'semoga sukses' padaku.
 
-"Fumu." (Peri)
+"Fumu." (fei)
 
 Aku ingin tahu apa yang dia pikirkan tentang reaksiku saat dia meletakkan dagu di jarinya seolah sedang berpikir keras.
 
