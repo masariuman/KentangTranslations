@@ -330,7 +330,7 @@ Ketika dia melakukannya, seolah dia sedang menunggu seseorang untuk bertanya, Ya
 
 Yayoi-chan hendak mengatakan sesuatu tapi Aya segera menutup mulutnya dan Yayoi-chan berlari kesana kemari mencoba menghindarinya.
 
-Kamar saya yang tadinya sunyi beberapa saat yang lalu tiba-tiba menjadi begitu hidup. Setidaknya jangan melompat-lompat seperti itu kan? Rok seragammu sangat pendek.
+Kamarku yang tadinya sunyi beberapa saat yang lalu tiba-tiba menjadi begitu hidup. Setidaknya jangan melompat-lompat seperti itu... Rok seragammu sangat pendek.
 
 “Renji-niichan, maaf.” (Souichi)
 
@@ -340,25 +340,25 @@ Aku ingin tahu apa yang dia pikirkan tentang ini saat Souichi menundukkan kepala
 
 “Yah, karena berisik sekali …….”
 
-"Ha. Jangan khawatir tentang itu. Aku tidak membencinya saat semarak seperti ini. "
+"Ha. Jangan khawatir tentang itu. Aku tidak membencinya seperti ini. "
 
-Saat aku menyeringai sambil mengatakan itu, Souichi juga tertawa.
+Saat aku tersenyum sambil mengatakan itu, Souichi juga tertawa.
 
 "Jika kalian bersenang-senang, aku baik-baik saja."
 
 “…… .Aku masih merasa kasihan padamu.”
 
-"Aku bilang jangan khawatir, bukan?"
+"Aku bilang jangan khawatir kan?..."
 
 [Itu benar, Souichi. Orang dewasa seharusnya memanjakan anak-anak seperti ini.]
 
 "Tidak, tapi aku bukan anak kecil lagi, Eru-san."
 
-[Betulkah?]
+[benarkah?]
 
-“Jika kamu sedikit lebih tinggi maka mungkin.” (Renji)
+“Jika kamu sedikit lebih tinggi, mungkin iya.” (Renji)
 
-“Guhh ……… .Anda memukul tepat di tempat yang paling menyakitkan.” (Souichi)
+“Guhh ……… .kamu memukul tepat di tempat yang paling menyakitkan.” (Souichi)
 
 Setelah berbicara seperti itu beberapa saat, pintu diketuk lagi.
 
