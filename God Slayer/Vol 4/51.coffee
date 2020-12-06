@@ -366,11 +366,11 @@ Kali ini, bahkan tanpa menunggu jawabanku, pintunya terbuka.
 
 “Seperti biasa, tempat ini selalu ramai.”
 
-"Yah, aku tidak merasa seperti itu sudah cukup lama sekarang bagimu untuk mengatakan 'seperti biasa'?" (Renji)
+"Yah, aku lama tidak merasa seperti itu apa yang kamu sebut 'seperti biasa' kan?" (Renji)
 
 Orang yang mengintip sambil mengatakan itu adalah Masaki-chan.
 
-Sepertinya dia dipenuhi dengan energi dari pagi seperti biasanya karena dia tidak mengenakan seragamnya tetapi peralatan ringan yang dia gunakan.
+Sepertinya dia dipenuhi dengan energi seperti biasanya karena dia tidak mengenakan seragamnya tetapi peralatan ringan yang dia gunakan.
 
 “Selamat pagi, semuanya.” (Masaki)
 
@@ -380,51 +380,51 @@ Selamat pagi, Masaki-san.
 
 "……..Selamat pagi."
 
-Keempatnya punya cara menyapa masing-masing. Masaki-chan dan Souichi terus terang seperti biasa. Aya yang dengan sopan membungkuk saat dia menyapa dan Yayoi-chan yang setidaknya tersenyum di permukaan. Untuk sedetik, aku merasa seperti percikan api terbang di antara Masaki-chan dan Yayoi-chan tapi ……… meskipun dunia ini adalah dunia fanat, ini pasti imajinasiku.
+Keempatnya punya cara menyapa masing-masing. Masaki-chan dan Souichi terus terang seperti biasa. Aya yang dengan sopan membungkuk saat dia menyapa dan Yayoi-chan yang setidaknya tersenyum. Untuk sedetik, aku merasa seperti percikan api terbang di antara Masaki-chan dan Yayoi-chan tapi ……… meskipun dunia ini adalah dunia fantasi, ini pasti imajinasiku.
 
 Yah, bukannya keduanya berhubungan buruk atau semacamnya …… ​​Selama itu bukan urusan Souichi, itu saja.
 
 Faktanya jika Souichi tidak terlibat, aku merasa Yayoi-chan dan Masaki-chan sama baiknya dengan trio teman masa kecil itu sendiri.
 
-Apakah itu. Mereka ingin orang yang mereka sukai hanya memperhatikan mereka, atau sesuatu seperti itu.
+mungkin Mereka ingin orang yang mereka sukai hanya memperhatikan mereka, atau sesuatu seperti itu.
 
 "Pagi, Masaki-chan."
 
 Selamat pagi, Yamada-san.
 
-Dia menyapa saya dengan senyum yang menyenangkan juga.
+Dia menyapaku dengan senyum yang menyenangkan juga.
 
 Umu.
 
-Aku bertanya-tanya apakah ini adalah naluri laki-laki yang otomatis membuatku sedikit waspada hanya dengan melihat sedikit percikan api antara Masaki-chan dan Yayoi-chan.
+apakah ini adalah naluri laki-laki yang otomatis membuatku sedikit waspada hanya dengan melihat sedikit percikan api antara Masaki-chan dan Yayoi-chan.
 
 Souichi di sampingku juga, tampak seperti wajahnya sedikit kram.
 
-"Saya akan berada dalam perawatan Anda hari ini." (Masaki)
+"tolong perlakukan aku dengan baik hari ini." (Masaki)
 
 “Itu kalimatku. Tolong santai saja padaku oke? ”(Renji)
 
 "Fufu."
 
-Sebenarnya lebih menakutkan jika Anda tertawa di sana lho. Mengingat pertarungan Souichi dan Masaki-chan kemarin, aku sudah bisa merasakan wajahku menegang.
+Mengingat pertarungan Souichi dan Masaki-chan kemarin, aku sudah bisa merasakan wajahku menegang.
 
-Saya bahkan hampir tidak bisa mengikuti apa yang sedang terjadi. Akan sangat sulit bagiku untuk bisa menerima serangan gadis ini.
+aku bahkan hampir tidak bisa mengikuti apa yang sedang terjadi. Akan sangat sulit bagiku untuk bisa menerima serangan gadis ini.
 
 “Hm?”
 
 "Tidak apa."
 
-Seolah dia tahu pikiranku, dia menatapku dengan senyum polos dan tidak berbahaya. Sadis sialan ini.
+Seolah dia tahu pikiranku, dia menatapku dengan senyum polos dan tidak berbahaya. si Sadis sialan ini.
 
-“Tapi tetap, bukankah kamu sedikit terlambat untuk bangun sekarang?”
+“Tapi tetap saja, bukankah kamu sedikit terlambat untuk bangun sekarang?”
 
-“Tidak bisa menahannya. Saya mendapat tamu kemarin. "
+"mau gimana lagi. aku kedatangan tamu kemarin. "
 
 "Seorang tamu? Di ruangan kosong ini? "
 
 Aku minum alkohol.
 
-Mengatakan itu, aku melihat ke arah meja yang ada di ruangan itu dan botol kosong yang tergeletak di atasnya.
+aku melihat ke arah meja yang ada di ruangan itu dan botol kosong yang tergeletak di atasnya.
 
 Melihat itu, Souichi dan Masaki-chan menghela nafas bersama.
 
@@ -432,31 +432,31 @@ Melihat itu, Souichi dan Masaki-chan menghela nafas bersama.
 
 "Lebih tepatnya, itu menenangkanku?" (Renji)
 
-“Bukankah itu terlalu bergantung padanya …… ​​..”
+“Bukankah kau terlalu bergantung pada itu …… ​​..”
 
 "Tidak terlalu buruk." (Renji)
 
 Mungkin. Tatapan mereka benar-benar menyakitkan.
 
-[Lihat. Begitulah cara orang memandang Anda.]
+[Lihat. Begitulah cara orang memandangmu.]
 
 “… .Nuu.” (Renji)
 
 Aku melihat medali yang tergeletak di dekat bantalku tetapi suara di dalam kepalaku terdengar seperti sudah menang.
 
-[Saya tidak mengatakan bahwa berhenti minum tetapi setidaknya kurangi jumlahnya, bukan?]
+[aku tidak mengatakan bahwa berhenti minum tetapi setidaknya kurangi jumlahnya, bukan?]
 
-"Tapi itu satu-satunya kesenangan saya." (Renji)
+"Tapi itu satu-satunya kesenanganku." (Renji)
 
-[Ayunkan pedangmu seperti yang kamu lakukan dulu. Jika Anda mulai menggerakkan tubuh dan bekerja keras, Anda akan mendapatkan tidur yang lebih nyenyak daripada minum.]
+[Ayunkan pedangmu seperti yang kamu lakukan dulu. Jika kamu mulai menggerakkan tubuhmu dan bekerja keras, kamu akan mendapatkan tidur yang lebih nyenyak daripada minum.]
 
 Aah, telingaku sakit.
 
-“Yah, Eru-san adalah …… .. benar, kurasa.”
+“Yah, Eru-san …… .. benar, kurasa.”
 
 "Ya."
 
-"Saya tidak punya sekutu di sini." (Renji)
+"aku tidak punya sekutu di sini." (Renji)
 
 Sialan semuanya.
 
@@ -490,7 +490,7 @@ Souichi di sampingku, diam-diam, tapi pasti menggigil sekali.
 
 "Apa yang dia katakan?" (Aya)
 
-"Tidak banyak. Itu tentang pekerjaan. ”(Renji)
+"Tidak banyak. Itu tentang pekerjaan."(Renji)
 
 Jadi, kebencian Aya pada Koutarou sudah sampai pada tahap ini.
 
@@ -504,13 +504,13 @@ Yah, kepribadiannya pasti tidak akan pernah bisa ditolerir oleh beberapa jenis o
 
 "Aku tidak sedang cemberut Eru." (Aya)
 
-Itu jelas karena Koutarou dan Aya seperti minyak dan air. Nah, jika saya menunjukkan bahwa percikan api akan mencapai saya jadi saya akan tetap diam.
+Itu jelas karena Koutarou dan Aya seperti minyak dan air. Nah, jika aku berkata seperti itu percikan api akan muncul jadi aku akan tetap diam.
 
-Dan seperti biasa tidak bisa memahaminya, saya kasihan pada pasangan saya yang masih belum bisa belajar membaca mood. Atau mungkin aku harus mengasihani Koutarou karena diperlakukan sebagai orang aneh bahkan oleh Ermenhilde.
+Dan seperti biasa tidak bisa memahaminya, aku kasihan pada partnerku yang masih belum bisa belajar membaca mood. Atau mungkin aku harus mengasihani Koutarou karena diperlakukan sebagai orang aneh bahkan oleh Ermenhilde.
 
 Nah, mari kasihan mereka berdua. Itu tidak akan mengubah apapun.
 
-“Tapi, itu jarang. Sampai Koutarou-san datang ke sini. ”
+“Tapi, itu jarang sekali. Sampai Koutarou-san datang ke sini. ”
 
 "Betulkah?"
 
@@ -518,7 +518,7 @@ Nah, mari kasihan mereka berdua. Itu tidak akan mengubah apapun.
 
 Saat Souichi mengatakan itu, selanjutnya aku melihat ke arah Masaki-chan.
 
-"Sama disini. Pada akhirnya pria itu tidak bertemu orang lain selain mereka yang bermain bersamanya atau mereka yang perlu dia temui apapun yang terjadi. ”(Masaki)
+"Sama disini. Pada akhirnya pria itu tidak bertemu orang lain selain mereka yang bermain bersamanya atau mereka yang perlu dia temui apapun yang terjadi."(Masaki)
 
 "Ya, kedengarannya benar." (Yayoi)
 
@@ -526,7 +526,7 @@ Sepertinya dia juga belum menunjukkan dirinya pada Masaki-chan.
 
 Berdasarkan kata-kata Yayoi-chan, dia juga belum bertemu dengannya. Dan aku bahkan tidak perlu bertanya pada Aya.
 
-“Yah, bagaimanapun juga. Itu tadi. Juga, saya ingin berubah sekarang jadi bisakah kalian pergi sekarang? ”(Renji)
+“Yah, begitulah yang terjadi. aku ingin mengganti baju jadi bisakah kalian pergi sekarang? ”(Renji)
 
 "Ah maaf."
 
@@ -534,47 +534,47 @@ Saat aku mengatakan itu, Souichi meminta maaf sebagai perwakilan semua orang.
 
 “Baiklah, kami akan menyediakan tempat duduk untukmu di ruang makan.”
 
-“Oh, tolong lakukan. Kamu tidak perlu menunggu aku untuk makan. ”(Renji)
+“Oh, terima kasih. kalian tidak perlu menunggu aku untuk makan. ”(Renji)
 
 "Tidak apa-apa. Kami akan menunggu. "
 
-Seperti yang saya katakan, Anda tidak perlu melakukannya.
+Seperti yang aku katakan, kamu tidak perlu melakukannya.
 
-Saat aku melambai ke arah Souichi dan yang lainnya saat mereka pergi ....... aku menelepon Aya sebelum dia pergi.
+Saat aku melambai ke arah Souichi dan yang lainnya saat mereka pergi ....... aku memanggil Aya sebelum dia pergi.
 
 Aya.
 
 "Iya?"
 
-Apa yang ingin saya katakan?
+Apa yang ingin aku katakan?
 
-——– Saya teringat mimpi yang saya lihat pagi ini.
+——– aku teringat mimpi yang aku lihat pagi ini.
 
 "Tinggimu."
 
 "………..Iya?"
 
-“Sudah dewasa.”
+“Sudah tumbuh ya.”
 
-Sepertinya dia tidak mengerti apa yang aku katakan saat dia pergi sambil memiringkan kepalanya dengan bingung.
+Sepertinya dia tidak mengerti apa yang aku katakan karena dia pergi sambil memiringkan kepalanya dengan bingung.
 
 Yah, kurasa itu terlalu di luar konteks.
 
 [Tepat ketika aku memikirkan apa yang akan kamu katakan, apa itu?]
 
-Saya juga merasakan atmosfer yang tidak bisa dijelaskan bocor dari Ermenhilde juga.
+aku juga merasakan atmosfer yang tidak bisa dijelaskan dari Ermenhilde juga.
 
 Jika dia memiliki tubuh, aku yakin dia akan menatapku dengan tatapan dingin yang membuatku tersiksa dengan rasa bersalah.
 
-“Jangan khawatir tentang itu, itu biasa.”
+“Jangan khawatir tentang itu, itu sudah biasa.”
 
-[Ya, saya rasa begitu.]
+[Ya, aku rasa begitu.]
 
 Sangat menyakitkan untuk tidak membantah saat aku mengatakan itu.
 
 Saat aku menghela nafas saat mengganti pakaianku, Ermenhilde juga menghela nafas. Aku akan menangis, sial.
 
-"Hanya,"
+"Hanya saja..,"
 
 [Hanya apa?]
 
@@ -590,7 +590,7 @@ Saat aku mengatakan itu, kali ini dia membuat suara geli yang bergema di kepalak
 
 Bukan hanya dia sendiri.
 
-Tapi saya tidak harus mengatakan itu, bukan?
+Tapi aku tidak harus mengatakan itu, bukan?
 
 Sungguh, itu saja.
 
@@ -602,7 +602,7 @@ Tapi--
 
 [fufu. Aku akan memberitahu ini pada Aya nanti.]
 
-“Wah …… .suaranya lucu, kurasa.”
+“Wah …… .kedengarannya menyenangkan, kurasa.”
 
 [Nah, Renji akan menjadi pusatnya.]
 
@@ -610,13 +610,13 @@ Wajah seperti apa yang akan dibuat Eru dalam mimpiku?
 
 Aku, sebelum aku menyadarinya, mulai melupakan bagaimana penampilannya.
 
-Katakan, Ermenhilde.
+"Ermenhilde..."
 
 [Apa itu?]
 
 Suaranya terdengar seperti dia sangat menikmati ini.
 
-Mendengarnya, aku juga merasa sedikit lebih menyenangkan.
+Mendengarnya, aku juga merasa sedikit lebih senang.
 
 “Apakah Utano-san atau Aya, jika saya ——-”
 
