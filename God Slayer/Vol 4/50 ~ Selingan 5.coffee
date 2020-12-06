@@ -653,55 +653,55 @@ aku menjadi sedikit terkejut tetapi aku bisa melompat kembali pada saat-saat ter
 
 Dia mengayunkan pedangnya lagi. Dengan ayunan yang sepertinya bisa memotong bahkan angin, rambutku sedikit bergoyang darinya.
 
-Setelah hanya beberapa gerakan, napasku sudah tidak teratur. Pertandingan satu lawan satu memang bikin aku grogi. Stamina lebih cepat habis dan anggota tubuh saya terasa lebih lelah dari biasanya.
+Setelah hanya beberapa gerakan, napasku sudah tidak teratur. Pertandingan satu lawan satu memang bikin aku grogi. Staminaku lebih cepat habis dan anggota tubuhku terasa lebih lelah dari biasanya.
 
-Cukup melangkah mundur di mana tidak satu pun dari pedang kami bisa saling meraih, aku mengatur ulang posisi kami. Lawan saya tampaknya bernapas dengan normal dan bahkan tampak tenang. Tapi tetap saja dia menatapku dengan hati-hati. Meski banyak bicara, dia harus memiliki kepribadian yang mantap.
+aku melangkah mundur di mana tidak satu pun dari pedang kami bisa saling meraih. aku mengatur ulang posisi kami. Lawanku tampaknya bernapas dengan normal dan bahkan tampak tenang. Tapi tetap saja dia menatapku dengan hati-hati. Meski banyak bicara, dia memiliki kepribadian yang mantap.
 
 Sambil menenangkan napasku, aku menahan pedang di dekat pinggulku. Tapi dia sepertinya tidak terburu-buru lagi dan menjadi lebih berhati-hati. Mungkin pedangnya sebenarnya tidak dalam kondisi bagus tapi dia tidak menunjukkannya di wajahnya jadi aku tidak bisa memastikannya.
 
 Aku menghela nafas panjang.
 
-Pada saat yang sama, saya memfokuskan energi magis saya ke arah depan saya. Apa yang saya bayangkan (dibaca sebagai dibuat) adalah bola angin sebesar mungkin bagi saya.
+Pada saat yang sama, aku memfokuskan energi magisku ke arah depan. Apa yang aku buat adalah bola angin sebesar mungkin bagiku.
 
-Merasakan aliran energi magis mungkin, dia ragu sejenak untuk memutuskan apa yang harus dilakukan tetapi saat berikutnya dia bergegas ke arahku.
+Merasakan aliran energi magis, dia ragu sejenak untuk memutuskan apa yang harus dilakukan tetapi berikutnya dia bergegas ke arahku.
 
-Sulit untuk menghindari bola angin. Tapi jika Anda bisa merasakan energi magis, Anda bisa langsung tahu dan Anda bahkan bisa melihat distorsi di udara jika Anda berkonsentrasi.
+Sulit untuk menghindari bola angin. Tapi jika kmau bisa merasakan energi magis, kamu bisa langsung tahu dan kamu bahkan bisa melihat distorsi di udara jika kamu berkonsentrasi.
 
 “Fu !!”
 
-Sebelum sihirku selesai, pria itu mendekatiku sambil memastikan untuk menghindari bola angin. Bola angin tetap berada tepat di depan saya karena saya belum menembakkannya.
+Sebelum sihirku selesai, pria itu mendekatiku sambil memastikan untuk menghindari bola angin. Bola angin tetap berada tepat di depanku karena aku belum menembakkannya.
 
-Setelah yakin akan kemenangannya, saya dengan jelas melihat perubahan dalam ekspresinya. Dia mencoba mengayunkan pedangnya dengan momentum yang dia miliki tetapi tetap saja, itu terlalu lambat. Sebelum dia bisa mengayunkan pedangnya ke bawah, saya meledakkan bola angin.
+Setelah yakin akan kemenangannya, aku dengan jelas melihat perubahan dalam ekspresinya. Dia mencoba mengayunkan pedangnya dengan momentum yang dia miliki tetapi tetap saja, itu terlalu lambat. Sebelum dia bisa mengayunkan pedangnya ke bawah, aku meledakkan bola angin.
 
-Meskipun itu tidak merusak siapa pun yang jelas seperti api atau bola es, ledakan angin terkompresi meniup dia dan aku pergi dengan tekanannya.
+Meskipun itu tidak merusak siapa pun yang jelas seperti api atau bola es, ledakan angin terkompresi meniupnta dan aku dengan tekanannya.
 
-Untuk sesaat, kesadaran saya terbang pergi dan saya menjadi tidak dapat memahami apa itu. Ketika saya sadar, saya terbaring di tanah.
+Untuk sesaat, kesadaranku hilang dan aku menjadi tidak dapat memahami apa yang terjadi. Ketika aku sadar, aku terbaring di tanah.
 
-“Th, ini adalah …… ..” (fran)
+“Th, ini …… ..” (fran)
 
-Ini lebih efektif dari yang saya kira. Kepala saya terasa seperti dipukul dengan senjata gada berkali-kali karena saya masih pusing.
+Ini lebih efektif dari yang aku kira. Kepalaku terasa seperti dipukul dengan senjata gada berkali-kali karena aku masih pusing.
 
-Entah bagaimana, aku mengangkat kepalaku dan melihat murid laki-laki itu juga tergeletak di tanah agak jauh. Dia tampaknya menjadi tidak sadarkan diri dan tidak bergerak sama sekali. Saya yakin dia tidak mati.… ..
+Entah bagaimana, aku mengangkat kepalaku dan melihat murid laki-laki itu juga tergeletak di tanah agak jauh. Dia tampaknya pingsan dan tidak bergerak sama sekali. aku yakin dia tidak mati.… ..
 
-Tapi tetap saja, saya tidak berpikir sihir ledakan akan begitu kuat.
+Tapi tetap saja, aku tidak berpikir sihir ledakan akan begitu kuat.
 
 Meskipun ada sihir peledak, aku ragu ada penyihir yang menggunakannya begitu dekat dengan diri mereka sendiri dan bahkan terseret ke dalamnya.
 
-Mungkin aku yang pertama.
+Mungkin aku orang yang pertama melakukannya.
 
-Sakit kepala dan mual melanda saya.
+aku merasa Sakit kepala dan mual.
 
-Tapi menahannya, saya berdiri.
+Tapi aku menahannya dan berdiri.
 
-Saya tidak bisa menang dengan pedang saya sendiri, saya tidak bisa memukul hanya dengan sihir. Lalu saya pikir saya tidak punya pilihan selain membuat diri saya terseret ke dalamnya juga. Mungkin saya terlalu terburu-buru.
+aku tidak bisa menang dengan pedangku sendiri, aku tidak bisa memukul hanya dengan sihir. Lalu aku pikir aku tidak punya pilihan selain membuat diriku terseret ke dalamnya juga. Mungkin aku terlalu terburu-buru.
 
 [Suara] di dalam kepalaku menyatakan aku sebagai pemenang tetapi bahkan itu hanya membuatku merasa buruk.
 
-Saat saya turun dari arena, semua orang datang kepada saya dengan khawatir. Saya kira ini seharusnya terjadi. Aku meledakkan sihir begitu dekat denganku.
+Saat aku turun dari arena, semua orang datang kepadaku dengan khawatir. yaah mau bagaimana lagi, Aku meledakkan sihir begitu dekat denganku.
 
 Bahkan Souichi-san dan Aya-san memberikan senyuman pahit.
 
-"Yang berikutnya, aku serahkan sisanya padamu." (Fran)
+"aku serahkan sisanya padamu." (Fran)
 
 "Iya!"
 
