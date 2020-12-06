@@ -618,46 +618,44 @@ Suaranya terdengar seperti dia sangat menikmati ini.
 
 Mendengarnya, aku juga merasa sedikit lebih senang.
 
-“Apakah Utano-san atau Aya, jika saya ——-”
+“Utano-san atau Aya, jika aku ——-”
 
-Mengatakan sampai itu, aku diam sekali lagi.
+aku diam sekali lagi.
 
-Baru-baru ini, saya merasa hal-hal yang tidak bisa saya katakan kepada Ermenhilde sampai akhir tampaknya meningkat.
+Baru-baru ini, aku merasa hal-hal yang tidak bisa aku katakan kepada Ermenhilde tampaknya semakin meningkat.
 
-Apakah karena saya belum menceritakan semuanya kepada pasangan saya, kepada Ermenhilde, seperti sebelumnya?
+Apakah karena aku belum menceritakan semuanya kepada partnerku, kepada Ermenhilde, seperti sebelumnya?
 
 [Ada apa dengan Yuuko dan Aya?]
 
 "Tidak apa."
 
-Saya selesai mengganti pakaian saya.
+aku selesai mengganti pakaianku.
 
-Itu bukanlah pakaian kelas atas yang akan dikenakan bangsawan. Baju dan celana tebal itulah yang saya pakai saat traveling. Menempatkan pedang mithril di pinggangku, aku memasang pisau besi di bagian belakang ikat pinggangku.
+Itu bukanlah pakaian kelas atas yang akan dikenakan bangsawan. itu adalah Baju dan celana yang aku pakai saat berkelana. aku Menempatkan pedang mithril di pinggangku dan aku memasang pisau besi di bagian belakang ikat pinggangku.
 
-[Saya melihat.]
+[begitu....]
 
-Suaranya, masih menyenangkan dan ceria.
+Suaranya, masih terdengar senang dan ceria.
 
-Dia, bahkan ketika saya tidak berbicara semuanya, tidak akan mengatakan apa-apa.
+Dia, bahkan ketika aku tidak berbicara semuanya, tidak akan mengatakan apa-apa.
 
 Bahkan jika aku memilih Utano-san atau Aya ——- Aku yakin, dia akan memberiku restunya.
 
- 
-
 -
 
-“” Anda harus segera menghadapi Astraera. ””
+“ kamu harus segera menghadapi Astraera. ”
 
 -
 
 Bajingan itu, mengatakan itu padaku dengan mudah.
 
-Tidak menunjukkan emosi saya di wajah saya, saya mengambil Ermenhilde yang tergeletak di dekat bantal saya, dan menjentikkan medali dengan ibu jari saya.
+Tidak menunjukkan emosiku di wajahku, aku mengambil Ermenhilde yang tergeletak di dekat bantalku, dan menjentikkan medali dengan ibu jariku.
 
-Dengan suara kering, itu berputar di udara dan jatuh ke telapak tanganku.
+Dengan suara kring, itu berputar di udara dan jatuh ke telapak tanganku.
 
 "Kepala, eh?"
 
-[Sepertinya keberuntungan akan berpihak pada Anda hari ini.]
+[Sepertinya keberuntungan akan berpihak padamu hari ini.]
 
-Suaranya yang cerah dan ceria membuat hatiku terasa lebih ringan.
+Suaranya yang senang dan ceria membuat hatiku terasa lebih ringan.
