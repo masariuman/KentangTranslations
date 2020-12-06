@@ -2,35 +2,35 @@ Selingan 6
 
 (Souichi POV)
 
-Saat Aya memanjat arena, sorak-sorai nyaring, tak tertandingi yang didapat Francesca-senpai, muncul di antara penonton.
+Saat Aya naik keatas arena, sorak-sorakan dari penonton terdengar nyaring dan tidak dapat dibandingkan dengan senpai francesca.
 
-Kami saat ini berada di 1 kemenangan dan 2 kekalahan.
+saat ini kami memiliki skor 1 menang dan 2 kalah.
 
-Jika Aya kalah di sini, pertandingan akan diputuskan. Dan bagi seorang pahlawan untuk bertarung pada saat seperti itu, adalah hal yang normal bagi penonton untuk menjadi begitu bersemangat.
+Jika Aya kalah di sini, pertandingan akan berakhir. Dan bagi seorang pahlawan untuk bertarung pada saat seperti itu, adalah hal yang normal bagi penonton untuk menjadi begitu bersemangat.
 
-Menatap ke arah kursi tamu, saya melihat Yui-chan menonton pertandingan dari balkon.
+aku Menatap ke arah kursi tamu dan aku melihat Yui-chan menonton pertandingan dari balkon.
 
 Aku tidak bisa mendengarnya dari sini tapi dari kelihatannya dia sepertinya mendukung Aya.
 
 “Akankah Aya-san bisa menang?”
 
-"Aku ragu dia punya masalah, jujur ​​saja." (Souichi)
+"jujur aku ragu dia kalau dia akan kalah." (Souichi)
 
 Orang yang bertanya padaku itu adalah satu-satunya di tim kami kecuali aku dan Aya yang telah memenangkan semua pertarungannya, Francesca-senpai.
 
-Sepertinya dia bepergian dengan Renji-niichan bukan hanya untuk pertunjukan karena dia sepertinya berada di atas siswa normal. Bahkan di ronde pertama dan kedua, meskipun dia pasti diremehkan, dia masih menang melawan para petualang profesional jadi kemampuannya adalah yang terbaik.
+Sepertinya dia bepergian dengan Renji-niichan bukan hanya untuk pamer karena dia sepertinya lebih kuat dari siswa normalnya. Bahkan di ronde pertama dan kedua, meskipun dia diremehkan, dia masih menang melawan para petualang profesional jadi kemampuannya tidak diragukan lagi.
 
-Yah, bahkan jika Aya dan aku menang, jika tidak ada orang lain yang memenangkan pertarungan mereka, kami akan bisa maju dengan jujur, aku lega dia memiliki keterampilan seperti itu.
+Yah, bahkan jika Aya dan aku menang, jika tidak ada orang lain yang memenangkan pertarungan, kami tidak akan bisa maju dan jujur aku lega dia memiliki keterampilan seperti itu.
 
-Dan saat ini, sepertinya kerusakan yang dia ambil dari pertarungan sebelumnya masih tersisa saat dia berjalan sedikit goyah. Tidak peduli bagaimana aku melihatnya, itu tampak berbahaya.
+Dan saat ini, sepertinya luka yang dia dapatkan dari pertarungan sebelumnya masih ada karena dia berjalan sedikit bergoyang. Tidak peduli bagaimana aku melihatnya, itu tampak berbahaya.
 
-“Selain itu, apa kamu yakin kamu seharusnya sudah berjalan? Saya pikir Anda harus duduk lebih lama. "(Souichi)
+"Selain itu, apa kamu yakin kamu seharusnya boleh berjalan? kupikir kamu harus duduk lebih lama. "(Souichi)
 
-“Uu …… ..semudah itu untuk mengatakannya?” (Fran)
+“Uu …… ..apakah aku tampak seperti itu?” (Fran)
 
 "Yah begitulah."
 
-Lagipula, langkahnya sama sekali tidak tegas.
+Lagipula, langkahnya sama sekali tidak beraturan.
 
 Bahkan jika energi magis Francesca-senpai tidak setinggi itu, meledakkan udara begitu dekat masih berlebihan. Dalam kasus terburuk, dia bisa saja meledakkan gendang telinganya sendiri.
 
@@ -42,19 +42,19 @@ Faktanya, harus dikatakan bahwa dia beruntung baru saja mengalami kerusakan dan 
 
 Aku tidak ragu sedikitpun saat mengatakan itu.
 
-Tentu saja, Aya adalah salah satu yang dipanggil seperti kita dan bahkan cukup kuat untuk disebut sebagai Magus Agung, setelah mencapai puncak sihir.
+Tentu saja, Aya adalah salah satu yang dipanggil seperti kita dan bahkan cukup kuat untuk disebut sebagai grand magus, yang mencapai puncak sihir.
 
-Tapi di atas semua itu, saya tahu bahwa kata seperti [pasti] tidak ada.
+Tapi, aku tahu bahwa kata seperti [pasti] tidak ada.
 
-Tidak peduli seberapa menguntungkan situasi yang ada, bahkan kesalahan mal pun bisa membalikkan semuanya. Keputusasaan selalu ada, tepat di sisi kami.
+Tidak peduli seberapa menguntungkan situasi yang ada, bahkan kesalahan kecilpun bisa membalikkan semuanya. Keputusasaan selalu ada, tepat di sisi kami.
 
 Tapi, meski begitu.
 
-Kami seharusnya menjadi [Pahlawan].
+Kami tetap harus menjadi [Pahlawan].
 
 Seorang manusia yang dikenal sebagai [Pahlawan] tidak diperbolehkan kalah. Itu, adalah fakta yang pasti.
 
-{Pahlawan] yang dimaksudkan untuk menjadi harapan rakyat harus menang apapun yang terjadi.
+[Pahlawan] yang dimaksudkan untuk menjadi harapan rakyat harus menang apapun yang terjadi.
 
 Tidak ada hal seperti 'pasti' di dunia ini, namun, kita harus pasti menang.
 
