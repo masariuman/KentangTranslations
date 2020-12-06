@@ -411,39 +411,39 @@ aku pikir dia tidak akan datang untuk melihat turnamen. Di pagi hari, dia juga s
 
 Aku ingin tahu apa yang dia pikirkan tentang reaksiku saat dia meletakkan dagu di jarinya seolah sedang berpikir keras.
 
-Alasan mengapa setiap tindakannya yang serasa bisa dijadikan lukisan yang indah pasti karena setiap gerakannya dilakukan dengan anggun dan semir. Dia lebih seperti bangsawan daripada bangsawan yang menjalani pelatihan untuk hal semacam itu.
+Alasan mengapa setiap tindakannya yang serasa bisa dijadikan lukisan yang indah pasti karena setiap gerakannya dilakukan dengan anggun. Dia lebih seperti bangsawan daripada bangsawan yang menjalani pelatihan untuk hal semacam itu.
 
-“Kami datang untuk mendukungmu. Karena kita adalah rekan. ”(Mururu)
+“Kami datang untuk mendukungmu. Karena kita adalah temanmu. ”(Mururu)
 
-"Saya melihat. Terima kasih banyak, Mururu-chan. "(Fran)
+"begitu ya.... Terima kasih banyak, Mururu-chan. "(Fran)
 
-Kawan. Merasa agak malu aku menepuk kepala Mururu-chan untuk mengalihkan emosiku.
+teman. aku menepuk kepala Mururu-chan untuk mengalihkan emosiku yang terasa agak malu.
 
-Saat aku mengelus telinga binatangnya, dia menyipitkan mata karena senang. Ekspresinya sangat imut sehingga aku memberikan lebih banyak kekuatan padanya tetapi dia membuat wajah malu dan melarikan diri dari tanganku.
+Saat aku mengelus telinga binatangnya, dia menyipitkan mata karena senang. Ekspresinya sangat imut sehingga aku semakin kuat mengelusnya tetapi dia membuat wajah malu dan melarikan diri dari tanganku.
 
-"Biasanya, kami seharusnya datang sebelum turnamen dimulai tetapi kami tidak yakin tentang jalan ke sini." (Peri)
+"Biasanya, kami seharusnya datang sebelum turnamen dimulai tetapi kami tidak tahu jalan ke sini." (fei)
 
-"Tidak, aku senang kamu datang ke sini untukku." (Fran)
+"Tidak, aku senang kalian datang ke sini untukku." (Fran)
 
-“Maka itu bagus. Hal seperti ini adalah spesialisasi Renji. "
+"baguslah. Hal seperti ini harusnya adalah spesialisasi Renji. "
 
-“Kamu tidak bisa menahannya. Renji-sama juga sangat sibuk sekarang. "
+"mau bagaimana lagi. Renji-sama juga sangat sibuk sekarang. "
 
-Karena kami sering bepergian bersama, saya lupa betapa buruknya dia dengan tempat-tempat ramai. Saya sangat senang bahwa dia benar-benar datang sejauh ini hanya untuk menghibur saya.
+Karena kami sering bepergian bersama, aku lupa betapa buruknya dia dengan tempat-tempat ramai. aku sangat senang bahwa dia benar-benar datang sejauh ini hanya untuk menghiburku.
 
-Sama untuk Mururu-chan. Mungkin karena dia wanita buas dan indranya terlalu tajam, ketika berada dalam kerumunan seperti itu, dia menjadi bingung dari kekacauan. Solnea-san adalah ……… .saya tidak yakin. Bahkan saat aku melihatnya, dia hanya melihat ke belakang dengan tatapan bingung. Bahkan sekarang, ketika Feirona-san dan Mururu-chan sedang berbicara, Solnea hanya menatap kami dari satu langkah ke belakang.
+Sama juga untuk Mururu-chan. Mungkin karena dia beastwoman dan indranya terlalu tajam, ketika berada dalam kerumunan seperti itu, dia menjadi bingung. kalau Solnea-san ……… .aku tidak yakin. Bahkan saat aku melihatnya, dia hanya melihatku kembali dengan tatapan bingung. Bahkan sekarang, ketika Feirona-san dan Mururu-chan sedang berbicara, Solnea hanya menatap kami dari belakang.
 
-Orang yang paling banyak berbicara padanya adalah Renji-sama tapi dia hampir tidak berbicara balik padanya. Sejujurnya, saya sama sekali tidak tahu apa yang dia pikirkan.
+Orang yang paling banyak berbicara padanya adalah Renji-sama tapi dia hampir tidak berbicara balik padanya. Sejujurnya, aku sama sekali tidak tahu apa yang dia pikirkan.
 
-“Selain itu, kamu tampaknya mengerahkan segalanya. Aku pikir kamu mungkin akan bingung melawan lawan manusia tapi kamu melakukannya dengan cukup baik. "(Peri)
+"kamu tampaknya mengerahkan segalanya. Aku pikir kamu mungkin akan bingung melawan manusia tapi kamu melakukannya dengan cukup baik. "(fei)
 
 “Benarkah?” (Fran)
 
 “Un. Berikan yang terbaik di pertarungan berikutnya juga. ”(Mururu)
 
-Diberitahu itu oleh rekan-rekanmu membuatku sangat bahagia.
+Diberitahu oleh teman-temanmu seperti itu membuatku sangat bahagia.
 
-Selanjutnya kita menghadapi siswa seperti kita tapi …… .. alangkah bagusnya jika kita bisa menang. Jika mereka menonton juga, saya benar-benar tidak ingin kalah.
+Selanjutnya kami menghadapi siswa seperti kami tapi …… .. alangkah bagusnya jika kami bisa menang. Jika mereka menonton juga, aku benar-benar tidak ingin kalah.
 
 "Aku akan memberikan yang terbaik, Mururu-chan." (Fran)
 
@@ -451,27 +451,27 @@ Kali ini dia mendekat dan aku dengan lembut menyisir rambut peraknya yang cantik
 
 Francesca.
 
-Dan, seperti riak di danau yang tenang, suara pelan datang padaku.
+seperti riak di danau yang tenang, suara pelan datang padaku.
 
-Entah bagaimana, meski itu tempat yang bising, aku bisa dengan jelas mendengar suara Solnea-san.
+Entah bagaimana, meski itu tempat yang ribut, aku bisa dengan jelas mendengar suara Solnea-san.
 
-Tampaknya itu sama untuk Feirona-san dan Mururu-chan serta keduanya memandang ke arahnya juga. Yah, itu terlalu mengejutkan baginya untuk hanya berbicara.
+sepertinya Feirona-san dan Mururu-chan juga mendengarnya karena mereka memandang ke arahnya juga. Yah, itu terlalu mengejutkan kalau dia berbicara.
 
-"Mengapa, apakah Anda berkelahi?" (Sol)
+"Mengapa, apakah kamu berkelahi?" (Sol)
 
 “Umm, apa maksudmu?” (Fran)
 
-"Saya pikir Anda tidak suka berkelahi?" (Sol)
+"aku pikir kamu tidak suka berkelahi?" (Sol)
 
 Ahh, begitu.
 
-"Itu benar, saya tidak terlalu menikmati berkelahi." (Fran)
+"Itu benar, aku tidak terlalu menikmati berkelahi." (Fran)
 
-Atau lebih tepatnya, saya tidak pandai dalam hal itu.
+Atau lebih tepatnya, aku tidak pandai dalam hal itu.
 
-Saya pikir saya sangat kurang bakat untuk bertarung. Aku juga tidak memiliki bakat dalam sihir atau pertarungan pedang. Tapi meski begitu, saya menjadi seorang petualang.
+aku pikir aku sangat kurang dalam bertarung. Aku juga tidak memiliki bakat dalam sihir atau pertarungan pedang. Tapi meski begitu, aku menjadi seorang petualang.
 
-Alasan saya berhasil sejauh ini adalah semua berkat rekan-rekan saya, yang selalu melindungi dan membantu saya.
+Alasan aku berhasil sejauh ini adalah berkat teman-temanku, yang selalu melindungi dan membantuku.
 
 Tetapi tetap saja--
 
