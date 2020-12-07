@@ -810,7 +810,7 @@ Ketika Mururu keluar dari persembunyiannya.
 
 "Terima kasih." (Mururu)
 
-Ekormu tidak disembunyikan, tahu?
+"Ekormu tidak disembunyikan lho..."
 
 Saat aku mengatakan itu, Mururu dengan cepat menahan ekornya. Melihat ekspresinya yang sedikit malu, aku tersenyum.
 
