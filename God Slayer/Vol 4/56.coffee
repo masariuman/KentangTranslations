@@ -316,7 +316,7 @@ Tidak peduli siapa itu —— jika dia mengatakan itu masalah, dan sampai mengam
 
 Astraera. Dewi yang berkali-kali membuat permintaan yang tidak masuk akal kepada kami. Mulai dari menaklukkan Dewa Iblis, meskipun kami bahkan tidak memiliki kapal, menyeberangi lautan ke benua Abenelm, entah bagaimana mendapatkan kepercayaan Dewa Roh, pergi membunuh keturunan besar Dewa Iblis yang seperti gunung, dll. .
 
-…… ..Memikirkan kembali sekarang, sungguh menakjubkan bagaimana kami benar-benar memenuhi semua permintaan yang tidak masuk akal itu. Ini hanya masalah tertawa sekarang tetapi saat itu, kami harus secara serius, mati-matian, mempertaruhkan hidup kami untuk melakukan tugas-tugas itu.
+…… ..Memikirkan kembali sekarang, sungguh menakjubkan bagaimana kami benar-benar memenuhi semua permintaan yang tidak masuk akal itu. sekarang bisa ditertawakan tetapi saat itu, kami harus benar-benar serius, mati-matian, mempertaruhkan hidup kami untuk melakukan tugas-tugas itu.
 
 Untuk dunia ini ——— dunia yang dicintai Eru, dunia yang sangat kami sukai, tempat tinggal begitu banyak orang, dan untuk melindungi semuanya.
 
