@@ -594,19 +594,19 @@ Sedikit kemarahan muncul di mata Mururu. Mata emasnya benar-benar terlihat tajam
 
 "Kamu benar-benar gadis yang baik." (Renji)
 
-“Apa, tiba-tiba?”
+“Apa?”
 
 “Siapa pun yang bersedih karena temannya adalah orang yang baik.”
 
-Di depanku, Ms Francesca tetap duduk, tidak bergerak.
+Di depanku, nona Francesca tetap duduk, tidak bergerak.
 
-Mempertimbangkan waktu yang saya luangkan untuk dirawat oleh Yayoi-chan, pertandingan berikutnya akan segera terjadi.
+Mempertimbangkan waktu yang aku luangkan untuk dirawat oleh Yayoi-chan, pertandingan berikutnya akan segera terjadi.
 
-Pertandingan saya berikutnya adalah dengan ——– Merc berambut merah itu, yang mengalahkan Ms Francesca.
+Pertandinganku berikutnya adalah dengan ——– surambut merah itu, yang mengalahkan nona Francesca.
 
 “Renji, tidak sedih?”
 
-“Bagaimanapun, saya masih di turnamen, saya tidak punya waktu untuk bersedih.”
+“Bagaimanapun juga, aku masih di turnamen, aku tidak punya waktu untuk bersedih.”
 
 “…… ..lalu Renji adalah, orang jahat?”
 
