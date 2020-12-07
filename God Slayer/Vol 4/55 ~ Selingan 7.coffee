@@ -176,9 +176,9 @@ Dan pria itu, selama kita tidak bertanya, dia tidak akan membicarakannya, kurasa
 
 Muu.
 
-Itu, ketika dia mengatakan 'Saya percaya pada oniichan!' menghadapi, bahkan aku tidak bisa mengatakan apa-apa lagi.
+Itu, ketika dia mengatakan 'Saya percaya pada oniichan!', bahkan aku tidak bisa mengatakan apa-apa lagi.
 
-Saya yakin Aya akan membuat wajah yang sama juga. Apakah karena mereka adalah teman masa kecil, atau karena mereka berdua mempercayai Yamada-san dengan sepenuh hati?
+aku yakin Aya akan membuat wajah yang sama juga. Apakah karena mereka adalah teman masa kecil, atau karena mereka berdua mempercayai Yamada-san dengan sepenuh hati?
 
 Fakta yang menurutku tidak menyenangkan mungkin karena fakta bahwa Souichi-kun lebih menyukai Yamada-san ........ membuatku merasa persaingan aneh ini, atau haruskah aku mengatakan cemburu, aku yakin. Saya tidak bisa menyangkalnya. Atau lebih tepatnya, aku bahkan tidak ingin berpikir tentang kalah dari pria dalam hal seperti itu!
 
