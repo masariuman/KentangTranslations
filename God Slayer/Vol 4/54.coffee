@@ -546,11 +546,11 @@ nona Francesca berada di pintu belakang ——- yaitu, pintu keluar yang dibuat 
 
 Tidak ada bedanya dengan pintu masuk lainnya tetapi ada bunga atau gambar yang dilukis di atasnya, memberikan tampilan yang lebih elegan.
 
-Sepertinya aku selalu melupakannya tapi dia juga anggota keluarga bangsawan dan pasti tidak masalah baginya untuk berada di sini sama sekali. Apakah dia mengatakan bahwa dia ingin sendiri atau sesuatu karena bahkan tentara telah meninggalkan tempat itu untuk saat ini.
+Sepertinya aku selalu melupakannya tapi dia juga anggota keluarga bangsawan dan pasti tidak masalah baginya untuk berada di sini sama sekali. Apakah dia mengatakan bahwa dia ingin sendiri karena bahkan tentara telah meninggalkan tempat itu untuk saat ini.
 
 Dan bahkan di tempat kosong ini, seolah tidak terlalu menonjol, dia duduk di bangku yang diletakkan di sudut paling pojok. Dia tampak cukup tertekan karena bahunya yang gemetar membuatnya seolah-olah dia akan mulai menangis setiap saat.
 
-Tiba-tiba, saat saya melihat Ms Francesca, tangan saya ditarik.
+Tiba-tiba, saat aku melihat nona Francesca, tanganku ditarik.
 
 “Apa, jadi kamu sudah menemukannya?” (renji)
 
@@ -564,9 +564,9 @@ KAMI tidak memiliki banyak kesempatan untuk bertemu akhir-akhir ini, tetapi dia 
 
 “Terima kasih ……… .Jadi, tentang Fran.” (Mururu)
 
-Ya, aku dengar.
+"Ya, aku sudah tahu."
 
-Dia kalah dalam pertandingannya. Tapi saya tidak perlu mengatakannya dengan lantang.
+Dia kalah dalam pertandingannya. Tapi aku tidak perlu mengatakannya dengan lantang.
 
 Meskipun dia sangat bersemangat, dia kalah tanpa memenangkan satu putaran pun di turnamen utama. Saya bisa mengerti betapa menyakitkan hal itu. Setelah bertemu dengannya, saya telah melihatnya berlatih keras untuk turnamen ini begitu lama. Meskipun dia hampir terbunuh oleh goblin, keinginannya tidak hancur.
 
