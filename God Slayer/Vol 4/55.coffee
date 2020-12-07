@@ -322,17 +322,17 @@ Sambil memikirkan itu, aku melihat tanganku saat aku membuka dan menutupnya. Itu
 
 “Aku ingin tahu apakah aku menjadi lebih kuat bahkan sedikit.”
 
-Yah, tidak peduli seberapa kuat fisik saya, jika kekuatan mental saya tidak cocok dengannya, itu tidak berguna.
+Yah, tidak peduli seberapa kuat fisikku, jika kekuatan mentalku tidak cocok dengannya, itu tidak berguna.
 
-Sisi tubuhku terasa sakit. Itu luka yang diberikan Masaki-chan padaku. Sepertinya kehilangan darah belum berhenti.
+Sisi tubuhku terasa sakit. Itu luka yang diberikan Masaki-chan padaku. Sepertinya darah masih mengalir.
 
-Serius, saya berharap dia sedikit lebih mudah pada saya.
+Serius, aku berharap dia sedikit lebih santai kepadaku.
 
 Sambil melihat tanganku berlumuran darah, aku tersenyum pahit. Aku melakukan pertarungan yang bagus dengan Masaki-chan tapi melihat betapa aku terluka, aku tidak bisa benar-benar merasa bahagia.
 
 Aku yakin, sekali lagi ……… .Aku akan membuat semua orang mengkhawatirkanku.
 
-“Berbicara secara optimis, itu semacam seri ya? Haah …… ..apa gunanya itu tumbuh lebih kuat sekarang. ”
+“Berbicara secara optimis, itu semacam seri ya? Haah …… ..gunanya untuk membuatnya lebih kuat sekarang. ”
 
 Tapi, oh baiklah.
 
