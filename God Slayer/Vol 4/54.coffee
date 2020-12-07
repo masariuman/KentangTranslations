@@ -582,7 +582,7 @@ Itu sebabnya kami hanya bisa melihatnya dari jauh seperti ini. Mururu pasti mera
 
 Yah, itu bahkan membuat Kudou datang kepadaku hanya untuk memberitahuku itu. Itu pasti benar-benar terlihat di wajahnya saat dia kalah.
 
-Kurasa, bahkan kesulitan membenci Item Creator pasti merasa khawatir dengan caranya sendiri. Saya masih tidak dapat memahami bagaimana pikirannya bekerja tetapi itu tidak terlalu penting sekarang.
+Kurasa, bahkan Item Creator bermasalah itu pasti merasa khawatir dengan caranya sendiri. aku masih tidak dapat memahami bagaimana pikirannya bekerja tetapi itu tidak terlalu penting sekarang.
 
 "Biasanya, yang terbaik adalah membiarkan mereka sendiri untuk sementara waktu menurutku tapi .." (renji)
 
