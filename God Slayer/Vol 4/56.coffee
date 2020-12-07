@@ -362,7 +362,7 @@ Ketika aku akhirnya tertawa mendengar dia mengatakan sesuatu yang aku sendiri pi
 
 "Oh benarkah?"
 
-"Ya, bahwa setiap orang sangat tersenyum dan kami adalah orang-orang yang melindunginya."
+"Ya, setiap orang sangat tersenyum dan kita adalah orang-orang yang melindunginya."
 
 "--Iya."
 
