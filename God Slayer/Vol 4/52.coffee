@@ -76,17 +76,17 @@ Saat berbicara dengan Ms Francesca, pria itu juga terus melotot ke arah peserta 
 
 Dia berkata tentang betapa yakin dia akan menang. dia pasti sangat percaya diri dengan kemampuannya sampai berbicara seperti itu.
 
-Tapi ini adalah ruang tunggu collesium. Akan lebih baik untuk menyimpan kata-kata itu jauh di dalam hati Anda dan lebih baik untuk menunjukkannya melalui hasil. Semua yang dia lakukan sekarang adalah mengumpulkan permusuhan.
+Tapi ini adalah ruang tunggu collesium. Akan lebih baik untuk menyimpan kata-kata itu jauh di dalam hatimu dan lebih baik untuk menunjukkannya melalui hasil saja. Semua yang dia lakukan sekarang adalah membuat banyak musuh.
 
 [Hou..Orang itu tampaknya cukup yakin dengan kemenangannya.]
 
-"Akan lebih bagus jika dia bisa."
+"Akan lebih bagus jika dia memang menang."
 
-[……… .Haruskah kamu mengatakan itu?]
+[……… .Haruskah kamu mengatakan itu kepadanya?]
 
-Bahkan Ermenhilde bereaksi terhadap kata-kata pria itu. Kata-katanya sepertinya membujukku dengan menyiratkan bahwa 'Dia berencana untuk menang melawanmu juga, Renji.' Tapi karena dia tidak mengatakan itu dengan keras, aku akan berpura-pura tidak menangkapnya.
+Bahkan Ermenhilde bereaksi terhadap kata-kata pria itu. Kata-katanya sepertinya membujukku dengan menyiratkan bahwa 'Dia berencana untuk menang melawanmu juga, Renji.' Tapi karena dia tidak mengatakan itu dengan keras, aku akan berpura-pura tidak memahaminya.
 
-Pertama-tama, dia harus melawan Ms Francesca terlebih dahulu sebelum saya. Seolah-olah Emenhilde mengatakan bahwa Francesca pasti akan kalah dari pria itu.
+Pertama-tama, dia harus melawan nona Francesca terlebih dahulu sebelum aku. Emenhilde mengatakan seolah-olah bahwa Francesca pasti akan kalah dari pria itu.
 
 Yah, aku tidak dapat menyangkal bahwa dia tampaknya dirugikan oleh pria itu.
 
