@@ -114,11 +114,11 @@ Saat aku berjalan dengan langkah yang agak cepat, Aya di sampingku tertawa kecil
 
 Merasa sedikit malu, aku memperlambat langkahku menjadi normal lagi. Tapi kemudian, aku sadar bahwa aku jadi kacau.
 
-Aku akan sangat menonjol, dalam arti yang buruk, di baju besi ini. Orang normal tidak bisa membedakan antara baja normal dan Mithril tapi memakai baju besi lengkap saja akan membuat orang lain merasa gugup di sekitarku. Jika saya pergi ke warung dengan pakaian seperti itu, saya pasti akan menonjol.
+Aku akan sangat menonjol, dalam arti yang buruk, dengan baju besi ini. Orang normal tidak bisa membedakan antara baja normal dan Mithril tapi memakai baju besi lengkap saja akan membuat orang lain merasa gugup di sekitarku. Jika aku pergi ke kios dengan pakaian seperti itu, aku pasti akan menonjol.
 
-Yah, ngomong-ngomong soal itu, Aya juga sama. Meski tidak boros, dia masih mengenakan gaun kelas satu yang terbuat dari kain bagus. Mengenakan sepatu hak dan dengan riasan, dia tampak seperti wanita daripada gadis, cantik daripada imut.
+Yah, ngomong-ngomong soal itu, Aya juga sama. Meski tidak mewah, dia masih mengenakan gaun kelas satu yang terbuat dari kain bagus. Mengenakan sepatu hak dan dengan riasan, dia tampak seperti wanita daripada gadis, cantik daripada imut.
 
-Saya mungkin memihak kepada orang-orang yang saya kenal baik tetapi saya masih merasa bahwa Aya pasti akan menonjol di depan umum sekarang. Meskipun tidak seperti saya, dia menonjol dalam hal yang baik.
+aku mungkin akan menonjol kepada orang-orang yang mengenalku tetapi aku masih merasa bahwa Aya pasti akan menonjol di depan umum sekarang. Meskipun tidak seperti aku, dia menonjol dalam hal yang baik.
 
 “Haruskah kita bergegas sedikit?”
 
