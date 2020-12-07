@@ -410,21 +410,21 @@ Saat aku memikirkan itu, Aya sudah berjalan cepat menuju nona Francesca. Dia tid
 
 Apakah itu memalukan baginya untuk terlihat bersamaku? Sakit seperti itu. Aku sedang memikirkan itu ketika Feirona dan Solnea berjalan ke arahku. nona Francesca dan Mururu sedang berbicara dengan Aya di sana. Aku tidak tahu apa yang mereka bicarakan tapi, tapi yaaaah, sepertinya mereka sedang bersenang-senang. Tidak yakin tentang Mururu tapi nona Francesca tersenyum lebar.
 
-"Jadi kamu ada di sini, eh?" (Peri)
+"Jadi kamu ada di sini, eh?" (fei)
 
-"ya. Setelah pertandingan berakhir, saya jadi lapar. ”(Renji)
+"ya. Setelah pertandingan berakhir, aku jadi lapar."(Renji)
 
 “Fu, kamu pasti sangat gugup, ya?”
 
-"Persis. Dimana Ermenhilde? ”
+"pastinya. Dimana Ermenhilde? ”
 
 Dengan Francesca.
 
 Saat aku menanyakan itu sambil mengangkat bahu, dia menjawabku dengan cepat.
 
-Yah, mereka tampaknya rukun. Karena mereka berdua perempuan.
+Yah, mereka tampaknya akrab. Karena mereka berdua perempuan.
 
-Jika ada masalah, itu adalah gadis berambut hitam yang berdiri di samping Feirona yang menatapku dalam diam.
+Jika ada masalah, itu adalah gadis berambut hitam yang berdiri di samping Feirona yang menatapku dengan diam.
 
 "Bagaimana denganmu Solnea?" (Renji)
 
