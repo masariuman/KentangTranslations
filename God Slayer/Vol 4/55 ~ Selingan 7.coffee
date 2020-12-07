@@ -166,11 +166,11 @@ aku yakin, semua orang sudah menyadarinya. Mereka telah menyadarinya, namun tida
 
 Dan pria itu, selama kita tidak bertanya, dia tidak akan membicarakannya, kurasa.
 
-——- Eru. Kami merasakan energi magisnya sangat melemah, dan kemudian, bumi terbelah dan langit terbelah, dan Demon God, yang dapat beregenerasi bahkan dari sepotong kecil daging, benar-benar dilenyapkan, sepenuhnya sehingga kami tidak bisa. bahkan merasakan sedikit pun dari dirinya.
+——- Eru. Kami merasakan energi magisnya sangat melemah, dan kemudian, bumi terbelah dan langit terbelah, dan raja iblis, yang dapat beregenerasi bahkan dari sepotong kecil daging, benar-benar dilenyapkan, sepenuhnya bahkan kami tidak bisa merasakan sedikit pun dari keberadaannya.
 
-"Tapi tetap saja, saya ingin menunggu sampai Renji-niichan memberi tahu kami tentang hal itu sendiri." (Sou)
+"Tapi tetap saja, aku ingin menunggu sampai Renji-niichan memberi tahu kita tentang hal itu sendiri." (Sou)
 
-"Dan kamu baik-baik saja dengan itu?"
+"Dan kamu tidak masalah dengan itu?"
 
 "Ya."
 
