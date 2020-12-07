@@ -408,7 +408,7 @@ Dalam hal kemampuan, pengalaman, dan fisik, …… dia melampaui Nona Francesca 
 
 Sejujurnya, kesempatan bagi Francesca untuk menang sangat rendah sejak awal. Terhadap murid-murid seusianya, dia memiliki keuntungan karena memiliki lebih banyak pengalaman tetapi melawan seorang profesional —- seorang petualang, keterampilannya masih jauh lebih rendah dibandingkan dengan seseorang yang melakukannya untuk mencari nafkah.
 
-Tapi tetap saja, sebelum pertandingan, …… percakapan kita. Umu, sedikit kekuatan berkumpul di lenganku sambil menggaruk kepalaku.
+Tapi tetap saja, sebelum pertandingan, …… percakapan kami.... Umu, sedikit kekuatan berkumpul di lenganku sambil menggaruk kepalaku.
 
 “Apakah kamu datang ke sini hanya untuk memberitahuku itu?”
 
