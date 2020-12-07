@@ -510,32 +510,36 @@ Apakah reaksiku tampak lucu baginya, karena dia tertawa lagi. Kali ini, dengan s
 
 Haah, aku menghela nafas.
 
-Mengangkat kepalaku, di balkon kursi bangsawan, ——- Utano-san, Aya dan Yui-chan bersama dengan Anastasia di bahunya ada di sana.
+aku Mengangkat kepalaku, di balkon kursi bangsawan, ——- Utano-san, Aya dan Yui-chan bersama dengan Anastasia di bahunya ada di sana.
 
-Mungkin, di belakang mereka Toudou, Kuuki dan KNIGHT juga ada. Tidak bisa memastikan tentang Kudou.
+Mungkin, di belakang mereka Toudou, Kuuki dan KNIGHT juga ada. aku Tidak bisa memastikan tentang Kudou.
 
 Dan mereka semua menatapku.
 
 "Jangan katakan ini pada Yuuko-dono oke?" (Ob)
 
-Aku tidak akan.
+tidak akan.
 
 "Dia benar-benar menakutkan ketika dia marah."
 
 "Aku tahu."
 
-Atau lebih tepatnya, saya pasti tidak akan mengatakan itu.
+Atau lebih tepatnya, aku pasti tidak akan mengatakan itu.
 
-Kami membicarakan hal ini selama duel kami ………… jika aku mengatakan itu pada Sage-sama yang pemalu itu, apa yang akan dia lakukan padaku hanya untuk menyembunyikan rasa malunya? Yah, itu mungkin menarik untuk dilihat sendiri.
+Kami membicarakan hal ini selama duel kami ………… jika aku mengatakan itu pada Sage-sama yang pemalu itu, apa yang akan dia lakukan padaku hanya untuk menyembunyikan rasa malunya? Yah, itu mungkin menarik untuk dilihat nanti.
 
-“Sepertinya Aya telah tumbuh menjadi sangat cantik juga. Orang hebat memang memiliki selera yang bagus. Luar biasa. ”(Ob) (T / N: tepatnya apa yang Obrien katakan adalah -'Orang hebat sangat menyukai kesenangan sensual 'tapi kedengarannya agak terlalu aneh jadi saya' melokalkannya 'sebaik mungkin. )
+“Sepertinya Aya telah tumbuh menjadi sangat cantik juga. Orang hebat memang memiliki selera yang bagus. Luar biasa. ”(Ob)
 
 “Hal aneh apa yang kamu katakan?” (Renji)
 
-Benar, kedengarannya bagus. Sebagai seorang pria, itu benar-benar kata-kata yang membuat orang tertarik.
+Benar, kedengarannya bagus. Sebagai seorang pria, itu benar-benar kata-kata yang menaarik.
 
 Tetapi tetap saja.
 
 ………… Jadi O'brien-san memiliki (keinginan seperti itu) sisi semacam ini padanya juga.
 
-Entah bagaimana, rasanya sangat segar.
+Entah bagaimana, rasanya sangat menyegarkan.
+
+----------------------
+
+masariuman : RENJIII OP !!!!!!!! bahkan tanpa magic dan ermenhilde !!! OPPP OPPPP OPPPPPPPP !!!!!!!!! hanya dengan pedang biasa !!! WAAAAAAAAAAA!!!! dan SHIP UTANOO WOOO WOOO WOOOO
