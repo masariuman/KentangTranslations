@@ -592,15 +592,14 @@ Aah, aku bergumam di kepalaku.
 
 aku akhirnya mengatakan itu. aku akhirnya berjanji lagi.
 
-Janji itu berat. Itu untuk mengatakannya tetapi sulit untuk dipenuhi. Jika Anda tidak dapat memenuhinya, Anda mengkhianati bukan hanya orang yang Anda janjikan tetapi juga diri Anda sendiri. Keduanya akhirnya terluka.
+Janji itu berat. enak untuk mengatakannya tetapi sulit untuk dipenuhi. Jika kamu tidak dapat memenuhinya, kamu mengkhianati bukan hanya orang yang kamu janjikan tetapi juga dirimu sendiri. Keduanya akhirnya terluka.
 
 Meskipun aku seharusnya sudah mengetahuinya, tetap saja aku—– membuat janji.
 
-Dituntun ke pintu masuk, pikirku.
 
 "Haah."
 
-Saya punya alasan lain untuk tidak kalah.
+aku punya alasan lain untuk tidak kalah.
 
 Pedang di pinggangku terasa begitu rapuh hingga aku tidak bisa tenang.
 
