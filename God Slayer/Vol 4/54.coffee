@@ -452,11 +452,11 @@ Tatapanku beralih ke rambut panjangnya —— rambut sutra yang disisir indah.
 
 Dia, pada akhirnya, adalah seorang wanita.
 
-Yah, dia mungkin akan menghindarinya dengan mudah bahkan jika aku mencobanya. Mungkin dia bahkan membalas dengan main-main seperti biasa. Bagaimanapun, saya tidak ingin mengganggu rambutnya yang disisir rapi, hal yang jarang terjadi, sekarang.
+Yah, dia mungkin akan menghindarinya dengan mudah bahkan jika aku mencobanya. Mungkin dia bahkan membalas dengan main-main seperti biasa. Bagaimanapun juga, aku tidak ingin mengganggu rambutnya yang disisir rapi, hal yang jarang terjadi, untuk sekarang.
 
 Kepribadian Kudou memang seperti itu tapi rambutnya tidak berbuat dosa.
 
-Oh?
+"Oh?"
 
 "Apa?"
 
@@ -464,9 +464,9 @@ Oh?
 
 Dan, dia melakukan tindakan mempertahankan kepalanya dengan tangannya.
 
-Dia benar-benar berjalan dengan kecepatannya sendiri. Karena saya tahu betapa dia tidak peduli dengan lingkungan sekitar, tindakannya terlihat sangat kekanak-kanakan.
+Karena aku tahu betapa dia tidak peduli dengan lingkungan sekitar, tindakannya terlihat sangat kekanak-kanakan.
 
-“Kamu tidak akan?” (Kudou)
+“Kamu tidak akan melakukannya?” (Kudou)
 
 “Tidak mau.”
 
@@ -474,7 +474,7 @@ Dia benar-benar berjalan dengan kecepatannya sendiri. Karena saya tahu betapa di
 
 Apakah kamu benar-benar anak kecil?
 
-Saya merasa ingin menghela nafas, serius.
+aku merasa ingin menghela nafas, serius.
 
 “Tapi aku sangat suka tsukkomis Yamada-san.”
 
