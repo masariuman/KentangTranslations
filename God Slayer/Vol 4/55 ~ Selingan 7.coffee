@@ -58,7 +58,7 @@ Sepertinya dia merasa sedikit bersalah tentang itu dan dia menggaruk kepalanya d
 
 “Ngomong-ngomong, masih ada waktu sampai pertandinganmu berikutnya kan? Kenapa kamu di sini, Souichi-kun? ”(Masaki)
 
-"Tidak ada. Hanya bertanya-tanya bagaimana kabarmu, itu saja. ”
+"Tidak ada. Hanya penasaran bagaimana kabarmu, itu saja. ”
 
 "Apa ini? Apa kau mengkhawatirkan onee-san? ”
 
