@@ -240,21 +240,21 @@ Ya, tentu saja.
 
 Apakah tidak apa-apa baginya untuk memberitahu seorang pria untuk membawa sahabatnya kembali ke kamarnya dengan mudah seperti itu? Itu juga, di malam hari. Aku cukup yakin dia juga tahu apa yang dia maksudkan yang membuatku semakin sulit untuk mengatakan hal lain.
 
-Apakah perasaanku terhadap hal-hal seperti itu seburuk itu?
+Apakah perasaanku terhadap hal-hal seperti itu seburuk itu juga?
 
-Sambil merasa sedikit takut pada gadis di depanku ini, aku mengalihkan pandanganku dari seluruh topik ini jika memungkinkan.
+Sambil merasa sedikit takut pada gadis di depanku ini, aku mengalihkan pandanganku dan dari seluruh topik ini jika memungkinkan.
 
 “Renji-oniisan, kamu harus lebih agresif.”
 
 "Iya."
 
-“Aya-chan, dia puas hanya dengan diajak makan malam tahu? Sebagai teman masa kecil, dan sahabat, itu benar-benar menyedihkan. "
+"Aya-chan, dia puas hanya dengan diajak makan... Sebagai teman masa kecil, dan sahabat, itu benar-benar menyedihkan. "
 
-"Saya melihat."
+"begitu ya...."
 
-Sepertinya dia benar-benar tidak puas dengan hubungan kita saat ini.
+Sepertinya dia benar-benar tidak puas dengan hubungan kami saat ini.
 
-Itu Aya, apa yang dia katakan pada Yayoi-chan? Sambil memikirkan itu, aku menggelengkan kepala. Lebih baik tidak terlalu memikirkannya, menurutku.
+Aya, apa yang dia katakan pada Yayoi-chan? Sambil memikirkan itu, aku menggelengkan kepala. Lebih baik tidak terlalu memikirkannya, menurutku.
 
 "Jika terus seperti ini, kamu akan selamanya didominasi oleh Yuuko-san, tahu?" (Yayoi)
 
