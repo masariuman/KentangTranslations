@@ -408,7 +408,7 @@ Tetapi tetap saja,
 
 “Eh?”
 
-Dia mendapat pita itu sebagai hadiah atas penampilannya di turnamen tim kan? Apakah tidak apa-apa memberikan sesuatu untuk itu ………….?
+Dia mendapat pita itu sebagai hadiah atas penampilannya di turnamen tim kan? Apakah tidak apa-apa membalas sesuatu untuk itu ………….?
 
 Nah, jika dia senang maka saya tidak punya hak untuk mengatakan apa pun.
 
