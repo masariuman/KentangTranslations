@@ -870,7 +870,7 @@ Sepertinya dia cukup puas dengan jawabanku dan dia berjalan menuju nona Francesc
 
 ……… Sungguh, aku sangat kesepian.
 
-aku telah diberitahu untuk menang tetapi dia tidak terlalu mengkhawatirkanku. Apa ini? Renji-san adalah Mururu yang sangat kesepian. Tidak bisakah Anda, Anda tahu, mengatakannya dengan cara yang lebih lembut?
+aku telah diberitahu untuk menang tetapi dia tidak terlalu mengkhawatirkanku. Apa ini? Renji-san sangat kesepian lho, Mururu. Tidak bisakah kamu, itu lho, mengatakannya dengan cara yang lebih lembut?
 
 Saat aku berjalan pergi dengan merasakan kakiku agak berat, tiba-tiba aku merasakan tatapan lain.
 
