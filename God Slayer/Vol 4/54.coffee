@@ -480,11 +480,11 @@ aku merasa ingin menghela nafas, serius.
 
 Pujian macam apa itu?
 
-Tolong jangan puji saya dengan cara yang membuat saya sulit bereaksi.
+Tolong jangan puji aku dengan cara yang membuatku sulit bereaksi.
 
 Aku yakin dia juga menggoda Souichi dan yang lainnya seperti ini, karena mereka pasti sangat bermasalah dengannya. Terutama Souichi, karena dia memiliki banyak wanita di sekitarnya.
 
-"Pergi katakan itu ke Souichi atau sesuatu." (Renji)
+"Pergi katakan itu ke Souichi." (Renji)
 
 "Belakangan ini, Toudou-san juga cukup menyenangkan."
 
@@ -492,31 +492,31 @@ Aku yakin dia juga menggoda Souichi dan yang lainnya seperti ini, karena mereka 
 
 “Ah, jadi kamu tahu!”
 
-Sebelum saya menyadarinya, pembicaraan kami telah kehilangan topiknya lagi.
+Sebelum aku menyadarinya, pembicaraan kami telah berganti topiknya lagi.
 
-"Apakah Ms Francesca sudah meninggalkan Coliseum?" (Renji)
+"Apakah nona Francesca sudah meninggalkan collesium?" (Renji)
 
-“Belum kupikir. Mungkin dia ada di pintu belakang, atau mungkin toilet? ”
+“kupikir belum. Mungkin dia ada di pintu belakang, atau mungkin toilet? ”
 
-Saya hanya bisa memikirkan dua opsi itu juga.
+aku hanya bisa memikirkan dua opsi itu juga.
 
 Ada cukup banyak orang di Coliseum sekarang setelah turnamen dimulai.
 
-Jika dia mencari tempat untuk menyendiri, merasa tertekan, dia akan pergi ke daerah yang kurang berpenduduk. Aku tidak bisa bertemu dengannya jika dia ada di toilet tapi aku bisa jika dia ada di pintu belakang.
+Jika dia mencari tempat untuk menyendiri, merasa tertekan, dia akan pergi ke daerah yang sepi. Aku tidak bisa bertemu dengannya jika dia ada di toilet tapi aku bisa jika dia ada di pintu belakang.
 
-"Saya melihat. Lalu aku pergi. ”(Renji)
+"aku mengerti. Lalu aku pergi. ”(Renji)
 
-“Ara. Apakah murid Anda lebih penting daripada mengobrol dengan saya? ”
+“Ara. Apakah muridmu lebih penting daripada mengobrol denganku? ”
 
-“Dia sebenarnya bukan murid saya karena saya belum banyak mengajarinya. Ya, tapi ya, Nona Francesca lebih penting dari Anda. ”
+“Dia sebenarnya bukan muridku karena aku belum banyak mengajarinya. Ya, tapi ya, Nona Francesca lebih penting darimu. ”
 
-“Sangat kasar ~”
+“sungguh kasar ~”
 
-Mengatakan itu, dia tertawa terbahak-bahak.
+dia tertawa terbahak-bahak.
 
-Karena saya bisa bercanda seperti ini, cukup menyenangkan untuk berbicara dengannya. Saya yakin dia juga menikmatinya, dengan caranya sendiri.
+Karena aku bisa bercanda seperti ini, cukup menyenangkan untuk berbicara dengannya. Saakuya yakin dia juga menikmatinya, dengan caranya sendiri.
 
-”'Ms', eh?” (Kudou)
+”'nona', eh?” (Kudou)
 
 Saat aku mulai pergi, dia mengatakan itu.
 
@@ -528,13 +528,13 @@ Dan, dia terkikik.
 
 Mungkin karena gaunnya, dia terlihat lebih berkelas, atau lebih tepatnya, dia terlihat bagus seperti itu.
 
-Jika sebagai orang lain, tertawa seperti itu akan menjadi pemandangan yang menyenangkan tetapi ketika itu adalah Kudou, itu hanya membuatnya terlihat lebih teduh.
+Jika sebagai orang lain, tertawa seperti itu akan menjadi pemandangan yang menyenangkan tetapi ketika itu adalah Kudou, itu hanya membuatnya terlihat lebih suram.
 
 "Baiklah, terima kasih telah memberitahuku tentang itu." (Renji)
 
 "Sama-sama."
 
-Dan kali ini, saya pergi.
+Dan kali ini, aku pergi.
 
 .
 
@@ -542,7 +542,7 @@ Dan kali ini, saya pergi.
 
 .
 
-Ms Francesca berada di pintu belakang ——- yaitu, pintu keluar yang dibuat untuk para bangsawan atau dalam keadaan darurat.
+nona Francesca berada di pintu belakang ——- yaitu, pintu keluar yang dibuat untuk para bangsawan atau dalam keadaan darurat.
 
 Tidak ada bedanya dengan pintu masuk lainnya tetapi ada bunga atau gambar yang dilukis di atasnya, memberikan tampilan yang lebih elegan.
 
