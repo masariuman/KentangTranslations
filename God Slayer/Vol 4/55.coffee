@@ -26,55 +26,55 @@ Terus terang, di antara semua peserta turnamen ini, tidak ada seorang pun yang d
 
 Memperkuat diriku sendiri, aku sebenarnya melelahkan diriku secara mental.
 
-Tanpa mempedulikan pikiran batinku, Masaki-chan menatapku dengan tatapan dingin. Jika aku punya jimat aneh, tatapannya mungkin membuatku merasa bersemangat. Sambil memikirkan hal-hal yang sangat tidak pantas, aku menghadapinya.
+Tanpa mempedulikan pikiran batinku, Masaki-chan menatapku dengan tatapan dingin. Jika aku punya fetish aneh, tatapannya mungkin membuatku merasa bersemangat. Sambil memikirkan hal-hal yang sangat tidak pantas, aku menghadapinya.
 
-"Begitu?"
+"jadi?"
 
 “Hm?” (Renji)
 
-Melawan aku, maukah kamu setidaknya bertarung dengan serius?
+"Melawanku, maukah kamu setidaknya bertarung dengan serius?"
 
 “……… Aku cukup serius bahkan di ronde pertama dan kedua…”
 
 Sambil menggaruk pipiku, aku menjawab.
 
-Pada saat yang sama, saya mulai mendengar [suara] ajaib yang akhirnya saya terbiasa.
+Pada saat yang sama, aku mulai mendengar [suara].
 
 Tapi kali ini, suaranya tidak seperti biasanya. Sebaliknya, itu adalah suara yang sangat familiar —– Suara Utano-san. Dia memulai perkenalan kami.
 
-Mendengar perkenalannya pertama kali sebelum berbicara, saya menyadari bahwa dia selalu rajin dalam segala hal. Memikirkan itu, aku tersenyum sedikit.
+Mendengar perkenalannya pertama kali sebelum berbicara, aku menyadari bahwa dia selalu rajin dalam segala hal. Memikirkan itu, aku tersenyum sedikit.
 
 "Haah."
 
 Melihat reaksiku dengan jelas, Masaki-chan menghela nafas.
 
-Desahan yang dia keluarkan sambil menurunkan bahunya terasa berat, dan dalam ……… Kamu tidak harus seperti itu. Sekarang saya akan mulai merasa seolah-olah itu semua salah saya melihat desahan seperti itu.
+hembusan yang dia keluarkan sambil menurunkan bahunya terasa berat, ……… Kamu tidak harus seperti itu. Sekarang aku akan mulai merasa seolah-olah itu semua salahku melihat hembusan seperti itu.
 
-"Kamu benar-benar dicintai oleh semua orang." (Masaki)
+"Kamu benar-benar disukai oleh semua orang." (Masaki)
 
 “N… ..muu”
 
-“Dia mengkhawatirkanmu, bukan. Dia pada dasarnya bertindak sejauh ini hanya untuk menunjukkan bahwa dia bersamamu, meskipun itu hanya sedikit. ”
+“Dia mengkhawatirkanmu, kan. Dia pada dasarnya bertindak sejauh ini hanya untuk menunjukkan bahwa dia bersamamu, meskipun itu hanya sedikit. ”
 
-Mengatakan itu dengan suara yang hampir menggoda, aku bertanya-tanya seberapa serius maksudnya dan seberapa besar maksudnya sebagai lelucon. Saat dia berbicara sambil mengangkat bahu berlebihan, dia benar-benar terlihat seperti Koutarou saat dia bercanda. Jika aku mengatakan itu, dia akan menggorok leherku bahkan tanpa menunggu sinyal awal.
+Mengatakan itu dengan suara yang hampir menggoda, aku bertanya-tanya seberapa serius maksudnya dan seberapa besar maksudnya sebagai lelucon. Saat dia berbicara sambil mengangkat bahu berlebihan, dia benar-benar terlihat seperti Koutarou saat dia bercanda. Jika aku mengatakan itu, dia akan menggorok leherku bahkan tanpa menunggu sinyal mulai.
 
 Atau mungkin, dia serius tentang semua itu.
 
-Ketika saya ragu-ragu untuk menjawab, dia melangkah lebih jauh. Tapi, untuk sekali ini, melihat dia berbicara tentang hal-hal seperti itu daripada hanya tentang berkelahi, kurasa dia sedang dalam mood yang cukup baik. Faktanya, itu jauh lebih baik.
+Ketika aku ragu-ragu untuk menjawab, dia melangkah lebih jauh. Tapi, untuk sekali ini, melihat dia berbicara tentang hal-hal seperti itu daripada hanya tentang bertarung, kurasa dia sedang dalam mood yang cukup baik. Faktanya, itu jauh lebih baik.
 
 Satu-satunya hal yang terpikir olehku adalah bahwa itu pasti sesuatu yang berhubungan dengan Souichi …… ..atau kasus terburuk, hanya karena dia akan melawanku.
 
-"Apa, apakah sesuatu yang baik terjadi dengan Souichi atau sesuatu?" (Renji)
+"Apa, apakah sesuatu yang baik terjadi dengan Souichi?" (Renji)
 
 “… ..Muu.”
 
-Oh. Sepertinya jawaban saya benar pada percobaan pertama.
+Oh. Sepertinya jawabanku benar pada percobaan pertama.
 
 Ekspresi menggoda, untuk sesaat, serius hanya untuk sesaat, berubah menjadi ekspresi terkejut saat dia menatapku.
 
 Sangat mudah untuk dimengerti. Seorang gadis yang sedang jatuh cinta sangat menggemaskan untuk dilihat.
 
-“Saya mengerti, saya mengerti. Jadi kamu bisa mengambil langkah maju bersamanya, eh? ”(Renji)
+“aku mengerti, aku mengerti. jadi ada perkembangan bersamanya, eh? ”(Renji)
 
 "Diam." (Masaki)
 
