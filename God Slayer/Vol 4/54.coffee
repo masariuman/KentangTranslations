@@ -846,11 +846,11 @@ Apa yang harus aku lakukan, aku merasa senang hanya karena dia khawatir seperti 
 
 Dan mengatakan itu, dia menatapku.
 
-Tidak biasa bagi Mururu, tatapannya menahan apa yang Anda sebut keinginan kuat di dalamnya.
+Tidak biasa bagi Mururu, tatapannya memiliki keinginan kuat di dalamnya.
 
 ……… .Kurasa itu pasti karena lawanku adalah orang yang mengalahkan Nona Francesca.
 
-"Saya akan mencoba yang terbaik." (Renji)
+"aku akan mencoba yang terbaik." (Renji)
 
 “Janji?” (Mururu)
 
