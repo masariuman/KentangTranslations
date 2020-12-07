@@ -162,7 +162,7 @@ Yah, aku tidak bisa menyangkalnya. Dia tidak punya kepribadian seperti mengobrol
 
 “Aku kesepian ~” (yayoi)
 
-Wow, luar biasa dia bisa mengatakan itu. Aku menatapnya dengan tatapan muak. Anda benar-benar memiliki satu orang yang bisa membebaskan Anda dari kesepian. Setidaknya saya yakin itu tidak dimaksudkan untuk saya. Bergantung pada siapa orangnya, garis itu akan menjadi garis yang sempurna untuk merayu seseorang.
+Wow, luar biasa dia bisa mengatakan itu. Aku menatapnya dengan tatapan muak. kamu benar-benar memiliki satu orang yang bisa membebaskanmu dari kesepian. Setidaknya aku yakin itu tidak dimaksudkan untukku. Bergantung pada siapa orangnya, perkataan itu akan menjadi perkataan yang sempurna untuk merayu seseorang.
 
 Meski begitu, aku sama saja ingin berbicara dengannya.
 
