@@ -314,7 +314,7 @@ Untuk saat ini, aku memutuskan untuk mengatakannya seperti itu. Tampaknya pertar
 
 "Baiklah, aku akan menyerahkan gadis itu kepada kekasihnya untuk diurus."
 
-Jika aku meminta maaf, itu hanya akan membuatnya semakin marah, jadi aku memutuskan untuk menyerahkan semuanya kepada Souichi yang harus dia lawan di final saat aku berjalan di arena.
+Jika aku meminta maaf, itu hanya akan membuatnya semakin marah, jadi aku memutuskan untuk menyerahkan semuanya kepada Souichi yang harus dia lawan di final.
 
 Setidaknya, dengan ini turnamenku akhirnya berakhir tapi ......... betapa rasanya tidak enak. Yah, tidak peduli seberapa banyak Masaki-chan bersikap lunak padaku, aku tetap tidak berpikir aku akan sampai sejauh ini.
 
