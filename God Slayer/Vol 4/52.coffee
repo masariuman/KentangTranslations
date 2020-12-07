@@ -366,15 +366,15 @@ Mungkin bukan hanya imajinasiku saja kalau suaranya juga tampak sedikit khawatir
 
 Bahkan aku tidak akan mampu menahan rasa malu seperti itu.
 
-[aku pikir hanya Renji yang bisa menangani banyak omelan tanpa menjadi marah.]
+[aku pikir hanya Renji yang bisa menangani banyak sindiran dan ejekan tanpa menjadi marah.]
 
 "Aku hanya tidak terlalu peduli tentang itu."
 
-[Meskipun menurutku kamu harus sedikit peduli.]
+[Meskipun menurutku kau harus sedikit peduli.]
 
-“…… .serius.”
+“…… .haaa.....”
 
-Ketika saya kembali ke Ms Francesca setelah memilih pedang saya, dia saat ini sedang dalam proses menarik kembali rambutnya dengan pita.
+Ketika aku kembali ke nona Francesca setelah memilih pedangku, dia saat ini sedang mengikat kembali rambutnya dengan pita.
 
 Rambut emasnya yang indah diikat di belakang punggungnya dan kemudian diikat menjadi satu. Karena saya telah melihatnya dengan gaya rambut lain selain dengan rambut terbuka tergerai biasanya, rasanya sangat segar.
 
