@@ -244,193 +244,193 @@ Bahkan dengan semua kelemahan seperti itu, bahkan setelah melangkah mendekatinya
 
 Sama seperti bagaimana aku mengetahui kelemahan dan kekuatan pedang besarnya, O'brien-san juga mengetahui hal yang sama untuk pedang panjangku. Dan dia juga tahu caraku bertarung.
 
-Karena aku kekurangan kekuatan lengan, aku tidak bisa membenturkan pedangku secara langsung dengan miliknya.
+Karena aku kekurangan kekuatan pada lenganku, aku tidak bisa membenturkan pedangku secara langsung dengan miliknya.
 
-Karena itu, gerakanku terbatas. Jadi saya membidik bagian vital. Leher, persendian, jantung; Saya bertarung dengan setiap serangan yang bertujuan untuk membunuh secara instan.
+Karena itu, gerakanku terbatas. Jadi aku membidik bagian vital. Leher, persendian, jantung; aku bertarung dengan setiap serangan yang bertujuan untuk membunuh secara instan.
 
-Karena itulah, dia bisa memblokirnya. Karena dia tahu bahwa saya hanya akan membidik lehernya pada saat itu.
+Karena itulah, dia bisa menangkisnya. Karena dia tahu bahwa aku hanya akan membidik lehernya pada saat itu.
 
-"Ayo pergi!!"
+"Ayo kita mulai lagi!!"
 
 Meski begitu, aku tidak punya cara lain untuk bertarung.
 
-Saya tidak menyerah, pada kenyataannya, saya merasa sangat tenang ketika saya berkonsentrasi pada tuntutan O'brien-san.
+aku tidak menyerah, pada kenyataannya, aku merasa sangat tenang ketika aku berkonsentrasi pada O'brien-san.
 
-Kami berdua menyadari gerakan dan keterampilan satu sama lain. Kemudian, itu akan menjadi pertempuran kemampuan dan keterampilan murni.
+Kami berdua menyadari gerakan dan keterampilan satu sama lain. itu akan menjadi pertempuran kemampuan dan keterampilan murni.
 
-Sampai sekarang, saya tidak pernah bisa menang melawan dia karena saya tidak berada di dekat levelnya. Apakah itu dalam kekuatan lengan, fisik saya, teknik saya, atau pengalaman saya.
+Sampai sekarang, aku tidak pernah bisa menang melawan dia karena aku tidak berada di dekat levelnya. Apakah itu dalam kekuatan lenganku, fisikku, teknikku, atau pengalamanku.
 
 Dia mengayunkan pedangnya lagi. Melawan ayunan bertenaga penuh itu, aku hanya bisa menghindar sekali lagi dengan membungkuk ke belakang dan sekali lagi, lantai hancur.
 
-Dari sana, untuk membuat jarak yang jauh di antara kami, saya melompat menjauh.
+Dari sana, untuk membuat jarak yang jauh di antara kami, aku melompat menjauh.
 
 “OOH !!!”
 
-Mencoba mengejarku, pedangnya mengayun mengejarku.
+Mencoba mengejarku, pedangnya diayunkan kearahku.
 
-Ayunan itu sangat cepat sehingga pedang itu tampak seperti tidak berbobot saat itu mendekatiku.
+Ayunan itu sangat cepat sehingga pedang itu tampak seperti tidak berat saat itu mendekatiku.
 
-Melompat mundur satu langkah lagi, entah bagaimana aku menghindari serangan itu juga. Ujung pedang sedikit menyentuh pakaianku membuat sobekan kecil di dalamnya.
+Melompat mundur satu langkah lagi, entah bagaimana aku menghindari serangan itu juga. Ujung pedang sedikit menyentuh pakaianku dan membuat sobekan kecil.
 
-Kakiku mendarat di tanah pada saat yang sama saat pedang mengayun melewatiku.
+Kakiku mendarat di tanah pada saat yang sama saat pedang berayun melewatiku.
 
-Melihat celah yang tercipta dari ayunan pedang yang lebar, aku bergegas menuju O'brien-san dengan kecepatan penuh.
+Melihat celah yang tercipta dari ayunan pedang, aku bergegas menuju O'brien-san dengan kecepatan penuh.
 
-Tapi tindakanku sudah terlihat saat dia, sambil tetap dalam pendiriannya, menggunakan kekuatan lengannya yang luar biasa untuk mengayunkan kembali pedangnya ke arahku.
+Tapi tindakanku sudah terlihat karena dia, sambil tetap dalam pendiriannya, menggunakan kekuatan lengannya yang luar biasa untuk mengayunkan kembali pedangnya ke arahku.
 
-Mengayunkan pedang dari posisi aneh seperti itu seharusnya membatasi kekuatan di balik tebasan horizontal —— atau begitulah yang kupikirkan.
+Mengayunkan pedang dari posisi aneh seperti itu seharusnya membatasi kekuatannya di tebasan horizontal —— atau begitulah yang kupikirkan.
 
-Merasakan firasat buruk, aku dengan cepat menjatuhkan tubuhku ketika pedang itu melesat tepat di atas kepalaku memotong udara.
+Merasakan firasat buruk, aku dengan cepat menjatuhkan tubuhku dan pedang itu melesat tepat di atas kepalaku memotong udara.
 
 Tepat di depanku adalah kaki kanannya. Lututnya mengarah ke wajahku. Saat aku menekuk leherku untuk menghindarinya, secara refleks aku mengayunkan pedang ke kaki kirinya.
 
-Kaki kanannya terangkat dan kaki kirinya, yang saya coba potong, tetap tidak terluka.
+Kaki kanannya terangkat dan kaki kirinya, yangku coba potong, tetap tidak terluka.
 
 Sambil mengklik lidahku, aku berguling di lantai batu untuk menjauhkan diri darinya. Tapi kali ini, O'brien-san mengejarku.
 
-Melawan aku, yang masih berlutut, dia menurunkan pedangnya dari atas.
+Melawanku, yang masih berlutut, dia menurunkan pedangnya dari atas.
 
 “Shiit !!!”
 
-Saya menghindari tebasan itu dengan melompat ke samping dan kemudian menghindari tebasan berikutnya yang datang setelah saya dengan menekuk leher saya.
+aku menghindari tebasan itu dengan melompat ke samping dan kemudian menghindari tebasan berikutnya yang datang setelah aku dengan menekuk leherku.
 
-Pedangnya bergerak sangat cepat sehingga Anda tidak akan percaya bahwa itu adalah pedang besar 2 tangan. Bahkan tidak dapat menahan serangan itu dengan pedangku, aku terus menghindarinya. Saya bahkan tidak punya waktu untuk berdiri dengan benar dan memperbaiki postur tubuh saya.
+Pedangnya bergerak sangat cepat sehingga kamu tidak akan percaya bahwa itu adalah pedang besar 2 tangan. Bahkan tidak dapat menahan serangan itu dengan pedangku, aku terus menghindarinya. aku bahkan tidak punya waktu untuk berdiri dengan benar dan memperbaiki postur tubuhku.
 
 Dia terus mengayun, menebas, dan menebasku dengan pedangnya.
 
-Dan saya mengelak, memutar tubuh saya dan menggerakkan leher saya untuk menghindari semua serangan. Saat kecepatan serangan terus meningkat, kecepatan saya dalam menghindarinya juga meningkat.
+Dan aku mengelak, memutar tubuhku dan menggerakkan leherku untuk menghindari semua serangan. Saat kecepatan serangan terus meningkat, kecepatanku dalam menghindarinya juga meningkat.
 
-Jangankan berkedip, saya bahkan tidak punya waktu untuk bernapas.
+Jangankan berkedip, aku bahkan tidak punya waktu untuk bernapas.
 
-Tapi kecepatannya hanya terus meningkat.
+Tapi kecepatannya terus meningkat.
 
-Itu adalah sihir Boost yang meningkatkan kemampuan fisik.
+dia menggunakan sihir Boost yang meningkatkan kemampuan fisik.
 
-Sesuatu yang tidak bisa saya gunakan. Meskipun itu adalah kekuatan yang dimiliki oleh hampir sebagian besar orang di dunia ini. Energi magis.
+Sesuatu yang tidak bisa aku gunakan. Meskipun itu adalah kekuatan yang dimiliki oleh hampir sebagian besar orang di dunia ini. Energi magis.
 
-Samar-samar aku bisa melihat energi magis berwarna tanah di sekitar O'brien-san.
+aku bisa melihat energi magis berwarna tanah di sekitar O'brien-san walaupun tidak terlalu jelas.
 
-Saya tidak menganggapnya curang. Ini adalah cara normal untuk memperjuangkan orang-orang di dunia ini. Saya, orang yang tidak memilikinya, adalah yang aneh.
+aku tidak menganggapnya curang. Ini adalah cara normal untuk memperjuangkan orang-orang di dunia ini. aku, orang yang tidak memilikinya, adalah yang aneh.
 
-Kecepatan pedangnya, ketajaman, semuanya naik.
+Kecepatan pedangnya, ketajaman, semuanya meningkat.
 
-Tapi tetap saja, saya terus menghindar dengan putus asa.
+Tapi tetap saja, aku terus menghindar dengan putus asa.
 
-Yang tidak bisa aku hindari, aku menangkis mereka entah bagaimana dengan menghantamkan pedangku ke pangkal pedang besarnya.
+Yang tidak bisa aku hindari, aku menangkisnya entah bagaimana dengan menghantamkan pedangku ke pangkal pedang besarnya.
 
-Dia berakselerasi. Semakin.
+Dia berakselerasi. Semakin cepat dan cepat.
 
-Kelelahan di lenganku terus bertambah dan lenganku mulai mati rasa. Kekurangan oksigen membuatnya sakit dan mata saya yang tidak berkedip terasa sakit. Tapi tetap saja, dia terus berakselerasi. Meskipun dia sudah lebih kuat dariku, dengan menggunakan sihir untuk meningkatkan gerakannya, bahkan saat mengenakan armor, dia lebih cepat dariku. Setiap serangannya yang berasal dari kekuatan lengannya yang ditingkatkan membuat lenganku menjadi mati rasa.
+Kelelahan di lenganku terus bertambah dan lenganku mulai mati rasa. Kekurangan oksigen membuat terasa sakit dan mataku yang tidak berkedip terasa sakit. Tapi tetap saja, dia terus berakselerasi. Meskipun dia sudah lebih kuat dariku, dengan menggunakan sihir untuk meningkatkan gerakannya, bahkan saat mengenakan armor, dia lebih cepat dariku. Setiap serangannya yang berasal dari kekuatan lengannya yang ditingkatkan membuat lenganku menjadi mati rasa.
 
-Dan saya terus menangkis serangan itu dengan gerakan minimum yang dibutuhkan.
+Dan aku terus menangkis serangan itu dengan gerakan minimum yang dibutuhkan.
 
-Diam. Seolah-olah bahkan dengusan dan teriakan saat bertarung tidak berguna, baik aku dan O'brien-san sama sekali diam.
+Diam. Seolah-olah bahkan teriakan saat bertarung tidak berguna, baik aku dan O'brien-san sama sekali diam.
 
 Hanya suara tajam dari benturan pedang yang terdengar di telingaku.
 
 [Suara] sihir yang biasanya mengomentari pertandingan juga tidak bergema lagi di telingaku.
 
-Saya ingin bernafas.
+aku ingin bernafas.
 
 Aku menghindari tebasan diagonal dengan menurunkan pinggangku
 
-Saya ingin bernafas.
+aku ingin bernafas.
 
 Seolah-olah dia tahu aku akan menghindar, dia menghentikan ayunannya dan mengembalikan pedangnya ke arah leherku.
 
-Saya ingin bernafas.
+aku ingin bernafas.
 
-Serangan itu, daripada menggunakan pedangku untuk menyerang balik, tangannya memegang pedang besar —— Aku menggunakan tangan kiriku untuk menyerang pergelangan tangannya untuk menghentikan serangan. Tidak peduli seberapa besar kekuatan lengan yang mungkin dia miliki, itu tetap daging dan kulit, dan tulang di bawahnya. Itu jauh lebih baik daripada disayat pedang.
+Serangan itu, daripada menggunakan pedangku untuk menyerang balik, ganggang pedang besar —— Aku menggunakan tangan kiriku untuk menyerang pergelangan tangannya untuk menghentikan serangan. Tidak peduli seberapa besar kekuatan lengan yang mungkin dia miliki, itu tetap daging dan kulit, dan tulang di didalamnya. Itu jauh lebih baik daripada disayat pedang.
 
 Dalam sekejap, satu celah muncul.
 
-Daripada mengambil kesempatan ini untuk bernafas, aku menggunakan pedangku dan mengarahkan ke sendi lututnya yang tidak dilindungi oleh armor full plate miliknya. Saya bahkan tidak perlu melihatnya, saya hanya membidik sendi hanya melalui insting terlatih saya.
+Daripada mengambil kesempatan ini untuk bernafas, aku menggunakan pedangku dan mengarahkan ke sendi lututnya yang tidak dilindungi oleh armor full plate miliknya. aku bahkan tidak perlu melihatnya, aku hanya membidik sendi melalui insting terlatihku.
 
 Jangankan menjadi tumpul, pedang yang telah menerima kerusakan parah dari ayunan pedang besarnya dan hampir compang-camping, tidak dapat memotong dan berakhir begitu saja, tapi tetap saja, itu membuat O'brien-san menekuk lututnya. .
 
-Dari sana, saya mempercepat sisi saya, mengayunkan lengan saya ke belakang dan dengan gerakan minimum yang diperlukan, saya menancapkan pedang panjang saya ke lehernya.
+Dari sana, aku mempercepat gerakanku, mengayunkan lenganku ke belakang dan dengan gerakan minimum yang diperlukan, aku menancapkan pedang panjangku ke lehernya.
 
-Di sana, akhirnya, saya menarik napas dalam-dalam.
+akhirnya, aku menarik napas dalam-dalam.
 
-………… adalah keajaiban bahwa saya tidak benar-benar memotong lehernya dengan mengikuti momentum. Atau apakah mereka yakin bahwa jika itu aku, aku akan menahan diri tepat waktu?
+………… sungguh keajaiban bahwa aku tidak benar-benar memotong lehernya dengan mengikuti momentum sekarang. Atau apakah mereka yakin bahwa jika itu aku, aku akan menahan diri tepat waktu?
 
-Sorak sorai meriah, seperti guntur. Itu benar-benar kegembiraan yang luar biasa.
+teriakan penonton meriah, seperti guntur. Itu benar-benar sungguh heboh.
 
 "Kamu menjadi lebih baik." (Ob)
 
-"Dimana tepatnya?"
+"apanya?"
 
 Jantungku berdegup sangat kencang hingga rasanya seperti akan meledak.
 
 Keringat mengucur dari sekujur tubuhku dan kedua lenganku terasa seperti mati rasa.
 
-Pedang yang saya miliki berada dalam kondisi yang sangat buruk sehingga tidak ada perbaikan yang bisa menyelamatkannya. Begitulah hancurnya itu.
+Pedang yang aku miliki berada dalam kondisi yang sangat buruk sehingga tidak ada perbaikan yang bisa menyelamatkannya. Begitulah hancurnya pedang itu.
 
-Meskipun saya tidak terluka di mana pun, masih terasa seperti seluruh tubuh saya sakit.
+Meskipun aku tidak terluka di mana pun, seluruh tubuhkumasih terasa sakit.
 
-Sebagai perbandingan, O'brien-san hanya bernapas sedikit dengan kasar.
+Sebagai perbandingan, O'brien-san hanya bernapas sedikit lebih kasar.
 
-Hanya dengan melihat kami, harus jelas siapa yang dalam kondisi lebih baik.
+Hanya dengan melihat kami, jelas siapa yang dalam kondisi lebih baik.
 
-Namun, [suara] itu menyatakan saya sebagai pemenang.
+Namun, [suara] itu menyatakan aku sebagai pemenang.
 
 “Tchh. Kamu benar-benar harus sedikit santai ……. ”
 
-Saat aku mengatakan itu, O'brien-san berlutut.
+Saat aku mengatakan itu, O'brien-san pun duduk.
 
 Pada saat yang sama, tiga pria berjubah seperti pendeta keluar dari salah satu pintu masuk ke arena menuju O'brien-san.
 
-“Itu tidak rusak. Hanya terluka. "(Ob)
+"lututku tidak rusak. Hanya terluka. "(Ob)
 
-Dia mencoba untuk berdiri sambil mengatakan itu tetapi kembali berlutut lagi.
+Dia mencoba untuk berdiri sambil mengatakan itu tetapi kembali terduduk lagi.
 
-Itu lutut yang baru saja saya pukul.
+Itu lutut yang baru saja aku pukul.
 
-Sepertinya saya memukulnya dengan sempurna dan akhirnya melukai persendiannya.
+Sepertinya aku memukulnya dengan sempurna dan akhirnya melukai persendiannya.
 
-Meski ini duel, aku masih merasa agak buruk.
+Meski ini duel, aku masih merasa agak tidak enak.
 
-Nah, dalam kasus saya, jika saya gagal mengelak sekali pun, kepala saya, atau lebih tepatnya, seluruh tubuh saya akan berkeping-keping.
+Nah, dalam kasusku, jika aku gagal mengelak sekali saja, kepalaku, atau lebih tepatnya, seluruh tubuhku akan berkeping-keping.
 
 "Apakah kamu baik-baik saja?"
 
-“Jelas. Serius ……… ..hanya karena aku terluka ringan, kamu sudah seperti ini. ”(Ob)
+“Tentu Saja. Benaran ……… ..hanya karena aku terluka ringan, kamu sudah seperti ini. ”(Ob)
 
 "Yah, aku tidak bisa menahannya."
 
-Mengatakan itu, saya meminjamkan bahu saya untuk memberinya dukungan untuk berjalan. Armor lengkapnya benar-benar berat.
+aku meminjamkan bahuku untuk mendukungannya berjalan. Armor lengkapnya benar-benar berat.
 
-"Ayo, ayo pergi ke rumah sakit." (Renji)
+"Ayo, ayo pergi ke ruang berobat." (Renji)
 
-“……… Untuk berpikir bahwa saya harus meminjam bahu seorang pria yang pernah saya latih sendiri.” (Ob)
+“……… tidak kusangka aku harus meminjam bahu seorang pria yang pernah aku latih sendiri.” (Ob)
 
-“Itu kalimatku. Untuk berpikir bahwa saya harus meminjamkan bahu saya kepada seseorang yang melatih saya begitu keras sehingga saya hampir muntah semua yang saya makan setiap hari. "
+“Itu kalimatku. tidak kusangka bahwa aku harus meminjamkan bahuku kepada seseorang yang melatihku begitu keras sehingga aku hampir memuntahkan semua yang aku makan setiap hari. "
 
-Itu karena kamu lemah.
+"Itu karena kamu lemah."
 
-"Ya, tentu."
+"Ya, tentu saja."
 
 Karena itulah.
 
 "Terima kasih, untuk melatihku dengan sangat baik." (Renji)
 
-Idiot.
+"Idiot."
 
 Saat aku mengatakan itu, dia memalingkan wajahnya dengan suara terkejut. Aku merasa senang melihat O'brien-san merasa malu sekali.
 
 Entah bagaimana, aku sama sekali tidak merasa aneh saat berterima kasih padanya.
 
-Meskipun dia benar-benar sederhana dengan saya, dia masih selalu memikirkan saya dan berkat dia saya bahkan hidup sekarang.
+Meskipun dia benar-benar keras denganku, dia masih selalu memikirkanku dan berkat dia aku bahkan hidup sekarang.
 
-Meskipun itu adalah kenangan yang tidak menyenangkan, itu tidak buruk. Saya sangat bersyukur padanya sehingga saya masih bisa berterima kasih padanya seperti ini.
+Meskipun itu adalah kenangan yang tidak menyenangkan, itu tidak buruk. aku sangat bersyukur padanya sehingga aku masih bisa berterima kasih padanya seperti ini.
 
-Para pendeta berjubah putih mengikuti kami saat penonton memberikan tepuk tangan meriah.
+Para pendeta berjubah putih mengikuti kami dan penonton memberikan tepuk tangan meriah.
 
-Aku ingin tahu apa pendapat mereka tentang pertarungan kita.
+Aku ingin tahu apa pendapat mereka tentang pertarungan kami.
 
-Nah, untuk saat ini saya pikir mereka puas, menurut saya.
+Nah, untuk saat ini menurutku mereka puas.
 
-Feirona dan yang lainnya mungkin juga ada di tribun jadi mungkin ide yang bagus untuk bertanya pada mereka.
+Feirona dan yang lainnya mungkin juga ada di bangku penonton jadi mungkin ide yang bagus untuk bertanya pada mereka nanti.
 
 "Jangan terlalu menyalahkan Yuuko-dono, oke?" (Ob)
 
@@ -438,9 +438,9 @@ Feirona dan yang lainnya mungkin juga ada di tribun jadi mungkin ide yang bagus 
 
 Setelah berjalan sebentar, dia tiba-tiba mengatakan itu.
 
-Mengapa Utano-san datang ke sini? Aku sedang berpikir dalam kebingungan ketika O'brien-san melanjutkan.
+Mengapa tiba-tiba dia menyebut Utano-san? Aku kebingungan.
 
-Aku, bukankah apa yang terjadi yang membuatmu selalu memiliki wajah yang suram. ”(Ob)
+"Aku tidak tahu apa yang selalu membuatmu memiliki wajah yang suram."(Ob)
 
 “Benarkah, aku memang seperti itu?”
 
@@ -448,13 +448,13 @@ Aku, bukankah apa yang terjadi yang membuatmu selalu memiliki wajah yang suram. 
 
 “Dan di sini aku yakin bahwa aku telah menjadi sedikit dewasa setelah sekian lama.”
 
-Yah, itu tidak berarti saya akan pandai membuat wajah poker. Tapi tetap saja, itu sedikit membuka mata untuk diberitahu langsung ke wajahmu.
+Yah, itu bukan berarti aku pandai membuat wajah datar. Tapi tetap saja, mataku sedikit terbuka lebar karena diberitahu langsung seperti itu.
 
-Apa aku selalu membuat wajah muram seperti itu? Saya pikir saya cukup normal seperti biasanya.
+Apa aku selalu membuat wajah muram seperti itu? aku pikir aku cukup normal seperti biasanya.
 
-Tetapi jika dia mengatakan itu, itu pasti benar. Semua dikatakan dan dilakukan, pria ini paling sering bentrok denganku.
+Tetapi jika dia mengatakan itu, itu pasti benar. Semua dikatakan dan dilakukan, pria ini paling sering bertukar tebasan pedang denganku.
 
-Dia pasti bisa memahamiku dengan cukup baik sekarang …… ..aku pikir.
+Dia pasti bisa memahamiku dengan cukup baik sekarang...
 
 "Karena kamu sangat muram, dia datang dengan sesuatu seperti hutang itu atau yang lainnya." (Ob)
 
