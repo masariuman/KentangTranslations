@@ -568,13 +568,13 @@ KAMI tidak memiliki banyak kesempatan untuk bertemu akhir-akhir ini, tetapi dia 
 
 Dia kalah dalam pertandingannya. Tapi aku tidak perlu mengatakannya dengan lantang.
 
-Meskipun dia sangat bersemangat, dia kalah tanpa memenangkan satu putaran pun di turnamen utama. Saya bisa mengerti betapa menyakitkan hal itu. Setelah bertemu dengannya, saya telah melihatnya berlatih keras untuk turnamen ini begitu lama. Meskipun dia hampir terbunuh oleh goblin, keinginannya tidak hancur.
+Meskipun dia sangat bersemangat, dia kalah tanpa memenangkan satu putaran pun di turnamen utama. aku bisa mengerti betapa menyakitkan hal itu. Setelah bertemu dengannya, aku telah melihatnya berlatih keras untuk turnamen ini begitu lama. Meskipun dia hampir terbunuh oleh goblin, keinginannya tidak hancur.
 
-Itu sebabnya kami hanya bisa melihatnya dari jauh seperti ini. Mururu pasti merasakan hal yang sama denganku. Meskipun dia menemukan Ms Francesca jauh lebih awal dariku, dia tetap memutuskan untuk hanya melihatnya dari jauh.
+Itu sebabnya kami hanya bisa melihatnya dari jauh seperti ini. Mururu pasti merasakan hal yang sama denganku. Meskipun dia menemukan nona Francesca jauh lebih awal dariku, dia tetap memutuskan untuk hanya melihatnya dari jauh.
 
-Di mana Feirona?
+"Di mana Feirona?"
 
-Bersama dengan Solnea, menonton turnamen.
+"Bersama dengan Solnea, menonton turnamen."
 
 “Dan, kamu datang ke sini untuk mencarinya.”
 
