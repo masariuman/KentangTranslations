@@ -210,27 +210,27 @@ Sekali lagi, aku merasakan siku Aya menyentuh pinggangku.
 
 Kali ini, dia tidak menjauh, dan aku juga tidak mengatakan apa-apa lagi.
 
-Setelah beberapa saat, kami akhirnya meninggalkan Coliseum dan sambil merasakan angin dingin di luar, saya menyipitkan mata pada sinar matahari yang kuat.
+Setelah beberapa saat, kami akhirnya meninggalkan colleseum dan sambil merasakan angin dingin di luar, aku menyipitkan mata pada sinar matahari yang kuat.
 
-Cuacanya sangat bagus. Untuk tidak menyadari bahwa bahkan setelah pergi ke arena beberapa kali, saya menyadari betapa gugupnya saya.
+Cuacanya sangat bagus. Untuk tidak menyadari bahwa bahkan setelah beberapa kali keluar arena, aku menyadari betapa gugupnya aku.
 
 "Nah, apa yang harus kita makan?" (Renji)
 
-"Saya baik-baik saja. Saya tidak merasa sangat lapar sekarang. "
+"aku tidak apa-apa. aku tidak merasa sangat lapar sekarang. "
 
-“Anda tidak harus terlalu berhati-hati, tahu? Saya memiliki beberapa perubahan pada diri saya jadi saya akan mentraktir Anda. "
+"kamu tidak harus terlalu berhati-hati lho... aku memiliki beberapa uang pada diriku jadi aku akan mentraktirmu. "
 
 "Tidak, tidak apa-apa."
 
-Saat kami berbicara sambil berjalan, seperti yang diharapkan, kami menarik banyak tatapan ingin tahu ke kami.
+Saat kami berbicara sambil berjalan, seperti yang diharapkan, kami menarik banyak tatapan kepada kami.
 
-Kami berdua terbiasa mengumpulkan perhatian seperti itu tetapi tetap aneh untuk makan makanan seperti ini. Sebagai seorang pria, aku tidak terlalu mempermasalahkannya, tapi bagi Aya mungkin rasanya tidak nyaman untuk makan saat berada di bawah tatapan orang asing yang tak terhitung jumlahnya kurasa.
+Kami berdua terbiasa mengumpulkan perhatian seperti itu tetapi tetap aneh untuk makan dalam situasi seperti ini. Sebagai seorang pria, aku tidak terlalu mempermasalahkannya, tapi bagi Aya mungkin rasanya tidak nyaman untuk makan saat berada di bawah tatapan orang asing yang tak terhitung jumlahnya.
 
-"Saya mengerti." (Renji)
+"begitu ya..." (Renji)
 
-Meski aku masih ragu ada alasan untuk menahannya sekarang, untuk saat ini kami menuju ke warung terdekat dan membeli satu daging Orc tusuk. Harganya 2 koin tembaga ………. Anda bisa membeli 4 roti dalam jumlah itu di sebuah desa tapi saya rasa itu tidak sama di kota. Atau mungkin ini karena festival sedang berlangsung saat ini. Sungguh tidak adil bagaimana biaya hal-hal normal menjadi hampir dua kali lipat selama waktu seperti itu. Dan meskipun mengetahui hal itu, kami tetap membelinya.
+Meski aku masih ragu ada alasan untuk menahannya, untuk saat ini kami menuju ke kios terdekat dan membeli satu tusuk daging Orc. Harganya 2 koin tembaga ………. kamu bisa membeli 4 roti dengan jumlah itu di sebuah desa tapi aku rasa itu tidak sama di kota. Atau mungkin ini karena festival sedang berlangsung saat ini. Sungguh tidak adil bagaimana biaya hal-hal normal menjadi hampir dua kali lipat selama waktu seperti itu. Dan meskipun mengetahui hal itu, kami tetap membelinya.
 
-Apakah kita menjadi kendor karena merasa gembira selama festival atau apakah semuanya terasa lebih enak di saat-saat seperti ini? Dalam kedua kasus tersebut, saya rasa atmosfer dan suasana hati sangat penting.
+Apakah kita menjadi santai karena merasa gembira selama festival atau apakah semuanya terasa lebih enak di saat-saat seperti ini? Dalam kedua kasus tersebut, aku rasa atmosfer dan suasana hati sangat penting.
 
 "Ada apa?" (Aya)
 
