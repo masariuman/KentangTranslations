@@ -166,7 +166,7 @@ Saat aku mengatakan itu, dia tersipu dan membuang mukanya.
 
 Dia memarahiku untuk menyembunyikan rasa malunya tapi tetap saja, aku tidak merasakan suasana hatinya menjadi buruk.
 
-Meski tidak sebanyak Souichi atau Yayoi-chan, aku tahu kepribadian seperti apa yang dimiliki Aya. Dia tipe yang mengatakan 'Tidak' dengan jelas ketika dia mau dan ketika dia tidak bisa berbicara, dia akan diam-diam membuat jarak antara dirinya dan orang lain. Dan jika dia tidak melakukan itu berarti dia benar-benar mempercayai mereka. Aku juga sudah melihatnya menyembunyikan rasa malunya seperti itu. Daripada mengatakan bahwa saya sudah terbiasa, lebih baik mengatakan bahwa saya mulai sangat menikmatinya sehingga saya mulai suka menghabiskan waktu bersamanya. Itu sebabnya, meski sudah menjadi sunyi lagi, sama sekali tidak terasa canggung.
+Meski tidak seperti Souichi atau Yayoi-chan, aku tahu kepribadian seperti apa yang dimiliki Aya. Dia tipe yang mengatakan 'Tidak' dengan jelas ketika dia mau dan ketika dia tidak bisa berbicara, dia akan diam-diam membuat jarak antara dirinya dan orang lain. Dan jika dia tidak melakukan itu berarti dia benar-benar mempercayai mereka. Aku juga sudah melihatnya menyembunyikan rasa malunya seperti itu. Daripada mengatakan bahwa aku sudah terbiasa, akan lebih baik mengatakan bahwa aku mulai sangat menikmatinya sehingga aku mulai suka menghabiskan waktu bersamanya. Itu sebabnya, meski sudah menjadi sunyi lagi, sama sekali tidak terasa canggung.
 
 Ketika kami datang ke dunia ini, dia tidak ramah, selalu berusaha keras seolah-olah menyiratkan bahwa saya harus tinggal di belakang dan menyerahkan sisanya kepadanya, tetapi melihat kepribadiannya sekarang, kesenjangan antara dua kepribadian itu benar-benar lucu.
 
