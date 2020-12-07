@@ -456,19 +456,19 @@ Tetapi jika dia mengatakan itu, itu pasti benar. Semua dikatakan dan dilakukan, 
 
 Dia pasti bisa memahamiku dengan cukup baik sekarang...
 
-"Karena kamu sangat muram, dia datang dengan sesuatu seperti hutang itu atau yang lainnya." (Ob)
+"Karena kamu sangat muram, dia muncul ide sesuatu seperti hutang itu atau yang lainnya." (Ob)
 
 “Aku tidak begitu mengerti hubungan antara utangku dan wajahku yang suram ……… ..”
 
-“Itu untuk membuatmu merasa ingin dan bersemangat lagi dengan membawamu ke depan semua orang, itulah yang aku katakan.”
+“Itu semua untuk membuatmu merasa ingin dan bersemangat lagi dengan membawamu ke depan semua orang, itulah yang aku katakan.”
 
 'Kamu harus mengerti setidaknya sebanyak itu!' rasanya dia mengatakan itu.
 
-Tapi, baiklah ..
+Tapi, yaaahh ..
 
-……… seberapa banyak aku membuat orang lain di sekitarku mengkhawatirkanku?
+……… berapa banyak aku membuat orang lain di sekitarku mengkhawatirkanku?
 
-Seberapa keras saya harus bekerja untuk dapat menjawab kekhawatiran mereka?
+Seberapa keras aku harus bekerja untuk dapat menjawab kekhawatiran mereka?
 
 Utano-san, Aya, dan yang lainnya juga. Bahkan Koutarou dan Astraera …… ..
 
@@ -480,15 +480,15 @@ Saat aku mengatakan itu, bahu O'brien-san bergetar karena tawa.
 
 Agak merepotkan untuk berjalan karena aku meminjamkan bahuku tapi tetap saja, aku merasa senang melihatnya tertawa seperti itu.
 
-"Saya kira, wanita yang menarik Anda benar-benar cocok untuk Anda." (Ob)
+"aku kira, wanita yang bisa mengendalikanmu benar-benar cocok untukmu." (Ob)
 
 "Apa?"
 
-"Aku telah memikirkan ini sejak saat itu juga, tetapi sepertinya kamu hanya bisa bergerak maju ketika seseorang menunjukkan jalan kepadamu dan menarikmu ke sana."
+"Aku telah memikirkan ini sejak dulu juga, tetapi sepertinya kamu hanya bisa bergerak maju ketika seseorang menunjukkan jalan kepadamu dan menarikmu ke sana."
 
-Diberitahu itu, saya tidak punya kata-kata untuk diucapkan kembali.
+aku tidak punya kata-kata untuk diucapkan kembali.
 
-Itu karena saya tahu jauh di lubuk hati bahwa itu benar.
+Itu karena aku tahu jauh di lubuk hatiku bahwa itu benar.
 
 Dalam satu tahun terakhir, aku melakukan perjalanan untuk memenuhi janjiku pada Eru tapi apakah aku benar-benar bergerak seperti saat aku bepergian dengan rekan rekanku ........ Sulit untuk dikatakan.
 
@@ -496,11 +496,11 @@ Dalam satu tahun terakhir, aku melakukan perjalanan untuk memenuhi janjiku pada 
 
 "Begitulah adanya." (Ob)
 
-“Apa yang kamu bahkan …… ..”
+“Apa yang kamu …… ..”
 
-Bisakah Anda tidak mengungkapkan semuanya dengan mudah.
+Bisakah aku tidak mengungkapkan semuanya dengan mudah.
 
-Apakah reaksiku tampak lucu baginya, saat dia tertawa lagi. Kali ini, dengan suara keras.
+Apakah reaksiku tampak lucu baginya, karena dia tertawa lagi. Kali ini, dengan suara keras.
 
 "Nanti, bersikap baiklah dengan Yuuko-dono, oke?" (Ob)
 
