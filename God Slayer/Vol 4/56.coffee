@@ -142,23 +142,23 @@ Agar dia tidak menyadari perasaanku, aku menggaruk pipiku hanya untuk merasakan 
 
 Saat aku mengatakan itu sambil melihat gauntlet yang kupakai, Aya tertawa terbahak-bahak.
 
-Saat dia tertawa sambil mengguncang bahunya, dia benar-benar terlihat seperti gadis seusianya membuatku merasa senang hanya dengan melihatnya. Dalam 3 tahun setelah datang ke dunia ini, dia mulai mendapatkan suasana seperti orang dewasa di sekitarnya tetapi menurut saya, dia terlihat lebih baik bertindak seperti anak seusianya. Saat kami mulai berjalan lagi, aku merasakan siku Aya menyentuh pinggangku yang tertutup baju besi lagi.
+Saat dia tertawa sambil mengguncang bahunya, dia benar-benar terlihat seperti gadis seusianya membuatku merasa senang hanya dengan melihatnya. Dalam 3 tahun setelah datang ke dunia ini, dia mulai mendapatkan suasana seperti orang dewasa di sekitarnya tetapi menurutku, dia terlihat lebih baik bertindak seperti anak seusianya. Saat kami mulai berjalan lagi, aku merasakan siku Aya menyentuh pinggangku yang tertutup baju besi lagi.
 
 “Apakah tidak terasa dingin?” (Renji)
 
 “Apa?”
 
-Armorku.
+"Armorku."
 
 Ketika aku mengatakan itu, dia dengan cepat menjauh untuk memahami apa yang aku maksud.
 
-Memikirkan tindakannya itu lucu, aku juga merasa seperti orang tua yang kesepian. Pasti apa yang orang tua rasakan ketika anak perempuan mereka menjauh dari mereka, atau mungkin, saya merasa kesepian sebagai pria jika wanita menjauh dari saya?
+Memikirkan tindakannya itu lucu, aku juga merasa seperti orang tua yang kesepian. Pasti apa yang orang tua rasakan ketika anak perempuan mereka menjauh dari mereka, atau mungkin, aku merasa kesepian sebagai pria jika wanita menjauh dariku?
 
-Saat aku tersenyum pahit pada perasaan yang aku sendiri tidak mengerti, Aya melihat ke arahku dengan bingung.
+Saat aku tersenyum pada perasaan yang aku sendiri tidak mengerti, Aya melihat ke arahku dengan bingung.
 
-"Nah, hanya merasa sedikit kesepian." (Renji)
+"Nah, aku hanya merasa sedikit kesepian." (Renji)
 
-Saat aku mengatakan itu, dia tersipu dan membuang muka.
+Saat aku mengatakan itu, dia tersipu dan membuang mukanya.
 
 “Mou, jangan menggodaku seperti itu!” (Aya)
 
