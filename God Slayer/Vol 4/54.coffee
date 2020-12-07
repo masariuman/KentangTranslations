@@ -822,11 +822,11 @@ Pada awalnya dia benar-benar tanpa ekspresi ……… yah tidak sebanyak itu tap
 
 "aku memiliki pertandinganku berikutnya."
 
-Saya tidak terlalu antusias tentang itu.
+aku tidak terlalu antusias tentang itu.
 
-Ketika saya mengangkat bahu mengatakan itu, Mururu hanya berkata 'Saya mengerti', dan kembali menatap Ms Francesca.
+Ketika aku mengangkat bahu mengatakan itu, Mururu hanya berkata 'aku mengerti', dan kembali menatap nona Francesca.
 
-Saya kira dia jelas lebih khawatir tentang dia daripada saya. Betapa kesepian dan sedihnya. Sungguh.
+aku kira dia jelas lebih khawatir tentangnya daripada aku. sungguh kesepian dan sedihnya diriku. Sungguh.
 
 "Kamu baik-baik saja?" (Mururu)
 
