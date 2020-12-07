@@ -240,21 +240,21 @@ Tidak, tunggu, yah, uh ..
 
 "……….aku seharusnya telah mengetahui itu."
 
-Ditatap dengan wajah polos, saat dia menyatukan tangannya di belakang kepalanya dan tersenyum, aku merasa ingin meninju wajahnya tapi ……… pada saat yang sama, aku kehilangan keinginan untuk menjelaskan apa yang sebenarnya aku maksud .
+Ditatap dengan wajah polos, dia menyatukan tangannya di belakang kepalanya dan tersenyum, aku merasa ingin meninju wajahnya tapi ……… pada saat yang sama, aku kehilangan keinginan untuk menjelaskan apa yang sebenarnya aku maksudkan.
 
 Apa itu karena aku kurang nyali atau karena aku hanya tidak kompeten? ...... Tunggu, keduanya sama.
 
 Memalingkan muka, wajahku menegang. Saat aku melirik ke arahnya, Souichi-kun sedang menatapku dengan wajah bingung.
 
-Mungkinkah dia menganggapku sebagai maniak cinta perkelahian yang lengkap? Bahkan jika bukan itu, jelas dia tidak menyadariku sebagai wanita dari lawan jenis.
+Mungkinkah dia menganggapku sebagai maniak pertarungan? Bahkan jika bukan itu, jelas dia tidak melihatku sebagai wanita lawan jenis.
 
 "Ada apa, Masaki-san?" (Sou)
 
-Dan seperti yang diharapkan, tanpa menyadari niat saya, dia menanyakan itu.
+Dan seperti yang diharapkan, tanpa menyadari niatku, dia menanyakan itu.
 
 Wajahnya yang benar-benar bingung sangat menyakitkan.
 
-Meskipun kekuatan di lenganku yang bertumpu pada katana saya bertambah, itu tidak buruk bukan?
+Meskipun kekuatan di lenganku yang bertumpu pada katanaku bertambah, itu tidak buruk bukan?
 
 "Ah."
 
