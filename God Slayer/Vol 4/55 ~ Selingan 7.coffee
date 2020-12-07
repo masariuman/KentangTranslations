@@ -286,8 +286,6 @@ Haah.
 
 "Ya."
 
-Saya melepaskan kekuatan di lengan saya yang bertumpu pada katana saya.
-
 Saya memang mengkonfirmasi nama lawan saya untuk berjaga-jaga tetapi itu bukan siapa pun yang saya kenal. Hanya seorang petualang berpengalaman tapi oh baiklah.
 
 “Lakukan yang terbaik!” (Sou)
