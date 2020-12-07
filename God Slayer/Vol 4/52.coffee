@@ -282,13 +282,13 @@ Selesai dengan itu, aku berjalan menuju senjata yang disimpan di dalam ruangan s
 
 Ada orang lain yang memilih senjata juga tapi mereka semua memberi jalan untukku. Kurasa aku terlalu menonjol karena pria berambut merah itu.
 
-Selagi merasa sedikit canggung, aku mengambil pedang lurus bermata dua ortodoks. Bilahnya telah tumpul tetapi panjang dan lebarnya mendekati pedang mithril yang telah saya bawa selama beberapa hari terakhir.
+Selagi merasa sedikit canggung, aku mengambil pedang lurus bermata dua. Bilahnya telah tumpul tetapi panjang dan lebarnya mendekati pedang mithril yang telah aku bawa selama beberapa hari terakhir.
 
-Setelah itu, saya mencoba beberapa lagi tetapi yang saya pilih pertama kali tampaknya paling mudah digunakan. Memikirkan itu, saya menempelkannya ke pinggang saya.
+Setelah itu, aku mencoba beberapa senjata juga tetapi yang aku pilih pertama kali tampaknya paling mudah digunakan. akupun menempelkannya ke pinggangku.
 
 Ketika, pria berambut merah itu datang di sampingku. Apakah dia punya sesuatu untuk dikatakan, aku menatapnya tapi dia diam-diam melihat senjata dan mengambil pedang besar yang tampak berat.
 
-Dalam hal kekuatan murni, saya cukup yakin saya akan kalah darinya.
+Dalam hal kekuatan murni, aku cukup yakin aku akan kalah darinya.
 
 “Pahlawan, cukup kurus ya.”
 
@@ -296,23 +296,23 @@ Dalam hal kekuatan murni, saya cukup yakin saya akan kalah darinya.
 
 “Kubilang, kamu cukup kurus.”
 
-Sepertinya dia menyadari bahwa saya sedang melihat ototnya.
+Sepertinya dia menyadari bahwa aku sedang melihat ototnya.
 
 Tapi tetap saja, disebut kurus ……….
 
-“Betapa nostalgia.” (Renji)
+“Betapa nostalgianya.” (Renji)
 
 "Hah?"
 
 "Tidak, tidak apa-apa."
 
-Saya ingat pernah diberitahu itu berkali-kali di masa lalu.
+aku ingat pernah diberitahu itu berkali-kali di masa lalu.
 
-Biasanya, saya pikir orang mendapatkan cukup banyak otot ketika mereka banyak berlatih tetapi untuk beberapa alasan, saya memiliki konstitusi yang tidak membuat saya mendapatkan banyak otot.
+Biasanya, aku pikir orang mendapatkan cukup banyak otot ketika mereka banyak berlatih tetapi untuk beberapa alasan, aku tidak mendapatkan banyak otot.
 
-Bukannya aku tidak punya. Tapi tidak seperti pria atau O'brien-san yang fokus pada kekuatan tidak seperti aku dan Masaki-chan yang fokus pada kecepatan. Perbedaan semacam itu, tetapi sebagai seorang pria, sangat iri karena tidak memiliki tubuh berotot.
+Bukannya aku tidak punya. Tapi tidak seperti pria atau O'brien-san yang fokus pada kekuatan, aku dan Masaki-chan yang fokus pada kecepatan. Perbedaan semacam itu, tetapi sebagai seorang pria, sangat iri rasanya karena tidak memiliki tubuh berotot.
 
-Setidaknya, saya merasa iri sebelumnya karena saya ingat secara khusus berlatih hanya untuk mendapatkan lebih banyak otot.
+Setidaknya, aku merasa iri sebelumnya karena aku ingat secara khusus berlatih hanya untuk mendapatkan lebih banyak otot.
 
 Dikatakan bahwa saya tidak pernah mendapatkan lebih banyak otot daripada yang dibutuhkan bagi saya untuk mengayunkan pedang dengan benar.
 
