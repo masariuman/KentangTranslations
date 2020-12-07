@@ -166,15 +166,15 @@ aku yakin, jika lawannya adalah orang lain selain aku, dia akan menahan kekuatan
 
 Tapi melawanku, dia akan serius.
 
-Dia pria yang seperti itu. Saya sangat menyadari itu.
+Dia pria yang seperti itu. aku sangat menyadari itu.
 
-Itu sebabnya, saya ingin menjawabnya kembali dengan benar. Berjuang dengan kekuatan penuh —- Aku ingin menang. Tidak terkait dengan saya menjadi Pahlawan dan yang lainnya, saya hanya ingin menang melawan O'brien-san.
+Itu sebabnya, aku ingin membalasnya dengan benar. Berjuang dengan kekuatan penuh —- Aku ingin menang. Tidak terkait dengan aku menjadi Pahlawan dan yang lainnya, aku hanya ingin menang melawan O'brien-san.
 
-Setahun terakhir ini, saya menghabiskannya dengan bebas. Mengalihkan pandanganku yang masih dalam kekacauan setelah perang dengan iblis dan Dewa Iblis, aku pergi dalam perjalananku.
+Setahun terakhir ini, aku menghabiskannya dengan bebas. Mengalihkan pandanganku yang masih dalam kekacauan setelah perang dengan iblis dan Dewa Iblis, aku pergi dalam perjalananku.
 
-Sementara saya menghabiskan waktu seperti itu, O'brien-san bekerja keras dan melakukan yang terbaik untuk membawa stabilitas ke negara dan mengakhiri kekacauan.
+Sementara aku menghabiskan waktu seperti itu, O'brien-san bekerja keras dan melakukan yang terbaik untuk membawa stabilitas negara dan mengakhiri kekacauan.
 
-Karena itulah, setidaknya di sini, saya ingin melawannya dengan kekuatan penuh. Saya yakin itu hanya alasan egois saya sendiri.
+Karena itulah, setidaknya di sini, aku ingin melawannya dengan kekuatan penuh. aku yakin itu hanya alasan egoisku sendiri.
 
 ——- Di dalam kepalaku, [suara] sihir akhirnya berhenti.
 
