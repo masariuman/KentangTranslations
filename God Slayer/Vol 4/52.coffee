@@ -362,11 +362,11 @@ Mungkin bukan hanya imajinasiku saja kalau suaranya juga tampak sedikit khawatir
 
 [fufu, itu benar.]
 
-“Mengatakan kamu kuat dan ujung-ujungnya kalah adalah hal yang memalukan.”
+“Mengatakan kau kuat dan ujung-ujungnya kalah adalah hal yang memalukan.”
 
 Bahkan aku tidak akan mampu menahan rasa malu seperti itu.
 
-[Saya pikir hanya Renji yang bisa menangani banyak omelan tanpa menjadi marah.]
+[aku pikir hanya Renji yang bisa menangani banyak omelan tanpa menjadi marah.]
 
 "Aku hanya tidak terlalu peduli tentang itu."
 
