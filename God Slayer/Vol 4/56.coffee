@@ -398,7 +398,7 @@ Dan di dalam waktu bahagia ini, aku melihat wajah lain yang kukenal.
 
 Dengan rambut berwarna madu bersinar dari sinar matahari, ekspresi senyumnya yang biasa saat ini menjadi salah satu kejutan.
 
-Oh? Apakah terjadi sesuatu yang membuatnya terkejut? Aku memiringkan kepalaku dalam kebingungan tapi aku tidak bisa memikirkan apapun. Dan di belakangnya Feirona dan Mururu masih sama, Solnea seperti biasa.
+Oh? Apakah terjadi sesuatu yang membuatnya terkejut? Aku memiringkan kepalaku kebingungan tapi aku tidak bisa memikirkan apapun. Dan di belakangnya Feirona dan Mururu masih sama, Solnea seperti biasa.
 
 "Apa yang terjadi, Renji-san?" (Aya)
 
