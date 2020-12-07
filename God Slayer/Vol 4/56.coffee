@@ -432,7 +432,7 @@ Jika ada masalah, itu adalah gadis berambut hitam yang berdiri di samping Feiron
 
 “Kamu tidak mau berbicara dengan gadis-gadis lain?”
 
-“…… ..Haruskah aku punya?”
+“…… ..Haruskah?”
 
 Kenapa kamu menanyakan itu padaku?
 
