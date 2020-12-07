@@ -632,7 +632,7 @@ Dan kepalanya menoleh untuk melihat ke arahku.
 
 [Akhirnya, kamu di sini ya?]
 
-Mohon maaf atau lebih tepatnya, dengan suara yang sangat sedih, jawab Francesca. Seiring dengan suara Ermenhilde yang bergema di kepalaku. Saya duduk agak jauh darinya di bangku yang sama.
+meminta maaf atau lebih tepatnya, dengan suara yang sangat sedih, Francesca menjawab. Seiring dengan suara Ermenhilde yang bergema di kepalaku. Saya duduk agak jauh darinya di bangku yang sama.
 
 “Serius, kamu tidak diberkati sama sekali kan?” (Renji)
 
