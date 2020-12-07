@@ -168,53 +168,53 @@ Tapi kemudian, tiba-tiba, semua orang di ruangan itu tiba-tiba terdiam. ada Apa 
 
 "yaaah... Namaku bukan 'kamu' jadi aku tidak tahu siapa yang kamu maksud. "
 
-Hanya pada saat-saat seperti ini, judul saya berguna. Karena wajahku tidak diketahui, rumor sepertinya telah menyebar cukup banyak dan itu cukup efektif pada orang-orang acak yang mencoba berkelahi tanpa alasan. Dunia ini tidak terbuat dari masyarakat yang maju dalam teknologi informasi seperti yang saya lakukan sebelumnya dan lebih didasarkan pada kemampuan dan kemampuan Anda sendiri.
+Hanya pada saat-saat seperti ini, gelarku berguna. Karena wajahku tidak diketahui, rumor sepertinya telah menyebar cukup banyak dan itu cukup efektif pada orang-orang acak yang mencoba berkelahi tanpa alasan. Dunia ini tidak terbuat dari masyarakat yang maju dalam teknologi informasi seperti yang aku lakukan sebelumnya dan lebih didasarkan pada kemampuanmu sendiri.
 
-Sebagai manusia yang membunuh ancaman yang membuat dunia menjadi kacau, [Demon God]; hanya fakta itu saja yang membuat orang lain menempatkanku pada level yang lebih tinggi dari mereka. Sekarang, selama saya tidak terlalu gemetar, seperti saya sekarang, itu lebih dari cukup.
+Sebagai manusia yang membunuh ancaman yang membuat dunia menjadi kacau, [dewa iblis]; hanya fakta itu saja yang membuat orang lain menempatkanku pada level yang lebih tinggi dari mereka. Sekarang, selama aku tidak terlalu gemetar, seperti aku sekarang, itu lebih dari cukup.
 
-"Ms Francesca, bagaimana kondisi Anda?" (Renji)
+"nona Francesca, bagaimana kondisimu?" (Renji)
 
-"Ah iya. Saya bisa tidur nyenyak kemarin. ”
+"Ah iya. aku bisa tidur nyenyak kemarin."
 
-"Itu hebat."
+"baguslah."
 
-Mengalihkan pandanganku dari pria berambut merah, aku menoleh ke arah Ms Francesca, yang sedang melihat persimpangan kami bersama dengan pria bertubuh kecil. Dilihat lebih dekat, pria itu sebenarnya lebih pendek dari Ms Francesca. Yah, dia benar-benar lebih tinggi dari rata-rata.
+Mengalihkan pandanganku dari pria berambut merah, aku menoleh ke arah nona Francesca, yang sedang melihat kami bersama dengan pria bertubuh kecil. Dilihat lebih dekat, pria itu sebenarnya lebih pendek dari nona Francesca. Yah, dia benar-benar lebih tinggi dari rata-rata perempuan didunia ini.
 
-“Itu sangat disayangkan, ya?” (Renji)
+“sangat disayangkan.” (Renji)
 
 “Tidak …….” (Fran)
 
 Saat aku menjauh bahkan tanpa menatap pria berambut merah itu, dia hanya melangkah pergi dengan membuat wajah canggung. Dan orang pendek bertubuh pendek lari mengikutinya.
 
-Aku merasa rentang hidupku berkurang sedikit karena terancam seperti itu oleh pria berotot berat seperti itu. Karena saya melakukan sesuatu yang tidak biasa saya lakukan, saya merasa lebih lelah. Mengistirahatkan punggung saya ke dinding, saya duduk di samping Ms Francesca.
+Aku merasa umurku berkurang sedikit karena terancam seperti itu oleh pria berotot besar seperti itu. Karena aku melakukan sesuatu yang tidak biasa aku lakukan, aku merasa lebih lelah. Mengistirahatkan punggungku ke dinding, aku duduk di samping nona Francesca.
 
-“Haah. Para peserta di turnamen ini benar-benar berdarah panas. ”(Renji)
+“Haah. Para peserta di turnamen ini benar-benar berdarah panas.”(Renji)
 
-[Tapi Anda salah satu peserta itu?]
+[Tapi kamu salah satu peserta itu?]
 
-“Semua darah saya sudah terkuras setahun yang lalu.”
+“Semua darahku sudah terkuras setahun yang lalu.”
 
 [Haah.]
 
-Sambil mendengarkan desahan Ermenhilde, aku menoleh ke arah Ms Francesca.
+Sambil mendengarkan hembusan nafas Ermenhilde, aku menoleh ke arah nona Francesca.
 
-Mungkin karena dia sedikit gugup, ekspresinya sedikit kaku. Ada juga kasus pria berambut merah. Saya harap dia tidak terlalu terpengaruh oleh ini. Mungkin, bisa jadi Nona Francesca mungkin tidak memiliki banyak kekebalan terhadap pria selain aku dan Feirona. Dan bahkan dengan kami, meskipun kami telah bepergian cukup lama bersama-sama, saya belum pernah mendengar dia berbicara ringan / sembrono dengan kami.
+Mungkin karena dia sedikit gugup, ekspresinya sedikit kaku. Ada juga masalah pria berambut merah. aku harap dia tidak terlalu terpengaruh oleh ini. Mungkin, bisa jadi Nona Francesca mungkin tidak memiliki banyak kekebalan terhadap pria selain aku dan Feirona. Dan bahkan dengan kami, meskipun kami telah bepergian cukup lama bersama-sama, aku belum pernah mendengar dia berbicara santai / sembrono dengan kami.
 
 "Kamu baik-baik saja?" (Renji)
 
-"Iya. Bagaimana denganmu Renji-sama ……… ”
+"Iya. Bagaimana denganmu Renji-sama ………"
 
 "Aku merasa seperti akan hancur hanya karena tekanan."
 
-[Kamu masih mengatakan itu? Betapa menyedihkan.]
+[Kamu masih mengatakan itu? menyedihkan.]
 
 "Fufufu."
 
-Saat saya mengatakan hal-hal yang bodoh, Nona Francesca tertawa kecil. Melihatnya dalam suasana hati yang baik, aku juga tersenyum saat aku berdiri.
+Saat aku mengatakan hal-hal yang bodoh, Nona Francesca tertawa kecil. Melihatnya dalam suasana hati yang baik, aku juga tersenyum dan aku berdiri.
 
 Masih ada waktu sampai giliranku tapi aku harus pergi dan memilih senjataku.
 
-"Hari ini, Anda tidak dalam baju besi Anda?" (Fran)
+"Hari ini, kamu tidak memakai baju besimu?" (Fran)
 
 “Hm?”
 
@@ -224,11 +224,11 @@ Masih ada waktu sampai giliranku tapi aku harus pergi dan memilih senjataku.
 
 “Yah, aku tahu itu tapi ……….”
 
-Saya rasa, saya benar-benar terlihat lebih kuat saat memakai baju besi.
+aku rasa, aku benar-benar terlihat lebih kuat saat memakai baju besi.
 
-Yah, saya kira tidak ada orang lain yang akan ambil bagian dalam turnamen hanya mengenakan pakaian biasa saja. Tapi ini sama sekali bukan game. Lebih baik mengandalkan cara bertarung Anda yang paling tepercaya. Biarpun kamu mendapatkan armor atau senjata yang kuat, pada akhirnya yang paling bisa kamu andalkan adalah tubuhmu sendiri.
+Yah, aku kira tidak ada orang lain yang akan ikut serta dalam turnamen hanya mengenakan pakaian biasa saja. Tapi ini sama sekali bukan game. Lebih baik mengandalkan cara bertarungmu yang paling tepercaya. Biarpun kamu mendapatkan armor atau senjata yang kuat, pada akhirnya yang paling bisa kamu andalkan adalah tubuhmu sendiri.
 
-[Dia sepertinya cukup mengkhawatirkanmu, tahu?]
+[Dia sepertinya cukup mengkhawatirkanmu...]
 
 “Ah, tidak, bagaimana bisa kekhawatiranku ..” (fran)
 
@@ -236,47 +236,47 @@ Yah, saya kira tidak ada orang lain yang akan ambil bagian dalam turnamen hanya 
 
 “Tidak, ini ……… bukan itu yang aku-!”
 
-Yah, itu akan menyedihkan dengan caranya sendiri tetapi melihat dia menjadi bingung dan malu, aku merasa tenang.
+Yah, itu menyedihkan tetapi melihat dia menjadi bingung dan malu, aku merasa tenang.
 
-Tapi tetap saja, karena orang lain tidak bisa mendengar Ermenhilde, sepertinya Nona Francesca semakin malu saat berbicara denganku. Saya ingin tahu apa yang orang lain pikirkan.
+Tapi tetap saja, karena orang lain tidak bisa mendengar Ermenhilde, sepertinya Nona Francesca semakin malu saat berbicara denganku. aku ingin tahu apa yang orang lain pikirkan.
 
 “Jangan terlalu menggodanya.” (Renji)
 
 [Bukankah kamu yang selalu menggodanya?]
 
-Saya diizinkan untuk.
+"Saya punya izin untuk itu."
 
 “Ini tidak adil, Renji-sama …… ..” (fran)
 
-Mengabaikan semua itu, saya memutuskan untuk membantu Nona Francesca keluar dari rasa malunya. Garis lehernya, yang biasanya tersembunyi dengan rambutnya sekarang terlihat saat rambutnya diikat ke belakang dengan pita dan aku bisa melihat kulit putih porselennya jelas diwarnai dengan warna merah.
+saya memutuskan untuk membantu Nona Francesca keluar dari rasa malunya. Garis lehernya, yang biasanya tersembunyi dengan rambutnya sekarang terlihat saat rambutnya diikat ke belakang dengan pita dan aku bisa melihat kulit putihnya jelas diwarnai dengan warna merah.
 
 Saat aku tertawa kecil melihat itu, aku merasa kulit Nona Francesca menjadi lebih merah mungkin karena dia mendengarnya.
 
-"Ms francesca, bagaimana dengan senjatamu?"
+"nona francesca, bagaimana dengan senjatamu?"
 
-“Eh, AH, Ah, aku, senjataku adalah ..”
+“Eh, AH, Ah, aku, senjataku ..”
 
 Saat aku menanyakan itu sambil mencoba mengganti topik, dia melihat ke arah pedang pendek di pinggangnya.
 
 Dalam kepanikan dia mencoba menahannya tapi malah hampir menjatuhkannya.
 
-Sepertinya dia akan menggunakan pedang itu hari ini juga. Mengikuti pertandingannya kemarin, pedang itu tidak terlalu bisa diandalkan. Karena itu, akan sia-sia mengganti pedangnya sekarang karena dia tidak akan terbiasa menggunakan pedang baru secepat itu.
+Sepertinya dia akan menggunakan pedang itu hari ini juga. Mengikuti pertandingan kemarin, pedang itu tidak terlalu bisa diandalkan. Karena itu, akan sia-sia mengganti pedangnya sekarang karena dia tidak akan terbiasa menggunakan pedang baru secepat itu.
 
-Aku tidak akan terlalu peduli karena ini aku dan Mururu di garis depan tapi saat berhadapan satu lawan satu, aku merasa pedangnya sedikit kurang.
+Aku tidak terlalu peduli karena aku dan Mururu di garis depan tapi saat berhadapan satu lawan satu, aku merasa pedangnya sedikit kurang baik.
 
 Apakah kamu akan baik-baik saja?
 
 "Lagipula, aku sudah memiliki ini sejak awal perjalananku."
 
-[Saya melihat. Jadi pedang itu adalah rekanmu, eh?]
+[begitu... Jadi pedang itu adalah rekanmu, eh?]
 
-“……… .meskipun kamu marah ketika aku mengatakan itu.” (Renji)
+“……… .padahal kamu marah ketika aku mengatakan itu.” (Renji)
 
 [fufu. Tidak seperti itu.]
 
 Pembohong.
 
-Sementara saya mengatakan itu di dalam pikiran saya, Nona Francesca juga tertawa.
+Nona Francesca juga tertawa.
 
 Selesai dengan itu, aku berjalan menuju senjata yang disimpan di dalam ruangan sambil menggaruk kepalaku.
 
