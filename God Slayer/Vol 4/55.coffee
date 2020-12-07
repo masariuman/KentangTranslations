@@ -104,13 +104,13 @@ Setidaknya mereka mengerti bahwa mereka akan dimarahi. Itu membuatnya lebih buru
 
 “Eh?”
 
-“Yah, bukankah itu kiasan biasa? 'Jika saya menang, dengarkan apa pun yang saya katakan! Saya akan melakukan hal yang sama jika saya kalah! ', Benar? ”
+“Yah, bukankah itu kiasan biasa? 'Jika aku menang, dengarkan apa pun yang aku katakan! aku akan melakukan hal yang sama jika aku kalah! ', Benar? ”
 
 Saat aku mengatakan itu dengan bercanda, Masaki-chan menatapku dengan ekspresi kosong.
 
 “Jadi ada taktik seperti itu!” (Masaki)
 
-“……… Onii-san senang melihat otakmu tidak berguna seperti biasanya.” (Renji) (T / N: renji menyebut dirinya sebagai oniisan sebagai orang ketiga)
+“……… Onii-san senang melihat otakmu tidak berguna seperti biasanya.” (Renji)
 
 "A- Siapa yang kau sebut tidak berguna!"
 
