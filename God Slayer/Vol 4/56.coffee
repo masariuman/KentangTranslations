@@ -416,7 +416,7 @@ Apakah itu memalukan baginya untuk terlihat bersamaku? Sakit seperti itu. Aku se
 
 “Fu, kamu pasti sangat gugup, ya?”
 
-"pastinya. Dimana Ermenhilde? ”
+"pastinya. Dimana Ermenhilde?"
 
 Dengan Francesca.
 
@@ -438,21 +438,21 @@ Kenapa kamu menanyakan itu padaku?
 
 Saat aku kembali menatap Feirona sambil tersenyum kecut, dia hanya mengangkat bahu. Sepertinya dia seperti itu seperti biasanya sepanjang waktu.
 
-"Jika Anda tidak tertarik maka tidak apa-apa." (Renji)
+"Jika aku tidak tertarik maka tidak apa-apa." (Renji)
 
-"Saya mengerti." (Sol)
+"aku mengerti." (Sol)
 
-Seberapa mudah, harus saya katakan? Saya tidak dapat menjawab lagi untuk kepribadian unik Solnea. Tampaknya itu sama untuk Feirona karena dia bahkan tidak membayar sebanyak ini.
+aku tidak dapat menjawab lagi untuk kepribadian unik Solnea. Tampaknya itu sama untuk Feirona karena dia bahkan tidak terlalu memikirkannya.
 
-"Itu cocok untukmu." (Peri)
+"Itu terlihat cocok untukmu." (fei)
 
 "Hah?"
 
-Armor itu.
+"Armor itu."
 
-"Terima kasih atas pujian."
+"Terima kasih atas pujiannya."
 
-Selesai makan daging kadal, saya menelan semua jus dalam satu tarikan napas.
+Selesai makan daging kadal, aku menelan semua jus dalam satu tarikan napas.
 
 "Kamu melakukannya dengan baik hari ini." (Sol)
 
