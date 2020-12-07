@@ -188,23 +188,23 @@ Mendengar tanggapannya yang terus terang, aku akhirnya tertawa sedikit. aku mera
 
 “Itu karena kamu selalu menggodaku—–”
 
-"Saya bahagia."
+"aku bahagia."
 
 Ketika aku mengatakan itu memotong kata-kata Aya, dia terdiam.
 
-Ekspresi kosongnya begitu mempesona sehingga aku ingin terus menatapnya tapi, mungkin dia menyadari tatapanku, dia dengan cepat menundukkan kepalanya untuk menyembunyikan wajahnya. Dia juga berhenti berjalan, jadi saya juga berhenti.
+Ekspresi kosongnya begitu mempesona sehingga aku ingin terus menatapnya tapi, mungkin dia menyadari tatapanku, dia dengan cepat menundukkan kepalanya untuk menyembunyikan wajahnya. Dia juga berhenti berjalan, jadi aku juga berhenti.
 
 Orang-orang di sekitar kami memandang kami dengan tatapan aneh.
 
-"Apa yang akan kamu lakukan? Ingin kembali ke tempat dudukmu sebelum aku? ”(Renji)
+"Apa yang akan kamu lakukan? Ingin kembali ke tempat dudukmu duluan?"(Renji)
 
-Secara tersirat, saya bertanya apakah ini terlalu merepotkan baginya.
+Secara tersirat, aku bertanya apakah ini terlalu merepotkan baginya.
 
-Saya yakin Aya mengerti apa yang saya tanyakan juga.
+aku yakin Aya mengerti apa yang aku tanyakan juga.
 
-Tapi, dia dengan cepat menggelengkan kepalanya beberapa kali dan dengan cepat berjalan ke sampingku sekali lagi. Wajahnya tersenyum, atau harus saya katakan, menyeringai, tapi saya tidak boleh mengatakan itu padanya.
+Tapi, dia dengan cepat menggelengkan kepalanya beberapa kali dan dengan cepat berjalan ke sampingku sekali lagi. Wajahnya tersenyum, tapi aku tidak boleh mengatakan itu padanya.
 
-Sekarang dia telah mengangkat kepalanya kembali, saya menekan keinginan saya untuk menggodanya lebih banyak dan kami terus berjalan.
+Sekarang dia telah mengangkat kepalanya kembali, aku menahan keinginanku untuk menggodanya dan kami terus berjalan.
 
 Sekali lagi, aku merasakan siku Aya menyentuh pinggangku.
 
