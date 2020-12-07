@@ -778,7 +778,7 @@ Menjawab Ermenhilde, aku berdiri dari bangkuku.
 
 Jadi selanjutnya adalah tentara bayaran berambut merah itu ya? Sejujurnya, hanya melihat otot-ototnya membuatku berharap aku tidak harus melawannya.
 
-“Kami benar-benar tidak bisa banyak bicara.” (Renji)
+“Kita benar-benar tidak bisa banyak bicara.” (Renji)
 
 "Tidak, terima kasih banyak." (Fran)
 
