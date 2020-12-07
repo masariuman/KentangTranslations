@@ -98,25 +98,25 @@ Setidaknya cobalah untuk menyembunyikan perasaanmu yang sebenarnya, ya?
 
 Tapi tetap saja, aku sendiri tidak pernah bisa mengatakannya secara langsung. Bagaimana aku harus memperlakukan perasaannya? aku telah memikirkannya berkali-kali tetapi pada akhirnya, aku belum menemukan jawabannya.
 
-Ini adalah masalah baik Souichi dan Yayoi-chan, hanya anggota [keluarga] yang bisa menyelesaikannya sendiri. Orang luar seperti saya tidak memiliki suara, saya pikir. Apa aku baru saja lari atau ini kepercayaanku pada mereka ........ Tidak bisakah aku menyebutnya sebagai kepercayaan, sekarang kan?
+Ini adalah masalah baik Souichi dan Yayoi-chan, hanya anggota [keluarga] yang bisa menyelesaikannya sendiri. Orang luar sepertiku tidak memiliki hak. Apa aku baru saja lari atau ini kepercayaanku pada mereka ........ Tidak bisakah aku menyebutnya sebagai kepercayaan, sekarang kan?
 
 "Ada apa?" (Yayoi)
 
-"Tidak ada. Hanya memikirkan tentang bagaimana kau dan Souichi berhubungan baik. ”
+"Tidak ada. Hanya memikirkan tentang bagaimana kamu dan Souichi berhubungan baik."
 
 "Fufu, tentu saja."
 
-Mengatakan itu, dia membusungkan dadanya dengan bangga. Dia benar-benar sangat bahagia bahkan aku merasa senang melihatnya. Saya merasakan lebih banyak energi mengisi telapak tangan yang menyembuhkan lengan saya.
+dia membusungkan dadanya dengan bangga. Dia benar-benar sangat bahagia bahkan aku merasa senang melihatnya. aku merasakan banyak energi yang mengisi telapak tangan yang menyembuhkan lenganku.
 
 Meskipun kami berbeda sepuluh tahun, aku masih merasa sedikit malu merasakan tangan kecilnya yang lembut. Itu membuatku menyadari betapa keras dan kaku tanganku dengan mengayunkan pedang sepanjang waktu.
 
-"Betapa iri." (Renji)
+"irinya diriku." (Renji)
 
-"Betulkah?"
+"benarkah?"
 
 "ya."
 
-Saya tidak punya saudara kandung. Saya adalah seorang anak tunggal.
+aku tidak punya saudara kandung. aku adalah seorang anak tunggal.
 
 Karena itulah, mungkin aku menganggap Souichi, Yayoi-chan, dan lainnya menggemaskan.
 
