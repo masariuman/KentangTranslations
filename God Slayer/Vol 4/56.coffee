@@ -4,7 +4,7 @@ Sambil mengenakan armor berat sekali lagi, aku menghela nafas.
 
 Ruangan yang disiapkan untukku berganti baju sama seperti sebelumnya tetapi hanya aku sendiri yang berada di sini, terasa sangat tenang. Mungkin karena aku berada di tengah arena beberapa saat yang lalu, di sini terasa lebih sepi.
 
-Baik, Toudou dan Kuuki sama-sama sibuk, dan aku juga tidak membutuhkan bantuan untuk mengenakan baju besi jadi aku juga tidak punya alasan untuk memanggil orang lain. Setelah berada di tengah-tengah keributan dan sorak-sorai, rasanya, bagaimana aku harus mengatakan ini, cukup aneh mengenakan armor sendirian.
+Toudou dan Kuuki sama-sama sibuk, dan aku juga tidak membutuhkan bantuan untuk mengenakan baju besi jadi aku juga tidak punya alasan untuk memanggil orang lain. Setelah berada di tengah-tengah keributan tadi, rasanya, bagaimana aku harus mengatakan ini, cukup aneh mengenakan armor sendirian.
 
 “Betapa sepinya …… ​​..”
 
