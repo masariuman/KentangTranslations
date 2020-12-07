@@ -424,21 +424,21 @@ Memang benar, rambut panjang akan menghalangi ketika bertarung dan bahkan ketika
 
 Tidak, yah, akhir-akhir ini aku sangat sibuk jadi aku juga belum bisa bertemu Feirona dan yang lainnya jadi aku tidak bisa mengeluh.
 
-Ini semacam kesalahanku tapi ……… entah kenapa, aku merasa agak buruk karena melakukan itu. Saya merasa wajah saya menjadi kaku karena sedikit rasa bersalah karena tidak bertemu mereka sama sekali selama beberapa hari terakhir.
+Ini kesalahanku tapi ……… entah kenapa, aku merasa agak buruk karena melakukan itu. aku merasa wajahku menjadi kaku karena sedikit rasa bersalah karena tidak bertemu mereka sama sekali selama beberapa hari terakhir.
 
 “Ada apa, Renji-sama?”
 
 “—–Nah ..”
 
-[haah.]
+[haah...]
 
-Dan sekali lagi, pasangan saya mendesah seperti manusia. Berapa kali dia akan menghela nafas hanya dalam satu hari?
+Dan sekali lagi, partnerku menghelah nafas seperti manusia. Berapa kali dia akan menghela nafas hanya dalam satu hari?
 
-“Sudah kuduga, rekanku hanya bisa jadi kamu, Ermenhilde.”
+“Sudah kuduga, partnerku hanya kamu, Ermenhilde.”
 
-[Apakah begitu?]
+[begitukah?]
 
-Suara pasangan saya dingin.
+Suara partnerku dingin.
 
 Mendengar pembicaraan kami, Nona Francesca terkikik.
 
@@ -448,9 +448,9 @@ Mendengar pembicaraan kami, Nona Francesca terkikik.
 
 [……… ..]
 
-Hanya satu kata itu saja yang membuat suasana hati Ermenhilde menjadi lebih buruk. Yah, aku tahu ini akan terjadi
+Hanya satu kata itu saja membuat suasana hati Ermenhilde menjadi lebih buruk. Yah, aku tahu ini akan terjadi
 
-Tetapi jika saya bisa membuat Ms Francesca tertawa seperti ini, saya bahkan akan dengan senang hati membungkuk kepada Ermenhilde nanti.
+Tetapi jika aku bisa membuat nona Francesca tertawa seperti ini, aku bahkan akan dengan senang hati membungkuk kepada Ermenhilde nanti.
 
 Kegugupannya sepertinya sudah hilang sama sekali sekarang. Dan senyuman yang dia miliki saat ini sama dengan yang dia tunjukkan ketika dia benar-benar santai saat kami bepergian bersama.
 
