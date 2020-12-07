@@ -424,7 +424,7 @@ Meskipun dia memiliki wajah yang baik, sayang sekali. Yah, aku berharap dia juga
 
 Meskipun dia tidak melakukan apa-apa dan selalu memiliki wajah lelah, hanya pada saat-saat seperti ini, ketika menganggu seseorang, sisi buruknya muncul dan dia menjadi energik.
 
-“Mereka harus hidup lebih seperti yang mereka inginkan.” (Kudou)
+“Mereka harus hidup lebih dari yang mereka inginkan.” (Kudou)
 
 "Yah, setiap orang memiliki kecenderungan sosialnya sendiri, oke?"
 
@@ -434,19 +434,19 @@ Utano-san sedang bekerja keras untuk menata kembali negara, Aya berusaha untuk b
 
 Toudou, Kuuki, Yui-chan ........ Aku yakin semua orang juga, bekerja keras dengan caranya sendiri.
 
-Memikirkan itu, aku melihat ke arah Kudou.
+aku melihat ke arah Kudou.
 
 “Yang main-main hanya kamu dan aku.” (Renji)
 
-"Betapa kejam. Bahkan seperti ini, saya bekerja keras untuk menyebarkan lebih banyak cara hiburan ke seluruh dunia, tahu? ”
+"kejamnya. walaupun seperti ini, aku bekerja keras untuk menyebarkan lebih banyak cara hiburan ke seluruh dunia lho... ”
 
-“Saya yakin setidaknya 50% dari motif Anda hanyalah uang, bukan?”
+aku yakin setidaknya 50% dari motifmu hanyalah uang, bukan?”
 
 “Sekitar 70% tepatnya.”
 
 “Itu tidak membuatnya lebih baik.”
 
-Ini bukan sesuatu untuk dikatakan dengan bangga. Melihat dia mengatakan itu dengan bangga, aku merasa seperti memukul kepalanya dengan ringan seperti dulu, tapi aku menahan diri.
+itu bukan sesuatu untuk dikatakan dengan bangga. Melihat dia mengatakan itu dengan bangga, aku merasa seperti ingin memukul kepalanya dengan ringan seperti dulu, tapi aku menahan diriku.
 
 Tatapanku beralih ke rambut panjangnya —— rambut sutra yang disisir indah.
 
