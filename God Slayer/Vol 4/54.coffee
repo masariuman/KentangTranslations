@@ -262,55 +262,55 @@ Aya, apa yang dia katakan pada Yayoi-chan? Sambil memikirkan itu, aku menggeleng
 
 Apa ini? Apakah aku pernah melakukan sesuatu yang buruk pada Yayoi-chan?
 
-aku berpikir banyak tetapi aku tidak bisa menemukan apa pun. Jika saya harus mengatakan, Yayoi-chan pada dasarnya menyiratkan bahwa hubungan saya dengan Aya terlalu kabur. Apakah saya memperlakukan Aya sebagai wanita yang pantas, atau apakah saya memandangnya sebagai saudara perempuan atau perempuan. Apakah Aya menginginkanku sebagai laki-laki atau dia menginginkanku sebagai keluarga atau teman baik.
+aku berpikir banyak tetapi aku tidak bisa menemukan apa pun. kupikir Yayoi-chan pada dasarnya menyiratkan bahwa hubunganku dengan Aya terlalu tidak jelas. Apakah aku memperlakukan Aya sebagai wanita yang pantas, atau apakah aku memandangnya sebagai saudara perempuan atau anak perempuan. Apakah Aya menginginkanku sebagai laki-laki atau dia menginginkanku sebagai keluarga atau teman baik.
 
-Kurasa sebagai sahabatnya, dia pasti mengkhawatirkan hubungan kami yang begitu kabur.
+Kurasa sebagai sahabatnya, dia pasti mengkhawatirkan hubungan kami yang begitu tidak jelas.
 
-“Dengan itu dikatakan,“ (Yayoi)
+“karena itu,“ (Yayoi)
 
 “Hm?”
 
 Tiba-tiba, dia tersenyum.
 
-Saya langsung berjaga-jaga, mungkin karena tubuh ini sepenuhnya mengetahui ketakutan makhluk yang disebut wanita, saya kira.
+aku langsung berjaga-jaga, mungkin karena tubuh ini sepenuhnya mengetahui ketakutan makhluk yang disebut wanita.
 
 "Setelah turnamen selesai, pastikan untuk memperbaikinya dengan benar, oke?" (Yayoi)
 
 “Ugh ……. Baiklah, haah.”
 
-Saya bahkan tidak ingin memikirkan apa yang dia ingin saya lakukan dengan tepat jadi saya hanya memberikan tanggapan yang tidak jelas.
+aku bahkan tidak ingin memikirkan apa yang dia ingin aku lakukan dengan tepat jadi aku hanya memberikan tanggapan yang tidak jelas.
 
-Mungkin dia tidak terlalu menyukai jawabanku, aku merasakan kekuatan berkumpul di genggamannya menggenggam tanganku sekali lagi. Dengan * bikuri * bahuku menggigil karena sedikit sakit.
+Mungkin dia tidak terlalu menyukai jawabanku, aku merasakan kekuatannya berkumpul di genggamannya menggenggam tanganku sekali lagi. Dengan * bikuri * bahuku menggigil karena dan sedikit sakit.
 
-"Di sana, aku sudah selesai." (YayoI)
+"ok, aku sudah selesai." (YayoI)
 
 "Aah, terima kasih, Yayoi-chan."
 
-Semua berkata dan lakukan, dia benar-benar menyembuhkan lengan dan tanganku yang terluka oleh pedang O'brien-san jadi dia mungkin tidak terlalu marah padaku, kupikir.
+dia benar-benar menyembuhkan lengan dan tanganku yang terluka oleh pedang O'brien-san jadi dia mungkin tidak terlalu marah padaku.
 
-Daripada mengatakan dia marah, itu lebih seperti dia hanya mencoba menghasut kepribadianku yang bimbang.
+Daripada mengatakan dia marah, itu lebih seperti dia hanya mencoba menginvestigasi diriku yang bimbang.
 
-Apa ini sebenarnya. Dibanding aku, Yayoi-chan tampak lebih dewasa dan seperti orang dewasa. Betapa sedihnya, atau haruskah saya mengatakan menyedihkan ……… atau haruskah saya senang melihatnya tumbuh seperti ini?
+ada Apa ini. Dibanding aku, Yayoi-chan tampak lebih dewasa dan seperti orang dewasa. Betapa sedihnya, atau haruskah saya mengatakan menyedihkan ……… atau haruskah aku senang melihatnya tumbuh seperti ini?
 
-"Apa yang salah? Kenapa kamu menatap wajahku? ”(Yayoi)
+"Apa yang salah? Kenapa kamu menatap wajahku?"(Yayoi)
 
-“Tidak, saya akan kembali lagi setelah ronde kedua.”
+“Tidak, aku akan kembali lagi setelah ronde kedua.”
 
-“Tolong bertarung tanpa terluka. Serius ”
+“Tolong bertarung tanpa terluka. Serius. ”
 
 “Itu agak terlalu sulit bagiku, tapi akan kucoba.”
 
-Mengatakan itu, saya membuka tirai putih. Ketika, mata saya bertemu dengan beberapa orang yang berdiri di belakang saya. Hanya sedikit yang terluka dan kebanyakan adalah fanboy di sini hanya untuk melihat Yayoi-chan.
+aku membuka tirai putih. Ketika, mataku bertemu dengan beberapa orang yang berdiri di belakangku. aku melihat Hanya sedikit saja yang terluka dan kebanyakan adalah fanboy hanya untuk melihat Yayoi-chan.
 
-“Ayo, pindah. Yang terluka datang lebih dulu. ”(Renji)
+“Ayo, bergeraklah. Yang terlukalah yang lebih dulu dilayani. ”(Renji)
 
-Sambil membuat mereka berpencar, saya membimbing kontestan berikutnya yang terluka ke dalam tirai.
+Sambil membuat mereka bergerak, aku membimbing kontestan berikutnya yang terluka ke dalam tirai.
 
 “Baiklah, semoga berhasil. Pastikan untuk menang, Renji-oniisan. ”
 
-Tepat sebelum aku menutup tirai, mengatakan bahwa Yayoi-chan melambai kecil ke arahku.
+Tepat sebelum aku menutup tirai, Yayoi-chan melambai kecil ke arahku.
 
-Rasanya agak geli, serius.
+Rasanya agak sedikit malu, serius.
 
 Karena Yayoi-chan tersembunyi di balik tirai, semua tatapan mata sekeliling berkumpul padaku tapi mengabaikan semuanya, aku keluar dari ruang perawatan.
 
