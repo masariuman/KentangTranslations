@@ -236,11 +236,11 @@ Apakah kita menjadi santai karena merasa gembira selama festival atau apakah sem
 
 "Nah, kupikir ini sangat enak."
 
-Sambil dengan cekatan memegang tongkat dengan gauntletku memakai tangan, aku menggigitnya.
+Sambil dengan cekatan memegangnya dengan gauntletku, aku menggigitnya.
 
-Dunia ini tidak memiliki apapun yang disebut saus, jadi satu-satunya yang dipakai sebagai bumbu adalah garam dan rempah-rempah. Namun hal itu, pada gilirannya, semakin meningkatkan rasa asli daging tersebut.
+Dunia ini tidak memiliki apapun yang disebut saus, jadi satu-satunya yang dipakai sebagai bumbu adalah garam dan rempah-rempah. Namun hal itu, semakin meningkatkan rasa asli daging tersebut.
 
-Dengan sedikit pengetahuan saya tentang memasak, saya mengomentari rasa daging Orc.
+Dengan sedikit pengetahuanku tentang memasak, aku mengomentari rasa daging Orc.
 
 “Hm, ini benar-benar enak.” (Renji)
 
@@ -248,15 +248,15 @@ Dengan sedikit pengetahuan saya tentang memasak, saya mengomentari rasa daging O
 
 Aya terkikik kecil saat dia melihatku makan dari samping.
 
-Saya bertanya-tanya bagaimana orang-orang di sekitar memikirkan kami saat ini.
+aku penasaran bagaimana orang-orang di sekitar memikirkan kami saat ini.
 
 "Ingin makan juga?" (Reji)
 
-"Saya akan lewat."
+"tidak."
 
 Yah, kupikir begitu.
 
-Bahkan jika kita adalah rekan dekat, masih tidak normal untuk memakan sesuatu yang sudah digigit orang lain. Setelah beberapa saat, saya akhirnya selesai memakannya. Tapi sepertinya itu hanya meningkatkan nafsu makanku; Aku pasti sangat lapar.
+Bahkan jika kami adalah teman dekat, masih tidak normal untuk memakan sesuatu yang sudah digigit orang lain. Setelah beberapa saat, aku akhirnya selesai memakannya. Tapi sepertinya itu hanya meningkatkan nafsu makanku; Aku pasti sangat lapar.
 
 “Tapi tetap saja, ibu kota pasti ramai.” (Renji)
 
