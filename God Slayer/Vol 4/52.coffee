@@ -454,65 +454,65 @@ Tetapi jika aku bisa membuat nona Francesca tertawa seperti ini, aku bahkan akan
 
 Kegugupannya sepertinya sudah hilang sama sekali sekarang. Dan senyuman yang dia miliki saat ini sama dengan yang dia tunjukkan ketika dia benar-benar santai saat kami bepergian bersama.
 
-Pada saat-saat seperti ini, perusahaan Mururu akan lebih cocok dengannya, tetapi jika saya membiarkan non-peserta masuk ke sini, itu hanya akan terlihat seperti saya menyalahgunakan status dan otoritas saya.
+Pada saat-saat seperti ini, Mururu akan lebih cocok dengannya, tetapi jika aku membiarkan bukan-peserta masuk ke sini, itu hanya akan terlihat seperti aku menyalahgunakan status dan otoritasku.
 
-Pertama-tama, aku benci terlihat seperti itu. Belum lagi, itu hanya akan menimbulkan lebih banyak masalah bagi Nona Francesca juga.
+Pertama-tama, aku benci terlihat seperti itu. Belum lagi, itu hanya akan menimbulkan lebih banyak masalah untuk Nona Francesca juga.
 
 “Alangkah baiknya jika pedangku bisa berbicara seperti Ermenhilde-sama juga.” (Fran)
 
-"Betulkah? Aku harus tahan dengan rewelnya, tahu? ”
+"benarkah? Aku saja harus tahan dengan sifat rewelnya lho... ”
 
-[Itu karena Anda tidak disiplin.]
+[Itu karena kamu tidak disiplin.]
 
-"Yah, itu adalah nilai plus bahwa tidak kesepian bahkan saat sendirian."
+"Yah, nilai plusnya aku tidak akan kesepian bahkan saat sendirian."
 
 [Muu.]
 
-“Ah tapi tetap saja, rewelnya adalah…”
+“Ah tapi tetap saja, sifat rewelnya…”
 
 [Seperti yang kubilang, itu——]
 
-Ms Francesca melihat percakapan kami dengan geli. Saat itu, dia cukup formal bahkan terhadap Ermenhilde tetapi dia menjadi cukup santai di sekitarnya saat ini. Dia sudah terbiasa, saya rasa Anda bisa mengatakan itu. Karena itulah dia mengatakan itu, menurutku.
+nona Francesca melihat percakapan kami dengan geli. Saat itu, dia cukup formal bahkan terhadap Ermenhilde tetapi dia menjadi cukup santai saat ini. bisa dikatakan Dia sudah terbiasa.
 
 Senjata berbicara.
 
-Benar, itu mungkin terdengar seperti sesuatu yang sangat Anda inginkan. Ini cukup chuuni, kurasa.
+Benar, itu mungkin terdengar seperti sesuatu yang sangat kamu inginkan. Ini cukup chuuni, kurasa.
 
-Aku ingat Souichi dan Koutarou sangat senang pada Eru pada awalnya. Ms Francesca mungkin memiliki alasan yang berbeda.
+Aku ingat Souichi dan Koutarou sangat senang pada Eru pada awalnya. nona Francesca mungkin memiliki alasan yang berbeda.
 
-“Tapi Ermenhilde adalah rekanku. Itu saja, saya tidak akan memberikan bahkan kepada Anda, Ms Francesca. ”(Renji)
+“Tapi Ermenhilde adalah partnerku. aku tidak akan memberikan bahkan kepadamu, nona Francesca. ”(Renji)
 
-[Tentu saja. Saya hanya Renji's–.]
+[Tentu saja. aku adalah satu satunya–.]
 
-"-Pasangan."
+"-partner."
 
 [-Senjata.]
 
-Dialog biasa kami. Aku bahkan tidak bisa menghitung berapa kali kita melakukan percakapan yang sama —— kita berdua keras kepala seperti anak-anak. Pada topik ini saja, kami tidak akan menyerah satu sama lain apa pun yang terjadi.
+Dialog biasa kami. Aku bahkan tidak bisa menghitung berapa kali kami melakukan percakapan yang sama —— kami berdua keras kepala seperti anak-anak. Pada topik ini saja, kami tidak akan menyerah satu sama lain apa pun yang terjadi.
 
-Saya ingin Ermenhilde sebagai partner saya dan dia ingin saya memperlakukannya sebagai senjata.
+aku ingin Ermenhilde sebagai partnerku dan dia ingin aku memperlakukannya sebagai senjata.
 
-Tapi, ini baik-baik saja.
+Tapi, ini tidak apa-apa.
 
-Karena kami seperti ini, kami bersenang-senang bersama. Meskipun kami menginginkan hal-hal yang sepenuhnya berlawanan, saya percaya ermenhilde dari lubuk hati saya. Dan dia juga mempercayai saya.
+Karena kami seperti ini, kami bersenang-senang bersama. Meskipun kami menginginkan hal-hal yang sepenuhnya berlawanan, aku mempercayai ermenhilde dari lubuk hatiku. Dan dia juga mempercayaiku.
 
 "Fufufu."
 
-Melihat percakapan kami, yang pasti sudah sering dia lihat dalam beberapa bulan terakhir, Nona Francesca hanya tertawa.
+mendengar percakapan kami, yang pasti sudah sering dia dengar dalam beberapa bulan terakhir, Nona Francesca hanya tertawa.
 
 “Renji-sama.”
 
 “Hm?”
 
-“Saya harap kami bisa bertarung di ronde ke-2.”
+“aku harap kita bisa bertarung di ronde ke-2.”
 
 “Eh?”
 
 [Hm?]
 
-Saat dia mengatakan itu, baik aku dan Ermenhilde mengeluarkan suara bodoh. Bahkan Ms Francescsa sendiri memandang kami dengan heran.
+Saat dia mengatakan itu, baik aku dan Ermenhilde mengeluarkan suara bodoh. Bahkan nona Francescsa sendiri memandang kami dengan heran.
 
-“Apakah pertarungan kedua saya melawan Ms Francesca!?!” (Renji)
+“Apakah pertarungan keduaku melawan nona Francesca!?!” (Renji)
 
 "Kenapa kamu sangat terkejut dengan itu!?" (Fran)
 
@@ -522,27 +522,27 @@ Saat dia mengatakan itu, baik aku dan Ermenhilde mengeluarkan suara bodoh. Bahka
 
 [Muu.]
 
-Tapi sungguh, aku memiringkan kepalaku dengan bingung. Apa yang dipikirkan Utano-san saat membuat meja turnamen?
+Tapi sungguh, aku memiringkan kepalaku dengan bingung. Apa yang dipikirkan Utano-san saat membuat daftar turnamen?
 
-Di sampingku, Ms Francesca membuat wajah sedih.
+Di sampingku, nona  Francesca membuat wajah sedih.
 
-“Hanya sedikit lebih baik tetapi, alangkah baiknya jika Anda bisa lebih memperhatikan saya.” (Fran)
+“Hanya sedikit tidak apa-apa tapi, alangkah baiknya jika aku bisa lebih memperhatikanku.” (Fran)
 
-[Serius. Saya minta maaf karena dia kurang akal.]
+[Serius. aku minta maaf karena dia kurang akal.]
 
 "Kenapa kamu minta maaf?" (Renji)
 
 Aku akan menangis, sialan.
 
-Ahh ……… Sungguh, saya belum melihat apapun di sekitar saya.
+Ahh ……… Sungguh, aku belum memperhatikan apapun di sekitarku.
 
-Saya hanya memikirkan diri saya sendiri dan benar-benar menjadi acuh tak acuh terhadap orang lain. Padahal saya sendiri sangat bergantung pada orang lain. Saya tidak menyadarinya sama sekali.
+aku hanya memikirkan diriku sendiri dan benar-benar menjadi acuh tak acuh terhadap orang lain. Padahal aku sendiri sangat bergantung pada orang lain. aku tidak menyadarinya sama sekali.
 
-O'brien-san, Masaki-chan. Saya khawatir tentang keduanya dan tidak memikirkan hal lain. Betapa sempitnya pandanganku. Sungguh, dunia yang saya lihat sangat kecil.
+O'brien-san, Masaki-chan. aku khawatir tentang keduanya dan tidak memikirkan hal lain. Betapa sempitnya pandanganku. Sungguh, dunia yang kulihat sangat kecil.
 
 “Apa yang terjadi, Renji-sama?”
 
-Khawatir tentang saya yang menurunkan bahunya, Ms Francesca bertanya begitu.
+Khawatir tentangku yang menurunkan bahunya, nona Francesca bertanya begitu.
 
 Suaranya penuh dengan kebaikan.
 
@@ -550,15 +550,15 @@ Suaranya penuh dengan kebaikan.
 
 "Iya!"
 
-Saya cukup yakin dia tahu siapa lawan saya. Itu sebabnya, dia pasti khawatir.
+aku cukup yakin dia tahu siapa lawanku. Itu sebabnya, dia pasti khawatir.
 
-Sehingga dia bisa melawan saya di ronde kedua. SEBAGAI siswa sebagai petualang.
+agar dia bisa melawanku di ronde kedua. SEBAGAI siswa dan sebagai petualang.
 
-Saya cukup yakin bahwa setelah dia lulus dari akademi, Nona Francesca harus berhenti menjadi seorang petualang. Sebagai bangsawan yang cantik dan terampil, tidak ada alasan untuk hidup sebagai sesuatu yang berisiko seperti seorang petualang.
+aku cukup yakin bahwa setelah dia lulus dari akademi, Nona Francesca harus berhenti menjadi seorang petualang. Sebagai bangsawan yang cantik dan terampil, tidak ada alasan untuk hidup sebagai sesuatu yang berisiko seperti seorang petualang.
 
 Itulah mengapa, pada tahap terakhir ini, setidaknya —– dia ingin melawan rekannya yang telah lama bepergian dengannya. Aku yakin setelah itu, dia akan bisa berpisah dengan senyuman. Kehidupan seorang petualang adalah siklus pertemuan, perpisahan, dan reuni yang konstan. Merasa sedikit sedih, kami berdua terdiam.
 
-Seolah-olah mereka telah menunggu, namaku diumumkan.
+namaku akhirnya diumumkan.
 
 "Ah."
 
@@ -566,31 +566,31 @@ Suara yang datang dari sampingku dipenuhi dengan kecemasan.
 
 “Aku akan menunggumu, di ronde kedua.” (Renji)
 
-Karena itulah, saya mengatakan itu.
+Karena itulah, aku mengatakan itu.
 
 Tapi tetap saja, kecemasan dan kekhawatiran di matanya tidak hilang.
 
-Jadi saya mengeluarkan Ermenhilde dari saku saya dan menyerahkannya kepadanya.
+Jadi aku mengeluarkan Ermenhilde dari sakuku dan menyerahkannya kepadanya.
 
-"Simpan saja. Sebagai jimat keberuntungan. Itu adalah barang yang diberkati oleh para dewa sendiri. ”(Renji)
+"peganglah. Sebagai jimat keberuntungan. Itu adalah barang yang diberkati oleh dewi sendiri."(Renji)
 
 "Apakah tidak apa-apa?"
 
-[Ya. Apakah kamu akan baik-baik saja sendiri?]
+[Ya. Apakah kamu akan baik-baik saja sendirian?]
 
 "Aku bukan anak kecil lagi." (Renji)
 
-Seperti biasa, Anda berbicara seperti seorang ibu di tempat yang paling aneh.
+Seperti biasa, kamu berbicara seperti seorang ibu di situasi yang paling aneh.
 
-“Ini pengganti pita. Setelah turnamen berakhir, aku akan memberimu hadiah yang layak juga. ”(Renji)
+“Ini sebagai pengganti pita. Setelah turnamen berakhir, aku akan memberimu hadiah yanh sebenarnya. ”(Renji)
 
 “Eh ………”
 
-"Itu janji."
+"aku berjanji."
 
 Aah, aku bergumam di kepalaku.
 
-Saya akhirnya mengatakan itu. Saya akhirnya berjanji lagi.
+aku akhirnya mengatakan itu. aku akhirnya berjanji lagi.
 
 Janji itu berat. Itu untuk mengatakannya tetapi sulit untuk dipenuhi. Jika Anda tidak dapat memenuhinya, Anda mengkhianati bukan hanya orang yang Anda janjikan tetapi juga diri Anda sendiri. Keduanya akhirnya terluka.
 
