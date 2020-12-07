@@ -496,9 +496,9 @@ Kami datang ke ibu kota atas permintaan Mururu tapi awalnya, Feirona adalah elf,
 
 Aku tidak yakin apa yang harus dilakukan pada Solnea tapi aku —— mungkin akan pergi dalam perjalanan lagi. Intuisiku mengatakan seolah-olah itu hampir menjadi fakta.
 
-Koutarou bahkan mengatakan bahwa dia akan menunggu di benua Elfreim. Setelah bertemu Astraera, saya yakin dia akan menyuruh saya pergi ke benua Elfreim ,. Saya yakin. Aku seharusnya bisa pergi bersama Mururu tapi seperti yang diharapkan, aku tidak bisa meminta orang lain untuk bepergian ke benua lain bersamaku sekarang, kan?
+Koutarou bahkan mengatakan bahwa dia akan menungguku di benua Elfreim. Setelah bertemu Astraera, aku yakin dia akan menyuruhku pergi ke benua Elfreim ,. aku yakin. Aku seharusnya bisa pergi bersama Mururu tapi seperti yang diharapkan, aku tidak bisa meminta orang lain untuk bepergian ke benua lain bersamaku sekarang, kan?
 
-Memikirkan hal itu, aku menyadari bahwa perjalananku dengan rekan-rekan ini mungkin akan segera berakhir juga.
+Memikirkan hal itu, aku menyadari bahwa perjalananku dengan rekan-rekanku ini mungkin akan segera berakhir juga.
 
 "Apa yang terjadi?" (Sol)
 
@@ -508,4 +508,4 @@ Seperti yang diharapkan, bahkan dalam kata-kata itu, aku tidak bisa merasakan ap
 
 "Bukan apa-apa." (Renji)
 
-Aku ingin tahu apa yang dia pikirkan ketika Feirona tersenyum masam saat dia menatapku.
+Aku ingin tahu apa yang dia pikirkan Feirona karena dia tersenyum kecut saat dia menatapku.
