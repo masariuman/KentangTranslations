@@ -608,3 +608,7 @@ Pada saat-saat seperti ini, biasanya, Ermenhilde akan membuat pembicaraan ringan
 Haah—
 
 Sungguh, betapa sepinya.
+
+-------------------
+
+masariuman : maaf saya rasanya mau mengubah pembicaraan antara ermenhilde dan MC memakau katak KAU daripada kamu, karena biar terdengar lebih akrab.. tapi karena belum terbiasa ada masih beberapa memakai kata kamu...
