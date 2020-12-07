@@ -692,7 +692,7 @@ aku balas menatapnya hanya untuk melihatnya membungkuk lagi.
 
 “Ah, tidak, meskipun Renji-sama memiliki pertandingan berikutnya, kamu masih di sisiku di sini ………”
 
-“Jangan khawatir tentang itu. Saya lebih khawatir tentang Anda daripada pertandingan saya berikutnya. "
+“Jangan khawatir tentang itu. aku lebih khawatir tentangmu daripada pertandinganku berikutnya. "
 
 [...... Kamu, benar-benar bisa memukul perempuan semulus bernapas, bukan?]
 
