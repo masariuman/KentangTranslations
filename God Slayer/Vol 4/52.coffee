@@ -154,19 +154,19 @@ Aku benar-benar ingin menangis. Tapi, oh baiklah, jika itu aku, aku akan bertind
 
 “Ayo, turnamen sudah dekat kan? Mengapa kamu tidak mencoba dan mengistirahatkan tubuhmu sebentar? ”(Renji)
 
-“Hah! Seolah-olah aku akan kalah dari anak nakal seperti itu. Murid [Pahlawan]? Haha, terdengar seperti lawan terbaik untuk meningkatkan ketenaran saya. ”
+“Hah! Seolah-olah aku akan kalah dari anak nakal seperti itu. Murid [Pahlawan]? Haha, terdengar seperti lawan terbaik untuk meningkatkan ketenaranku. ”
 
-[Apakah yang dia katakan.]
+[itulah yang dia katakan.]
 
-“Tidak, seperti yang telah saya katakan berkali-kali, saya belum mengajarinya apa pun yang akan membuatnya menjadi murid saya, Anda tahu ……….”
+“Tidak, seperti yang telah aku katakan berkali-kali, aku belum mengajarinya apa pun yang akan membuatnya menjadi muridku……….”
 
-Mengatakan itu, aku menghela nafas.
+aku menghela nafas.
 
-Tapi kemudian, tiba-tiba, semua orang di ruangan itu tiba-tiba terdiam. Apa sekarang? Tiba-tiba terasa sangat canggung.
+Tapi kemudian, tiba-tiba, semua orang di ruangan itu tiba-tiba terdiam. ada Apa sekarang? Tiba-tiba terasa sangat canggung.
 
-“Kalau begitu, kamu ………?” (Redhair)
+“Kalau begitu, kamu ………?” (rambut merah)
 
-"Baik. Namaku bukan 'kamu' jadi aku tidak tahu siapa yang kamu maksud. "
+"yaaah... Namaku bukan 'kamu' jadi aku tidak tahu siapa yang kamu maksud. "
 
 Hanya pada saat-saat seperti ini, judul saya berguna. Karena wajahku tidak diketahui, rumor sepertinya telah menyebar cukup banyak dan itu cukup efektif pada orang-orang acak yang mencoba berkelahi tanpa alasan. Dunia ini tidak terbuat dari masyarakat yang maju dalam teknologi informasi seperti yang saya lakukan sebelumnya dan lebih didasarkan pada kemampuan dan kemampuan Anda sendiri.
 
