@@ -372,7 +372,7 @@ Dan kami juga membunuh banyak monster dan iblis. Dan pada akhirnya, —- Aku bah
 
 Dan kedamaian yang kami dapatkan adalah tempat di mana begitu banyak orang tertawa seperti ini. Mereka menjalani kehidupan dengan senyum di wajah mereka.
 
-Saat kami terus melihat pemandangan itu secara diam-diam, aroma manis yang berbeda, selain makanan yang kami miliki, mendatangi saya. Melirik ke sampingku, wajah Aya tepat di sampingku.
+Saat kami terus melihat pemandangan itu secara diam-diam, aroma manis yang berbeda, selain makanan yang kami miliki, mendatangiku. Melirik ke sampingku, wajah Aya tepat di sampingku.
 
 Menyadari tatapanku, dia membuang muka ...... tapi dia tidak menjauh dan tetap di tempatnya, dekat denganku. Pipi dan telinganya yang sedikit memerah pasti imajinasi, aku yakin.
 
