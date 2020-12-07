@@ -164,17 +164,17 @@ Yah, aku tidak bisa menyangkalnya. Dia tidak punya kepribadian seperti mengobrol
 
 Wow, luar biasa dia bisa mengatakan itu. Aku menatapnya dengan tatapan muak. kamu benar-benar memiliki satu orang yang bisa membebaskanmu dari kesepian. Setidaknya aku yakin itu tidak dimaksudkan untukku. Bergantung pada siapa orangnya, perkataan itu akan menjadi perkataan yang sempurna untuk merayu seseorang.
 
-Meski begitu, aku sama saja ingin berbicara dengannya.
+Meski begitu, aku juga ingin berbicara dengannya.
 
-Lagipula, meskipun kami berdua di sini, di ibu kota, aku tidak memiliki kesempatan untuk berbicara dengannya dengan benar sekali pun.
+Lagipula, meskipun kami berdua di sini, di ibu kota, aku tidak memiliki kesempatan untuk berbicara dengannya sekali pun.
 
 Terutama sejak turnamen dimulai semua orang sangat sibuk, terlebih lagi.
 
-"Bahkan jika Anda mengatakan itu ..." (renji)
+"Bahkan jika kamu mengatakan itu ..." (renji)
 
-Sayangnya, saya tidak memiliki topik yang bisa menghibur Yayoi-chan. Dan kemungkinan besar, satu-satunya hal yang ingin dia dengar dariku adalah tentang aku dan Aya, aku yakin.
+Sayangnya, aku tidak memiliki topik yang bisa menghibur Yayoi-chan. Dan kemungkinan besar, satu-satunya hal yang ingin dia dengar dariku adalah tentang aku dan Aya, aku yakin.
 
-Saya pikir di usianya, mereka sangat suka pembicaraan seperti itu. Tapi sayangnya, saya tidak ada gunanya membicarakannya. Aku bahkan belum banyak bicara dengan Aya belakangan ini. Sebenarnya, dia seharusnya lebih waspada terhadap Aya sekarang.
+aku pikir di usianya, mereka sangat suka pembicaraan seperti itu. tidak ada yang bisa dibicarakan. Aku bahkan belum banyak bicara dengan Aya belakangan ini. Sebenarnya, dia seharusnya lebih waspada terhadap Aya sekarang.
 
 "Yah, kudengar kau dibawa ke ibukota terluka parah atau semacamnya?" (Yayoi)
 
