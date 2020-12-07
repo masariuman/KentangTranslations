@@ -540,6 +540,8 @@ Tetapi tetap saja.
 
 Entah bagaimana, rasanya sangat menyegarkan.
 
+<gambar> vol 4 107.png
+
 ----------------------
 
 masariuman : RENJIII OP !!!!!!!! bahkan tanpa magic dan ermenhilde !!! OPPP OPPPP OPPPPPPPP !!!!!!!!! hanya dengan pedang biasa !!! WAAAAAAAAAAA!!!! dan SHIP UTANOO WOOO WOOO WOOOO
