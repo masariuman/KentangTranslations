@@ -636,43 +636,43 @@ meminta maaf atau lebih tepatnya, dengan suara yang sangat sedih, Francesca menj
 
 “Serius, kamu tidak diberkati sama sekali?” (Renji)
 
-[… .Muu. Yah, saya sangat meminta maaf untuk itu.]
+[… .Muu. Yah, aku sangat meminta maaf untuk itu.]
 
-Apakah Anda seorang politikus?
+"Apakah kau seorang politikus?"
 
 Seolah-olah kami berbicara dalam bahasa yang berbeda, hampir tidak ada reaksi dari Nona Francesca.
 
-Sepertinya dia benar-benar menanggung kerugian itu.
+Sepertinya dia benar-benar sedih karena itu.
 
-“Katakan, Ms Francesca ..” (renji)
+“nona Francesca ..” (renji)
 
-“Kamu, ya?”
+“y, ya?”
 
 “……….”
 
 Dia mengusap hidungnya dan dia menjawab dengan gagap. Aku yakin dia …… ..
 
-Kamu melakukan yang terbaik. Itu hasil yang sangat disesalkan. Mari bekerja keras lain kali juga. Ikuti saja tahun depan. Anda pasti akan menang lain kali.
+Kamu melakukan yang terbaik. Itu hasil yang sangat disesalkan. Mari bekerja keras lain kali juga. Ikuti saja tahun depan. kamu pasti akan menang lain kali.
 
-Saya datang dengan berbagai macam kata untuk diucapkan tetapi saya ragu-ragu untuk mengatakan semua itu. Saya berbeda dari Ms Francesca. Masalah dan penderitaan yang saya alami juga berbeda dari apa yang dia rasakan saat ini.
+aku datang dengan berbagai macam kata untuk diucapkan tetapi aku ragu-ragu untuk mengatakan semua itu. aku berbeda dari nona Francesca. Masalah dan penderitaan yang aku alami juga berbeda dari apa yang dia rasakan saat ini.
 
-Tapi, sama seperti ketika aku ingin sendiri, dan tidak ingin berbicara dengan siapa pun. Jika seseorang berdiri diam di samping Anda sampai perasaan Anda tenang, itu sangat membantu, saya tahu itu. Setidaknya bagi saya, begitulah.
+Tapi, sama seperti ketika aku ingin sendiri, dan tidak ingin berbicara dengan siapa pun. Jika seseorang berdiri diam di sampingmu sampai perasaanmu tenang, itu sangat membantu, aku tahu itu. Setidaknya bagiku, begitulah.
 
-Itu sebabnya, pada akhirnya, tanpa bisa mengatakan apa-apa selanjutnya, saya hanya duduk di bangku itu sambil menatap ke depan. Saat melirik, aku melihat Mururu dengan cemas memandang ke arah kami, atau lebih tepatnya, ke Ms Francesca.
+Itu sebabnya, pada akhirnya, tanpa bisa mengatakan apa-apa selanjutnya, aku hanya duduk di bangku itu sambil menatap ke depan. Saat melirik, aku melihat Mururu dengan cemas memandang ke arah kami, atau lebih tepatnya, ke nona Francesca.
 
-Saya bertanya-tanya berapa lama waktu berlalu setelah itu.
+aku penasaran berapa lama waktu berlalu setelah itu.
 
-Aku merasakan beberapa pandangan di sana-sini dan saat melihat aku melihat beberapa bangsawan mengobrol sambil melihat kami. Ketika saya melihat kembali pada mereka, mereka panik dan mengalihkan pandangan mereka.
+Aku merasakan beberapa pandangan di sana-sini dan karena melihat aku melihat beberapa bangsawan mengobrol sambil melihat kami. Ketika aku melihat kembali pada mereka, mereka panik dan mengalihkan pandangan mereka.
 
-Itu juga sama untuk Mururu, meskipun dia terlihat seperti seorang petualang ........ menilai dari telinga dan ekornya yang menonjol, dia pasti tidak terlalu memikirkannya. Tapi tetap saja fakta bahwa dia tidak pergi menunjukkan betapa dia sangat khawatir terhadap Francesca.
+Mururu juga, meskipun dia terlihat seperti seorang petualang ........ menilai dari telinga dan ekornya yang menonjol, dia pasti tidak terlalu memikirkannya. Tapi tetap saja fakta bahwa dia tidak pergi menunjukkan betapa dia sangat khawatir terhadap Francesca.
 
-Pada awalnya saya pikir dia adalah gadis yang pendiam, tetapi jauh di dalam hatinya dia adalah gadis yang cukup baik.
+Pada awalnya aku pikir dia adalah gadis yang pendiam, tetapi jauh di dalam hatinya dia adalah gadis yang cukup baik.
 
 "Apakah kamu sedikit tenang?" (Renji)
 
 "---Iya."
 
-[Saya melihat. Saya akan mengatakan ini sekali lagi tetapi, Anda bertarung dengan baik, Francesca.]
+[begitu.... aku akan mengatakan ini sekali lagi tetapi, Anda bertarung dengan baik, Francesca.]
 
 "Iya."
 
