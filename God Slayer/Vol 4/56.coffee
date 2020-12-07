@@ -168,9 +168,9 @@ Dia memarahiku untuk menyembunyikan rasa malunya tapi tetap saja, aku tidak mera
 
 Meski tidak seperti Souichi atau Yayoi-chan, aku tahu kepribadian seperti apa yang dimiliki Aya. Dia tipe yang mengatakan 'Tidak' dengan jelas ketika dia mau dan ketika dia tidak bisa berbicara, dia akan diam-diam membuat jarak antara dirinya dan orang lain. Dan jika dia tidak melakukan itu berarti dia benar-benar mempercayai mereka. Aku juga sudah melihatnya menyembunyikan rasa malunya seperti itu. Daripada mengatakan bahwa aku sudah terbiasa, akan lebih baik mengatakan bahwa aku mulai sangat menikmatinya sehingga aku mulai suka menghabiskan waktu bersamanya. Itu sebabnya, meski sudah menjadi sunyi lagi, sama sekali tidak terasa canggung.
 
-Ketika kami datang ke dunia ini, dia tidak ramah, selalu berusaha keras seolah-olah menyiratkan bahwa saya harus tinggal di belakang dan menyerahkan sisanya kepadanya, tetapi melihat kepribadiannya sekarang, kesenjangan antara dua kepribadian itu benar-benar lucu.
+Ketika kami datang ke dunia ini, dia tidak ramah, selalu berusaha keras seolah-olah menyiratkan bahwa aku harus tinggal di belakang dan menyerahkan sisanya kepadanya, tetapi melihat kepribadiannya sekarang, kesenjangan antara dua kepribadian itu benar-benar lucu.
 
-Ketika saya menghabiskan waktu untuk mengenang, saya merasakan sikunya di pinggang saya lagi.
+Ketika aku menghabiskan waktu untuk mengingat kembali masa lalu, aku merasakan sikunya di pinggangku lagi.
 
 Saat aku melihat ke arahnya, dia dengan cepat mengalihkan pandangannya ke sisi lain.
 
@@ -178,7 +178,7 @@ Saat aku melihat ke arahnya, dia dengan cepat mengalihkan pandangannya ke sisi l
 
 “Yah, kamu terlihat sangat kesepian jadi ..”
 
-Ketika saya menanyakan hal yang sama lagi, jawaban yang berbeda datang.
+Ketika aku menanyakan hal yang sama lagi, jawaban yang berbeda datang.
 
 Mendengar tanggapannya yang terus terang, saya akhirnya tertawa sedikit. Saya merasa tidak enak tetapi reaksinya terlalu lucu. Dan di atas segalanya, —– Saya merasa bahagia.
 
