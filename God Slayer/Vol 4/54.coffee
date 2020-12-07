@@ -628,7 +628,7 @@ Dan kepalanya menoleh untuk melihat ke arahku.
 
 "Bolehkah aku duduk, di sampingmu?" (Renji)
 
-“…… .ye, ya tentu saja.”
+“…… .y, ya tentu saja.”
 
 [Akhirnya, kamu di sini ya?]
 
