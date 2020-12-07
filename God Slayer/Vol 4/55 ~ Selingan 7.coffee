@@ -292,7 +292,7 @@ aku mengkonfirmasi nama lawanku untuk berjaga-jaga tetapi itu bukan siapa pun ya
 
 Sambil melihat orang yang aku suka bersorak untukku seperti itu, aku menghela nafas.
 
-Tentara bayaran yang melawan Yamada-san melewatiku tapi dia sebenarnya cerdas. Itu adalah wajah seorang pria yang merasa puas telah melakukan yang terbaik dalam pertarungan itu.
+Tentara bayaran yang melawan Yamada-san melewatiku tapi dia cerah. Itu adalah wajah seorang pria yang merasa puas telah melakukan yang terbaik dalam pertarungan itu.
 
 Mengalihkan pandanganku kembali dari pria itu, aku melihat Souichi membuat wajah bermasalah, agak tidak yakin bagaimana menanggapi wajah.
 
