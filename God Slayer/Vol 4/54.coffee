@@ -806,7 +806,7 @@ Pastikan untuk memperhatikan dengan seksama. Mengatakan itu dengan ringan, aku m
 
 Entah bagaimana, aku benar-benar buruk dalam membuat pernyataan seperti itu.
 
-Ketika Mururu keluar dari persembunyiannya.
+Ketika Mururu keluar dari persembunyiannya,
 
 "Terima kasih." (Mururu)
 
