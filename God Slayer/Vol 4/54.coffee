@@ -678,15 +678,15 @@ Pada awalnya aku pikir dia adalah gadis yang pendiam, tetapi jauh di dalam hatin
 
 Dia membalas Ermenhilde, tapi suaranya masih terlihat tidak puas.
 
-Saya tidak menonton pertempuran tetapi dia pasti tidak bisa tampil baik karena gugup. Dia pasti tidak bisa menggunakan semua yang dia punya. Itu pasti penyesalan terbesarnya saat ini.
+aku tidak menonton pertempuran tetapi dia pasti tidak bisa tampil baik karena gugup. Dia pasti tidak bisa menggunakan semua yang dia punya. Itu pasti penyesalan terbesarnya saat ini.
 
-"Nah, sekarang waktunya untuk pertandingan saya berikutnya segera." (Renji)
+"Nah, sekarang waktunya untuk pertandinganku." (Renji)
 
 "Ah."
 
-Seolah-olah dia baru menyadari sesuatu, Ms Francesca membuat suara keras.
+Seolah-olah dia baru menyadari sesuatu, nna Francesca membuat suara keras.
 
-Ingin tahu apa yang salah, aku balas menatapnya hanya untuk melihatnya membungkuk lagi.
+aku balas menatapnya hanya untuk melihatnya membungkuk lagi.
 
 "Ada apa?" (Renji)
 
