@@ -54,21 +54,21 @@ Ketika berhadapan dengan tipe pria seperti itu, agak repot untuk langsung melawa
 
 Melihat orang-orang seperti itu, kamu mungkin tidak salah untuk merasa bahwa semua tentara bayaran itu kasar seperti pria itu.
 
-Tapi saya tahu tidak semua seperti itu. Tapi hanya karena ada satu orang seperti itu, semuanya mendapat reputasi buruk.
+aku tahu tidak semua seperti itu. Tapi hanya karena ada satu orang seperti itu, semuanya mendapat reputasi buruk.
 
 Meskipun ruangan tidak pernah sunyi, tetapi kehadiran mereka membuat ruangan semakin berisik. Mungkin dia menemukan kebisingan itu sebenarnya bagus, dia mulai berbicara lebih keras dan lebih kasar.
 
-[Tidak akan membantunya?]
+[kau tidak akan Tidak akan menolongnya?]
 
-“Hmm, apa yang harus saya lakukan?”
+“Hmm, apa yang harus aku lakukan?”
 
-Mengatakan itu, saya terus menatap Ms Francesca.
+aku terus menatap nona Francesca.
 
-Aku ingin tahu apakah dia bisa menyingkirkannya sendirian? Jika tampaknya tidak mungkin, saya hanya akan pergi ke atas dan berbicara dengannya secara langsung tetapi untuk saat ini, saya terus mengamati situasinya.
+Aku ingin tahu apakah dia bisa menyingkirkannya sendirian? Jika tampaknya tidak mungkin, aku hanya akan datang dan berbicara langsung kepadanya tetapi untuk saat ini, aku terus mengamati situasinya.
 
-Hal-hal seperti ini terkadang berubah menjadi pengalaman yang baik juga. Jika Anda hidup sebagai bangsawan, tidak akan ada banyak kesempatan untuk berinteraksi banyak dengan tentara bayaran tetapi kemungkinannya tidak nol. Bagaimanapun, bangsawan memegang tanah dan untuk melindungi tanah itu dari monster, Anda kadang-kadang harus menyewa merc.
+Hal-hal seperti ini terkadang menjadi pengalaman yang baik juga. Jika kamu hidup sebagai bangsawan, tidak akan ada banyak kesempatan untuk berinteraksi banyak dengan tentara bayaran tetapi kemungkinannya tidak nol. Bagaimanapun juga, bangsawan memegang tanah dan untuk melindungi tanah itu dari monster, kamu kadang-kadang harus menyewa mereka.
 
-Akan lebih baik untuk mengetahui orang macam apa yang terdiri dari mercs. Saat berkonsentrasi untuk mendengarkan mereka sedikit lebih baik, saya mengetahui bahwa pria berambut merah itu sebenarnya adalah lawan Ms Francesca di babak pertama.
+Akan lebih baik untuk mengetahui orang macam apa mereka. Saat berkonsentrasi untuk mendengarkan mereka, aku mengetahui bahwa pria berambut merah itu sebenarnya adalah lawan nona Francesca di babak pertama.
 
 Dilihat dari gerakan tubuhnya, dia seharusnya cukup terampil juga. Senjatanya adalah pedang besar, seperti lawan Ms Francesca sebelumnya kemarin. Ada pedang dua tangan dengan hampir tidak ada hiasan di punggungnya. Meski begitu, dia tidak akan menggunakan itu di turnamen juga. Dia mungkin harus menggunakan salah satu pedang besar yang disiapkan oleh otoritas untuk turnamen. Meskipun Ms Francesca telah mendapatkan beberapa pengalaman bertarung melawan pedang besar di pertempuran sebelumnya ………… kali ini, lawannya adalah orang yang bertempur sebagai tugasnya, secara harfiah, dan bukan seorang siswa. Dia akan berada di level yang sama sekali berbeda dari siswa, atau petarung yang meremehkannya di babak 1 dan 2 turnamen tim.
 
