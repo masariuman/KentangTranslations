@@ -208,27 +208,27 @@ Sekali lagi, dia menyerbu ke arahku dengan kekuatan yang hampir cukup untuk meng
 
 Sebelumnya, aku berpura-pura bahwa aku akan melompat ke belakang terlebih dahulu sebelum mengubah arahku. Tapi itu tidak akan berhasil lagi. Setidaknya tidak dalam pertarungan ini.
 
-Kemudian, daripada menghentikan pedangnya, aku melangkah untuk memblokir serangannya langsung dari cengkeramannya yang tidak bisa menebasku apapun yang terjadi. Tapi sepertinya gerakan saya terlihat karena dia tidak menyarungkan katananya kali ini. Daripada menggunakan teknik menggambarnya untuk ketiga kalinya, dia membuat tebasan normal. Tapi tebasan yang dia buat mungkin lebih tajam dari pada Souichi ——-
+Kemudian, daripada menghentikan pedangnya, aku melangkah untuk memblokir serangannya langsung dari cengkeramannya yang tidak bisa menebasku apapun yang terjadi. Tapi sepertinya gerakanku terlihat karena dia tidak menyarungkan katananya kali ini. Daripada menggunakan teknik menarik untuk ketiga kalinya, dia membuat tebasan normal. Tapi tebasan yang dia buat mungkin lebih tajam dari pada Souichi ——-
 
 “Guh ——!?!”
 
-Aku dengan cepat mengangkat pedang panjangku sebagai perisai tapi itu memotong seperti mentega. Bahkan terbuat dari apa katana itu? Ketajaman itu tidak nyata!
+Aku dengan cepat mengangkat pedang panjangku sebagai perisai tapi itu terpotong seperti mentega. Bahkan terbuat dari apa katana itu? Ketajaman itu tidak nyata!
 
 Sambil mengejar tebasan itu dengan mataku, aku menaruh kekuatan di kakiku.
 
-Tebasan bukanlah satu-satunya cara untuk memotong katana. Setelah mengayun, seseorang bisa menarik katana untuk memotongnya sekali lagi.
+Tebasan bukanlah satu-satunya cara untuk memotong katana. Setelah mengayunkannya, seseorang bisa menarik katana untuk memotongnya sekali lagi.
 
 Setelah memotong pedang panjangku, dia menarik pedangnya. Itu hanya gerakan yang sangat kecil tapi dia harus melakukan tindakan itu untuk melukai tubuhku juga.
 
-Saat itu juga. Dalam satu kedipan, di mana katana akan menyentuh pinggang saya —– Saya menyesuaikan gerakan saya dengannya dan, dengan kaki kiri saya sebagai pusat, saya memutar tubuh saya. Pakaian saya dipotong, dan sedikit, potongan pendek dibuat di sisi / sisi tubuh saya. Meskipun pasti merasakan sakit yang tajam, saya tahu bahwa tubuh saya masih utuh.
+Saat itu juga. Dalam satu kedipan, di mana katana akan menyentuh pinggangku —– aku menyesuaikan gerakanku dengannya dan, dengan kaki kiriku sebagai pusat, aku memutar tubuhku. Pakaianku dipotong, dan sedikit, potongan pendek dibuat di samping tubuhku. Meskipun merasakan sakit yang tajam, aku tahu bahwa tubuhku masih utuh.
 
-Saat saya menahan sisi tubuh saya dengan tangan kanan, perasaan basah datang kepada saya. Sedikit darah menempel di tanganku tapi, aku masih hidup —— Aku masih bisa bertarung.
+Saat aku menahan sisi tubuhku dengan tangan kanan, perasaan basah datang kepadaku. Sedikit darah menempel di tanganku tapi, aku masih hidup —— Aku masih bisa bertarung.
 
-Saat aku dengan cepat mengalihkan pandanganku untuk melihat ke arah Masaki-chan yang telah hilang dari pandanganku karena memutar tubuhku, tapi dia hanya berdiri di sana menatapku dengan wajah terkejut. Saya kira, dia benar-benar tidak mengharapkan saya untuk menghindari serangannya dengan manuver semacam itu.
+Saat aku dengan cepat mengalihkan pandanganku untuk melihat ke arah Masaki-chan yang telah hilang dari pandanganku karena memutar tubuhku, tapi dia hanya berdiri di sana menatapku dengan wajah terkejut. aku kira, dia benar-benar tidak mengharapkanku untuk menghindari serangannya dengan manuver semacam itu.
 
 "--Ha."
 
-Aku bertanya-tanya apakah aku atau Masaki-chan yang tertawa.
+Aku penasaran apakah aku atau Masaki-chan yang tertawa.
 
 Jika itu aku, pasti wajahnya kaku dan menyedihkan.
 
@@ -236,21 +236,17 @@ Pedang panjang telah dipotong dan menjadi seukuran pedang pendek. Tapi, karena k
 
 Sambil melihat Masaki-chan yang berhenti karena terkejut, aku menurunkan pinggangku dan bergegas ke arahnya. Kali ini, aku memegang pedang di dekat pinggangku saat aku menyerbu ke arahnya dalam jarak terdekat.
 
-Saya merasa, bahwa saya dan Masaki-chan adalah sama.
+aku merasa, bahwa aku dan Masaki-chan sama.
 
-Souichi dan Masaki-chan sama-sama tidak ingin kalah satu sama lain sebagai [pendekar pedang / wanita] tetapi pedang dan katana mereka berbeda.
+Souichi dan Masaki-chan sama-sama tidak ingin kalah satu sama lain sebagai [pendekar pedang] tetapi pedang dan katana mereka berbeda.
 
 Tapi dalam kasusku dan Masaki-chan —— Itu sama saja. Secara harfiah tidak ada perbedaan.
 
-Betapa amannya, tanpa menyia-nyiakan sedikitpun, dengan cara yang paling mudah —- dapatkah saya menebas musuh, dapatkah saya membunuh mereka. Itulah garis hidup kita, dan bisa dibilang, juga inti, tulang punggung gaya bertarung kita.
+tanpa menyia-nyiakan sedikitpun, dengan cara yang paling mudah —- dapatkah aku menebas musuh, dapatkah aku membunuh mereka. Itulah garis hidup kami, dan bisa dibilang, juga inti, tulang punggung gaya bertarung kami.
 
 Saat katananya yang terhunus mengarah ke leherku, aku membidik jantungnya pada saat yang sama.
 
-Tebasannya, dan tusukanku. Jika Anda bertanya apa yang lebih cepat, itu akan selalu menjadi tikaman.
-
-Yaitu —– hanya mempertimbangkan panjang penuh dari pedang panjang.
-
- 
+Tebasannya, dan tusukanku. Jika kamu bertanya apa yang lebih cepat, itu akan selalu menjadi tikaman.
 
 “Guh …… unu—–”
 
