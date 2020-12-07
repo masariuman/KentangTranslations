@@ -312,9 +312,9 @@ Biasanya, aku pikir orang mendapatkan cukup banyak otot ketika mereka banyak ber
 
 Bukannya aku tidak punya. Tapi tidak seperti pria atau O'brien-san yang fokus pada kekuatan, aku dan Masaki-chan yang fokus pada kecepatan. Perbedaan semacam itu, tetapi sebagai seorang pria, sangat iri rasanya karena tidak memiliki tubuh berotot.
 
-Setidaknya, aku merasa iri sebelumnya karena aku ingat secara khusus berlatih hanya untuk mendapatkan lebih banyak otot.
+Setidaknya, aku merasa iri karena aku ingat aku berlatih hanya untuk mendapatkan lebih banyak otot.
 
-Dikatakan bahwa saya tidak pernah mendapatkan lebih banyak otot daripada yang dibutuhkan bagi saya untuk mengayunkan pedang dengan benar.
+aku tidak pernah mendapatkan lebih banyak otot daripada yang dibutuhkan bagiku untuk mengayunkan pedang dengan benar.
 
 “Aku, akan mengalahkan muridmu.”
 
