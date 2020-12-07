@@ -62,7 +62,7 @@ Sepertinya dia merasa sedikit bersalah tentang itu dan dia menggaruk kepalanya d
 
 "Apa ini? Apa kau mengkhawatirkan onee-san? ”
 
-“Apa 'onee-san' …… .Anda hanya satu tahun lebih tua dari saya.”
+“Apaan 'onee-san' …… .kamu hanya satu tahun lebih tua dariku.”
 
 “Tapi tidak mengubah fakta bahwa aku lebih tua, bukan?”
 
