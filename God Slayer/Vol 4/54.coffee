@@ -778,21 +778,21 @@ Menjawab Ermenhilde, aku berdiri dari bangkuku.
 
 Jadi selanjutnya adalah tentara bayaran berambut merah itu ya? Sejujurnya, hanya melihat otot-ototnya membuatku berharap aku tidak harus melawannya.
 
-“Kita benar-benar tidak bisa banyak bicara.” (Renji)
+“Kita benar-benar tidak bisa banyak berbicara.” (Renji)
 
 "Tidak, terima kasih banyak." (Fran)
 
-Sepertinya, berbicara dengannya telah sedikit mengalihkan pikirannya.
+Sepertinya, berbicara dengannya telah sedikit membuatnya membaik.
 
-Ekspresinya adalah senyum yang biasa dia buat. Dadaku juga terasa lebih ringan saat aku mengayunkan lengan kananku beberapa kali.
+Ekspresi senyum yang biasa dia buat. Dadaku juga terasa lebih ringan dan aku mengayunkan lengan kananku beberapa kali.
 
-"Pertandingan saya berikutnya, perhatikan baik-baik." (Renji)
+"Pertandinganku berikutnya, perhatikan baik-baik." (Renji)
 
 “Eh?”
 
-[Oh itu jarang. Sampai Renji mengatakan sesuatu seperti itu.]
+[Oh? itu jarang sekali Sampai Renji mengatakan sesuatu seperti itu.]
 
-Saya tahu itu juga.
+aku juga tahu itu.
 
 Aku mengangkat bahu mendengar kata-katanya
 
