@@ -198,21 +198,21 @@ aku mencoba berpikir.
 
 “Tidak, setelah itu! Mou .. ”
 
-Mengapa dia berbicara seperti bibi tua yang Anda temui saat berjalan di jalan? Aku tidak tahu apa yang akan dia lakukan padaku jika aku mengatakan itu padanya tapi itu mungkin tidak bagus untukku, aku yakin.
+Mengapa dia berbicara seperti ibu-ibu tua yang kamu temui saat berjalan di jalan? Aku tidak tahu apa yang akan dia lakukan padaku jika aku mengatakan itu padanya tapi itu mungkin tidak bagus untukku, aku yakin.
 
-Saya berpikir untuk berbicara seperti yang dia lakukan dengan menyembunyikan mulutnya dengan tangannya, jadi saya mencoba menarik tangan kanan saya dari cengkeramannya tetapi, gagal.
+aku berpikir untuk berbicara seperti yang dia lakukan dengan menyembunyikan mulutnya dengan tangannya, jadi aku mencoba menarik tangan kananku dari cengkeramannya tetapi, gagal.
 
-…… .seperti biasa, dia lebih kuat dariku dalam kekuatan fisik murni. Persetan! Seolah menyiratkan bahwa dia tidak akan membiarkan saya melarikan diri, cengkeramannya bahkan menjadi lebih erat. Saya tidak merasakan sakit, mungkin karena dia masih menyembuhkan saya juga. Jika Anda sudah selesai menyembuhkan, bisakah Anda melepaskan tangan saya?
+…… .seperti biasa, dia lebih kuat dariku dalam kekuatan fisik murni. Sialan! Seolah menyiratkan bahwa dia tidak akan membiarkanku melarikan diri, cengkeramannya bahkan menjadi lebih erat. aku tidak merasakan sakit, mungkin karena dia masih menyembuhkanku juga. Jika kamu sudah selesai menyembuhkanku, bisakah kamu melepaskan tanganku?
 
-“Bukankah Aya-chan tinggal di sisimu dan merawatmu sepanjang waktu sampai kamu bangun?” (Yayoi)
+“Bukankah Aya-chan berada di sisimu dan merawatmu sepanjang waktu sampai kamu bangun?” (Yayoi)
 
-“Kamu pasti tahu banyak.”
+“Kamu pasti tahu lebih banyak.”
 
-Atau lebih tepatnya, dia tidur rata di atas meja kamarku. Mengingat hal itu, saya merasakan diri saya tersenyum, atau lebih tepatnya, sulit untuk menggambarkan perasaan.
+Atau lebih tepatnya, dia tidur di atas meja kamarku. Mengingat hal itu, aku merasakan diriku tersenyum.
 
-“Itu diketahui semua orang yang kamu kenal? Dunia ini tidak memiliki banyak cara untuk hiburan. ”(Yayoi)
+“Semua orang sudah tahu lho... Dunia ini tidak memiliki banyak cara untuk hiburan. ”(Yayoi)
 
-“Aku akan sangat bermasalah jika sekarang kita mulai digunakan untuk hiburan juga.”
+“Aku akan sangat bermasalah jika sekarang kami mulai digunakan untuk hiburan juga.”
 
 “Katakan itu pada Aya-chan. Dialah yang menginap di kamarmu. "
 
