@@ -376,7 +376,7 @@ Bahkan aku tidak akan mampu menahan rasa malu seperti itu.
 
 Ketika aku kembali ke nona Francesca setelah memilih pedangku, dia saat ini sedang mengikat kembali rambutnya dengan pita.
 
-Rambut emasnya yang indah diikat di belakang punggungnya dan kemudian diikat menjadi satu. Karena saya telah melihatnya dengan gaya rambut lain selain dengan rambut terbuka tergerai biasanya, rasanya sangat segar.
+Rambut emasnya yang indah diikat di belakang punggungnya. Karena aku melihatnya dengan gaya rambut lain selain dengan rambut terbuka tergerai biasanya, rasanya sangat segar.
 
 Sungguh menakjubkan betapa seorang wanita bisa berubah hanya dari mengubah gaya rambut mereka.
 
