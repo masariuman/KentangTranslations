@@ -388,7 +388,7 @@ Menyadari tatapanku, dia membuang mukanya ...... tapi dia tidak menjauh dan teta
 
 Ahh, aku yakin. Inilah artinya bahagia.
 
-Di dalam dadaku terasa hangat dan aku merasa sangat tenang. Aku mendengar suara tawa pria dan wanita dan suara energik para pedagang yang mencoba menjual barang-barang mereka. Di bawah sinar matahari yang hangat, udara yang agak dingin bertiup.
+Di dalam dadaku terasa hangat dan aku merasa sangat tenang. Aku mendengar suara tawa pria dan wanita dan suara energik dan para pedagang yang mencoba menjual barang-barang mereka. Di bawah sinar matahari yang hangat, udara yang agak dingin bertiup.
 
 Dan dalam waktu santai dan nyaman ini, kami makan siang. Hanya ini saja, sudah bisa membuat seseorang merasa bahagia. Itu bisa membuat seseorang tertawa.
 
