@@ -286,7 +286,7 @@ Haah.
 
 "Ya."
 
-Saya memang mengkonfirmasi nama lawan saya untuk berjaga-jaga tetapi itu bukan siapa pun yang saya kenal. Hanya seorang petualang berpengalaman tapi oh baiklah.
+aku mengkonfirmasi nama lawanku untuk berjaga-jaga tetapi itu bukan siapa pun yang aku kenal. Hanya seorang petualang berpengalaman tapi oh baiklah.
 
 “Lakukan yang terbaik!” (Sou)
 
