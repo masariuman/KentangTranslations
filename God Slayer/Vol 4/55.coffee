@@ -116,13 +116,13 @@ Saat aku mengatakan itu dengan bercanda, Masaki-chan menatapku dengan ekspresi k
 
 Baiklah.
 
-Mengayunkan pedang panjangku beberapa kali, aku memeriksa kondisinya. Saya memang mengatakan bahwa saya bisa menang, tetapi pada akhirnya, ini adalah pertarungan pedang.
+Mengayunkan pedang panjangku beberapa kali, aku memeriksa kondisinya. aku memang mengatakan bahwa aku bisa menang, tetapi pada akhirnya, ini adalah pertarungan pedang.
 
-Tidak peduli seberapa banyak aku mencoba mengalihkan konsentrasinya, begitu kita bertempur, itu akan sia-sia. Betapa luar biasanya kekuatan Masak-chan untuk berkonsentrasi dalam pertempuran.
+Tidak peduli seberapa banyak aku mencoba mengalihkan konsentrasinya, begitu kita bertarung, itu akan sia-sia. Betapa luar biasanya kekuatan Masaki-chan untuk berkonsentrasi dalam pertempuran.
 
 Karena aku tahu itu, aku ingin setidaknya mencoba dan mengganggu konsentrasinya meski hanya sedikit tapi —— [suara] Utano-san tidak memberiku banyak waktu untuk itu.
 
-Perkenalan kami selesai. Yang tersisa hanyalah kami mengambil sikap sebelum mengumumkan dimulainya pertempuran.
+Perkenalan kami selesai. Yang tersisa hanyalah kami bersiap-siap sebelum pengumuman dimulainya pertempuran.
 
 “——-”
 
@@ -132,43 +132,43 @@ Hah.
 
 Sepertinya kita berdua memikirkan hal yang sama.
 
-Hanya dengan mencocokkan tatapan kami, aku merasa pikiran kami juga tumpang tindih.
+Hanya dengan mencocokkan tatapan kami, aku merasa pikiran kami juga saling mengerti.
 
-Hisaki Masaki. Gadis yang menginginkan pedang yang bisa [Memotong takdir yang genap] dari Dewi Astraera.
+Hisaki Masaki. Gadis yang menginginkan pedang yang bisa [Memotong takdir apapun] dari Dewi Astraera.
 
-Dalam hal kekuatan serangan, dia bahkan tidak berada di belakang Pemberani yang memiliki perlindungan ilahi dari Dewi dan Dewa Roh. Melawan pengguna pedang sihir, dan tanpa Ermenhilde, bahkan 10 orang dari saya mungkin tidak bisa menang.
+Dalam hal kekuatan serangan, dia bahkan tidak berada di belakang brave yang memiliki perlindungan ilahi dari Dewi dan Dewa Roh. Melawan pengguna pedang sihir, dan tanpa Ermenhilde, bahkan 10 orang dariku mungkin tidak bisa menang.
 
-Sambil memikirkan itu, aku menurunkan pinggangku. Sama seperti Masaki-chan mengambil posisi untuk penarikan pedangnya yang cepat, aku juga mengambil posisi sambil memegang pedang dengan kedua tangan dan hampir menyembunyikannya di dekat sisi kiri pinggangku. Bergantung pada pandangan Anda, sepertinya kami memiliki pendirian yang sama. Satu-satunya perbedaan adalah pedangnya masih di sarungnya dan pedangnya tidak.
+Sambil memikirkan itu, aku menurunkan pinggangku. Sama seperti Masaki-chan mengambil posisi untuk penarikan pedangnya yang cepat, aku juga mengambil posisi sambil memegang pedang dengan kedua tangan dan hampir menyembunyikannya di dekat sisi kiri pinggangku. Bergantung pada pandanganku, sepertinya kami memiliki pendirian yang sama. Satu-satunya perbedaan adalah pedangnya masih di sarungnya dan pedangku tidak.
 
 Begitu saja, kami menunggu beberapa saat hingga sinyal dimulai.
 
-Kemenangan dingin membelai pipiku dan sorakan nyaring terasa sangat jauh. Seolah-olah ada penghalang di sekitarku dan satu-satunya yang ada di dalamnya adalah aku dan Masaki-chan.
+rasa dingin datang ke pipiku dan sorakan nyaring terasa sangat jauh. Seolah-olah ada penghalang di sekitarku dan satu-satunya yang ada di dalamnya adalah aku dan Masaki-chan.
 
-Dunia menjadi lambat dan konsentrasi saya mencapai puncaknya dan rasanya saya bahkan dapat melihat angin itu sendiri. Bahkan melupakan cara berkedip, saya fokus pada lawan di depan saya. Lawan saya sama dengan saya karena tidak ada apa-apa kecuali saya yang tercermin di matanya. Saat ini, dia mungkin tidak memikirkan Souichi sama sekali.
+Dunia menjadi lambat dan konsentrasiku mencapai puncaknya dan rasanya aku bahkan dapat melihat angin itu sendiri. Bahkan melupakan cara berkedip, aku fokus pada lawan di depanku. Lawanku sama dengan aku karena tidak ada apa-apa kecuali aku yang tercermin di matanya. Saat ini, dia mungkin tidak memikirkan Souichi sama sekali.
 
-Aku mengambil nafas, nafas yang dalam, panjang, dan seragam. Kami berdua melakukannya. Kesadaran, pikiran, dan bahkan pernapasan saya dan Masaki-chan cocok. Ruang kecil bagi kami untuk bertarung, arena, terasa sangat luas dan seolah-olah hanya kami berdua saja yang hidup di dunia ini.
+Aku mengambil nafas, nafas yang dalam, panjang. Kami berdua melakukannya. Kesadaran, pikiran, dan bahkan pernapasanku dan Masaki-chan kompak. Ruang kecil bagi kami untuk bertarung, arena, terasa sangat luas dan seolah-olah hanya kami berdua saja yang hidup di dunia ini.
 
 Detik berikutnya. Angin yang sedikit lebih kuat bertiup. Rambut hitam panjangnya menutupi penglihatannya saat itu bergoyang di udara.
 
-Pada saat yang sama, sinyal untuk memulai datang.
+Pada saat yang sama, sinyal untuk mulai datang.
 
-Tanpa membuang waktu sedetik pun, aku melompat untuk menutup jarak di antara kami. Tidak ada yang akan melakukan semua ini tidak adil, bahkan dia sendiri. Pada saat matanya, yang telah ditutupi oleh rambutnya hanya sesaat, bertemu dengan mataku, aku sudah mengambil 2 langkah besar ke arahnya.
+Tanpa membuang waktu sedetik pun, aku melompat untuk menutup jarak di antara kami. Tidak ada yang akan melakukan semua ini, bahkan dia sendiri. Pada saat matanya, yang telah ditutupi oleh rambutnya hanya sesaat, bertemu dengan mataku, aku sudah mengambil 2 langkah besar ke arahnya.
 
 Tanpa merasa sedikit pun terkejut dengan tindakanku, pinggang Masaki-chan semakin turun.
 
 Dan dia menghunus pedangnya.
 
-Saat aku menyadarinya, aku melangkah tepat di depannya. Di saat yang sama saat aku mengayunkan pedang panjangku, Katananya ditarik keluar dan meluncur ke leherku bahkan lebih cepat dari pedangku. Tidak ada rasa ragu-ragu atau menahan serangannya.
+Saat aku menyadarinya, aku melangkah tepat di depannya. Di saat yang sama saat aku mengayunkan pedang panjangku, Katananya ditarik keluar dan meluncur ke leherku bahkan lebih cepat dari pedangku. Tidak ada rasa ragu-ragu atau menahan kekuatannya.
 
-Keterampilannya sempurna karena katananya berasal dari sarungnya, menuju leher saya dalam waktu dan jarak sesingkat mungkin. Garis miringnya sangat sempurna sehingga terlihat seperti garis lurus.
+Keterampilannya sempurna karena katananya berasal dari sarungnya, menuju leherku dalam waktu dan jarak sesingkat mungkin. Garis miringnya sangat sempurna sehingga terlihat seperti garis lurus.
 
-Tapi itu sebabnya, terlalu mudah untuk diprediksi.
+itu sebabnya, terlalu mudah untuk diprediksi.
 
 Saat aku mengarahkan pedang panjangku ke arah lintasan katananya secara langsung, tebasan sempurna itu langsung terguncang.
 
-Karena dieksekusi dengan sangat sempurna, gerakannya mudah diprediksi. Jika saya tahu apa yang dia tuju, jika saya bisa mengetahui jalur katananya, ada banyak langkah yang bisa saya ambil untuk menangkisnya.
+Karena dieksekusi dengan sangat sempurna, gerakannya mudah diprediksi. Jika aku tahu apa yang dia tuju, jika aku bisa mengetahui jalur katananya, ada banyak langkah yang bisa aku ambil untuk menangkisnya.
 
-Saat aku menangkis lintasan katana dengan menyendoknya dengan pedangku, suara logam keras bergema.
+Saat aku menangkis lintasan katana dengan pedangku, suara logam keras bergema.
 
 "Tch." (Masaki)
 
