@@ -474,11 +474,11 @@ aku melihat ke arah Feirona tetapi dia hanya tertawa dan tidak mengatakan apa-ap
 
 Sekarang.
 
-Menempatkan tongkat / tusuk sate di dalam cangkir kosong, saya berdiri.
+Menempatkan tusuk sate di dalam cangkir kosong, saya berdiri.
 
 "Apa yang akan kamu lakukan selanjutnya?" (Renji)
 
-"Bagaimana denganmu?" (Peri)
+"Bagaimana denganmu?" (fei)
 
 “Aku, harus memberikan beberapa teman kepada Raja. Dan di malam hari, ada sebuah bola yang mengundang semua peserta jadi saya akan bebas besok saja. ”
 
