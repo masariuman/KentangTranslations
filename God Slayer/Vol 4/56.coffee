@@ -408,7 +408,7 @@ Saat aku mengatakan itu, Aya yang baru saja melihat mereka, tiba-tiba melompat d
 
 Saat aku memikirkan itu, Aya sudah berjalan cepat menuju nona Francesca. Dia tidak lari mungkin karena dia memakai sepatu hak. Aku tidak bisa membedakan dengan benar dari belakang tapi dia tampak merah di telinganya.
 
-Apakah itu memalukan baginya untuk terlihat bersamaku? Sakit seperti itu. Aku sedang memikirkan itu ketika Feirona dan Solnea berjalan ke arahku. Ms Francesca dan Mururu sedang berbicara dengan Aya di sana. Aku tidak tahu apa yang mereka bicarakan tapi, oh well, sepertinya mereka sedang bersenang-senang. Tidak yakin tentang Mururu tapi Ms Francesca tersenyum lebar.
+Apakah itu memalukan baginya untuk terlihat bersamaku? Sakit seperti itu. Aku sedang memikirkan itu ketika Feirona dan Solnea berjalan ke arahku. nona Francesca dan Mururu sedang berbicara dengan Aya di sana. Aku tidak tahu apa yang mereka bicarakan tapi, tapi yaaaah, sepertinya mereka sedang bersenang-senang. Tidak yakin tentang Mururu tapi nona Francesca tersenyum lebar.
 
 "Jadi kamu ada di sini, eh?" (Peri)
 
