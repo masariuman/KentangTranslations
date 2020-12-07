@@ -92,11 +92,11 @@ Tidak seperti dia, aku tidak memiliki perlindungan ilahi dari Astraera jadi aku 
 
 “……………”
 
-Seolah dia sedang merajuk, [Saint] -sama mengatakan itu tanpa tersipu sedikitpun. Melihat bibirnya yang runcing (^ bentuk ini), aku hanya bisa memberikan senyuman masam melupakan tanganku yang tergenggam kuat.
+Seolah dia sedang merajuk, [Saint] -sama mengatakan itu tanpa malu sedikitpun. Melihat bibirnya yang runcing (^ bentuk ini), aku hanya bisa memberikan senyuman paksa untuk melupakan tanganku yang tergenggam kuat.
 
-Sungguh. Setidaknya cobalah untuk menyembunyikan perasaanmu yang sebenarnya, ya?
+Setidaknya cobalah untuk menyembunyikan perasaanmu yang sebenarnya, ya?
 
-Tapi tetap saja, saya sendiri tidak pernah bisa mengatakannya secara langsung. Bagaimana saya harus memperlakukan perasaannya? Saya telah memikirkannya berkali-kali tetapi pada akhirnya, saya belum mencapai jawaban.
+Tapi tetap saja, aku sendiri tidak pernah bisa mengatakannya secara langsung. Bagaimana aku harus memperlakukan perasaannya? aku telah memikirkannya berkali-kali tetapi pada akhirnya, aku belum menemukan jawabannya.
 
 Ini adalah masalah baik Souichi dan Yayoi-chan, hanya anggota [keluarga] yang bisa menyelesaikannya sendiri. Orang luar seperti saya tidak memiliki suara, saya pikir. Apa aku baru saja lari atau ini kepercayaanku pada mereka ........ Tidak bisakah aku menyebutnya sebagai kepercayaan, sekarang kan?
 
