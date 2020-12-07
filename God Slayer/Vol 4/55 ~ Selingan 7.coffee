@@ -202,29 +202,29 @@ Aku berbicara dengan suara tidak senang yang bahkan aku sendiri menyadarinya.
 
 Aku ingin tahu apakah itu karena Yamada-san yang begitu tertutup atau karena orang yang kucintai berdiri tepat di sampingku namun merasa jauh.
 
-Tapi oh baiklah, sepertinya aku juga tidak mengakui perasaanku padanya. Saya tidak bermaksud untuk menyembunyikan perasaan saya tetapi sebagai seseorang yang belum mengatakannya secara langsung, saya tidak benar-benar dalam posisi untuk menyebutnya padat.
+Tapi oh baiklah, sepertinya aku juga tidak mengakui perasaanku padanya. aku tidak bermaksud untuk menyembunyikan perasaanku tetapi sebagai seseorang yang belum mengatakannya secara langsung, aku tidak benar-benar dalam posisi untuk menyebutnya tidak peka.
 
 Sekali lagi, aku menghela nafas.
 
-Untuk mengubah suasana hati saya, saya meletakkan tangan saya di katana di pinggang saya.
+Untuk mengubah suasana hatiku, aku meletakkan tanganku di katana di pinggangku.
 
 “Aku benar-benar ingin memotong Yamada-san…” (masaki)
 
 "Mengerikan!?"
 
-“Nah, daripada mengkhawatirkan hal-hal sulit, lebih mudah bagiku untuk menggerakkan tubuh saja.”
+“Nah, daripada mengkhawatirkan hal-hal sulit, lebih mudah bagiku untuk menggerakkan tubuhku saja.”
 
-Apa pun yang terjadi saat itu, itu tidak akan membantu tidak peduli seberapa banyak kita memikirkannya.
+Apa pun yang terjadi saat itu, itu tidak akan membantu tidak peduli seberapa banyak kami memikirkannya.
 
-Kami semua ada di sana selama pertarungan antara Yamada-san dan Demon God Nayfell tapi kami masih belum tahu persis apa yang terjadi. Jadi, kita harus lebih fokus pada apa yang bisa kita lakukan sekarang.
+Kami semua ada di sana selama pertarungan antara Yamada-san dan dewa iblis Nayfell tapi kami masih belum tahu persis apa yang terjadi. Jadi, kami harus lebih fokus pada apa yang bisa kami lakukan sekarang.
 
-Dalam kasus saya, ini untuk melampiaskan semua kebencian saya, atau lebih tepatnya kemarahan, bukan emosi saya karena telah membuat kami khawatir selama setahun penuh di Yamada-san.
+Dalam kasusku, ini untuk melampiaskan semua kebencianku, atau lebih tepatnya kemarahan, bukan emosiku karena telah membuat kami khawatir selama setahun penuh di Yamada-san.
 
 “Kalau begitu, aku akan menemanimu juga.”
 
 “Ara, benarkah?”
 
-Aku mendekatkan bibirku ke telinga Souichi-kun saat dia menurunkan bahunya sambil mengatakan itu. Apakah saya menyerah pada godaan atau menjadi terlalu berani? Melihat sekilas, sepertinya semua orang terlalu sibuk dengan diri mereka sendiri dan tidak memperhatikan kami. Tentu saja, baik Yayoi-chan maupun Rin-san, yang menyela saya pada saat seperti itu, juga tidak ada di sini. Saat aku mengambil nafas untuk menenangkan detak jantungku yang cepat, aku mencium bau keringat seorang anak laki-laki —— untuk berbicara, aku bisa mencium bau Souichi-kun sedikit.
+Aku mendekatkan bibirku ke telinga Souichi-kun ketika dia menurunkan bahunya sambil mengatakan itu. Apakah aku menyerah pada godaan atau menjadi terlalu berani? Melihat sekilas, sepertinya semua orang terlalu sibuk dengan diri mereka sendiri dan tidak memperhatikan kami. Tentu saja, baik Yayoi-chan maupun Rin-san, yang menyela aku pada saat seperti itu, juga tidak ada di sini. Saat aku mengambil nafas untuk menenangkan detak jantungku yang cepat, aku mencium bau keringat seorang anak laki-laki —— aku bisa mencium bau Souichi-kun sedikit.
 
 "Kalau begitu, maukah kamu menemaniku malam ini?" (Masaki)
 
@@ -236,9 +236,9 @@ Tidak, tunggu, yah, uh ..
 
 "Aku, aku mengerti." (Masaki)
 
-“Bagaimanapun juga, ini benar-benar latihan yang menyenangkan denganmu.”
+“Bagaimanapun juga, latihan benar-benar menyenangkan denganmu.”
 
-"……….Saya seharusnya telah mengetahui."
+"……….aku seharusnya telah mengetahui itu."
 
 Ditatap dengan wajah polos, saat dia menyatukan tangannya di belakang kepalanya dan tersenyum, aku merasa ingin meninju wajahnya tapi ……… pada saat yang sama, aku kehilangan keinginan untuk menjelaskan apa yang sebenarnya aku maksud .
 
