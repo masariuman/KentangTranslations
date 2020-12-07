@@ -40,13 +40,13 @@ Karena dia juga bertarung di depanku, aku ingat wajahnya.
 
 Murid Yamada-san.
 
-Untuk muridnya, gerakannya kasar, meskipun dia cocok dengan gaya bertarungnya, itu lebih terasa seperti dia telah mengajarkan dirinya sendiri dengan cara menirunya.
+Untuk muridnya, gerakannya kasar, meskipun dia cocok dengan gaya bertarungnya, itu lebih terasa seperti dia telah belajar otodidak sendiri dengan cara menirunya.
 
-Pastinya, dia memiliki gaya bertarung yang mirip dengan Yamada-san —– bagi kita semua. Dodgin menyerang dengan cepat dan membuat pukulan tertentu di lubang lawan.
+Pastinya, dia memiliki gaya bertarung yang mirip dengan Yamada-san —– bagi kita semua. menghindar serangan dengan kecepatan dan pukulan tertentu di celah lawan.
 
-Tapi dia masih memiliki kesalahan dalam menyerang. Baik waktu maupun kecepatan, ganjil. Sungguh menakjubkan bagaimana dia bahkan selamat bepergian dengan Yamada-san hanya dengan itu. Yah, aku ragu perjalanannya saat ini sama berbahayanya dengan yang sebelumnya.
+Tapi dia masih memiliki kesalahan dalam menyerang. Baik waktu maupun kecepatan, semuanya aneh. Sungguh menakjubkan bagaimana dia bahkan selamat bepergian dengan Yamada-san hanya dengan itu. Yah, aku ragu perjalanannya saat ini sama berbahayanya dengan yang sebelumnya.
 
-Di atas segalanya, dia masih ragu-ragu untuk menebas manusia. Seperti itu, mustahil untuk terus menang di turnamen ini.
+dan juga, dia masih ragu-ragu untuk menebas manusia. Seperti itu, mustahil untuk terus menang di turnamen ini.
 
 "Oh benar, Senpai kalah bukan." (Sou)
 
