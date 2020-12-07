@@ -302,15 +302,15 @@ Bagaimana aku harus mengatakan ini …… .mengagumkan.
 
 Dia terdengar persis seperti penjahat dari serial tokusatsu itu.
 
-Aku melihat punggungnya saat Masaki-chan menyarungkan katananya dan pergi dengan marah. Apa ini …… ..apa aku yang salah di sini? Tidak, yah aku ada di satu sisi.
+Aku melihat punggungnya saat Masaki-chan menyarungkan katananya dan pergi dengan marah. Apa ini …… ..apa aku yang salah di sini?
 
-Saya mengerti bahwa Masaki-chan mencoba menyelesaikan tindakan saya selama satu tahun terakhir dengan caranya sendiri. Faktanya, sekarang saya terlihat seperti penjahat. Setidaknya, dari sudut pandang rekan-rekan saya.
+aku mengerti bahwa Masaki-chan mencoba menyelesaikan tindakanku selama satu tahun terakhir dengan caranya sendiri. Faktanya, sekarang aku terlihat seperti penjahat. Setidaknya, dari sudut pandang rekan-rekan aku.
 
 Bisa dikatakan, jika aku bersikap lunak padanya, itu akan membuatnya semakin kesal.
 
 “Haah. Dia pasti dalam usia yang sulit sekarang, serius. ”(Renji)
 
-Untuk saat ini, saya memutuskan untuk mengatakannya seperti itu. Tampaknya pertarungan kami benar-benar membangkitkan semangat penonton karena sorakan-sorai bahkan lebih keras dari sebelumnya. Saya tidak bercanda, saya merasa telinga saya akan menjadi gila.
+Untuk saat ini, aku memutuskan untuk mengatakannya seperti itu. Tampaknya pertarungan kami benar-benar membangkitkan semangat penonton karena teriakan penonton bahkan lebih keras dari sebelumnya. aku tidak bercanda, aku merasa telingaku akan menjadi gila.
 
 "Baiklah, aku akan menyerahkan gadis itu kepada kekasihnya untuk diurus."
 
