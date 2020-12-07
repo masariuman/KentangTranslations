@@ -112,7 +112,7 @@ Sambil tersenyum paksa atas tanggapan antusiasnya, aku mengubah arah kami dari m
 
 Saat aku berjalan dengan langkah yang agak cepat, Aya di sampingku tertawa kecil.
 
-Merasa sedikit malu, saya memperlambat langkah saya menjadi normal lagi. Tapi kemudian, saya menyadari bahwa saya mengacau.
+Merasa sedikit malu, aku memperlambat langkahku menjadi normal lagi. Tapi kemudian, aku sadar bahwa aku jadi kacau.
 
 Aku akan sangat menonjol, dalam arti yang buruk, di baju besi ini. Orang normal tidak bisa membedakan antara baja normal dan Mithril tapi memakai baju besi lengkap saja akan membuat orang lain merasa gugup di sekitarku. Jika saya pergi ke warung dengan pakaian seperti itu, saya pasti akan menonjol.
 
