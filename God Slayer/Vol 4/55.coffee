@@ -266,7 +266,7 @@ Itu adalah kekalahanku.
 
 Masaki-chan memelototiku sambil mengerang dan mata berkaca-kaca, aku bingung.
 
-Untuk saat ini, wajah itu sangat menakutkan jadi saya akan senang jika Anda bisa mengambil katana dari leher saya. Jika dia menarik katananya sekarang, arteri karotis saya akan meledak, membunuh saya.
+Untuk saat ini, wajah itu sangat menakutkan jadi aku akan senang jika kamu bisa melepaskan katana dari leherku. Jika dia menarik katananya sekarang, arteri karotisku akan meledak, membunuh ku.
 
 "Ini .." (masaki)
 
