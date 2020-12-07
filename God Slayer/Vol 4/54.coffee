@@ -370,17 +370,17 @@ Ekspresinya berubah dari datar menjadi yang mengganggu. Dia terlihat seperti kuc
 
 Sambil menggaruk bagian belakang kepalaku, aku melihat ke atas untuk menghindari tatapannya.
 
-Sepertinya percakapan kami menarik perhatian karena banyak kontestan di sekitar yang melihat kami. Meskipun babak ke-2 bahkan belum dimulai, itu sudah cukup banyak yang sudah dikumpulkan.
+Sepertinya percakapan kami menarik perhatian karena banyak kontestan di sekitar yang melihat kami. Meskipun babak ke-2 bahkan belum dimulai, sudah cukup banyak yang berkumpul.
 
 "Selain itu, apakah tidak apa-apa bagimu untuk tidak muncul di kursi penontonmu?" (Renji)
 
-“Tidak mau. Ini menyakitkan. "
+"Tidak mau. itu melelahkan. "
 
-“…… ..kau benar-benar jujur, bukan?”
+“…… ..kau benar-benar jujur...”
 
-Setidaknya sedikit perhatian terhadap Utano-san.
+Setidaknya perhatianlah sedikit terhadap Utano-san.
 
-Diberitahu bahwa dengan wajah yang tampak terganggu, saya akhirnya merasa kagum dengan kejujurannya.
+aku akhirnya merasa kagum dengan kejujurannya.
 
 “Terima kasih.” (Kudou)
 
@@ -388,21 +388,21 @@ Diberitahu bahwa dengan wajah yang tampak terganggu, saya akhirnya merasa kagum 
 
 "Oh begitu."
 
-Jangan tertawa senang. Tapi tidak bisa menyalahkannya.
+Jangan tertawa senang. Tapi aku tidak bisa menyalahkannya.
 
 “Selain itu, muridmu, apakah kamu tidak akan mencarinya?” (Kudou)
 
 “Ahn?”
 
-"Dia tampak sangat tertekan, Anda tahu?"
+"Dia tampak sangat tertekan lho..."
 
 "Apakah kamu melihat Dia ?"
 
-“Aku tidak tahu dimana dia sekarang tapi dia terlihat sangat linglung bahkan di arena ring.”
+“Aku tidak tahu dimana dia sekarang tapi dia terlihat sangat linglung bahkan di arena.”
 
-Yah, sepertinya dia cukup sulit.
+Yah, sepertinya dia cukup kesulitan.
 
-Saya ingat tentara bayaran berambut merah itu.
+aku ingat tentara bayaran berambut merah itu.
 
 Dalam hal kemampuan, pengalaman, dan fisik, …… dia melampaui Nona Francesca dalam segala hal.
 
