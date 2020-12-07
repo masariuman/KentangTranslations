@@ -290,7 +290,7 @@ Jika senjataku adalah Ermenhilde sebagai gantinya, itu tidak akan pernah dipoton
 
 “…………….”
 
-Karena dia benar-benar membuat ekspresi penyesalan, dia benar-benar harus berbicara jujur.
+Karena dia benar-benar membuat ekspresi penyesalan, dia pasti benar-benar berbicara jujur.
 
 Ya. Oniichan senang karena kamu tumbuh menjadi begitu jujur.
 
@@ -298,9 +298,9 @@ Ya. Oniichan senang karena kamu tumbuh menjadi begitu jujur.
 
 “Guh. Jangan mengira kamu menang di sini !! ”(masaki)
 
-Bagaimana saya harus mengatakan ini …… .mengagumkan.
+Bagaimana aku harus mengatakan ini …… .mengagumkan.
 
-Dia terdengar persis seperti penjahat dari serial tokusatsu itu. (T / N: tokusatsu = super sentai, kamen rider dll.)
+Dia terdengar persis seperti penjahat dari serial tokusatsu itu.
 
 Aku melihat punggungnya saat Masaki-chan menyarungkan katananya dan pergi dengan marah. Apa ini …… ..apa aku yang salah di sini? Tidak, yah aku ada di satu sisi.
 
