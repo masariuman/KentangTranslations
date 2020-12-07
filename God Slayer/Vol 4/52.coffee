@@ -410,13 +410,13 @@ Tetapi tetap saja,
 
 Dia mendapat pita itu sebagai hadiah atas penampilannya di turnamen tim kan? Apakah tidak apa-apa membalas sesuatu untuk itu ………….?
 
-Nah, jika dia senang maka saya tidak punya hak untuk mengatakan apa pun.
+Nah, jika dia senang maka aku tidak punya hak untuk mengatakan apa pun.
 
-"Saya mengerti." (Renji)
+"begitu ya..." (Renji)
 
 [Bahkan seorang beastwoman, yang hanya hidup setengah dari apa yang Renji miliki, lebih banyak akal daripada Renji.]
 
-“Kamu, dimana kamu belajar berbicara seperti itu?”
+“Kau, dimana kau belajar berbicara seperti itu?”
 
 Mengapa suaranya, yang beberapa saat lalu mengkhawatirkanku, kini berubah menjadi pedang dingin yang tajam?
 
