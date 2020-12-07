@@ -180,9 +180,9 @@ Seperti yang diharapkan dari seseorang yang memiliki perlindungan ilahi dari Dew
 
 Katana dan Pedang.
 
-Perbedaan terbesar antara keduanya adalah ketajaman, dan ketahanan yang saya yakini. Katana yang diayunkan oleh seorang pendekar pedang seperti Masaki-chan bahkan dapat memotong baja tetapi katana memiliki daya tahan yang rendah. Jika bukan karena pedang sihir yang dibuat melalui kekuatan Dewi, aku ragu pedang itu bisa digunakan dalam waktu lama di medan perang.
+Perbedaan terbesar antara keduanya adalah ketajaman, dan ketahanan. Katana yang diayunkan oleh seorang pendekar pedang seperti Masaki-chan bahkan dapat memotong baja tetapi katana memiliki daya tahan yang rendah. Jika bukan karena pedang sihir yang dibuat melalui kekuatan Dewi, aku ragu pedang itu bisa digunakan dalam waktu lama di medan perang.
 
-Sebaliknya, pedang normal lebih digunakan untuk memotong / merobohkan lawan daripada memotong / memotong. Tapi daya tahannya jauh melebihi katana. Karena mereka dibuat hanya untuk digunakan di medan perang, kurasa itu sudah jelas.
+Sebaliknya, pedang normal lebih digunakan untuk menebas / merobohkan lawan daripada memotong. Tapi daya tahannya jauh melebihi katana. Karena mereka dibuat hanya untuk digunakan di medan perang, kurasa itu sudah jelas.
 
 Jika aku punya cara untuk menang melawan Masaki-chan, itu adalah mematahkan katananya. Itulah satu-satunya cara.
 
