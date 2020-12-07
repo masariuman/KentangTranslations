@@ -796,15 +796,15 @@ aku juga tahu itu.
 
 Aku mengangkat bahu mendengar kata-katanya
 
-"Yah, untuk sekali ini, aku dipanggil majikannya jadi lebih baik aku akan memerankannya sedikit, kurasa." (Renji)
+"Yah, untuk sekali ini, aku dipanggil gurunya jadi lebih baik aku akan berperan sedikit, kurasa." (Renji)
 
 "Eh, umm." (Fran)
 
 “Kamu tampaknya buruk melawan musuh dengan senjata besar. aku akan menunjukkan kepadamu bagaimana menangani pengguna pedang besar. ”
 
-Pastikan untuk memperhatikan dengan seksama. Mengatakan itu dengan ringan, saya mulai berjalan.
+Pastikan untuk memperhatikan dengan seksama. Mengatakan itu dengan ringan, aku mulai berjalan.
 
-Entah bagaimana, saya benar-benar buruk dalam membuat pernyataan seperti itu.
+Entah bagaimana, aku benar-benar buruk dalam membuat pernyataan seperti itu.
 
 Ketika Mururu keluar dari persembunyiannya.
 
