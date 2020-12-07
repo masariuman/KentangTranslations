@@ -182,65 +182,65 @@ OOHH !!
 
 Detik berikutnya, meskipun dia mengenakan baju besi berat itu, O'brien-san mendekatiku hanya dengan beberapa langkah.
 
-Kekuatannya luar biasa dan tubuh saya hampir menjadi kaku karena tekanan.
+Kekuatannya luar biasa dan tubuhku hampir menjadi kaku karena tekanan.
 
-Dia mengayunkan pedangnya ke arahku dengan kekuatan penghancur yang tak terbayangkan di belakangnya. Tidak mungkin bagiku untuk menerima itu dengan pedang yang kupegang.
+Dia mengayunkan pedangnya ke arahku dengan kekuatan penghancur yang tak terbayangkan. Tidak mungkin bagiku untuk menerima itu dengan pedang yang kupegang.
 
-Tanpa bereaksi terhadap teriakannya, saya tetap tenang dan menghindari ayunan dengan menekuk tubuh ke belakang.
+Tanpa bereaksi terhadap teriakannya, aku tetap tenang dan menghindari ayunan dengan menekuk tubuh ke belakang.
 
-Tekanan dari pedang membuat pakaianku bergoyang saat pedang itu menghantam lantai batu. Tanpa melihat itu, aku mengayunkan pedangku.
+Tekanan angin dari pedang membuat pakaianku bergoyang saat pedang itu menghantam lantai batu. Tanpa melihat itu, aku mengayunkan pedangku.
 
-Saya membidik lehernya.
+aku membidik lehernya.
 
-Tapi dia memblokirnya secara instan dengan gauntlet di tangan kirinya yang melepaskan pedangnya. Dentang logam keras bergema di telingaku.
+Tapi dia memblokirnya secara instan dengan gauntlet di tangan kirinya. Dentang logam keras bergema di telingaku.
 
 Meskipun seranganku tidak sekuat miliknya, meskipun itu tidak akan melukainya, itu seharusnya masih membuat tangannya mati rasa. Namun, tanpa menunjukkan perubahan ekspresi apapun, dia menggunakan tangan kanannya untuk mengayunkan pedang besarnya.
 
-Saya menghentikan ayunan dengan kaki saya dan menggunakan momentum itu untuk melompat menjauh untuk membuat jarak di antara kami.
+aku menghentikan ayunan dengan kakiku dan menggunakan momentum itu untuk melompat menjauh untuk membuat jarak di antara kami.
 
 Di dunia ini, kebanyakan pedang diproduksi secara massal.
 
-Karena mereka diproduksi seperti itu, kebanyakan tidak memiliki banyak ketajaman. Jika itu adalah pedang mithril yang dibuat hanya untuk satu pengguna, itu akan mempertimbangkan berbagai hal seperti ketajaman dan kebiasaan lebih banyak dari pengguna tetapi pedang seperti ini, yang diberikan di Coliseum, tidak seperti itu. Di atas segalanya, untuk turnamen itu mereka juga tumpul. Jadi mungkin saja saya memblokirnya hanya dengan sepatu bot saya. Itu adalah teknik yang seharusnya tidak kamu gunakan dalam pertempuran yang sebenarnya bahkan karena kesalahan.
+Karena mereka diproduksi seperti itu, kebanyakan pedang tersebut tidak memiliki banyak ketajaman. Jika itu adalah pedang mithril yang dibuat hanya untuk satu pengguna, akan dipertimbangkan berbagai hal seperti ketajaman dan kebiasaan pengguna tetapi pedang seperti ini, yang diberikan di collesium, tidak seperti itu. dan juga untuk turnamen, pedang ini juga tumpul. Jadi aku bisa memblokirnya hanya dengan sepatu botku. Itu adalah teknik yang seharusnya tidak kamu gunakan dalam pertempuran yang sebenarnya bahkan karena kesalahan.
 
 “Houu, kamu seperti pemain akrobat.” (Ob)
 
 "Aku tidak sebagus itu."
 
-Menurunkan pinggang saya, saya memegang pedang panjang saya dengan kedua tangan.
+Menurunkan pinggangku, aku memegang pedang panjangku dengan kedua tangan.
 
-Setiap senjata memiliki keunggulannya masing-masing. Sambil mengingat kembali ajaran O'brien-san, saya menarik napas dalam-dalam lagi.
+Setiap senjata memiliki keunggulannya masing-masing. Sambil mengingat kembali ajaran O'brien-san, aku menarik napas dalam-dalam lagi.
 
 Keuntungan dari pedang panjang, keuntungan dari pedang dua tangan yang besar. Di saat yang sama, semua memiliki kelemahannya sendiri juga.
 
-Semua itu benar-benar dilatihkan padaku. Bisa dibilang itu telah diukir di tubuh saya bahkan. Diceritakan melalui kata-kata kemudian dijelaskan melalui tubuh saya. Saya dilatih sampai saya merasa tidak punya lengan.
+Semua itu benar-benar dilatihkan padaku. Bisa dibilang itu telah diukir di tubuhku. dijelaskan melalui kata-kata kemudian dijelaskan melalui tubuhku. aku dilatih sampai aku tidak bisa merasakan tanganku.
 
 Sungguh nostalgia.
 
 “Baiklah, apa yang akan kamu lakukan selanjutnya?” (Ob)
 
-"Ayo lihat…"
+"hmmm mari kita lihat…"
 
-Bahkan saat aku mengincar lehernya, itu dengan mudah dibelokkan.
+Bahkan saat aku mengincar lehernya, serangannya sangat mudah ditangkisnya.
 
-Jelas terlihat bahwa ada alasan mengapa pria ini masih aktif bertugas bahkan di usianya. Refleksnya berada pada level yang mencengangkan.
+Jelas terlihat bahwa ada alasan mengapa pria ini masih aktif bertugas bahkan di usianya sekarang ini. Refleksnya berada pada level yang mencengangkan.
 
-Melihat serangan kekuatan penuhku sendiri dibelokkan dengan mudah, aku menjadi lebih berhati-hati.
+Melihat serangan kekuatan penuhku sendiri ditangkis dengan mudah, aku menjadi lebih berhati-hati.
 
-Seolah-olah dia menganggapnya lucu, O'brien-san sekali lagi mengambil posisi biasanya dengan menaruh pedangnya di pundaknya. Dia akan mengayunkan dengan kekuatan penuhnya sekali lagi.
+Seolah-olah dia menemukan itu menyenangkan, O'brien-san sekali lagi mengambil posisi biasanya dengan menaruh pedangnya di pundaknya. Dia akan mengayunkan dengan kekuatan penuhnya sekali lagi.
 
 Orang ini tidak menggunakan gerakan licik apapun. Setidaknya dalam pertarungan satu lawan satu seperti ini.
 
 Keuntungan dari pedang 2 tangan adalah jangkauan yang lebih besar dan kekuatan penghancur. Dan bobotnya, itu sendiri adalah senjata besar itu sendiri.
 
-Tapi —— semua itu adalah kelemahannya juga. Jarak yang lebih jauh bisa berubah menjadi kerugian jika Anda bisa melangkah mendekati tubuhnya.
+Tapi —— semua itu adalah kelemahannya juga. Jarak yang lebih jauh bisa berubah menjadi kerugian jika kamu bisa melangkah mendekati tubuhnya.
 
 Karena ayunannya sangat merusak, menyebabkan stamina juga cepat habis.
 
 Dan untuk bobotnya ...... selama kamu bisa menghindari serangan itu, itu akan menciptakan celah besar untuk menyerang.
 
-Memikirkan semua itu; Apa yang harus saya lakukan selanjutnya?
+Memikirkan semua itu; Apa yang harus aku lakukan selanjutnya?
 
-Bahkan dengan semua kelemahan seperti itu, bahkan setelah melangkah mendekatinya dan menghindari serangannya, pada akhirnya, seranganku diblokir.
+Bahkan dengan semua kelemahan seperti itu, bahkan setelah melangkah mendekatinya dan menghindari serangannya, pada akhirnya, seranganku ditangkisnya.
 
 Sama seperti bagaimana aku mengetahui kelemahan dan kekuatan pedang besarnya, O'brien-san juga mengetahui hal yang sama untuk pedang panjangku. Dan dia juga tahu caraku bertarung.
 
