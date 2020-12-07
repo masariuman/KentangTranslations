@@ -893,3 +893,6 @@ Yah, mengingat gaun mewah yang dia kenakan, dia pasti seorang bangsawan.
 Dia wanita yang cantik, sambil memikirkan itu, aku pergi.
 
 Biasanya, ini akan menjadi waktu dimana Ermenhilde akan membuat tsukkomi tentang hal itu tapi ……… .aah, aku benar-benar kesepian.
+
+
+<gambar> vol4 156.jpg
