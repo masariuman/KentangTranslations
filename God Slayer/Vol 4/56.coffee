@@ -180,17 +180,17 @@ Saat aku melihat ke arahnya, dia dengan cepat mengalihkan pandangannya ke sisi l
 
 Ketika aku menanyakan hal yang sama lagi, jawaban yang berbeda datang.
 
-Mendengar tanggapannya yang terus terang, saya akhirnya tertawa sedikit. Saya merasa tidak enak tetapi reaksinya terlalu lucu. Dan di atas segalanya, —– Saya merasa bahagia.
+Mendengar tanggapannya yang terus terang, aku akhirnya tertawa sedikit. aku merasa tidak enak tetapi reaksinya terlalu lucu. Dan juga, —– aku merasa bahagia.
 
 "Mouu!" (Aya)
 
 “Oh, jangan mulai merajuk lagi.” (Renji)
 
-“Itu karena kamu selalu menggoda—–”
+“Itu karena kamu selalu menggodaku—–”
 
-"Saya senang."
+"Saya bahagia."
 
-Ketika saya mengatakan itu memotong kata-kata Aya, dia tidak melanjutkan lebih jauh.
+Ketika aku mengatakan itu memotong kata-kata Aya, dia terdiam.
 
 Ekspresi kosongnya begitu mempesona sehingga aku ingin terus menatapnya tapi, mungkin dia menyadari tatapanku, dia dengan cepat menundukkan kepalanya untuk menyembunyikan wajahnya. Dia juga berhenti berjalan, jadi saya juga berhenti.
 
