@@ -312,9 +312,9 @@ Tepat sebelum aku menutup tirai, Yayoi-chan melambai kecil ke arahku.
 
 Rasanya agak sedikit malu, serius.
 
-Karena Yayoi-chan tersembunyi di balik tirai, semua tatapan mata sekeliling berkumpul padaku tapi mengabaikan semuanya, aku keluar dari ruang perawatan.
+Karena Yayoi-chan tersembunyi di balik tirai, semua tatapan mata berkumpul padaku tapi aku mengabaikan semuanya dan keluar dari ruang perawatan.
 
-Beberapa waktu telah berlalu sejak pertengkaranku dengan O'brien-san jadi pertengkaran Nona Francesca seharusnya sudah berakhir.
+Beberapa waktu telah berlalu sejak pertarunganku dengan O'brien-san jadi pertarungan Nona Francesca seharusnya sudah berakhir.
 
 Aku ingin tahu apakah dia menang.
 
