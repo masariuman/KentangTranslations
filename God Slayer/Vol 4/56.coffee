@@ -322,11 +322,11 @@ Untuk dunia ini ——— dunia yang dicintai Eru, dunia yang sangat kami sukai,
 
 Aah, pikirku.
 
-Saya kira liburan saya akhirnya akan segera berakhir.
+aku kira liburanku akhirnya akan segera berakhir.
 
 “Renji-san?”
 
-Saat aku berdiri di sana berpikir dengan linglung sambil tetap memegang daging cicak, Aya kembali menghampiriku. Di tangannya ada 2 cangkir kayu, dan dilihat dari baunya, itu pasti jus buah.
+Saat aku berdiri di sana berpikir dengan linglung sambil tetap memegang daging kadal, Aya kembali menghampiriku. Di tangannya ada 2 cangkir kayu, dan dilihat dari baunya, itu pasti jus buah.
 
 “Ah, Aya, eh?” (Renji)
 
@@ -340,23 +340,23 @@ Saat aku berdiri di sana berpikir dengan linglung sambil tetap memegang daging c
 
 Dia membuat wajah yang sepertinya dia ingin menanyakan sesuatu padaku tetapi pada akhirnya dia tidak pernah menanyakannya.
 
-Sambil menatapnya dengan lembut, saya duduk di bangku terdekat. Aah, sungguh, baju besi ini tidak nyaman. Bahkan sulit untuk duduk.
+Sambil menatapnya dengan lembut, aku duduk di bangku terdekat. Aah, sungguh, baju besi ini tidak nyaman. Bahkan sulit untuk duduk.
 
-"Di sini." (Aya)
+"ini." (Aya)
 
 “Ah, terima kasih.”
 
-Mengambil cangkir jus darinya, aku menyesapnya dan mencucinya di tenggorokanku. Biasanya saya jarang minum jus, tapi rasanya enak dengan sedikit alkohol di dalamnya.
+Mengambil cangkir jus darinya, aku menyesapnya dan mencucinya di tenggorokanku. Biasanya aku jarang minum jus, tapi rasanya enak dengan sedikit alkohol di dalamnya.
 
 “Cuaca hari ini sangat bagus, kan?” (Aya)
 
-"Ya. Meskipun ini musim dingin, hari ini cukup hangat. ”
+"Ya. Meskipun ini musim dingin, hari ini cukup hangat."
 
 “Dan, semua orang tampaknya bersenang-senang juga.”
 
 Dia mengatakan itu sambil melihat senyuman dari berbagai orang yang melewati kami.
 
-Ketika saya akhirnya tertawa mendengar dia mengatakan sesuatu yang saya sendiri telah pikirkan, dia melihat ke arah saya dengan bingung.
+Ketika aku akhirnya tertawa mendengar dia mengatakan sesuatu yang aku sendiri pikirkan, dia melihat ke arahku dengan bingung.
 
 “Tidak, aku hanya memikirkan hal yang sama itu saja.” (Renji)
 
