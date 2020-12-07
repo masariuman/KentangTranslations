@@ -796,11 +796,11 @@ aku juga tahu itu.
 
 Aku mengangkat bahu mendengar kata-katanya
 
-"Yah, untuk sekali ini, aku dipanggil majikannya jadi lebih baik aku memerankannya sedikit, kurasa." (Renji)
+"Yah, untuk sekali ini, aku dipanggil majikannya jadi lebih baik aku akan memerankannya sedikit, kurasa." (Renji)
 
 "Eh, umm." (Fran)
 
-“Kamu tampaknya buruk melawan musuh dengan senjata besar. Saya akan menunjukkan kepada Anda bagaimana menangani pengguna pedang besar. ”
+“Kamu tampaknya buruk melawan musuh dengan senjata besar. aku akan menunjukkan kepadamu bagaimana menangani pengguna pedang besar. ”
 
 Pastikan untuk memperhatikan dengan seksama. Mengatakan itu dengan ringan, saya mulai berjalan.
 
