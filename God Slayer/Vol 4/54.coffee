@@ -882,13 +882,13 @@ Melihat ke arah sumber tatapannya, itu adalah seorang wanita lajang.
 
 Dengan rambut berwarna madu dan gaun merah yang tampak penuh gairah. Dan kekuatan tatapan tajamnya benar-benar cocok dengan gaunnya.
 
-Siapa itu? Tepat ketika aku memikirkan itu, melihat aku menyadari tatapannya, dia berbalik dan pergi. Arahnya pun menuju tribun penonton untuk para bangsawan.
+Siapa itu? Tepat ketika aku memikirkan itu, melihat aku menyadari tatapannya, dia berbalik dan pergi. Arahnya pun menuju bangku penonton untuk para bangsawan.
 
-…… .Jadi dia seorang ningrat, eh?
+…… .Jadi dia seorang bangsawan, eh?
 
 Yah, mengingat gaun mewah yang dia kenakan, dia pasti seorang bangsawan.
 
-"Yah, terserah."
+"Yah, terserahlah."
 
 Dia wanita yang cantik, sambil memikirkan itu, aku pergi.
 
