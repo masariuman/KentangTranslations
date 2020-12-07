@@ -218,21 +218,21 @@ Atau lebih tepatnya, dia tidur di atas meja kamarku. Mengingat hal itu, aku mera
 
 “…………”
 
-Aku tidak terlalu memperhatikannya sebelumnya tapi kurasa memang seperti itu? Mendengar dia mengatakan itu, kurasa tidak aneh jika itu menjadi topik gosip. Sungguh menakjubkan aku tidak mendengarnya sampai sekarang.
+Aku tidak terlalu memperhatikannya sebelumnya tapi kurasa apakah memang seperti itu? Mendengar dia mengatakan itu, kurasa tidak aneh jika itu menjadi topik gosip. Sungguh menakjubkan aku tidak mendengarnya sampai sekarang.
 
-Aku yakin asal muasal rumor itu adalah para pelayan istana. Mereka harus menjadi yang paling berpengetahuan dalam gosip seperti itu karena mereka banyak dan memiliki jenis kelamin yang sama.
+Aku yakin asal muasal rumor itu adalah para pelayan istana. Mereka pasti menjadi yang paling berpengetahuan dalam gosip seperti itu karena mereka rata-rata dan memiliki jenis kelamin yang sama.
 
-Uumu. Aku tidak bisa membungkam mereka sekarang tapi untuk menjadi rumor aneh yang tersebar luas adalah …… .uumu.
+Uumu. Aku tidak bisa membungkam mereka sekarang tapi untuk menjadi rumor aneh yang tersebar luas …… .uumu.
 
-“Renji-oniisan, jika kamu tidak memperlakukan Aya-chan dengan lebih baik, kamu akan dikenakan hukuman dewa, tahu?” (Yayoi)
+“Renji-oniisan, jika kamu tidak memperlakukan Aya-chan dengan lebih baik, kamu akan dikenakan hukuman dewa lho...” (Yayoi)
 
 “… .Nmuu.”
 
 “Yah, tapi senang sekali kamu mengundangnya makan malam beberapa waktu yang lalu.”
 
-"Saya melihat."
+"begitu ya...."
 
-“Tapi tetap, bukankah tidak apa-apa jika kamu membawanya kembali ke kamarnya juga setelah itu?”
+“Tapi tetap saja, bukankah tidak apa-apa jika kamu membawanya kembali ke kamarnya juga setelah itu?”
 
 “……… .yayoi-chan, kamu seharusnya lebih muda dari Aya kan?”
 
