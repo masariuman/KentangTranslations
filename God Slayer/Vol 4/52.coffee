@@ -70,13 +70,13 @@ Hal-hal seperti ini terkadang menjadi pengalaman yang baik juga. Jika kamu hidup
 
 Akan lebih baik untuk mengetahui orang macam apa mereka. Saat berkonsentrasi untuk mendengarkan mereka, aku mengetahui bahwa pria berambut merah itu sebenarnya adalah lawan nona Francesca di babak pertama.
 
-Dilihat dari gerakan tubuhnya, dia seharusnya cukup terampil juga. Senjatanya adalah pedang besar, seperti lawan Ms Francesca sebelumnya kemarin. Ada pedang dua tangan dengan hampir tidak ada hiasan di punggungnya. Meski begitu, dia tidak akan menggunakan itu di turnamen juga. Dia mungkin harus menggunakan salah satu pedang besar yang disiapkan oleh otoritas untuk turnamen. Meskipun Ms Francesca telah mendapatkan beberapa pengalaman bertarung melawan pedang besar di pertempuran sebelumnya ………… kali ini, lawannya adalah orang yang bertempur sebagai tugasnya, secara harfiah, dan bukan seorang siswa. Dia akan berada di level yang sama sekali berbeda dari siswa, atau petarung yang meremehkannya di babak 1 dan 2 turnamen tim.
+Dilihat dari gerakan tubuhnya, dia seharusnya cukup terampil juga. Senjatanya adalah pedang besar, seperti lawan nona Francesca sebelumnya kemarin. Ada pedang dua tangan dengan hampir tidak ada hiasan di punggungnya. Meski begitu, dia tidak akan menggunakan itu di turnamen juga. Dia mungkin harus menggunakan salah satu pedang besar yang disiapkan oleh panitia untuk turnamen. Meskipun nona Francesca telah mendapatkan beberapa pengalaman bertarung melawan pedang besar di pertempuran sebelumnya ………… kali ini, lawannya adalah orang yang bertempur sebagai tugasnya, secara harfiah, dan bukan seorang siswa. Dia akan berada di level yang sama sekali berbeda dari siswa, atau petarung yang meremehkannya di babak 1 dan 2 di turnamen tim.
 
-Saat berbicara dengan Ms Francesca, pria itu juga terus melotot ke arah peserta lainnya di ruangan itu. Dan beberapa juga mengalihkan pandangan mereka ke arah itu.
+Saat berbicara dengan Ms Francesca, pria itu juga terus melotot ke arah peserta lainnya di ruangan itu. Dan beberapa orang juga mengalihkan pandangan mereka ke arah lain.
 
-Dia membual tentang betapa dia yakin akan kemenangannya. Kurasa, dia pasti sangat percaya diri dengan kemampuannya sendiri untuk berbicara seperti itu.
+Dia berkata tentang betapa yakin dia akan menang. dia pasti sangat percaya diri dengan kemampuannya sampai berbicara seperti itu.
 
-Tapi ini adalah ruang tunggu Coliseum. Akan lebih baik untuk menyimpan kata-kata itu jauh di dalam hati Anda dan lebih baik untuk menunjukkannya melalui hasil. Semua yang dia lakukan sekarang adalah mengumpulkan permusuhan.
+Tapi ini adalah ruang tunggu collesium. Akan lebih baik untuk menyimpan kata-kata itu jauh di dalam hati Anda dan lebih baik untuk menunjukkannya melalui hasil. Semua yang dia lakukan sekarang adalah mengumpulkan permusuhan.
 
 [Hou..Orang itu tampaknya cukup yakin dengan kemenangannya.]
 
