@@ -124,9 +124,9 @@ aku mungkin akan menonjol kepada orang-orang yang mengenalku tetapi aku masih me
 
 Mungkin dia sedikit khawatir melihatku berjalan cepat sebelumnya, dia mengatakan itu.
 
-Suaranya lebih energik dari biasanya mungkin karena dia bersenang-senang menggodaku sekali alih-alih menjadi orang yang diejek.
+Suaranya lebih energik dari biasanya mungkin karena dia bersenang-senang menggangguku karena biasanya dia yang kuganggu.
 
-"Nah, aku bisa mentolerir semudah ini." (Renji)
+"Nah, aku bisa menahannya dengan mudah." (Renji)
 
 “Mouu …… ..bagian dirimu itu sangat kekanak-kanakan, sungguh.”
 
