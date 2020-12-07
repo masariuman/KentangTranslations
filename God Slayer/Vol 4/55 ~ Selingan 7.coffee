@@ -50,7 +50,7 @@ dan juga, dia masih ragu-ragu untuk menebas manusia. Seperti itu, mustahil untuk
 
 "Oh benar, Senpai kalah bukan." (Sou)
 
-“……… kamu tahu, dia adalah senpai mu, bukankah seharusnya kamu setidaknya pergi dan melihatnya?”
+“……… dia adalah senpai mu, bukankah seharusnya kamu setidaknya pergi dan melihatnya?”
 
 “Ugh. Apa yang bisa saya lakukan, waktu dengan pertandingan saya terlalu buruk …… ”
 
