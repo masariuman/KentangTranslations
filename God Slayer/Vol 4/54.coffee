@@ -260,9 +260,9 @@ Aya, apa yang dia katakan pada Yayoi-chan? Sambil memikirkan itu, aku menggeleng
 
 “……………”
 
-Apa ini? Apakah saya pernah melakukan sesuatu yang buruk pada Yayoi-chan?
+Apa ini? Apakah aku pernah melakukan sesuatu yang buruk pada Yayoi-chan?
 
-Saya banyak berpikir tetapi saya tidak bisa menemukan apa pun. Jika saya harus mengatakan, Yayoi-chan pada dasarnya menyiratkan bahwa hubungan saya dengan Aya terlalu kabur. Apakah saya memperlakukan Aya sebagai wanita yang pantas, atau apakah saya memandangnya sebagai saudara perempuan atau perempuan. Apakah Aya menginginkanku sebagai laki-laki atau dia menginginkanku sebagai keluarga atau teman baik.
+aku berpikir banyak tetapi aku tidak bisa menemukan apa pun. Jika saya harus mengatakan, Yayoi-chan pada dasarnya menyiratkan bahwa hubungan saya dengan Aya terlalu kabur. Apakah saya memperlakukan Aya sebagai wanita yang pantas, atau apakah saya memandangnya sebagai saudara perempuan atau perempuan. Apakah Aya menginginkanku sebagai laki-laki atau dia menginginkanku sebagai keluarga atau teman baik.
 
 Kurasa sebagai sahabatnya, dia pasti mengkhawatirkan hubungan kami yang begitu kabur.
 
