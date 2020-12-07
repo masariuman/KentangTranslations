@@ -74,13 +74,13 @@ dia menutup mulutnya dan tidak melanjutkan. Saat dia mulai mengotak-atik rambutn
 
 Aku tidak tahu kenapa tapi karena suasana hatinya sepertinya tidak menjadi buruk, aku terus berjalan di sampingnya sementara armorku mengeluarkan suara dentingan.
 
-Bahkan setelah berjalan sebentar, Aya tetap diam. Pada saat yang sama, saya juga tidak banyak bicara.
+Bahkan setelah berjalan sebentar, Aya tetap diam. Pada saat yang sama, aku juga tidak banyak bicara.
 
-Tapi tetap saja, untuk tidak diganggu oleh keheningan seperti itu, mungkin karena aku sudah terbiasa menghabiskan waktu dengan Aya. Saat kami terus berjalan dengan santai, aku merasakan siku Aya menyentuh bagian pinggangku dari armor.
+Tapi tetap saja, aku tidak terganggu oleh keheningan seperti itu, mungkin karena aku sudah terbiasa menghabiskan waktu dengan Aya. Saat kami terus berjalan dengan santai, aku merasakan siku Aya menyentuh bagian pinggangku dari armor.
 
 Dia pasti mengambil setengah langkah lebih dekat denganku. Jarak antara kami sedikit lebih dekat.
 
-Aku yakin itu akan terlalu kasar untuk menunjukkannya jadi aku terus berjalan, bertingkah seolah aku tidak menyadarinya.
+Aku yakin itu akan terlalu kasar untuk memberitahunya jadi aku terus berjalan, bertingkah seolah aku tidak menyadarinya.
 
 Meliriknya lagi, senyumnya tampak semakin besar. Atau hanya imajinasiku?
 
