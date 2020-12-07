@@ -124,7 +124,7 @@ Tingginya tidak jauh berbeda dariku tetapi karena aku duduk, dia menatapku kebaw
 
 Dia tampak seperti binatang buas yang marah dan membuatku bingung dalam memutuskan bagaimana menjawab.
 
-Tapi baginya, tidak mengatakan apa-apa pasti membuatnya semakin kesal saat dia meninju dinding tempatku menyandarkan punggung. Untuk tidak meringis bahkan pada saat itu, dia harus terlatih dengan baik.
+Tapi baginya, tidak mengatakan apa-apa pasti membuatnya semakin kesal saat dia meninju dinding tempatku menyandarkan punggung. Untuk tidak menampakkan rasa sakit sedikitpun, dia harus terlatih dengan baik.
 
 "Maaf. Aku tidak benar-benar mencoba membuatmu marah. "
 
@@ -132,7 +132,7 @@ Tapi baginya, tidak mengatakan apa-apa pasti membuatnya semakin kesal saat dia m
 
 [Tidak bisakah kamu mengalahkannya di sini, sekarang juga?]
 
-Aku rasa aku akan menjadi orang yang akhirnya dipukuli. Saya kira sikapnya pasti sangat menjengkelkan bagi Ermenhilde. Yah, itu sama untukku juga.
+Aku rasa aku akan menjadi orang yang akhirnya dipukuli. aku kira sikapnya pasti sangat menjengkelkan bagi Ermenhilde. Yah, itu sama untukku juga.
 
 Meskipun turnamen akan segera dimulai, mengapa saya harus melalui sesuatu seperti ini di ruang tunggu?
 
