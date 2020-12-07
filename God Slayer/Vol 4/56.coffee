@@ -82,7 +82,7 @@ Dia pasti mengambil setengah langkah lebih dekat denganku. Jarak antara kami sed
 
 Aku yakin itu akan terlalu kasar untuk memberitahunya jadi aku terus berjalan, bertingkah seolah aku tidak menyadarinya.
 
-Meliriknya lagi, senyumnya tampak semakin besar. Atau hanya imajinasiku?
+Meliriknya lagi, senyumnya tampak semakin besar. Atau hanya imajinasiku saja?
 
 “Apakah kamu sudah makan siang?” (Renji)
 
@@ -96,17 +96,17 @@ Meliriknya lagi, senyumnya tampak semakin besar. Atau hanya imajinasiku?
 
 “Ugh ……… ya.”
 
-Saya baru saja akan mengatakan bahwa 'Anda akan menjadi gemuk' tetapi saya segera menghentikan diri saya sendiri. Ini hanya sebagai lelucon tapi apa yang akan terjadi padaku bahkan jika itu sebagai lelucon adalah —— yah, sejelas siang hari.
+aku baru saja akan mengatakan bahwa 'kamu akan menjadi gemuk' tetapi aku segera menghentikan diriku sendiri. itu bisa saja menjadi lelucon tapi ayang terjadi padaku bahkan jika itu adalaah sebuah lelucon--yaaah, sudah jelas sekali.
 
 “Kalau begitu, temani aku sebentar.” (Renji)
 
 "?"
 
-“Sekarang pertarungan saya berakhir, saya tiba-tiba merasa sangat lapar …… ..apa kamu akan tinggal bersamaku sebentar?”
+“Sekarang pertarunganku berakhir, aku tiba-tiba merasa sangat lapar …… ..apa kamu bisa menemaniku?”
 
-Ya, Ya!
+"Ya, Ya!"
 
-Sambil tersenyum masam atas tanggapan antusiasnya, saya mengubah arah kami dari menuju tempat duduk kami ke pintu keluar Coliseum. Coliseum itu sendiri tidak memiliki ruang makan / kafetaria jadi saya hanya harus pergi ke berbagai kios yang didirikan tepat di luar gerbang untuk mengisi perut saya. Mengingat berbagai kedai makanan ringan yang saya lihat kemarin, saya merasa mulut saya berair. Saya benar-benar lapar tetapi saya pasti tidak merasakannya karena saya bahkan lebih gugup tentang pertandingan.
+Sambil tersenyum paksa atas tanggapan antusiasnya, aku mengubah arah kami dari menuju tempat duduk kami ke pintu keluar collesium. colleseum itu sendiri tidak memiliki ruang makan / kafetaria jadi aku harus pergi ke berbagai kios yang didirikan tepat di luar gerbang untuk mengisi perutku. Mengingat berbagai kedai makanan ringan yang aku lihat kemarin, aku merasa mulutku berair. aku benar-benar lapar tetapi aku pasti tidak merasakannya karena aku bahkan lebih gugup karena pertandingan.
 
 "Fufufu."
 
