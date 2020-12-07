@@ -294,15 +294,15 @@ Sambil melihat orang yang aku suka bersorak untukku seperti itu, aku menghela na
 
 Tentara bayaran yang melawan Yamada-san melewatiku tapi dia cerah. Itu adalah wajah seorang pria yang merasa puas telah melakukan yang terbaik dalam pertarungan itu.
 
-Mengalihkan pandanganku kembali dari pria itu, aku melihat Souichi membuat wajah bermasalah, agak tidak yakin bagaimana menanggapi wajah.
+Mengalihkan pandanganku kembali dari pria itu, aku melihat Souichi membuat wajah bermasalah, agak tidak yakin bagaimana menanggapinya.
 
 “…… Kenapa kamu menghela nafas?” (Sou)
 
-"Malam ini. Jangan lupakan janji kami untuk menemani saya dalam pelatihan, oke? ”
+"Malam ini. Jangan lupakan janjimu untuk menemaniku berlatih, oke? ”
 
-“Su, tentu?”
+“te, tentu?”
 
-Tapi saya yakin, rintangan juga akan ada. Sambil memikirkan itu, aku menuju arena. Sambil memikirkan wajah rintangan yang akan datang, saya berdiri di arena.
+Tapi aku yakin, rintangan juga akan ada. Sambil memikirkan itu, aku menuju arena. Sambil memikirkan wajah rintangan yang akan datang, aku berdiri di arena.
 
 Di situlah Yamada-san bertarung sampai sekarang.
 
@@ -310,14 +310,14 @@ Di hadapanku, berdiri seorang pria.
 
 Sekarang,
 
-Saya tidak gugup sama sekali. Nafasku sempurna dan dapat dengan jelas mendengar suara penonton.
+aku tidak gugup sama sekali. Nafasku sempurna dan dapat dengan jelas mendengar suara penonton.
 
-Saat aku memberikan senyuman yang menyenangkan, wajah lawanku menjadi pucat ....... bukankah reaksinya agak terlalu kasar?
+Saat aku memberikan senyuman, wajah lawanku menjadi pucat ....... bukankah reaksinya agak terlalu kasar?
 
-Saya berpikir begitu tapi oh baiklah, terserah. Saya akan menggunakan dia untuk melepaskan semua frustrasi saya sekarang.
+aku berpikir begitu tapi oh baiklah, terserahlah. aku akan menggunakan dia untuk melepaskan semua frustrasiku sekarang.
 
-Sambil tersenyum, saya meletakkan tangan saya di pegangan katana saya. Menurunkan pinggang saya, saya mengendurkan tubuh saya.
+Sambil tersenyum, aku meletakkan tanganku di pegangan katanaku. Menurunkan pinggangku, aku mengendurkan tubuhku.
 
-Saya mempertajam pikiran saya, bisa dibilang. Pria di depanku mengambil posisi berdiri dengan pedangnya tapi, aku dengan tenang mengamatinya. Leher, siku, pergelangan tangan, lutut — jantung. Semua bagian vital sudah terlihat jelas, dan aku harus menekan tubuhku untuk segera masuk sebelum pertandingan diumumkan.
+aku mempertajam pikiranku, bisa dibilang. Pria di depanku mengambil posisi berdiri dengan pedangnya tapi, aku dengan tenang mengamatinya. Leher, siku, pergelangan tangan, lutut — jantung. Semua bagian vital sudah terlihat jelas, dan aku harus menekan tubuhku untuk segera masuk sebelum pertandingan dimulai.
 
-Dan bahkan di antara sorakan yang tak terhitung jumlahnya, saya mendengar suara katana saya yang terhunus, dengan sangat jelas.
+Dan bahkan di antara sorakan yang tak terhitung jumlahnya, aku mendengar suara katanaku yang terhunus, dengan sangat jelas.
