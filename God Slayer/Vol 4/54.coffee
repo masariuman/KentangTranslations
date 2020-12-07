@@ -836,11 +836,11 @@ Sambil terus melihat ke arahnya, dia menanyakan itu padaku.
 
 “Bisakah kamu menang melawan yang berikutnya?” (Mururu)
 
-"Yah, siapa yang tahu."
+"Yah, entahlah."
 
-Saya kira dia sedikit khawatir.
+aku kira dia sedikit khawatir.
 
-Apa yang harus saya lakukan, saya merasa senang hanya karena sebanyak itu ……… .apa ini sebenarnya?
+Apa yang harus aku lakukan, aku merasa senang hanya karena dia khawatir seperti itu ……… .apa ini sebenarnya?
 
 “Menang.” (Mururu)
 
