@@ -306,7 +306,7 @@ Ada banyak orang di sekitar tetapi, hanya sedikit dari mereka yang benar-benar d
 
 Itu sangat damai, dan tenang …… .dan ketika aku berpikir bahwa kamilah yang melindungi ini, aku merasa lebih bangga daripada bahagia di dalam dadaku. Tiba-tiba, aku teringat apa yang Koutarou katakan padaku kemarin malam.
 
-[Jika Anda penasaran, temui Astraera.]
+[Jika kamu penasaran, temui Astraera.]
 
 Dia bilang begitu. Salah satu anggota party saya adalah masalah.
 
