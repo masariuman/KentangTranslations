@@ -182,17 +182,17 @@ aku pikir di usianya, mereka sangat suka pembicaraan seperti itu. tidak ada yang
 
 Itu cerita lama sekarang.
 
-Aku teringat [Forest of Rotting Souls] dan monster Skeleton yang menyebalkan itu.
+Aku teringat [hutan jiwa membusuk] dan monster tengkorak yang menyebalkan itu.
 
 “Ahh, aku benar-benar hampir mati saat itu …….”
 
-Aku mengeluarkan desahan yang sangat berat. Sejujurnya, itu tidak akan aneh jika aku benar-benar mati hari itu melawan lawan semacam itu. Tapi bukan itu yang saya pikirkan tentang yayoi-chan. Matanya penuh keingintahuan.
+Aku menghela nafas yang sangat kuat. Sejujurnya, itu tidak akan aneh jika aku benar-benar mati hari itu melawan lawan semacam itu. Tapi bukan itu yang ingin yayoi-chan dengar. Matanya penuh keingintahuan.
 
 "Pada saat itu, sesuatu terjadi kan?" (Yayoi)
 
 "……..sesuatu?"
 
-Saya mencoba berpikir.
+aku mencoba berpikir.
 
 “Tentang bagaimana Yui-chan menyelamatkanku?” (Renji)
 
