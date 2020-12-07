@@ -48,29 +48,29 @@ Mungkin karena dia memakai sepatu hak, dia merasa sedikit lebih tinggi dari bias
 
 "begitu ya..."
 
-Wajahnya, dengan ketinggian sedikit di atas bahuku, tersenyum cerah. Dia pasti sedang dalam mood yang bagus. Emosinya berpindah bahkan padaku saat aku tersenyum juga.
+Wajahnya, dengan ketinggian sedikit di atas bahuku, tersenyum cerah. Dia pasti sedang dalam mood yang bagus. Emosinya berpindah bahkan padaku karena aku tersenyum juga.
 
 "Yah, itu sangat disayangkan, ya?" (Aya)
 
-Apa itu?
+"Apanya?"
 
-Fakta bahwa kamu kalah.
+"Fakta bahwa kamu kalah."
 
 "Aah."
 
-Dia tahu bahwa saya tidak terlalu mempermasalahkannya saat dia mengatakannya dengan nada ringan dan dengan senyuman.
+Dia tahu bahwa aku tidak terlalu mempermasalahkannya karena dia mengatakannya dengan nada ringan dan dengan senyuman.
 
-Kadang-kadang, kontestan lain dan orang-orang di sini di arena akan melihat kami dengan tatapan penasaran saat kami berjalan di dekat mereka, tetapi saya tidak terlalu memedulikan mereka. Sebut saja harga ketenaran, tapi wajahku dan wajah Aya terkenal di ibu kota. Terutama milikku, karena aku berada di pertandingan beberapa waktu yang lalu.
+kontestan lain dan orang-orang di sini di arena akan melihat kami dengan tatapan penasaran ketika kami berjalan di dekat mereka, tetapi aku tidak terlalu memedulikan mereka. anggap saja karena aku terkenal, tapi wajahku dan wajah Aya terkenal di ibu kota. Terutama wajahku, karena aku berada di pertandingan beberapa waktu yang lalu.
 
 “Tapi tetap saja, sayang sekali.” (Renji)
 
-"Apa yang?"
+"Apanya?"
 
-“Yah, bagaimanapun juga ini adalah festival yang langka, namun kita belum sempat melihat-lihat berbagai kios dan stan.”
+“Yah, bagaimanapun juga ini adalah festival yang langka, namun kita belum sempat melihat-lihat berbagai kios dan stand.”
 
-“Aku tidak terlalu mempermasalahkan itu. Saya hanya …… ​​”
+“Aku tidak terlalu mempermasalahkan itu. aku hanya …… ​​”
 
-Mengatakan sampai itu, dia menutup mulutnya dan tidak melanjutkan. Saat dia mulai mengotak-atik rambutnya lagi, dia tampak agak malu.
+dia menutup mulutnya dan tidak melanjutkan. Saat dia mulai mengotak-atik rambutnya lagi, dia tampak agak malu.
 
 Aku tidak tahu kenapa tapi karena suasana hatinya sepertinya tidak menjadi buruk, aku terus berjalan di sampingnya sementara armorku mengeluarkan suara dentingan.
 
