@@ -458,15 +458,15 @@ Selesai makan daging kadal, aku menelan semua jus dalam satu tarikan napas.
 
 “Uhn?”
 
-Dalam momen yang jarang terjadi, saat Solnea berbicara lebih dulu dengan saya, saya menanyakannya kembali dengan terkejut.
+Dalam momen yang jarang terjadi, saat Solnea berbicara duluan denganku, aku menanyakannya kembali dengan terkejut.
 
 Feirona pasti menganggapnya tidak biasa dan ekspresi tenang normalnya menunjukkan keterkejutan.
 
 "Tidak, aku hanya berpikir seperti yang kupikirkan, kamu sangat kuat, itu saja." (Sol)
 
-"Bisa aja. Ada banyak sekali orang yang lebih kuat dariku. Faktanya seseorang tepat di depanku. "
+"oh tolonglah. Ada banyak sekali orang yang lebih kuat dariku. Faktanya seseorang tepat di depanku. "
 
-Mengatakan bahwa saya melihat ke arah Feirona tetapi dia hanya tertawa dan tidak mengatakan apa-apa.
+aku melihat ke arah Feirona tetapi dia hanya tertawa dan tidak mengatakan apa-apa.
 
 "Begitukah?" (Sol)
 
