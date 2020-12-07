@@ -449,6 +449,8 @@ Tapi delusi kasar itu juga berlangsung sesaat. 2 banding 3, [suara] menyatakan b
 Sedangkan bagiku, aku lebih takut dengan omelan yang pasti akan aku dapatkan dari teman masa kecilku yang tersayang.
 
 
+<gambar> Vol4 140.png
+
 ------------------
 
 masariuman : NANI ?????
