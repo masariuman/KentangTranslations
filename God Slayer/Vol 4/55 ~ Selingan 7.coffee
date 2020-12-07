@@ -66,17 +66,17 @@ Sepertinya dia merasa sedikit bersalah tentang itu dan dia menggaruk kepalanya d
 
 “Tapi tidak mengubah fakta bahwa aku lebih tua, bukan?”
 
-Seolah-olah dia tidak puas, dia cemberut membuatnya terlihat sangat imut. Bagian dirinya yang begitu kekanak-kanakan, atau lebih tepatnya, sangat menggemaskan. Tangan kananku hampir bergerak untuk memeluknya tapi aku menggunakan kemauanku untuk menahan diri. Jika aku melakukan itu di tempat yang ramai, aku akan dicap mesum. Saya bukan Rin-san! (T / n: Kudou Rin)
+Seolah-olah dia tidak puas, souichi cemberut dan itu membuatnya terlihat sangat imut. Bagian dirinya yang begitu kekanak-kanakan, atau lebih tepatnya, sangat menggemaskan. Tangan kananku hampir bergerak untuk memeluknya tapi aku menahan diriku. Jika aku melakukan itu di tempat yang ramai, aku akan dicap mesum. aku bukan Rin-san!
 
 "Masaki-san, ada apa?" (Sou)
 
-Sepertinya aku terlalu banyak menatap wajahnya saat dia menatapku dengan bingung.
+Sepertinya aku terlalu banyak menatap wajahnya karena dia menatapku dengan bingung.
 
-Mengapa anak laki-laki ini begitu polos? Tidak, aku yakin dia tidak sebanyak itu tapi, bagaimana aku harus mengatakan ini ....... dia merasa seperti binatang kecil. Ini akan menjadi masalah yang berbeda jika dia benar-benar seperti Yamada-san atau otot daruma Itou-san, tapi tetap saja kenapa dia merasa sangat berbeda meskipun dia juga laki-laki? Sungguh, pria adalah makhluk aneh.
+Mengapa anak laki-laki ini begitu polos? Tidak, aku yakin dia tidak sepolos itu tapi, bagaimana aku harus mengatakan ini ....... dia merasa seperti binatang kecil. Ini akan menjadi masalah yang berbeda jika dia benar-benar seperti Yamada-san atau Itou-san, tapi tetap saja kenapa dia merasa sangat berbeda meskipun dia juga laki-laki? Sungguh, pria adalah makhluk aneh.
 
 “Umm, jadi, apakah kamu butuh sesuatu?” (Masaki)
 
-“Nah, aku hanya datang untuk memeriksamu.”
+“Nah, aku hanya datang untuk mengecekmu.”
 
 “Eh?”
 
@@ -84,29 +84,29 @@ Mengapa anak laki-laki ini begitu polos? Tidak, aku yakin dia tidak sebanyak itu
 
 “……… bukankah seharusnya kamu lebih mengkhawatirkan Yamada-san?”
 
-Melipat lenganku di depanku, aku mengatakan perasaan itu sedikit kecewa.
+Melipat lenganku di depanku, aku mengatakan itu dengan sedikit kecewa.
 
 Aku senang Souichi-kun mengkhawatirkanku, terlebih lagi karena dia datang jauh-jauh kepadaku dan berbicara denganku, tetapi, terasa aneh bahwa dia lebih mengkhawatirkanku.
 
 Melawan Yamada-san ......... yah, akulah yang membuat tantangan tapi aku tidak akan tergila-gila karenanya.
 
-Saya benar-benar tidak senang tentang bagaimana dia bersembunyi selama setahun penuh membuat semua orang khawatir itu saja.
+aku benar-benar tidak senang tentang bagaimana dia bersembunyi selama setahun penuh membuat semua orang khawatir itu saja.
 
 Setidaknya dia bisa mengirim satu atau dua surat untuk memberi tahu apakah dia baik-baik saja atau tidak. Aku tahu dia benci mengalami masalah dan juga penulis yang buruk, tapi tetap saja, aku tidak berharap dia menjadi tipe yang akan membuat rekan-rekannya khawatir seperti itu.
 
-Itulah kenapa aku merasa lega setelah akhirnya bertemu dengannya lagi tapi tetap saja bagiannya yang menyendiri / terpisah adalah …… ..baik, ya. Setidaknya, minta maaf sekali! Itu yang saya inginkan.
+Itulah kenapa aku merasa lega setelah akhirnya bertemu dengannya lagi tapi tetap saja bagiannya yang menyendiri / terpisah adalah …… ... Setidaknya, minta maaf sekali! Itu yang saya inginkan.
 
 Yah, aku hanya mencoba untuk melampiaskan amarahku tapi sepertinya Souichi-kun mengira aku hanya ingin melawannya.
 
-"Niichan, meskipun seperti itu, menganggapnya serius ketika dia membutuhkannya." (Sou)
+"Niichan, meskipun seperti itu, dia pasti menganggapnya serius." (Sou)
 
-"Betulkah? Dia masih terlihat sangat linglung di sebagian besar waktu bagiku. "
+"Betulkah? Dia masih terlihat sangat linglung bagiku. "
 
-"Yah, dia melakukannya, ya."
+"Yah, dia memang begitu, ya."
 
 Mengatakan itu dan memberikan senyum pahit, Souichi-kun menoleh untuk melihat ke arena.
 
-Di arena arena, Yamada-san masih bertengkar pedang dengan tentara bayaran acak. Ya, hanya bentrok pedang. Itu bahkan bukan perkelahian lagi. Sepertinya pendekar pedang bernama Yamada Renji menunjukkan keterampilan yang dia ketahui dan pelajari dari pengalamannya.
+Di arena arena, Yamada-san masih bertarung pedang dengan tentara bayaran. Ya, hanya beradu pedang. Itu bahkan bukan pertarungan lagi. Sepertinya pendekar pedang bernama Yamada Renji menunjukkan keterampilan yang dia ketahui dan pelajari dari pengalamannya.
 
 Itu ……… .Francesca kan? Aku ingin tahu apakah dia bahkan bisa mengerti kenapa Yamada-san menggunakan pedang pendek.
 
