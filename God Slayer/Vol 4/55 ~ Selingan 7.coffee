@@ -52,7 +52,7 @@ dan juga, dia masih ragu-ragu untuk menebas manusia. Seperti itu, mustahil untuk
 
 “……… dia adalah senpai mu, bukankah seharusnya kamu setidaknya pergi dan melihatnya?”
 
-“Ugh. Apa yang bisa saya lakukan, waktu dengan pertandingan saya terlalu buruk …… ”
+“Ugh. Apa yang bisa aku lakukan, timing dengan pertandinganku terlalu buruk …… ”
 
 Sepertinya dia merasa sedikit bersalah tentang itu dan dia menggaruk kepalanya dengan canggung.
 
