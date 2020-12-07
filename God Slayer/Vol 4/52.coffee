@@ -1,58 +1,58 @@
 Bab 52 Pedang dan Pedang (2)
 
-Menyerahkan pedang mithril saya kepada tentara yang berdiri di depan ruang tunggu, saya menyelinap ke dalam ruangan.
+Menyerahkan pedang mithrilku kepada tentara yang berdiri di depan ruang tunggu, aku masuk ke dalam ruangan.
 
-Di dalam, setidaknya ada 20 orang duduk di kursi atau melewatkan waktu dengan cara yang berbeda. Beberapa memeriksa pedang yang diberikan kepada mereka dengan mengangkatnya ke arah sinar matahari sementara beberapa berada dalam konsentrasi yang dalam dengan mata tertutup dan beberapa berbicara dengan kenalan.
+ada setidaknya 20 orang duduk di kursi. sebagian memeriksa pedangnya yang diberikan kepada mereka dengan mengangkatnya ke arah sinar matahari sementara sebagian orang berada dalam konsentrasi yang dalam dengan mata tertutup dan beberapa berbicara dengan kenalan mereka sendiri.
 
-Untuk menjauh sejauh mungkin dari mereka, saya duduk di kursi yang paling dekat dengan dinding yang tidak menonjol sama sekali.
+Untuk menjauh sejauh mungkin dari mereka, aku duduk di kursi yang paling dekat dengan dinding yang tidak menonjol sama sekali.
 
 "Haah."
 
-[Apa yang salah?]
+[ada apa?]
 
-"Saya mulai merasa gugup."
+"aku mulai merasa gugup."
 
-[………. Seharusnya aku yang mendesah sekarang.]
+[………. Seharusnya aku yang menghela nafas sekarang.]
 
-Saat mendengar suara muak Ermenhilde yang biasa, saya melihat beberapa peserta lagi memasuki ruangan beberapa saat setelah saya melakukannya.
+ketika mendengar suara muak Ermenhilde yang biasa, aku melihat beberapa peserta lagi memasuki ruangan.
 
-Seorang pria jangkung dengan rambut merah cerah, kulit kecokelatan dan wajah yang benar-benar terlihat seperti tentara bayaran, bersama dengan pria tinggi pendek yang mungkin kurang dari orang lain.
+Seorang pria panjang dengan rambut merah cerah, kulit kecokelatan dan wajah yang benar-benar terlihat seperti tentara bayaran, bersama dengan pria tinggi pendek yang mungkin pendek dari orang lain.
 
-Dan orang akrab lainnya yang sepertinya bertengkar / berdebat dengan keduanya. Seorang wanita, berpakaian jauh lebih indah dari mereka berdua, dengan jubah biru —— Ms Francesca. Sepertinya kami berada di ruang tunggu yang sama.
+Dan orang yang tidak asing lainnya dan sepertinya sedang bertengkar / berdebat dengan keduanya. Seorang wanita, berpakaian jauh lebih indah dari mereka berdua, dengan jubah biru —— nona Francesca. Sepertinya kami berada di ruang tunggu yang sama.
 
-Sepertinya dia bisa cukup istirahat kemarin karena wajahnya terlihat segar. Tapi, dia sepertinya terganggu oleh dua lainnya. Senyuman lembutnya yang biasa tampak agak menegang.
+Sepertinya dia beristirahat kemarin karena wajahnya terlihat segar. Tapi, dia sepertinya terganggu oleh dua orang lainnya. Senyuman lembutnya tampak agak menegang.
 
-Tapi tetap saja, Merc berambut merah itu tidak lebih tinggi dari Ms Francesca. Yah, dia memang lebih tinggi dari rata-rata wanita di dunia ini. Namun, pria itu tampak jauh lebih besar darinya terutama karena dia mengenakan baju besi penuh di atas otot besarnya tidak seperti dia.
+Tapi tetap saja, Merc berambut merah itu tidak lebih tinggi dari nona Francesca. Yah, dia memang lebih tinggi dari kebanyakan wanita di dunia ini. Namun, pria itu tampak jauh lebih besar darinya terutama karena dia mengenakan baju besi penuh di atas otot besarnya.
 
-"Aku akan benar-benar dikuasai jika aku harus melawan seseorang seperti itu."
+"Aku akan benar-benar kalah jika aku harus melawan seseorang seperti itu."
 
-[Hanya jika kamu dengan bodoh menyerangnya secara langsung.]
+[itu kalau kamu dengan bodoh menyerangnya secara langsung.]
 
-Itu benar, kurasa. Yah, aku mungkin tidak perlu melawannya.
+Itu benar. Yah, aku mungkin tidak perlu melawannya.
 
-Tapi tetap saja, rasanya jauh lebih nyaman ketika salah satu kenalan Anda ada di sini. Melihat Ms Francesca di sini, saya merasa diri saya sedikit rileks.
+Tapi tetap saja, rasanya jauh lebih nyaman ketika salah satu kenalanmu ada di sini. Melihat nona Francesca di sini, aku merasa sedikit rileks.
 
 Sepertinya Souichi dan Masaki-chan ada di ruang tunggu lain jadi aku merasa agak kesepian.
 
-[Mereka sepertinya sedang berdebat, tahu?]
+[Mereka sepertinya sedang berdebat.]
 
-"Ya, saya bisa melihat itu."
+"Ya, aku bisa melihat itu."
 
-Dia masih belum memperhatikanku. Tidak tahu bagaimana menangani ini, dia sepertinya hanya mencoba untuk membalas senyuman entah bagaimana. Bahkan suaranya saat membantah tampak agak lemah.
+Dia masih belum menyadariku. Tidak tahu bagaimana menangani ini, dia sepertinya hanya mencoba untuk membalasnya dengan senyumannya. Bahkan suaranya saat membantah tampak agak lemah.
 
-Menilai dari itu, pria itu mungkin tidak akan mundur sama sekali. Nyatanya, dia sepertinya hampir menikmatinya.
+pria itu mungkin tidak akan mundur sama sekali. Nyatanya, dia sepertinya hampir menikmatinya.
 
-Ketika berhadapan dengan tipe pria seperti itu, agak bermasalah untuk langsung melawan mereka dan memprovokasi mereka lebih lagi, tetapi jika Anda tidak berdiri kuat, Anda akan membiarkan mereka menjadi sombong. Apalagi di depan wanita pemalu.
+Ketika berhadapan dengan tipe pria seperti itu, agak repot untuk langsung melawan mereka dan memprovokasi mereka lebih jauh lagi, tetapi jika kamu tidak berdiri kuat, kamu akan membiarkan mereka menjadi sombong. Apalagi di depan wanita pemalu.
 
-“Betapa hidup.”
+“hebohnya.”
 
-[Bagaimana kalau bertanya pada pria itu apakah dia bisa berbagi setengah energinya denganmu?]
+[Bagaimana kalau kau bertanya pada pria itu apakah dia bisa berbagi setengah energinya denganmu?]
 
 "Fumu, itu mungkin menarik."
 
 [……… ..haah.]
 
-Melihat orang-orang seperti itu, Anda mungkin tidak salah untuk merasa bahwa semua tentara bayaran itu kasar dan kasar seperti pria itu, saya rasa.
+Melihat orang-orang seperti itu, kamu mungkin tidak salah untuk merasa bahwa semua tentara bayaran itu kasar seperti pria itu.
 
 Tapi saya tahu tidak semua seperti itu. Tapi hanya karena ada satu orang seperti itu, semuanya mendapat reputasi buruk.
 
