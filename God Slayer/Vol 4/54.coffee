@@ -816,11 +816,11 @@ Saat aku mengatakan itu, Mururu dengan cepat menahan ekornya. Melihat ekspresiny
 
 Pada awalnya dia benar-benar tanpa ekspresi ……… yah tidak sebanyak itu tapi tetap saja dia juga tidak terlalu ekspresif. Dia telah tumbuh, atau lebih tepatnya, berubah.
 
-"Aku akan menyerahkan Ms Francesca padamu sekarang." (Renji)
+"Aku akan menyerahkan nona Francesca padamu sekarang." (Renji)
 
-“Renji adalah?”
+“Renji?”
 
-"Saya memiliki pertandingan saya berikutnya."
+"aku memiliki pertandinganku berikutnya."
 
 Saya tidak terlalu antusias tentang itu.
 
