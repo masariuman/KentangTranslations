@@ -184,13 +184,13 @@ Perbedaan terbesar antara keduanya adalah ketajaman, dan ketahanan. Katana yang 
 
 Sebaliknya, pedang normal lebih digunakan untuk menebas / merobohkan lawan daripada memotong. Tapi daya tahannya jauh melebihi katana. Karena mereka dibuat hanya untuk digunakan di medan perang, kurasa itu sudah jelas.
 
-Jika aku punya cara untuk menang melawan Masaki-chan, itu adalah mematahkan katananya. Itulah satu-satunya cara.
+Jika aku punya cara untuk menang melawan Masaki-chan, caranya adalah dengan mematahkan katananya. Itulah satu-satunya cara.
 
-Dalam hal kemampuan fisik, kecepatan reaksi, pada dasarnya semuanya, saya di bawahnya jadi itulah satu-satunya pilihan yang saya miliki. Yaitu, untuk menghancurkan katananya di bentrokan pertama senjata kami saat dia pasti akan menebaskan pedang dengan benar denganku.
+Dalam hal kemampuan fisik, kecepatan reaksi, pada dasarnya semuanya, aku di bawahnya jadi itulah satu-satunya pilihan yang aku miliki, yaitu untuk menghancurkan katananya di bentrokan pertama senjata kami saat dia pasti akan menebaskan pedang dengan benar.
 
 Tapi, berakhir dengan kegagalan.
 
-Saya mencoba untuk dengan cepat membuka jarak di antara kami tetapi, dia tidak mengizinkan saya. Saat saya melangkah mundur, dia mulai dengan cepat melangkah ke arah saya. Katananya yang terhunus sekali lagi di dalam sarung bahkan sebelum aku menyadarinya dan dia menghambur ke arahku dengan pinggangnya lebih rendah daripada pinggangku yang telah menghunus pedang.
+aku mencoba untuk dengan cepat membuka jarak di antara kami tetapi, dia tidak mengizinkanku melakukannya. Saat aku melangkah mundur, dia mulai dengan cepat melangkah ke arahku. Katananya yang terhunus sekali lagi di dalam sarung bahkan sebelum aku menyadarinya dan dia bergerak ke arahku dengan pinggangnya lebih rendah daripada pinggangku yang telah menghunus pedang.
 
 Dengan banyak merendahkan tubuhnya, membuatku sulit untuk menyerangnya. Biarpun aku mencoba menyerang, akan sulit bagiku untuk membidiknya dengan benar. Bahkan jika aku mengayunkan pedangku, aku tidak akan bisa mengeluarkan kekuatan yang cukup di balik ayunanku.
 
@@ -206,7 +206,7 @@ Kelihatannya sangat menyedihkan, tapi aku segera berdiri dan mempersiapkan pedan
 
 Sekali lagi, dia menyerbu ke arahku dengan kekuatan yang hampir cukup untuk menghancurkan lantai batu, tapi kali ini untuk menyamainya, aku juga terjun ke tengahnya.
 
-Sebelumnya, saya berpura-pura bahwa saya akan melompat ke belakang terlebih dahulu sebelum mengubah arah saya. Tapi itu tidak akan berhasil lagi. Setidaknya tidak dalam pertarungan ini.
+Sebelumnya, aku berpura-pura bahwa aku akan melompat ke belakang terlebih dahulu sebelum mengubah arahku. Tapi itu tidak akan berhasil lagi. Setidaknya tidak dalam pertarungan ini.
 
 Kemudian, daripada menghentikan pedangnya, aku melangkah untuk memblokir serangannya langsung dari cengkeramannya yang tidak bisa menebasku apapun yang terjadi. Tapi sepertinya gerakan saya terlihat karena dia tidak menyarungkan katananya kali ini. Daripada menggunakan teknik menggambarnya untuk ketiga kalinya, dia membuat tebasan normal. Tapi tebasan yang dia buat mungkin lebih tajam dari pada Souichi ——-
 
