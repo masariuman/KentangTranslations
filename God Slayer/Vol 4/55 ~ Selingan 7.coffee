@@ -254,7 +254,7 @@ Dan seperti yang diharapkan, tanpa menyadari niatku, dia menanyakan itu.
 
 Wajahnya yang benar-benar bingung sangat menyakitkan.
 
-Meskipun kekuatan di lenganku yang bertumpu pada katanaku bertambah, itu tidak buruk bukan?
+sampai kekuatan di lenganku yang bertumpu pada katanaku bertambah, itu tidak buruk bukan?
 
 "Ah."
 
@@ -264,7 +264,7 @@ Itu adalah Yamada-san.
 
 Yah, itu bukanlah kejutan. Di arena, Yamada-san, sambil bernapas sedikit terengah-engah, mengulurkan tangan untuk membantu tentara bayaran yang berlutut menggunakan pedang besarnya sebagai penyangga.
 
-Pada saat yang sama, saya melepaskan milik saya dari atas katana saya dan dengan ringan menampar pipi saya sendiri. Meskipun ada juga fakta bahwa rasanya tidak bijaksana untuk menjadi seperti ini sebelum pertandingan saya, tetapi di atas semua itu saya hanya tidak ingin ada yang menyadari betapa merahnya pipi saya.
+Pada saat yang sama, aku dengan ringan menampar pipiku sendiri. Meskipun ada juga fakta bahwa rasanya tidak bijaksana untuk menjadi seperti ini sebelum pertandinganku, tetapi aku hanya tidak ingin ada yang menyadari betapa merahnya pipiku.
 
 "Apa yang terjadi?
 
@@ -272,7 +272,7 @@ Pada saat yang sama, saya melepaskan milik saya dari atas katana saya dan dengan
 
 “…… .Eeeehh ??”
 
-Dari apa yang saya lihat, gaya bertarung Yamada-san tidak berubah. Dodge serangan, menangkis, dan menyerang di pembukaan untuk mengakhirinya. Itu berbeda dari smashing yang sangat kuat yang dia lakukan pada hari itu. Itu adalah cara asli dia bertarung. Melihatnya, saya merasa lega namun juga sedikit kecewa.
+Dari apa yang aku lihat, gaya bertarung Yamada-san tidak berubah. menghindari serangan, menangkis, dan menyerang di celah untuk mengakhirinya. Itu berbeda dari tebasan yang sangat kuat yang dia lakukan pada hari itu. Itu adalah cara asli dia bertarung. Melihatnya, aku merasa lega namun juga sedikit kecewa.
 
 Sebagai seseorang yang telah melihat amarah Yamada-san yang sebenarnya, saya ingin melawan Yamada-san itu tapi ——- kendala menempatkan Eru. Saya tidak tahu apa yang ketujuh. Dan, di atas semua itu, benar-benar membuat marah seseorang yang kamu percayai ......... menyakitkan hati saya juga.
 
