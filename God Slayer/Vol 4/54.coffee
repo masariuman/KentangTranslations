@@ -360,13 +360,13 @@ Sungguh menakjubkan bagaimana Kudou tidak peduli sama sekali tentang semua itu. 
 
 Saat aku mengatakan itu, dia tertawa licik saat menatapku.
 
-Ekspresinya berubah dari yang diikat menjadi yang menggoda. Dia terlihat seperti kucing, hampir.
+Ekspresinya berubah dari datar menjadi yang mengganggu. Dia terlihat seperti kucing, hampir.
 
 "Apa?"
 
 “Fufu, seperti biasa, itu terlihat di wajahmu, Yamada-san.”
 
-“Seperti biasa, kamu sangat suka menggoda bukan, Kudou.”
+“Seperti biasa, kamu sangat suka mengganggu, Kudou.”
 
 Sambil menggaruk bagian belakang kepalaku, aku melihat ke atas untuk menghindari tatapannya.
 
