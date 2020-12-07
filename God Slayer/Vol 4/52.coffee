@@ -134,23 +134,23 @@ Tapi baginya, tidak mengatakan apa-apa pasti membuatnya semakin kesal saat dia m
 
 Aku rasa aku akan menjadi orang yang akhirnya dipukuli. aku kira sikapnya pasti sangat menjengkelkan bagi Ermenhilde. Yah, itu sama untukku juga.
 
-Meskipun turnamen akan segera dimulai, mengapa saya harus melalui sesuatu seperti ini di ruang tunggu?
+Meskipun turnamen akan segera dimulai, mengapa aku harus melalui sesuatu seperti ini di ruang tunggu?
 
-Lengannya yang saat ini tepat di samping wajahku bahkan lebih tebal dari tanganku. Tapi tidak dengan cara berlemak dan tidak sehat. Itu benar-benar lengan yang sangat terlatih dan berotot. Respon saya pasti tampak sangat menjengkelkan dia bahkan pembuluh darah bermunculan di lengannya.
+Lengannya yang saat ini tepat di samping wajahku bahkan lebih tebal dari tanganku. Itu benar-benar lengan yang sangat terlatih dan berotot. Responku pasti tampak sangat menjengkelkannya bahkan pembuluh darah bermunculan di lengannya.
 
-Meskipun yang sangat saya suka menggoda adalah Ermenhilde, hanya Ms Francesca dan Souichi yang memberikan reaksi yang sangat lucu.
+padahal yang sangat aku suka ganggu adalah Ermenhilde, hanya nona Francesca dan Souichi yang memberikan reaksi yang sangat lucu.
 
-“Oi, bisakah kamu tidak mendengarku!?!”
+“Oi, bisakah kamu mendengarku!?!”
 
-“Saya bisa.” (Renji)
+“bisa.” (Renji)
 
 Tapi tetap saja, wajahmu terlalu dekat.
 
-Saya merasa seperti ludahnya akan datang pada saya yang akan menjijikkan.
+aku merasa seperti ludahnya mengenai mukaku.
 
-Sepertinya perasaanku terlihat di wajahku saat dia semakin marah dengan wajah merah. Peserta lain, meskipun memiliki perhatian penuh terhadap kami, bertindak seolah-olah itu tidak menjadi perhatian mereka dan tidak berusaha membantu saya sama sekali.
+Sepertinya perasaanku terlihat di wajahku karena dia semakin marah dengan wajah merah. Peserta lain, meskipun menonton kami, bertindak seolah-olah itu tidak menjadi perhatian mereka dan tidak berusaha membantuku sama sekali.
 
-Aku benar-benar ingin menangis. Tapi, oh baiklah, jika itu aku yang menggantikan mereka, aku akan bertindak sama.
+Aku benar-benar ingin menangis. Tapi, oh baiklah, jika itu aku, aku akan bertindak sama.
 
 “Ayo, turnamen sudah dekat kan? Mengapa kamu tidak mencoba dan mengistirahatkan tubuhmu sebentar? ”(Renji)
 
