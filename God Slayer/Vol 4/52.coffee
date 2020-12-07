@@ -362,7 +362,7 @@ Mungkin bukan hanya imajinasiku saja kalau suaranya juga tampak sedikit khawatir
 
 [fufu, itu benar.]
 
-“Mengatakan bahwa kamu kuat hanya untuk kalah nanti adalah hal yang memalukan.”
+“Mengatakan kamu kuat dan ujung-ujungnya kalah adalah hal yang memalukan.”
 
 Bahkan aku tidak akan mampu menahan rasa malu seperti itu.
 
