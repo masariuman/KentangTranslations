@@ -12,47 +12,47 @@ Memiliki mantra penyembuhan yang sepertinya lebih seperti membalikkan waktu itu 
 
 Bersama yayoi-chan, sama seperti jika kami berada di rumah sakit, kami berdua saat ini berada di balik tirai putih bersama dengan pendeta lainnya.
 
-Karena ada wanita di antara kontestan juga, itu hal yang sangat jelas untuk dilakukan. Berkat itu, saya bisa berbicara dengan Yayoi-chan dengan nyaman.
+Karena ada wanita di antara kontestan juga, itu hal yang sangat jelas untuk dilakukan. Berkat itu, aku bisa berbicara dengan Yayoi-chan dengan nyaman.
 
 "Seperti yang diharapkan, senang sekali yayoi-chan ada di sini." (Renji)
 
 “Uu …… ..Aku senang kamu mengatakan itu tapi tetap saja…”
 
-Dia memiliki ekspresi yang agak tidak puas di wajahnya. Mungkin karena dia ada di sini, di rumah sakit Coliseum.
+Dia memiliki ekspresi yang agak tidak puas di wajahnya. Mungkin karena dia ada di sini, di ruang berobat collesium.
 
-Meskipun begitu, tempat ini tidak memiliki fasilitas khusus seperti rumah sakit atau klinik yang sebenarnya. Itu hanyalah sebuah ruangan dengan banyak tempat tidur dengan seprai putih bersih tersebar di atasnya dan beberapa set kursi kayu seperti yang kami duduki saat ini.
+Meskipun begitu, tempat ini tidak memiliki fasilitas khusus seperti ruang kesehatan atau klinik yang sebenarnya. Itu hanyalah sebuah ruangan dengan banyak tempat tidur dengan seprai putih bersih tersebar di atasnya dan beberapa set kursi kayu seperti yang kami duduki saat ini.
 
-Dan duduk di semua kursi itu adalah pendeta lain yang menyembuhkan kontestan turnamen.
+yang duduk di semua kursi itu adalah pendeta lain yang menyembuhkan kontestan turnamen.
 
-Sepertinya yayoi-chan sangat populer karena kalimat setelah saya luar biasa.
+Sepertinya yayoi-chan sangat populer karena antrian setelahku luar biasa.
 
 ………… ..Bahkan ada beberapa yang jelas bukan peserta tapi mereka pasti orang yang hanya ingin melihat Yayoi-chan.
 
-Saat ini, dia telah mengikat ke belakang rambut hitam panjangnya yang biasanya longgar di belakang lehernya dan juga tidak mengenakan seragam atau pakaian sipil, tetapi mengenakan jubah putih bersih dengan sulaman emas. Itu menyerupai jubah yang dikenakan oleh pemuja Dewi Astraera lainnya tetapi memiliki detail yang lebih indah.
+Saat ini, dia telah mengikat ke belakang rambut hitam panjangnya yang biasanya berkibar di belakang lehernya dan juga tidak mengenakan seragam atau pakaian warga, tetapi mengenakan jubah putih bersih dengan sulaman emas. Itu menyerupai jubah yang dikenakan oleh pemuja Dewi Astraera lainnya tetapi memiliki detail yang lebih indah.
 
 Memiliki kemampuan untuk melakukan keajaiban dewi secara langsung, yayoi-chan menempati posisi yang sangat tinggi di antara para pendeta. Atau lebih tepatnya, dia telah secara resmi dinyatakan sebagai [Saint] (wanita suci).
 
 Sebagai orang yang dipanggil oleh Dewi sendiri, kita 13 sudah dianggap sebagai makhluk yang lebih tinggi oleh manusia yang menyembah Dewi Dan bahkan di antara kita, Yayoi-chan yang bisa menyembuhkan semua luka, menyembuhkan penyakit apa pun dipandang seolah-olah dia sendiri adalah dewi. .
 
-Di beberapa titik, dia mulai disebut sebagai [Orang Suci], pada saat dia belajar untuk bertindak dan bekerja sebagai [Orang Suci] sejati dan pada saat perjalanan berakhir, dia telah menyelamatkan banyak orang.
+dia dipanggil sebagai [Saint]. pada saat dia belajar untuk bertindak dan bekerja sebagai [Saint] sejati dan pada saat perjalanan berakhir, dia telah menyelamatkan banyak orang.
 
 Dari sudut pandang kami yang hanya tahu bagaimana bertarung, apa yang dia lakukan benar-benar mengagumkan juga tapi untuk Yayoi-chan sendiri, hanya ada satu pria yang lukanya ingin dia terus sembuhkan.
 
-Emosinya terlihat jelas di wajahnya dan seseorang di depannya sekarang, aku hanya bisa memberikan senyuman masam.
+Emosinya terlihat jelas di wajahnya dan seseorang di depannya sekarang, aku hanya bisa memberikan senyum paksa.
 
 “Aku juga ingin memakai gaun yang cantik ……” (Yayoi)
 
-“Kamu bisa memakai satu sebanyak yang kamu mau setelah turnamen selesai.”
+“Kamu bisa memakainya sebanyak yang kamu mau setelah turnamen selesai.”
 
 “…… .Aku ingin mengenakan gaun yang cantik dan mendukung Onii-chan.”
 
-Dia benar-benar mengoreksi pernyataannya, brocon ini.
+Dia benar-benar mengoreksi pernyataannya, dasar brocon.
 
-Yayoi-chan menyukai Souichi. Sebagai orang luar, saya tidak tahu apakah itu sebagai saudara kandung atau sebagai laki-laki.
+Yayoi-chan menyukai Souichi. Sebagai orang luar, aku tidak tahu apakah itu sebagai saudara kandung atau sebagai laki-laki.
 
 Ada kalanya aku merasa dia melangkah sangat jauh, namun di saat yang sama ada saat di mana dia menjaga jarak seperti saudara normal juga.
 
-Ada kalanya dia begitu dekat dengannya bahkan Souichi akan bingung namun dia akan mengklaim bahwa itu hanya karena mereka saudara laki-laki dan perempuan. Tampaknya sisi dirinya menjadi sedikit lebih menonjol setelah datang ke dunia ini dan dia sering diberitahu tentang hal ini oleh Souichi sendiri dan Aya, yang merupakan sahabatnya.
+Ada kalanya dia begitu dekat dengannya bahkan Souichi kebingungan namun dia akan mengklaim bahwa itu hanya karena mereka bersaudara. Tampaknya sisi dirinya menjadi sedikit lebih menonjol setelah datang ke dunia ini dan dia sering diberitahu tentang hal ini oleh Souichi sendiri dan Aya, yang merupakan sahabatnya.
 
 Utano-san juga sangat memperhatikannya tetapi bahkan setelah satu tahun ini, tidak ada perubahan dalam dirinya.
 
@@ -60,31 +60,31 @@ Utano-san juga sangat memperhatikannya tetapi bahkan setelah satu tahun ini, tid
 
 “Muu, Renji onii-san?”
 
-“Tidak, aku hanya bertanya-tanya apakah Souichi bahkan memiliki ketenangan untuk melihat gaun sekarang.”
+“Tidak, aku hanya penasaran apakah Souichi bahkan bisa tenang untuk melihat gaun sekarang.”
 
 “Muu ..”
 
-Saat aku mengatakan itu, dia menggembungkan pipinya karena tidak puas. Saya kira dia masih ingin menunjukkan penampilannya yang berpakaian kepada orang yang dia suka. Yayoi-chan jauh lebih dewasa dari orang lain seusianya tapi hanya dalam hal ini, dia masih sangat feminin.
+Saat aku mengatakan itu, dia menggembungkan pipinya karena tidak puas. aku kira dia masih ingin menunjukkan penampilannya dengan baik kepada orang yang dia suka. Yayoi-chan jauh lebih dewasa dari orang lain seusianya tapi hanya dalam hal ini, dia masih sangat feminin.
 
-Tapi sebenarnya, ketika Souichi berkonsentrasi pada sesuatu, ada kalanya dia kehilangan pandangan tentang hal lain secara harfiah. Sangat mengejutkan melihat tingkat konsentrasinya di turnamen seperti ini di mana Anda harus bertarung di depan banyak orang.
+Tapi sebenarnya, ketika Souichi berkonsentrasi pada sesuatu, ada kalanya dia kehilangan pandangan tentang hal lain secara harfiah. Sangat mengejutkan melihat tingkat konsentrasinya di turnamen seperti ini di mana kamu harus bertarung di depan banyak orang.
 
 Aku yakin sekarang, kepalanya hanya dipenuhi dengan bagaimana dia akan melawanku atau Masaki-chan.
 
-Saya telah berdebat dengannya sebagai pelatihan selama perjalanan kami beberapa kali tetapi kami jarang bertarung dengan benar. Terutama aku dan Souichi, kami hanya bertarung sekali seperti itu.
+aku telah berlatih dengannya sebagai selama perjalanan kami beberapa kali tetapi kami jarang bertarung dengan serius. Terutama aku dan Souichi, kami hanya bertarung sekali seperti itu.
 
 Karena itulah, aku yakin dia sedang memikirkan cara untuk melawanku atau Masaki-chan saat ini.
 
-Dan karena dia tahu kepribadiannya juga, yayoi-chan menghela nafas dalam-dalam. Seorang [Saint] seharusnya tidak membuat wajah seperti itu, sungguh.
+Dan karena dia tahu kepribadiannya juga, yayoi-chan menghela nafas dalam-dalam. Seorang [Saint] seharusnya tidak membuat wajah seperti itu, serius.
 
 “Tapi tetap saja, aku yakin gaun seperti itu akan cocok dengan Yayoi-chan juga.” (renji)
 
-" 'demikian juga'? bagaimana apanya?"
+" 'juga'? Apa Maksudmu?"
 
 Aduh, aduh!
 
-Bisakah kamu tidak menggenggam tanganku begitu erat?
+Bisakah kamu tidak menggenggam tanganku begitu kuat?
 
-Tidak seperti dia, saya tidak memiliki perlindungan ilahi dari Astraera jadi saya lebih lemah dari gadis di depan saya ini bahkan dalam hal kekuatan genggaman sederhana. Sungguh, ini cerita yang menyedihkan.
+Tidak seperti dia, aku tidak memiliki perlindungan ilahi dari Astraera jadi aku lebih lemah dari gadis di depanku ini bahkan dalam hal kekuatan genggaman. Sungguh, ini menyedihkan.
 
 “Tersenyumlah, tersenyum!” (Renji)
 
