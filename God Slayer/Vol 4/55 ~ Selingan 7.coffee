@@ -180,7 +180,7 @@ Itu, ketika dia mengatakan 'Saya percaya pada oniichan!', bahkan aku tidak bisa 
 
 aku yakin Aya akan membuat wajah yang sama juga. Apakah karena mereka adalah teman masa kecil, atau karena mereka berdua mempercayai Yamada-san dengan sepenuh hati?
 
-Fakta yang menurutku tidak menyenangkan mungkin karena fakta bahwa Souichi-kun lebih menyukai Yamada-san ........ membuatku merasa persaingan aneh ini, atau haruskah aku mengatakan cemburu, aku yakin. Saya tidak bisa menyangkalnya. Atau lebih tepatnya, aku bahkan tidak ingin berpikir tentang kalah dari pria dalam hal seperti itu!
+Fakta yang menurutku tidak menyenangkan mungkin karena fakta bahwa Souichi-kun lebih menyukai Yamada-san ........ membuatku merasa persaingan aneh ini, atau haruskah aku mengatakan cemburu, aku yakin. aku tidak bisa menyangkalnya. Atau lebih tepatnya, aku bahkan tidak ingin berpikir tentang kalah dari pria dalam hal seperti itu!
 
 Aku tahu kenapa Souichi-kun sangat memikirkan Yamada-san, lagipula, aku sudah melihat pemandangan seperti itu berkali-kali. Tidak peduli berapa banyak monster yang berdiri di depan, bahkan melawan keturunan raksasa dari Dewa Iblis, bahkan melawan Raja Iblis baik aku dan Souichi-kun tidak bisa mengalahkan bahkan bersama-sama —– dia, Yamada-san, berdiri di depan kami semua . Tanpa membuat alasan bahwa dia adalah yang paling lemah, dia memperlakukan kami sebagai anak-anak karena dia sudah dewasa ……… dan punggungnya terasa cukup besar, cukup layak baginya untuk mengatakan itu.
 
