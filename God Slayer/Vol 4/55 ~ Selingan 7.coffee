@@ -274,7 +274,7 @@ Pada saat yang sama, aku dengan ringan menampar pipiku sendiri. Meskipun ada jug
 
 Dari apa yang aku lihat, gaya bertarung Yamada-san tidak berubah. menghindari serangan, menangkis, dan menyerang di celah untuk mengakhirinya. Itu berbeda dari tebasan yang sangat kuat yang dia lakukan pada hari itu. Itu adalah cara asli dia bertarung. Melihatnya, aku merasa lega namun juga sedikit kecewa.
 
-Sebagai seseorang yang telah melihat amarah Yamada-san yang sebenarnya, saya ingin melawan Yamada-san itu tapi ——- kendala menempatkan Eru. Saya tidak tahu apa yang ketujuh. Dan, di atas semua itu, benar-benar membuat marah seseorang yang kamu percayai ......... menyakitkan hati saya juga.
+Sebagai seseorang yang telah melihat amarah Yamada-san yang sebenarnya, aku ingin melawan Yamada-san tapi ——- kendalanya di Eru. aku tidak tahu apa perjanjian yang ketujuh. Dan juga benar-benar membuat marah seseorang yang kamu percayai ......... menyakitkan hatiku juga.
 
 Untuk saat ini, semoga suatu hari nanti aku bisa melawan Yamada-san dengan kekuatan penuhnya.
 
