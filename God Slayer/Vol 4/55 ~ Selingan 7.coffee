@@ -120,7 +120,7 @@ Bahkan di panggung yang hebat ini, Yamada-san berjuang bukan untuk dirinya sendi
 
 Bukan untuk dirinya sendiri, tapi untuk orang lain. Selalu.
 
-Sebagai seseorang yang tidak bisa melawan jika tidak —— Kurasa, bagian dirinya itu tidak akan pernah berubah.
+Kurasa, bagian dirinya itu tidak akan pernah berubah.
 
 “Tapi jika dia bisa berubah sedikit, alangkah baiknya jika dia bisa memperlakukan Yuuko-san sedikit lebih baik.” (Masaki)
 
@@ -128,9 +128,9 @@ Sebagai seseorang yang tidak bisa melawan jika tidak —— Kurasa, bagian dirin
 
 Mengatakan itu, dia menurunkan bahunya.
 
-Saat aku melihatnya, dia hanya memberikan senyum masam sambil mengangkat bahu. Sikap itu benar-benar tidak cocok untuknya sama sekali daripada terlihat keren, terlihat imut lebih cocok untuknya.
+Saat aku melihatnya, dia hanya memberikan senyum paksa sambil mengangkat bahu. Sikap itu benar-benar tidak cocok untuknya sama sekali daripada terlihat keren, terlihat imut lebih cocok untuknya.
 
-"Bagaimanapun, akulah yang harus menghadapi akibatnya." (Sou)
+"Bagaimanapun juga, akulah yang harus menghadapi akibatnya." (Sou)
 
 "Itu mungkin karena kamu terlalu bodoh."
 
@@ -140,19 +140,19 @@ Tapi, dia meragukan dirinya sendiri tentang itu juga sepertinya dia mengalihkan 
 
 Sepertinya dia telah diberitahu beberapa kali oleh teman-temannya di sekolah juga mungkin. Rasanya seperti itu.
 
-Juga, Souichi-kun pasti padat. Saya bisa mengatakan itu dengan percaya diri dan bangga.
+Juga, Souichi-kun sangat tidak peka. aku bisa mengatakan itu dengan percaya diri.
 
 “Bagaimana menurutmu, Souichi-kun?”
 
 “Hm?”
 
-“Tentang Yamada-san …… ..dia, menyimpan semacam rahasia, tahu?”
+“Tentang Yamada-san …… ..dia, seperti menyimpan semacam rahasia.”
 
 “———-”
 
 Wajahnya yang kaku semakin menegang saat dia berbalik ke arah pertarungan Yamada-san di arena. Aku juga menoleh untuk melihatnya.
 
-Setahun yang lalu, dia adalah tipe pria yang sering tertawa. Tapi, dalam apa yang saya lihat selama beberapa minggu terakhir, dia jarang tertawa. Tidak, bahkan ketika dia tertawa di permukaan, jika Anda bertanya apakah itu dari lubuk hatinya, saya harus menggelengkan kepala. Senyuman seperti itu yang selalu dimiliki Yamada-san saat ini.
+Setahun yang lalu, dia adalah tipe pria yang sering tertawa. Tapi, dalam apa yang aku lihat selama beberapa minggu terakhir, dia jarang tertawa. Tidak, bahkan ketika dia tertawa di luar, jika kamu bertanya apakah itu dari lubuk hatinya, aku harus menggelengkan kepala. Senyuman seperti itu yang dimiliki Yamada-san saat ini.
 
 "Aku tahu." (Sou)
 
@@ -160,9 +160,9 @@ Sudah kuduga, Yamada-san sangat mudah dimengerti.
 
 Saat pertarungan kita dengan Dewa Iblis diselesaikan. Kita semua ingat dengan jelas amarah yang dia lepaskan pada saat itu.
 
-Yamada-san tidak pernah semarah itu sebelumnya. Tetapi pada saat itu, dia mengungkapkan amarahnya yang total, bahkan kami semua merasa takut padanya, dan bahkan sekarang aku tidak pernah bisa melupakan punggungnya saat dia dengan marah menyerbu ke arah Dewa Iblis.
+Yamada-san tidak pernah semarah itu sebelumnya. Tetapi pada saat itu, dia mengungkapkan amarahnya seluruhnya, bahkan kami semua merasa takut padanya, dan bahkan sekarang aku tidak pernah bisa melupakan punggungnya saat dia dengan marah menyerang ke arah Dewa Iblis.
 
-Saya yakin, semua orang sudah menyadarinya. Mereka telah menyadarinya, namun tidak ada yang berani bertanya.
+aku yakin, semua orang sudah menyadarinya. Mereka telah menyadarinya, namun tidak ada yang berani bertanya.
 
 Dan pria itu, selama kita tidak bertanya, dia tidak akan membicarakannya, kurasa.
 
