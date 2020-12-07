@@ -694,21 +694,21 @@ aku balas menatapnya hanya untuk melihatnya membungkuk lagi.
 
 “Jangan khawatir tentang itu. aku lebih khawatir tentangmu daripada pertandinganku berikutnya. "
 
-[...... Kamu, benar-benar bisa memukul perempuan semulus bernapas, bukan?]
+[...... kau, benar-benar bisa menggoda perempuan semulus bernapas? dasar fakboi.] (TN: sorry yg bilang fakboi bukan eru tapi saya sendiri hahahah...)
 
 “Bukan itu. Seperti apa kau mendengarnya, idiot. "
 
-[idiot? Siapa yang kamu sebut idiot!]
+[idiot? Siapa yang kau sebut idiot!]
 
-Melihat olok-olok kami yang biasa, Ms Francesca, meskipun hanya sedikit, dia tertawa.
+Melihat pembicaraan kami seperti biasa, nona Francesca, meskipun hanya sedikit, dia tertawa.
 
 Seperti yang diharapkan, kecantikan terlihat lebih baik saat tersenyum daripada sedih. Itu menawan.
 
-"Saya sangat menyesal, Renji-sama." (Fran)
+"aku sangat menyesal, Renji-sama." (Fran)
 
 “Hm?”
 
-“Saya, tidak bisa melaju ke babak kedua.”
+“aku, tidak bisa melaju ke babak kedua.”
 
 "--ya.."
 
@@ -718,11 +718,11 @@ Seperti yang diharapkan, kecantikan terlihat lebih baik saat tersenyum daripada 
 
 Aku menyandarkan punggungku ke belakang kursi lagi.
 
-“Jangan melihat ke bawah, lihat ke depan. Jika Anda terus melihat ke bawah, Anda tidak akan dapat melihat wajah orang lain. "
+“Jangan melihat ke bawah, lihat ke depan. Jika kamu terus melihat ke bawah, kamu tidak akan dapat melihat wajah orang lain. "
 
 “……… ..”
 
-"Bahkan saat Anda sedang sedih, saat Anda sedih, saat Anda kesakitan, lihat ke depan, dan lihat sekeliling Anda."
+"Bahkan saat kamu sedang sedih, saat kamu sedih, saat kamu kesakitan, lihat ke depan, dan lihat sekelilingmu."
 
 Saat aku mengatakan itu, wajahnya sedikit terangkat.
 
@@ -732,49 +732,49 @@ Tidak di depan, dia menatapku.
 
 “…… ..Renji-sama ..”
 
-"Tidak bukan saya."
+"Tidak bukan aku."
 
 Sambil tersenyum kecut, aku mengisyaratkan dia untuk melihat sekelilingnya sedikit.
 
-Dan mendapatkan petunjuk itu, saat dia melihat ke arah Mururu, dia membuat suara kecil.
+Dan dengan itu, saat dia melihat ke arah Mururu, dia membuat suara kecil.
 
 “Mururu-chan …… ..
 
-“Ketika Anda khawatir sendirian, Anda hanya terus merasa sedih. Lihatlah ke sekeliling Anda lebih banyak, Anda pasti akan menemukan semacam tanda. ”
+“Ketika kamu khawatir sendirian, kamu hanya terus merasa sedih. Lihatlah ke sekelilingmu, kamu pasti akan menemukan semacam tanda atau sesuatu. ”
 
 Bisa jadi teman, kawan atau bahkan motif kecil.
 
-Tapi tetap saja, itu pasti akan menjadi langkah maju pertama Anda.
+Tapi tetap saja, itu pasti akan menjadi langkah pertamamu untuk maju.
 
-Saat Anda bingung, panik, ingatlah kata-kata ini saat itu.
+Saat kamu bingung, panik, ingatlah kata-kata ini saat itu.
 
 "O'brien-san —— ini adalah kata-kata dari ksatria terkuat negeri ini." (Renji)
 
 “——–”
 
-“Setidaknya untuk saat ini, Ms. Francesca, Anda tidak sendiri. Kamu punya teman yang mengkhawatirkanmu. "
+"Setidaknya untuk saat ini, nona. Francesca, kamu tidak sendiri. Kamu punya teman yang mengkhawatirkanmu. "
 
-Apakah dia menyadari tatapan kami, Mururu bersembunyi sedikit karena malu.
+mungkin menyadari tatapan kami, Mururu bersembunyi sedikit karena malu.
 
 Tapi, fakta bahwa ekornya masih terlihat benar-benar membuatnya terlihat imut.
 
-…………. Sangat sulit untuk melindungi janji Anda.
+…………. Sangat sulit untuk melindungi janjimu.
 
-Saya tahu itu dengan sangat baik.
+aku tahu itu dengan sangat baik.
 
-Tidak peduli berapa banyak usaha yang Anda lakukan, tidak peduli seberapa keras Anda berjuang, akan ada saat-saat Anda tidak dapat melindunginya.
+Tidak peduli berapa banyak usaha yang kamu lakukan, tidak peduli seberapa keras kamu berjuang, akan ada saat-saat kamu tidak dapat melindunginya.
 
 Tapi tetap saja, orang membuat janji.
 
-Janji menghubungkan orang dengan orang. Itu salah satu jenis ikatan yang paling berharga. Dan karena Anda tahu seberapa kuat ikatan itu, kami masih membuat janji. Karena kami ingin terhubung dengan orang lain. Karena kita tidak bisa hidup sendirian.
+Janji menghubungkan orang dengan orang. Itu salah satu jenis ikatan yang paling berharga. Dan karena kamu tahu seberapa kuat ikatan itu, kami masih membuat janji. Karena kami ingin terhubung dengan orang lain. Karena kami tidak bisa hidup sendirian.
 
-[Jadi Renji, sepertinya sudah waktunya untuk pertandingan Anda berikutnya.]
+[Jadi Renji, sepertinya sudah waktunya untuk pertandinganmu berikutnya.]
 
 "Ah."
 
-"Apakah sudah waktu itu?" (Renji)
+"Apakah sudah waktunya?" (Renji)
 
-Menjawab Ermenhilde, saya berdiri dari bangku saya.
+Menjawab Ermenhilde, aku berdiri dari bangkuku.
 
 Jadi selanjutnya adalah tentara bayaran berambut merah itu ya? Sejujurnya, hanya melihat otot-ototnya membuatku berharap aku tidak harus melawannya.
 
