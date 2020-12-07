@@ -274,7 +274,7 @@ Untuk saat ini, wajah itu sangat menakutkan jadi aku akan senang jika kamu bisa 
 
 “Ini, bukan ..!”
 
-Sejujurnya, ketika kami pergi untuk membunuh, bahkan saya pikir saya akan menang.
+Sejujurnya, ketika kami mulai untuk saling membunuh, bahkan aku pikir aku akan menang.
 
 Dan, Masaki-chan, yang telah yakin akan kemenangannya itu telah menghentikan gerakannya. Itulah perbedaannya.
 
@@ -284,9 +284,9 @@ Tapi, menurut Masaki-chan, ini tidak bisa diterima / memuaskan.
 
 Jika senjataku adalah Ermenhilde sebagai gantinya, itu tidak akan pernah dipotong atau rusak. Maka mungkin hasilnya akan sebaliknya.
 
-……… tapi kemudian, dari awal, dia akan datang dengan kekuatan penuhnya untuk menebasku juga. Bahkan yang satu itu akan sulit bagi saya untuk dikalahkan.
+……… tapi, pada dasarnya, dia akan datang dengan kekuatan penuhnya untuk menebasku juga. Bahkan yang satu itu akan sulit bagiku untuk mengalahkannya.
 
-“Meskipun aku berharap untuk mengalahkanmu hari ini dan melepaskan amarahku karena membuat kita semua khawatir dengan menghilang selama setahun penuh !!”
+“padahal aku berharap untuk mengalahkanmu hari ini dan melepaskan amarahku karena membuat kami semua khawatir dengan menghilang selama setahun penuh !!”
 
 “…………….”
 
