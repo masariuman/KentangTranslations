@@ -10,25 +10,25 @@ Toudou dan Kuuki sama-sama sibuk, dan aku juga tidak membutuhkan bantuan untuk m
 
 Meskipun ada bagian dari diriku yang merasa bahwa sendirian seperti ini membuatku merasa nyaman, dan aku benar-benar bebas tetapi, tetap saja, rasanya kesepian.
 
-Atau lebih tepatnya, itu pasti imajinasi saya bahwa saya sendiri merasa agak tersisih.
+Atau lebih tepatnya, itu pasti imajinasiku saja bahwa aku sendiri merasa agak tersisih.
 
-Akhirnya menyelesaikan mengenakan mithril armor, aku menempelkan pedang mithril ke pinggangku. Sekarang jika saja saya membawa Ermenhilde, saya akan siap. Tapi dia bersama Ms Francesca sekarang.
+Akhirnya selesai mengenakan mithril armor, aku menempelkan pedang mithril ke pinggangku. Sekarang jika saja aku membawa Ermenhilde, aku akan siap. Tapi dia bersama nona Francesca sekarang.
 
-Saya berpikir untuk mencarinya segera setelah pertarungan saya berakhir tetapi ada ribuan orang di dalam Coliseum. Untuk mencari Feirona dan yang lainnya akan membutuhkan banyak usaha.
+aku berpikir untuk mencarinya segera setelah pertarunganku berakhir tetapi ada ribuan orang di dalam colleseum. Untuk mencari Feirona dan yang lainnya akan membutuhkan banyak waktu.
 
-Jika saya beruntung, saya akan menemukan Ms Francesca selama perjamuan, yang pada dasarnya adalah pesta setelah, yang akan dilakukan setelah turnamen berakhir. Dan bahkan dalam kasus terburuk, besok aku harus pergi dan bertemu dengan Feirona dan yang lainnya.
+Jika aku beruntung, aku akan menemukan nona Francesca selama pesta makan, yang pada dasarnya adalah pesta yang akan dilakukan setelah turnamen berakhir. Dan bahkan dalam kasus terburuk, besok aku harus pergi dan bertemu dengan Feirona dan yang lainnya.
 
 Mungkin tidak buruk menghabiskan waktu sendirian seperti ini juga. Selama 3 tahun terakhir, kami telah bersama sepanjang waktu. Dia juga perlu menghabiskan waktu dengan orang lain.
 
-……… Berpikir seperti itu, aku menghela nafas lagi. Karena kita sudah lama bersama, rasanya agak hampa, atau lebih tepatnya, kesepian menjadi seperti ini.
+……… Berpikir seperti itu, aku menghela nafas lagi. Karena kami sudah lama bersama, rasanya agak hampa, atau lebih tepatnya, kesepian menjadi seperti ini.
 
-Saya yakin saya merasa kesepian jauh lebih mudah daripada yang saya pikirkan bahkan Ermenhilde. Sambil memikirkan hal-hal bodoh seperti itu, saya meninggalkan ruangan.
+aku yakin aku merasa kesepian jauh lebih mudah daripada yang aku. Sambil memikirkan hal-hal bodoh seperti itu, aku meninggalkan ruangan.
 
 "Ah."
 
 “Hm?”
 
-Saat, dia mungkin sedang menunggu di depan kamar, Aya sedang melihat keluar jendela sebelum berbalik untuk melihat ke arahku.
+dia mungkin sedang menunggu di depan kamarku, Aya sedang melihat keluar jendela dan berbalik untuk melihat ke arahku.
 
 Gaun yang dia kenakan adalah gaun biru tua, yang sama yang dia pakai saat makan malam bersamaku.
 
