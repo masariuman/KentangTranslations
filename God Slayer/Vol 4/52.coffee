@@ -110,19 +110,19 @@ Sebelum dia mengatakan apapun, ayo minta maaf dulu. Lagi pula, akan memalukan un
 
 dan tidak ada gunanya menimbulkan masalah di sini. Jika anggota panitia turnamen, Utano-san, mengetahui hal itu dan memutuskan untuk memperingatkan kami, itu tidak akan berakhir dengan baik ………. Meskipun aku merasa hanya aku yang akan dimarahi.
 
-Bagaimanapun, bahkan orang ini tidak ingin menghadapinya di depan banyak orang.
+bahkan orang ini tidak ingin menghadapinya di depan banyak orang.
 
-Itulah yang saya pikirkan tapi saya kira merk berambut merah itu benar-benar tidak menganggapnya lucu sama sekali.
+Itulah yang aku pikirkan tapi aku kira pria berambut merah itu benar-benar tidak menganggapnya lucu sama sekali.
 
-Dia pasti berpikir bahwa dia telah dibodohi saat dia berjalan ke arahku dengan kekuatan seolah-olah dia mencoba membuat bumi bergemuruh. Saat dia menendang meja yang menghalangi jalannya, para peserta menatapku dengan tatapan kesal ……… Bukannya ini salahku, kan?
+Dia pasti berpikir bahwa dia telah diejek dab dia berjalan ke arahku dengan kekuatan seolah-olah dia mencoba membuat bumi bergetar. Saat dia menendang meja yang menghalangi jalannya, para peserta menatapku dengan tatapan kesal ……… ini salahku?
 
-"Bukankah kamu baru saja mengatakan sesuatu yang sangat lucu?" (Redhair)
+"Bukankah kamu baru saja mengatakan sesuatu yang sangat lucu?" (rambut merah)
 
 Dia berdiri tepat di depanku.
 
-Tingginya tidak jauh berbeda dari saya tetapi karena saya duduk, itu berakhir dengan dia menatap saya.
+Tingginya tidak jauh berbeda dariku tetapi karena aku duduk, dia menatapku kebawah.
 
-Dia tampak seperti binatang buas yang marah membuat saya bingung dalam memutuskan bagaimana menjawab.
+Dia tampak seperti binatang buas yang marah dan membuatku bingung dalam memutuskan bagaimana menjawab.
 
 Tapi baginya, tidak mengatakan apa-apa pasti membuatnya semakin kesal saat dia meninju dinding tempatku menyandarkan punggung. Untuk tidak meringis bahkan pada saat itu, dia harus terlatih dengan baik.
 
