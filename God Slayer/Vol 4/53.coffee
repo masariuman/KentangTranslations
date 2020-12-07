@@ -132,39 +132,39 @@ Aku ingin tahu apakah hanya aku yang berpikir seperti itu.
 
 Yah, aku pikir kamu bisa mengatakan bahwa aku seharusnya tidak berdiri di sini jika aku benar-benar merasa seperti itu.
 
-Pada akhirnya, meski menggunakan utangku pada Utano-san sebagai alasan —— seperti ini, aku mungkin memengaruhi seseorang sekarang.
+Pada akhirnya, meski menggunakan utangku pada Utano-san sebagai alasan —— hanya dengan seperti ini, aku mungkin memengaruhi seseorang sekarang.
 
 Menyebalkan memiliki begitu banyak ekspektasi padaku tapi tetap saja, aku ………… seperti sebelumnya, seseorang yang mudah kesepian.
 
 Memegang pedang di tangan kananku, aku merilekskan tubuhku.
 
-Saya tidak mengambil sikap. Pertama-tama, ksatria di depanku ini tidak pernah mengajariku gaya bertarung tertentu.
+aku tidak berdiri dengan kuda-kuda. pada dasarnya, ksatria di depanku ini tidak pernah mengajariku gaya bertarung tertentu.
 
-Ada bentuk atau tipe cara saya bertarung. Aku belum mempelajari Battoujutsu seperti Masaki-chan atau pedang yang diajarkan Ordo Ksatria.
+Ada bentuk atau tipe caraku bertarung. Aku belum mempelajari Battoujutsu seperti Masaki-chan atau pedang yang diajarkan ksatria Ordo.
 
-Cara saya bertempur adalah cara bertahan hidup, cara membunuh monster.
+Caraku bertempur adalah cara bertahan hidup, cara membunuh monster.
 
 Hanya itu yang diajarkan ksatria ini padaku.
 
 Fuu.
 
-“—–Anda tampaknya tidak terlalu gugup sekarang.” (Ob)
+“—–kamu tampaknya tidak terlalu gugup sekarang.” (Ob)
 
-“Jika ya, bagaimanapun juga aku akan mati pada detik pertama.”
+“Jika memang benar, aku akan mati pada detik pertama.”
 
-“Fuh …… ..Saya kira saya tidak perlu menahan diri.”
+“Fuh …… ..aku kira aku tidak perlu menahan diri.”
 
-Tidak, jika kamu bisa tolong tahan aku.
+Tidak, kalau bisa tolong tahan dirimu.
 
-Jika dia melakukan apa yang dia katakan, bahkan di depan begitu banyak orang, dia benar-benar tidak akan peduli sedikit pun saat dia menghancurkanku di semua tempat. Sambil tersenyum pahit, aku menarik napas dalam-dalam sekali lagi.
+Jika dia melakukan apa yang dia katakan, bahkan di depan begitu banyak orang, dia benar-benar tidak akan peduli sedikit pun sambil dia menghancurkanku. Sambil tersenyum pahit, aku menarik napas dalam-dalam sekali lagi.
 
-Saya mengatakan itu tetapi, saya masih sedikit gugup. Saya merasa seperti kekuatan yang saya berikan pada genggaman saya lebih kuat daripada ketika saya menghadapi monster.
+aku mengatakan itu tetapi, aku masih sedikit gugup. aku merasa seperti kekuatan yang aku berikan pada genggaman aku lebih kuat daripada ketika aku menghadapi monster.
 
-Saya sangat menyadari kekuatan O'brien-san. Dia memiliki kekuatan penghancur dalam satu ayunan pedang besarnya untuk menghancurkan lantai tempat saya berdiri. Bahkan jika pedangnya tumpul, itu tidak akan berubah.
+aku sangat menyadari kekuatan O'brien-san. Dia memiliki kekuatan penghancur dalam satu ayunan pedang besarnya untuk menghancurkan lantai tempatku berdiri. Bahkan jika pedangnya tumpul, itu tidak akan berubah.
 
-Saya yakin, jika lawannya adalah orang lain selain saya, dia akan menahan kekuatan penuhnya.
+aku yakin, jika lawannya adalah orang lain selain aku, dia akan menahan kekuatan penuhnya.
 
-Tapi melawanku, dia akan pergi keluar.
+Tapi melawanku, dia akan serius.
 
 Dia pria yang seperti itu. Saya sangat menyadari itu.
 
