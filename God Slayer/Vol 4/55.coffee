@@ -341,3 +341,6 @@ Hidupku belum berakhir.
 Mungkin suatu hari nanti aku harus melindungi seseorang sekali lagi, lalu aku harus menjadi lebih kuat.
 
 Menggenggam tangan kananku yang ternoda dengan erat, merasa sedikit lebih ringan, aku pergi.
+
+
+<gambar> renji vs masaki di vol 4
