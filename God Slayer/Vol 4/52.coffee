@@ -318,47 +318,47 @@ aku tidak pernah mendapatkan lebih banyak otot daripada yang dibutuhkan bagiku u
 
 “Aku, akan mengalahkan muridmu.”
 
-"Apakah begitu? Semoga berhasil."
+"begitu? Semoga berhasil."
 
-Setelah memilih pedangku, aku memunggungi dia.
+Setelah memilih pedangku, aku pergi meninggalkannya.
 
-Aku bisa merasakan haus darahnya membuat ekspresiku hampir kaku. Jika itu masa laluku, aku yang sebenarnya sangat kurus, sejujurnya aku akan menggigil sekarang.
+Aku bisa merasakan haus darahnya membuat ekspresiku hampir kaku. Jika itu aku yang dulu, jujur aku akan menggigil sekarang.
 
-Tapi tetap saja, oh baiklah. Rasanya aneh untuk mengatakan bahwa saya sudah terbiasa merasakan haus darah sekarang.
+Tapi tetap saja, yaaaah... Rasanya aneh untuk mengatakan bahwa aku sudah terbiasa merasakan haus darah sekarang.
 
 “Kalau begitu, maukah kamu melawanku juga?”
 
 "Hah?" (Renji)
 
-Tapi, saat aku mengejek diriku sendiri, dia mengatakan hal seperti itu dengan suara bersemangat.
+Tapi, dia mengatakan hal seperti itu dengan suara bersemangat.
 
 Aku akhirnya berbalik secara refleks hanya untuk melihatnya menatap dengan tatapan dingin.
 
 “Kamu benar-benar kurus.”
 
-"Saya mendengar itu sebelumnya." (Renji)
+"aku sudah mendengar itu sebelumnya." (Renji)
 
-“Dulu, aku dulu berpikir kamu akan menjadi pria yang lebih besar.”
+“Dulu, aku dulu berpikir kamu pria yang lebih besar.”
 
-"Apakah begitu? Yah, maaf karena kurus. ”
+"begitu? Yah, maaf karena kurus."
 
-Dia mungkin berbicara tentang saat kita masih dalam perjalanan. Mungkin saat itu, kita mungkin pernah bertemu di suatu tempat. Saya tidak ingat itu. Saya benar-benar telah bertemu ratusan dan ribuan tentara bayaran saat bepergian. Jika saya tidak terlalu dekat dengan mereka, saya tidak akan ingat siapa adalah siapa.
+Dia mungkin berbicara tentang saat kami masih dalam perjalanan. Mungkin saat itu, kami mungkin pernah bertemu di suatu tempat. aku tidak ingat itu. aku benar-benar telah bertemu ratusan dan ribuan tentara bayaran saat bepergian. Jika aku tidak terlalu dekat dengan mereka, aku tidak akan ingat siapa mereka.
 
-Tapi tetap saja, dia yakin tidak menahan diri.
+Tapi tetap saja, dia tidak menahan diri.
 
-Dia mungkin kuat …… ..bahkan lebih dari Nona Francesca mungkin. Saya bisa merasakannya dari kepercayaan dirinya dan cara bicaranya.
+Dia mungkin kuat …… ..bahkan lebih dari Nona Francesca mungkin. aku bisa merasakannya dari kepercayaan dirinya dan cara bicaranya.
 
-[Anda baru saja diberi tahu.]
+[kamu baru saja diremehkan.]
 
 Aku sudah terbiasa.
 
-[Seperti yang kubilang, tidak bisakah kau mengubahnya? Seperti dengan menunjukkan keahlian Anda, atau bahwa Anda sebenarnya sangat luar biasa atau semacamnya.]
+[Seperti yang kubilang, tidak bisakah kau mengubahnya? Seperti dengan menunjukkan keahlianmu, atau bahwa kau sebenarnya sangat luar biasa atau semacamnya.]
 
-Ermenhilde, luar biasa, mencoba menggodaku sedikit.
+Ermenhilde mencoba menggodaku sedikit.
 
-Mungkin bukan hanya imajinasiku bahwa suaranya juga tampak sedikit khawatir. Seperti biasa, dia mudah dimengerti.
+Mungkin bukan hanya imajinasiku saja kalau suaranya juga tampak sedikit khawatir. Seperti biasa, dia mudah dimengerti.
 
-“Kemampuan Anda bukanlah sesuatu yang harus Anda bicarakan. Orang-orang yang akan memutuskan seberapa terampil saya adalah para penonton. "
+"Kemampuanmu bukanlah sesuatu yang harus kau bicarakan. Orang-orang yang akan memutuskan seberapa hebatnya aku adalah para penonton. "
 
 [fufu, itu benar.]
 
