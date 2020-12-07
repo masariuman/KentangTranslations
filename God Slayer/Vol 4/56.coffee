@@ -308,9 +308,9 @@ Itu sangat damai, dan tenang …… .dan ketika aku berpikir bahwa kamilah yang 
 
 [Jika kamu penasaran, temui Astraera.]
 
-Dia bilang begitu. Salah satu anggota party saya adalah masalah.
+Dia bilang begitu. Salah satu anggota timku adalah masalah.
 
-Apakah itu Ms Francesca, Feirona atau Mururu?
+Apakah itu nona Francesca, Feirona atau Mururu?
 
 Tidak peduli siapa itu —— jika dia mengatakan itu masalah, dan sampai mengambil nama Astraera …… maka itu pasti sangat serius.
 
