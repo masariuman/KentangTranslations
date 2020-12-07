@@ -418,11 +418,11 @@ Sekali lagi, dia mengubah topiknya begitu tiba-tiba.
 
 Melihat kebiasaannya yang biasanya akan membingungkan siapa pun yang tidak terbiasa, aku menghela nafas.
 
-Dan bahkan tanpa mempedulikan desahanku, Kudou terus berbicara. Jika bukan karena kepribadiannya, dia akan dengan mudah memiliki beberapa pacar.
+Dan bahkan tanpa mempedulikan hembusan nafasku, Kudou terus berbicara. Jika bukan karena kepribadiannya, dia akan dengan mudah memiliki beberapa pacar.
 
 Meskipun dia memiliki wajah yang baik, sayang sekali. Yah, aku berharap dia juga berhenti menggangguku.
 
-Meskipun dia tidak melakukan apa-apa dan selalu memiliki wajah lelah, hanya pada saat-saat seperti ini, ketika menggoda seseorang, sisi buruknya muncul dan dia menjadi energik.
+Meskipun dia tidak melakukan apa-apa dan selalu memiliki wajah lelah, hanya pada saat-saat seperti ini, ketika menganggu seseorang, sisi buruknya muncul dan dia menjadi energik.
 
 “Mereka harus hidup lebih seperti yang mereka inginkan.” (Kudou)
 
