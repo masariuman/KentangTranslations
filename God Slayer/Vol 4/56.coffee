@@ -298,11 +298,11 @@ Sebelum aku bisa mengatakan apa-apa, dia mengatakan itu dan pergi.
 
 Melihat punggungnya saat dia pergi, aku menghela nafas.
 
-Bukankah pria itu seharusnya pergi melakukan hal-hal seperti itu ——— atau apakah aku terlalu kuno untuk berpikir seperti itu. Aku senang melihat Aya begitu perhatian tapi pada saat yang sama diperlakukan seperti ini oleh seorang gadis yang lebih muda dariku juga terasa agak memalukan.
+Bukankah pria itu seharusnya pergi melakukan hal-hal seperti itu ——— atau apakah aku terlalu jadul untuk berpikir seperti itu. Aku senang melihat Aya begitu perhatian tapi pada saat yang sama diperlakukan seperti ini oleh seorang gadis yang lebih muda dariku juga terasa agak memalukan.
 
-Untuk saat ini, saya mulai mencari tempat duduk seperti yang diceritakan hanya untuk menemukannya dengan cukup mudah.
+Untuk saat ini, aku mulai mencari tempat duduk seperti yang dikatakan dan menemukannya dengan cukup mudah.
 
-Ada banyak orang di sekitar tetapi, hanya sedikit dari mereka yang benar-benar duduk di sana dan mengobrol. Semua orang tampak bergerak menikmati festival. Dengan senyuman, dengan teman, keluarga, kekasih; mengobrol, berpegangan tangan, saling mengaitkan tangan; banyak orang, dari berbagai ras, menikmati festival ini.
+Ada banyak orang di sekitar tetapi, hanya sedikit dari mereka yang benar-benar duduk di sana dan mengobrol. Semua orang tampak bergerak menikmati festival. Dengan senyuman, dengan teman, keluarga, kekasih; mengobrol, berpegangan tangan; banyak orang, dari berbagai ras, menikmati festival ini.
 
 Itu sangat damai, dan tenang …… .dan ketika aku berpikir bahwa kamilah yang melindungi ini, aku merasa lebih bangga daripada bahagia di dalam dadaku. Tiba-tiba, aku teringat apa yang Koutarou katakan padaku kemarin malam.
 
