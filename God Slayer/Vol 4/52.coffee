@@ -376,21 +376,21 @@ Bahkan aku tidak akan mampu menahan rasa malu seperti itu.
 
 Ketika aku kembali ke nona Francesca setelah memilih pedangku, dia saat ini sedang mengikat kembali rambutnya dengan pita.
 
-Rambut emasnya yang indah diikat di belakang punggungnya. Karena aku melihatnya dengan gaya rambut lain selain dengan rambut terbuka tergerai biasanya, rasanya sangat segar.
+Rambut emasnya yang indah diikat di belakang punggungnya. Karena aku melihatnya dengan gaya rambut lain selain dengan rambut terbuka tergerai biasanya, rasanya sangat menyegarkan.
 
 Sungguh menakjubkan betapa seorang wanita bisa berubah hanya dari mengubah gaya rambut mereka.
 
 Selagi aku memikirkan itu, tatapannya mengarah padaku. Kulit putih bersih di lehernya hampir terasa terlalu menyilaukan untuk dilihat.
 
-“Apakah ada yang salah?” (Fran)
+“ada yang salah?” (Fran)
 
-'Nah, hanya berpikir bahwa aku belum pernah melihat pita milikmu itu sebelumnya. "
+"Nah, aku hanya berpikir bahwa aku belum pernah melihat pita milikmu itu sebelumnya. "
 
 "Ah, kemarin, Mururu-chan dan Feirona-san memilihnya untukku."
 
-[Saya melihat.]
+[begitu...]
 
-Bersama Ermenhilde, saya berkata 'Saya mengerti' juga.
+Bersama Ermenhilde, aku berkata 'begitu...' juga.
 
 Kontras warna antara pita putih dan rambut emasnya yang bercampur menjadi warna lembut membuat mereka yang melihatnya merasa tenang. Sungguh menakjubkan bahwa Feirona dan Mururu benar-benar tahu apa yang harus dipilih yang paling cocok untuknya.
 
