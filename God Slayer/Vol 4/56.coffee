@@ -32,21 +32,21 @@ dia mungkin sedang menunggu di depan kamarku, Aya sedang melihat keluar jendela 
 
 Gaun yang dia kenakan adalah gaun biru tua, yang sama yang dia pakai saat makan malam bersamaku.
 
-Itu adalah gaun berwarna gelap tapi cocok dengan kulit putih Aya. Meskipun aku tidak terlalu paham tentang gaun apa yang dianggap cocok untukmu atau tidak, aku hanya merasa itu sangat cocok untuk Aya.
+gaun berwarna gelap tapi cocok dengan kulit putih Aya. Meskipun aku tidak terlalu paham tentang gaun apa yang dianggap cocok untukmu atau tidak, aku hanya merasa itu sangat cocok untuk Aya.
 
-Tapi tidak seperti saat itu, rambutnya tidak diurai secara terbuka. Dia telah mengikatnya ke samping, sama seperti biasanya, dan saat ini sedang memainkannya dengan jari-jarinya.
+Tapi tidak seperti saat itu, rambutnya tidak diurai secara terbuka. Dia mengikatnya ke samping, sama seperti biasanya, dan saat ini sedang memainkannya dengan jari-jarinya.
 
-"Apakah ada masalah?" (Renji)
+"ada apa?" (Renji)
 
-"Tidak, tidak ada." (Aya)
+"Tidak, tidak ada apa-apa." (Aya)
 
-Mengatakan itu, Aya datang ke samping dengan langkah kaki ringan.
+Aya datang ke sampingku dengan pelan.
 
 Mungkin karena dia memakai sepatu hak, dia merasa sedikit lebih tinggi dari biasanya. Dia juga memakai sedikit riasan.
 
-"Hanya merasa ingin berbicara denganmu, sebentar." (Aya)
+"aku Hanya merasa ingin berbicara denganmu, sebentar." (Aya)
 
-"Saya melihat."
+"begitu ya..."
 
 Wajahnya, dengan ketinggian sedikit di atas bahuku, tersenyum cerah. Dia pasti sedang dalam mood yang bagus. Emosinya berpindah bahkan padaku saat aku tersenyum juga.
 
