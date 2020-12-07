@@ -80,17 +80,17 @@ Sangat mudah untuk dimengerti. Seorang gadis yang sedang jatuh cinta sangat meng
 
 Dia mengatakan itu dengan nada rendah. Suaranya yang seakan keluar dari dalam perutnya bisa saja membuat hati siapa pun yang mendengarnya bergetar ketakutan.
 
-Tapi, saya juga terbiasa dengan itu. Saya sangat akrab dengannya karena dia adalah salah satu rekan terpercaya saya. Saya tidak menganggapnya menakutkan atau menakutkan. Faktanya, melihat bagaimana dia biasanya bertindak begitu bermartabat, ini sebenarnya lucu. Mungkin saya cukup berani dalam hal ini?
+Tapi, aku juga terbiasa dengan itu. aku sangat akrab dengannya karena dia adalah salah satu rekan terpercayaku. aku tidak menganggapnya menakutkan. Faktanya, melihat bagaimana dia biasanya bertindak begitu bermartabat, ini sebenarnya lucu. Mungkin aku cukup berani dalam hal ini?
 
-“Ya ya, tentu. Aku sama sekali tidak berniat mengubah kisah cinta seseorang menjadi lelucon. "(Renji)
+"Ya ya, tentu. Aku sama sekali tidak berniat mengubah kisah cinta seseorang menjadi lelucon. "(Renji)
 
 "Guh."
 
 Menemukan Masaki-chan menjadi lucu karena dia kehilangan kata-kata, aku mencabut pedangku dari sarungnya.
 
-Saya menggunakan pedang pendek untuk mengajari Nona Francesca bagaimana menggunakannya melawan pengguna pedang besar tapi seperti yang diharapkan, saya tidak bisa melakukan hal seperti itu terhadap Masaki-chan.
+aku menggunakan pedang pendek untuk mengajari Nona Francesca bagaimana menggunakannya melawan pengguna pedang besar tapi seperti yang diharapkan, aku tidak bisa melakukan hal seperti itu terhadap Masaki-chan.
 
-Dia cukup serius dalam hal berkelahi. Bahkan jika itu diantara rekan rekan, dia tidak akan menyukainya jika aku menahan kekuatanku.
+Dia cukup serius dalam hal bertarung. Bahkan jika itu diantara teman-temannya, dia tidak akan menyukainya jika aku menahan kekuatanku.
 
 Tapi, di dunia ini, bertarung tanpa menahan diri, bahkan sebagai pelatihan, itu bisa berbahaya. Dia suka pedang, suka mengayunkan katananya, dan suka bertarung. Bukannya aku tidak mengerti perasaannya tapi kuharap dia setidaknya mencoba memahami perasaanku yang tidak ingin menyakitinya juga.
 
