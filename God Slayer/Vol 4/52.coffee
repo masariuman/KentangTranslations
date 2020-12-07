@@ -80,7 +80,7 @@ Tapi ini adalah ruang tunggu collesium. Akan lebih baik untuk menyimpan kata-kat
 
 [Hou..Orang itu tampaknya cukup yakin dengan kemenangannya.]
 
-"Akan lebih bagus jika dia memang menang."
+"Akan lebih bagus jika dia bisa menang."
 
 [……… .Haruskah kamu mengatakan itu kepadanya?]
 
@@ -94,21 +94,21 @@ Yah, aku tidak dapat menyangkal bahwa dia tampaknya dirugikan oleh pria itu.
 
 Apakah dia mendengar suaraku saat aku menanggapi Ermenhilde, pria berambut merah itu melihat ke arahku. Dia tampak sangat marah juga.
 
-Di sampingnya, Ms Francesca membuat wajah terkejut sekaligus dia menyembunyikan mulutnya dengan tangannya. Seperti yang diharapkan dari sebuah kecantikan, dia tampak hebat bahkan saat membuat wajah seperti itu.
+Di sampingnya, nona Francesca membuat wajah terkejut sekaligus dia menyembunyikan mulutnya dengan tangannya. Seperti yang diharapkan dari sebuah kecantikan, dia tampak cantik bahkan saat membuat wajah seperti itu.
 
-Tapi tetap, bagaimana sih pria itu bisa mendengarku?
+Tapi tetap saja, bagaimana pria itu bisa mendengarku?
 
-Pria itu mengklaim bahwa dia akan menang dan saya berkata bahwa akan lebih baik jika dia bisa.
+Pria itu mengklaim bahwa dia akan menang dan aku berkata bahwa akan lebih baik jika dia bisa menang.
 
-………… .Aku tidak benar-benar bersungguh-sungguh dengan cara yang menghasut tapi itu terdengar seperti yang aku lakukan. Mungkin karena akhir-akhir ini Feirona dan yang lainnya juga mulai berbicara dengan Ermenhilde, mulutku jadi agak kendur. Saya yakin tidak ada orang lain selain saya dan Ms Francesca mendengar Ermenhilde di sini.
+………… .Aku tidak bermaksud seperti itu tapi itu terdengar seperti aku melakukannya. Mungkin karena akhir-akhir ini Feirona dan yang lainnya juga mulai berbicara dengan Ermenhilde, mulutku jadi agak kendur. aku yakin tidak ada orang lain selain aku dan nona Francesca mendengar Ermenhilde di sini.
 
-“Ah, aku tidak benar-benar mengolok-olokmu. Saya akan minta maaf jika Anda tersinggung. "(Renji)
+"Ah, aku tidak bermaksud begitu. aku minta maaf jika kamu tersinggung. "(Renji)
 
 [Kenapa kamu harus …… ..um, bukankah ada cara yang lebih baik untuk mengatakannya?]
 
-Sebelum dia bisa mengatakan apapun, ayo minta maaf dulu. 'Lagi pula, akan memalukan untuk mengatakan sesuatu seperti' Aku punya kebiasaan bicara sendiri '.
+Sebelum dia mengatakan apapun, ayo minta maaf dulu. Lagi pula, akan memalukan untuk mengatakan sesuatu seperti ' Aku punya kebiasaan bicara sendiri '.
 
-Dan di atas segalanya, tidak ada gunanya menimbulkan masalah di sini. Jika anggota panitia turnamen, Utano-san, mengetahui hal itu dan memutuskan untuk memperingatkan kami, itu tidak akan berakhir dengan baik ………. Meskipun aku merasa hanya aku yang akan dimarahi.
+dan tidak ada gunanya menimbulkan masalah di sini. Jika anggota panitia turnamen, Utano-san, mengetahui hal itu dan memutuskan untuk memperingatkan kami, itu tidak akan berakhir dengan baik ………. Meskipun aku merasa hanya aku yang akan dimarahi.
 
 Bagaimanapun, bahkan orang ini tidak ingin menghadapinya di depan banyak orang.
 
