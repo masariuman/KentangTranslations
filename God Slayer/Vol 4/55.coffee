@@ -252,7 +252,7 @@ Tebasannya, dan tusukanku. Jika kamu bertanya apa yang lebih cepat, itu akan sel
 
 “…… .haah.”
 
-Ujung tajam katana menyentuh leher saya. Sensasi itu sendiri terasa seperti bisa mengambil 10 tahun dari umur saya.
+Ujung tajam katana menyentuh leherku. Sensasi itu sendiri terasa seperti bisa mengambil 10 tahun dari umurku.
 
 Sebagai perbandingan, pedangku —— belum mencapai hati Masaki-chan. Bagian dari pedang yang telah dipotong oleh katana telah membuat perbedaan besar.
 
@@ -264,7 +264,7 @@ Itu adalah kekalahanku.
 
 “Eh, umm.” (Renji)
 
-Saat Masaki-chan memelototiku sambil mengerang dan mata berkaca-kaca, aku bingung.
+Masaki-chan memelototiku sambil mengerang dan mata berkaca-kaca, aku bingung.
 
 Untuk saat ini, wajah itu sangat menakutkan jadi saya akan senang jika Anda bisa mengambil katana dari leher saya. Jika dia menarik katananya sekarang, arteri karotis saya akan meledak, membunuh saya.
 
