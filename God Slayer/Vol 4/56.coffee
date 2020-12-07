@@ -480,21 +480,21 @@ Menempatkan tusuk sate di dalam cangkir kosong, saya berdiri.
 
 "Bagaimana denganmu?" (fei)
 
-“Aku, harus memberikan beberapa teman kepada Raja. Dan di malam hari, ada sebuah bola yang mengundang semua peserta jadi saya akan bebas besok saja. ”
+“Aku, harus menemani Raja. Dan di malam hari, ada sebuah undangan untuk semua peserta jadi aku akan bebas besok. ”
 
-Dan besok, saya mungkin akan tidur seperti orang mati.
+Dan besok, aku mungkin akan tidur seperti orang mati.
 
-Dan saya juga harus bertemu Astraera.
+Dan aku juga harus bertemu Astraera.
 
-"Saya melihat. Kalau begitu kita akan bicara. "(Peri)
+"aku mengerti. Kalau begitu kita akan diskusikan besok. "(fei)
 
 "Ya, tentu."
 
 Pembicaraan itu, untuk apa yang akan kita lakukan selanjutnya.
 
-Kami datang ke ibu kota atas permintaan Mururu tapi awalnya, Feirona adalah peri, penghuni Hutan energi magis. Aya dan Nona Francesca adalah murid dan Mururu tinggal di Elfreim.
+Kami datang ke ibu kota atas permintaan Mururu tapi awalnya, Feirona adalah elf, penghuni Hutan energi magis. Aya dan Nona Francesca adalah murid dan Mururu tinggal di Elfreim.
 
-Aku tidak yakin apa yang harus dilakukan pada Solnea tapi aku —— mungkin akan pergi dalam perjalanan lagi. Intuisi saya mengatakan seolah-olah itu hampir menjadi fakta.
+Aku tidak yakin apa yang harus dilakukan pada Solnea tapi aku —— mungkin akan pergi dalam perjalanan lagi. Intuisiku mengatakan seolah-olah itu hampir menjadi fakta.
 
 Koutarou bahkan mengatakan bahwa dia akan menunggu di benua Elfreim. Setelah bertemu Astraera, saya yakin dia akan menyuruh saya pergi ke benua Elfreim ,. Saya yakin. Aku seharusnya bisa pergi bersama Mururu tapi seperti yang diharapkan, aku tidak bisa meminta orang lain untuk bepergian ke benua lain bersamaku sekarang, kan?
 
