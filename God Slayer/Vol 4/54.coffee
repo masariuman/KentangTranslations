@@ -860,7 +860,7 @@ Tidak biasa bagi Mururu, tatapannya memiliki keinginan kuat di dalamnya.
 
 Dia sangat menyukai teman-temannya ya.
 
-Melihat persahabatan yang begitu indah, saya merasa ingin bekerja lebih keras. Apakah karena saya mulai menjadi tua?
+Melihat persahabatan yang begitu indah, aku merasa ingin berusaha lebih keras. Apakah karena aku mulai menjadi tua?
 
 "Ya, tentu. Itu janji. "
 
