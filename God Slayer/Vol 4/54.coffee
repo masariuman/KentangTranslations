@@ -332,25 +332,25 @@ Meskipun dia sepertinya tidak mempermasalahkannya sama sekali dan tetap sama sep
 
 “Apa yang terjadi, kenapa kamu disini?” (Renji)
 
-"Yah, itu mungkin menarik jadi kupikir aku harus memberitahumu."
+"itu mungkin menarik jadi kupikir aku harus memberitahumu."
 
 “Hm?”
 
-“Yamada-san, muridmu kalah, tahu?”
+“Yamada-san, muridmu kalah lho...”
 
-Murid saya, berarti Ms Francesca.
+Muridku, berarti nona Francesca.
 
-"Saya mengerti." (Renji)
+"aku mengerti." (Renji)
 
 “Ara, kamu tidak terkejut?”
 
-Aku tidak tahu mengapa Kudou datang untuk memberitahuku tentang kehilangannya tapi aku merasa nadanya sedikit bercampur dengan niat untuk menggoda juga.
+Aku tidak tahu mengapa Kudou datang untuk memberitahuku tentang kekalahannya tapi aku merasa nadanya sedikit bercampur dengan niat untuk mengganggu juga.
 
-Meskipun Ms Francesca kalah, yang dia pedulikan hanyalah menggodaku, kurasa.
+Meskipun nona Francesca kalah, yang dia pedulikan hanyalah mengangguku, kurasa.
 
 Menghela nafas sambil menatapnya, aku memikirkan apa yang harus dilakukan.
 
-Haruskah saya mencari Ms Francesca, atau haruskah saya membiarkannya sendiri untuk sementara waktu? Sayangnya, saya seorang yang terkenal jadi jika saya pergi dan berbicara dengan 'murid' saya, itu akan menarik banyak perhatian jadi agak menyebalkan.
+Haruskah aku mencari nona Francesca, atau haruskah aku membiarkannya sendiri untuk sementara waktu? Sayangnya, aku seorang yang terkenal jadi jika aku pergi dan berbicara dengan 'murid'ku, itu akan menarik banyak perhatian jadi agak menyebalkan.
 
 Sungguh menakjubkan bagaimana Kudou tidak peduli sama sekali tentang semua itu. Apakah hatinya terbuat dari Mithril atau baja atau sesuatu?
 
@@ -358,7 +358,7 @@ Sungguh menakjubkan bagaimana Kudou tidak peduli sama sekali tentang semua itu. 
 
 "Betulkah?"
 
-Saat aku mengatakan itu, dia menyeringai saat menatapku.
+Saat aku mengatakan itu, dia tertawa licik saat menatapku.
 
 Ekspresinya berubah dari yang diikat menjadi yang menggoda. Dia terlihat seperti kucing, hampir.
 
