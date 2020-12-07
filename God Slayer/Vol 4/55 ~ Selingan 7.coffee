@@ -188,7 +188,7 @@ Tapi tetap, itu normal ingin menjadi orang nomor satu dari pria yang kamu suka k
 
 Daripada merasa khawatir padaku, aku ingin dia lebih mengandalkanku.
 
-Tapi orang yang telah menjadi cinta pertamaku tidak memusatkan perhatian padaku yang berdiri tepat di sampingnya tetapi lebih pada arena. Jika dia tidak peka, lalu apa? Jika dia hanya bertindak untuk tidak memperhatikan perasaanku, aku akan memenggal kepalanya.
+Tapi orang yang telah menjadi cinta pertamaku tidak memusatkan perhatian padaku yang berdiri tepat di sampingnya tetapi lebih pada arena. Jika dia tidak peka, lalu apa? Jika dia hanya bertindak untuk tidak sesuai perasaanku, aku akan memenggal kepalanya.
 
 Tapi, karena dia benar-benar tidak menyadarinya sama sekali ....... aku hanya bisa menghela nafas.
 
