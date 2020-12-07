@@ -258,29 +258,29 @@ Yah, kupikir begitu.
 
 Bahkan jika kami adalah teman dekat, masih tidak normal untuk memakan sesuatu yang sudah digigit orang lain. Setelah beberapa saat, aku akhirnya selesai memakannya. Tapi sepertinya itu hanya meningkatkan nafsu makanku; Aku pasti sangat lapar.
 
-“Tapi tetap saja, ibu kota pasti ramai.” (Renji)
+“Tapi tetap saja, ibu kota benar-benar ramai.” (Renji)
 
 "Betulkah?"
 
 "Ya, rasanya akan mudah tersesat di sini."
 
-Saat aku mengatakan itu, Aya menyembunyikan mulutnya saat dia memberikan tawa yang terlihat halus.
+Saat aku mengatakan itu, Aya menyembunyikan mulutnya dan dia memberikan tawa yang terlihat halus.
 
-Nah, apa yang harus saya makan selanjutnya? Ketika saya melihat sekeliling sambil memikirkan itu, mata saya bertemu dengan beberapa orang. Mungkin mereka tahu siapa kami, atau apakah mereka hanya ingin tahu tentang pria berbaju zirah, dan wanita berpakaian bagus? Tanpa terlalu memikirkan mereka, saya pergi. Aya sepertinya sama.
+Nah, apa yang harus aku makan selanjutnya? Ketika aku melihat sekeliling sambil memikirkan itu, mataku bertemu dengan beberapa orang. Mungkin mereka tahu siapa kami, atau apakah mereka hanya ingin tahu tentang pria berbaju zirah, dan wanita berpakaian bagus? Tanpa terlalu memikirkan mereka, aku berjalan. Aya sepertinya sama.
 
 "Jangan tersesat oke?" (Aya)
 
-"Aku akan berhati-hati. Jika saya tersesat, mari kita bertemu di pintu masuk Arena, oke? ”
+"Aku akan berhati-hati. Jika aku tersesat, mari kita bertemu di pintu masuk Arena, oke?"
 
 “Mouu, Renji-san seharusnya yang lebih tua di sini, kan?”
 
-Saat saya berjalan di samping Aya sambil mendengarkan lelucon saya, kios lain menarik perhatian saya.
+Saat aku berjalan di samping Aya sambil mendengarkan lelucon saya, kios lain menarik perhatianku.
 
-Yang ini tidak menjual daging orc, melainkan daging lizardman. Itu memiliki lebih sedikit lemak daripada daging orc dan memiliki konsistensi lebih. Jika itu adalah dunia asli kita, itu akan dianggap sebagai jenis daging yang sehat.
+Yang ini tidak menjual daging orc, melainkan daging kadal. Itu memiliki lebih sedikit lemak daripada daging orc tapi memiliki konsistensi lebih. Jika dibandingkan dengan daging dunia asli kita, itu akan dianggap sebagai jenis daging yang sehat.
 
 Di dunia ini, makanan sehat bukanlah hal yang penting, jadi daging Orc lebih populer. Meskipun Lizardmen lebih kuat dari ORc, agak aneh bagaimana daging mereka dianggap kurang berharga.
 
-Membeli salah satu dari itu, saya memegangnya dengan tangan gauntlet saya sekali lagi.
+Membeli satu, aku memegangnya dengan tangan gauntletku sekali lagi.
 
 "Kalau begitu, karena akan merepotkan jika tersesat juga, bagaimana kalau kita duduk di suatu tempat?" (Renji)
 
@@ -288,13 +288,13 @@ Membeli salah satu dari itu, saya memegangnya dengan tangan gauntlet saya sekali
 
 "Ah."
 
-Oh iya, saya lupa membeli yang seperti itu.
+Oh iya, aku lupa membeli yang seperti itu.
 
 "Aku akan pergi membeli sesuatu sekarang." (Renji)
 
-"Tidak apa-apa. Cari tempat untuk duduk dulu, saya akan beli minuman. "
+"Tidak apa-apa. Cari tempat untuk duduk dulu, aku akan beli minuman. "
 
-Sebelum saya bisa mengatakan apa-apa, dia mengatakan itu dan pergi.
+Sebelum aku bisa mengatakan apa-apa, dia mengatakan itu dan pergi.
 
 Melihat punggungnya saat dia pergi, aku menghela nafas.
 
