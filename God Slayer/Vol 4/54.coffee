@@ -120,45 +120,45 @@ aku tidak punya saudara kandung. aku adalah seorang anak tunggal.
 
 Karena itulah, mungkin aku menganggap Souichi, Yayoi-chan, dan lainnya menggemaskan.
 
-Mendengarku, Yayoi-chan tertawa. Pasti hanya imajinasi bahwa senyumannya tampak penuh kenakalan juga.
+Yayoi-chan tertawa. Pasti hanya imajinasiku saja kalau senyumannya tampak penuh kenakalan juga.
 
 “Renji-oniisan juga, bukankah kamu berhubungan baik dengan Aya-chan juga?” (Yayoi)
 
-"Aku penasaran."
+"entahlah..."
 
 Ketika aku mengalihkan pandanganku mencoba melarikan diri darinya, dia tersenyum.
 
-“Mengatakan itu lagi …… mouu.” (Yayoi)
+“kamu berkata seperti itu lagi …… mouu.” (Yayoi)
 
-“Saya tidak bisa menahannya. Umur kami berbeda sepuluh tahun. "
+"mau bagaimana lagi... Umur kami berbeda sepuluh tahun. "
 
 "Tapi menurutku itu tidak terlalu penting."
 
-"Aku merasa begitu."
+"tapi menurutku penting."
 
-Apakah saya terlalu kuno untuk berpikir bahwa perbedaan usia 10 tahun terlalu besar?
+Apakah aku terlalu jadul untuk berpikir bahwa perbedaan usia 10 tahun terlalu besar?
 
 Sepertinya tidak ada masalah di dunia ini.
 
-Bagaimanapun, istri O'brien-san masih berusia dua puluhan membuat jarak usia di antara mereka hampir 20 tahun. Berpikir seperti itu, kurasa selisih 10 tahun sebenarnya tidak banyak.
+istri O'brien-san masih berusia dua puluhan membuat jarak usia di antara mereka hampir 20 tahun. kurasa selisih 10 tahun sebenarnya tidak banyak.
 
 Sambil menghela nafas pada Yayoi-chan yang sedang tertawa, aku menggelengkan kepalaku.
 
-"Ini bukan sesuatu untuk dibicarakan di sini, kan?" (Renji)
+"Ini bukan sesuatu yang bisa dibicarakan di sini, kan?" (Renji)
 
 “Tapi aku bosan.”
 
 “Aku yakin banyak yang harus kamu lakukan, bukan?”
 
-Setidaknya untuk hari ini, dia harus sibuk sepanjang hari.
+Setidaknya untuk hari ini, dia pasti sibuk sepanjang hari.
 
-Yang terluka tidak akan berakhir, dan pasti ada banyak pria yang datang hanya untuk mendapatkan kesempatan melihat Yayoi-chan juga.
+Yang terluka tidak sedikit, dan pasti ada banyak pria yang datang hanya untuk mendapatkan kesempatan melihat Yayoi-chan juga.
 
 "Aku tahu bahwa menyembuhkan yang terluka itu penting tapi tetap saja aku ingin berbicara seperti ini sesekali juga." (Yayoi)
 
-Yah, aku tidak bisa menyangkalnya. Dia tidak memiliki kepribadian sehingga dia akan mulai mengobrol dengan sembarang orang dengan mudah. Mungkin ada orang yang mungkin mencoba mendengarkan obrolan kami di balik tirai juga, tetapi untuk saat ini, saya tidak merasakannya.
+Yah, aku tidak bisa menyangkalnya. Dia tidak punya kepribadian seperti mengobrol dengan sembarang orang dengan mudah. Mungkin ada orang yang mungkin mencoba mendengarkan obrolan kami di balik tirai juga, tetapi untuk saat ini, aku tidak merasakannya.
 
-"Begitu?"
+"jadi?"
 
 “Aku kesepian ~” (yayoi)
 
