@@ -374,19 +374,19 @@ Dan kedamaian yang kami dapatkan adalah tempat di mana begitu banyak orang terta
 
 Saat kami terus melihat pemandangan itu secara diam-diam, aroma manis yang berbeda, selain makanan yang kami miliki, mendatangiku. Melirik ke sampingku, wajah Aya tepat di sampingku.
 
-Menyadari tatapanku, dia membuang muka ...... tapi dia tidak menjauh dan tetap di tempatnya, dekat denganku. Pipi dan telinganya yang sedikit memerah pasti imajinasi, aku yakin.
+Menyadari tatapanku, dia membuang mukanya ...... tapi dia tidak menjauh dan tetap di tempatnya, dekat denganku. Pipi dan telinganya yang sedikit memerah. pasti imajinasiku saja, aku yakin.
 
 “Apakah kamu merasa kedinginan?” (Renji)
 
 “Eh?”
 
-Wajahmu merah padam.
+"Wajahmu merah padam."
 
-“… ..Mou, biarpun kamu menyadarinya, tolong bersikaplah seolah kamu tidak!”
+“… ..Mou, biarpun kamu menyadarinya, tolong bersikaplah seolah kamu tidak menyadarinya!”
 
 "Ha ha ha."
 
-Ahh, saya yakin. Inilah artinya bahagia.
+Ahh, aku yakin. Inilah artinya bahagia.
 
 Di dalam dadaku terasa hangat dan aku merasa sangat tenang. Aku mendengar suara tawa pria dan wanita dan suara energik para pedagang yang mencoba menjual barang-barang mereka. Di bawah sinar matahari yang hangat, udara yang agak dingin bertiup.
 
