@@ -612,11 +612,11 @@ Pertandinganku berikutnya adalah dengan ——– surambut merah itu, yang menga
 
 "Ya itu benar."
 
-Mengatakan itu, saya berjalan menuju Ms Francesca. Aku bahkan tidak berusaha untuk diam tentang itu tapi dia tidak memperhatikanku sama sekali.
+Mengatakan itu, aku berjalan menuju nona Francesca. Aku bahkan tidak berusaha untuk diam tentang itu tapi dia tidak memperhatikanku sama sekali.
 
-Dia pasti masih memikirkan pertandingan yang dia kalahkan dan tidak ada yang lain.
+Dia pasti masih memikirkan pertandingan itu dan tidak ada yang lain.
 
-Aku bisa mengerti. Saya juga, saat itu —– ketika saya masih menjadi beban bagi orang lain, selalu mengkhawatirkannya. Semakin Anda khawatir, semakin Anda membuat rekan-rekan Anda mengkhawatirkan Anda juga, saya menyadarinya.
+Aku bisa mengerti. aku juga, dulu —– ketika aku masih menjadi beban bagi orang lain, selalu khawatir. Semakin kamu khawatir, semakin kamu membuat rekan-rekanmu mengkhawatirkanmu juga, aku menyadarinya.
 
 "Yo."
 
