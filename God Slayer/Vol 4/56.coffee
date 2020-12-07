@@ -394,7 +394,7 @@ Dan dalam waktu santai dan nyaman ini, kami makan siang. Hanya ini saja, sudah b
 
 "Ah."
 
-Dan di dalam waktu bahagia ini, saya melihat wajah lain yang saya kenal.
+Dan di dalam waktu bahagia ini, aku melihat wajah lain yang kukenal.
 
 Dengan rambut berwarna madu bersinar dari sinar matahari, ekspresi senyumnya yang biasa saat ini menjadi salah satu kejutan.
 
