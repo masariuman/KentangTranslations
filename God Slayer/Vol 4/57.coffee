@@ -100,7 +100,7 @@ Aku pasti melakukannya, tidak peduli apa yang dia katakan selanjutnya, tidak ped
 
 Tapi, aku tidak akan menghadapi Tuhan yang lain.
 
-Dewi ini juga sama. Meskipun dia pernah mengatakan bahwa dia benci bertarung tetapi setelah menghadapi Dewa Iblis, saya dapat melihatnya. Dewi ini berada dalam dimensi kekuatan yang sama sekali berbeda.
+Dewi ini juga sama. Meskipun dia pernah mengatakan bahwa dia benci bertarung tetapi setelah menghadapi Dewa Iblis, aku dapat melihatnya. Dewi ini berada dalam dimensi kekuatan yang sama sekali berbeda.
 
 Aku bahkan tidak bisa berpikir bahwa aku bisa membunuhnya dengan mudah bahkan jika aku bertarung dengan serius.
 
@@ -114,11 +114,11 @@ Aku bahkan tidak bisa berpikir bahwa aku bisa membunuhnya dengan mudah bahkan ji
 
 Fumu.
 
-Jadi, seperti yang diharapkan, mereka bukanlah kejadian alam yang acak, tapi benar-benar keturunan dari Dewa Iblis. Saya sudah cukup yakin tetapi diberi tahu itu pasti membuatnya lebih mudah untuk menerima.
+Jadi, seperti yang diharapkan, mereka bukanlah kejadian alam yang acak, tapi benar-benar keturunan dari Dewa Iblis. aku sudah cukup yakin tetapi diberi tahu itu pasti membuatnya semakin menerimanya.
 
-Saya ingat orc hitam itu, dan ogre hitam yang menyerang kota Sihir.
+aku ingat orc hitam itu, dan ogre hitam yang menyerang kota Sihir.
 
-Kerangka yang aku lawan di hutan adalah —— Aku ingin tahu tentang yang itu.
+tengkorak yang aku lawan di hutan —— Aku ingin tahu tentang yang itu.
 
 Ada satu hal yang umum antara orc hitam dan ogre. Artinya mereka berdua terlalu lemah untuk keturunan Dewa Iblis. Tidak peduli seberapa terspesialisasi Ermenhilde untuk membunuh dewa, keturunannya tidak cukup lemah sehingga mereka bisa dijatuhkan olehku sendiri. Sebaliknya, Skeleton itu cukup kuat bahkan aku bersama Mururu tidak bisa mengalahkannya sama sekali.
 
