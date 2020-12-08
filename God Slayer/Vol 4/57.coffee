@@ -254,9 +254,9 @@ Apakah keinginannya tetap ada, atau hanya kekuatannya, atau mungkin dia hanya se
 
 (Bagian 2 )
 
-“Jadi, kamu bilang aku tidak akan meluangkan waktu?” (Renji)
+“Jadi, kamu bilang aku tidak akan tepat waktu?” (Renji)
 
-“Jumlah pecahan di mana tubuh utama Nayfell telah dihancurkan terlalu besar. Aku yakin saat mereka menghidupkannya kembali, kamu tidak akan bisa membunuh semua keturunannya tepat waktu. "
+"Jumlah pecahan tubuh utama Nayfell terlalu banyak. Aku yakin saat mereka menghidupkannya kembali, kamu tidak akan bisa membunuh semua keturunannya tepat waktu. "
 
 Apakah angkanya sebesar itu?
 
