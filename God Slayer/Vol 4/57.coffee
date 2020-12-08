@@ -120,33 +120,33 @@ aku ingat orc hitam itu, dan ogre hitam yang menyerang kota Sihir.
 
 tengkorak yang aku lawan di hutan —— Aku ingin tahu tentang yang itu.
 
-Ada satu hal yang umum antara orc hitam dan ogre. Artinya mereka berdua terlalu lemah untuk keturunan Dewa Iblis. Tidak peduli seberapa terspesialisasi Ermenhilde untuk membunuh dewa, keturunannya tidak cukup lemah sehingga mereka bisa dijatuhkan olehku sendiri. Sebaliknya, Skeleton itu cukup kuat bahkan aku bersama Mururu tidak bisa mengalahkannya sama sekali.
+Ada satu hal yang umum antara orc hitam dan ogre. Artinya mereka berdua terlalu lemah untuk keturunan Dewa Iblis. Tidak peduli seberapa terspesialisasi Ermenhilde untuk membunuh dewa, keturunannya tidak cukup lemah sampai mereka bisa dikalahkann olehku sendiri. Sebaliknya, tengkorak itu cukup kuat bahkan aku bersama Mururu tidak bisa mengalahkannya sama sekali.
 
-Keduanya baru lahir, tapi yang terakhir sudah ada sejak lama. Itulah satu-satunya cara untuk membuatnya koheren. Kami hanya gagal menemukan dan membunuh Tengkorak itu selama perjalanan kami untuk menaklukkan Dewa Iblis. Orc dan ogre itu baru lahir dan belum menjadi dewasa. Itulah mengapa mereka kekurangan pengalaman, dan ——- lemah.
+Keduanya baru lahir, tapi yang terakhir sudah ada sejak lama. Kami hanya gagal menemukan dan membunuh Tengkorak itu selama perjalanan kami untuk menaklukkan Dewa Iblis. Orc dan ogre itu baru lahir dan belum menjadi dewasa. Itulah mengapa mereka kekurangan pengalaman, dan ——- lemah.
 
 Mengingat bahwa kami tidak mendekati hutan saat itu, itu semua masuk akal.
 
 "Satu, pertanyaan." (Renji)
 
-"Lanjutkan."
+"silahkan."
 
 “Aku pasti membunuh Dewa Iblis Nayfell, dengan dua tangan ini.”
 
-Ya, kamu melakukannya.
+"Ya, kamu melakukannya."
 
-“Lalu mengapa keturunan baru lahir diam? Bukankah Raja Iblis sendirilah yang melahirkan mereka? "
+"Lalu mengapa keturunannya masih lahir? Bukankah Raja Iblis sendirilah yang melahirkan mereka? "
 
 "Itu karena mayat Nayfell masih ada."
 
 “………………”
 
-Beberapa kata itu, membuatku tercekik. Seolah-olah hati saya telah dicengkeram, di dalamnya terasa sesak dan sakit.
+Beberapa kata itu, membuatku tercekik. Seolah-olah hatiku telah dicengkeram, di dalamnya terasa sesak dan sakit.
 
 "…….mayat?"
 
-"Iya. Anda seharusnya menerima sesuatu dari Zwenelia, benar? ”
+"Iya. kamu seharusnya menerima sesuatu dari Zwenelia, benar?"
 
-Diberitahu itu, aku teringat —— jantung Demon Go. Indah seperti kristal tapi jauh lebih keras dari itu ——- fragmen hatinya yang menjijikkan, menjijikkan.
+aku teringat —— jantung dewa Demon. Indah seperti kristal tapi jauh lebih keras dari itu ——- pecahan hatinya yang menjijikkan.
 
 Itulah yang dikirim oleh Dewa Roh Zwenelia kepada kami melalui Mururu.
 
@@ -158,21 +158,21 @@ Kata-katanya sepertinya menyiratkan seolah-olah persepsi kita tentang itu tidak 
 
 Tidak, bukan tidak mungkin. Semua yang kita pikir kita ketahui tentang Dewa tidak lebih dari apa yang kita diteorikan dan tidak lebih. Mungkin persepsi kita salah. Dan karena itu kami menerimanya tanpa keraguan.
 
-Game, film, manga, dan novel. Banyak hal yang ada di dunia kita. Dalam hal-hal seperti itu banyak 'info' beragam tentang makhluk dari dunia lain, seperti monster, Dewa, beastmen, demihuman, dan peri ada dalam jumlah massal. Dan beberapa di antaranya tampaknya dapat diterapkan di dunia ini juga.
+Game, film, manga, dan novel. Banyak hal yang ada di dunia kami. Dalam hal-hal seperti itu banyak 'info' beragam tentang makhluk dari dunia lain, seperti monster, Dewa, beastmen, demihuman, dan peri ada dalam jumlah massal. Dan beberapa di antaranya tampaknya dapat diterapkan di dunia ini juga.
 
-Seperti monster dan binatang buas di hutan yang takut akan api, monster air lemah terhadap petir. Api binatang air, petir mengalahkan air, bumi mengalahkan petir, dan angin mengalahkan bumi. Pengetahuan dan konsep dasar tentang elemen dll memang menjadi salah satu senjata kita di dunia ini.
+Seperti monster dan binatang buas di hutan yang takut akan api, monster air lemah terhadap petir. Api untuk binatang air, petir mengalahkan air, tanah mengalahkan petir, dan angin mengalahkan tanah. Pengetahuan dan konsep dasar tentang elemen dll memang menjadi salah satu senjata kita di dunia ini.
 
-Meskipun ini bukan permainan, ada masalah yang berbeda tapi tetap saja —— pengetahuan yang kami pegang digunakan oleh kami dengan percaya diri.
+Meskipun ini bukan permainan dan ada masalah yang berbeda tapi tetap saja —— pengetahuan yang kami pegang digunakan oleh kami dengan percaya diri.
 
-Itu sebabnya bahkan melawan Dewa Iblis ...... dengan menghancurkan [jantung] yang terletak di tengah tubuhnya yang sepertinya hanya kelemahannya, aku menghancurkan seluruh tubuhnya sampai tidak ada yang tersisa. Kupikir itu sudah cukup tapi ......... sepertinya [hati] itu adalah tubuh aslinya.
+Itu sebabnya bahkan melawan Dewa Iblis ...... dengan menghancurkan [jantung] yang terletak di tengah tubuhnya yang sepertinya hanya kelemahannya, aku menghancurkan seluruh tubuhnya sampai tidak ada yang tersisa. Kupikir itu sudah cukup tapi ......... sepertinya [jantung] itu adalah tubuh aslinya.
 
 “Artinya?” (Renji)
 
-“Karena Anda mematahkan tubuh utamanya, jumlah bagian yang rusak berubah menjadi keturunan secara bergantian.”
+“Karena kamu menghancurkan tubuh utamanya, jumlah pecahan yang hancur berubah menjadi keturunannya.”
 
 Saat aku mendengar itu, bahuku terasa berat tak tertahankan. Kepalaku sakit sekali dan aku menggunakan jariku untuk menekan pelipis kepala.
 
-Apakah itu berarti, saya penyebabnya?
+Apakah itu berarti, akulah penyebabnya?
 
 "Tapi, masalahnya tidak terletak di sana." (Ast)
 
@@ -180,41 +180,41 @@ Apakah itu berarti, saya penyebabnya?
 
 “Merasa sedikit lega?”
 
-“…… .terima kasih atas kata-katanya yang baik.”
+“…… .terima kasih atas kata-katamu yang baik.”
 
 "Oh, cara bicaramu sudah kembali normal."
 
-"Terima kasih banyak." (T / N: Renji berbicara secara formal dengannya tetapi di baris sebelumnya dia berbicara seperti biasanya sehingga dia memperbaikinya di sini.)
+"Terima kasih banyak." (TN: Renji berbicara secara formal dengannya tetapi di baris sebelumnya dia berbicara seperti biasanya sehingga dia memperbaikinya di sini.)
 
-Ketika saya berbicara seperti itu lagi, dia tertawa.
+Ketika aku berbicara seperti itu lagi, dia tertawa.
 
 Meskipun dunia dalam bahaya, dia tetap tenang seperti biasanya. Melihatnya, aku menghela nafas lagi.
 
-"Jadi, apakah saya harus pergi berkeliling membunuh keturunan sekarang?" (RenjI)
+"Jadi, apakah aku harus pergi berkelana untuk membunuh keturunannya sekarang?" (RenjI)
 
-“Itu akan bagus dengan sendirinya tapi, aku ragu kamu akan berhasil tepat waktu.”
+“Itu akan bagus tapi, aku ragu kamu akan berhasil tepat waktu.”
 
 "Apa maksudmu?"
 
-Saya merasakan pertanda buruk ketika dia mengatakan itu.
+aku merasakan pertanda buruk ketika dia mengatakan itu.
 
-Jika keturunan yang baru lahir adalah ancaman bagi dunia, mengapa dia mengatakan bahwa saya tidak akan datang tepat waktu? Persisnya [untuk apa] saya akan terlambat?
+Jika keturunan yang baru lahir adalah ancaman bagi dunia, mengapa dia mengatakan bahwa aku tidak akan bisa tepat waktu? Persisnya [untuk apa] aku akan terlambat?
 
-Menunggu jawabannya, saya tetap diam.
+Menunggu jawabannya, aku tetap diam.
 
-Bahaya bagi dunia adalah bahwa para Iblis mencoba untuk menghidupkan kembali Nayfell.
+"Bahaya bagi dunia adalah bahwa para Iblis mencoba untuk menghidupkan kembali Nayfell."
 
 "Menghidupkan kembali…."
 
-Mengulangi apa yang dia katakan seperti burung beo, aku mencari melalui ingatanku memikirkan hal serupa yang pernah kudengar sebelumnya.
+Mengulangi apa yang dia katakan, aku mencari melalui ingatanku memikirkan hal serupa yang pernah kudengar sebelumnya.
 
-Saya segera menemukannya. Dulu ketika saya menghadapi iblis itu di kota sihir, inilah yang iblis itu katakan. Bahwa Raja Iblis Shelfa menolak untuk menghidupkan kembali Dewa Iblis.
+aku segera menemukannya. Dulu ketika aku menghadapi iblis itu di kota sihir, inilah yang iblis itu katakan. Bahwa Raja Iblis Shelfa menolak untuk menghidupkan kembali Dewa Iblis.
 
-Memikirkan hal itu, tampaknya sebagian iblis, apakah itu mayoritas atau minoritas, mendukung ini dan Raja Iblis tidak tertarik padanya.
+Memikirkan hal itu, tampaknya sebagian iblis, apakah itu mayoritas atau minoritas, mendukung hal ini dan Raja Iblis tidak tertarik untuk itu.
 
-Aku tidak bisa membayangkan apa yang dipikirkan oleh maniak pertempuran itu, tapi aku juga tidak terlalu membutuhkannya. Saya tidak akan tahu sampai saya menanyakannya sendiri secara langsung.
+Aku tidak bisa membayangkan apa yang dipikirkan oleh maniak pertempuran itu, tapi aku juga tidak terlalu membutuhkannya. aku tidak akan tahu sampai aku menanyakannya sendiri secara langsung.
 
-“Tapi hasilnya akan —– Renji, kamu harus mengetahuinya dengan baik seperti kamu membuat keinginan yang sama.” (Ast)
+“Tapi hasilnya —– Renji, kamu bisa mengetahuinya dengan baik karena kamu membuat keinginan yang serupa.” (Ast)
 
 “……… aah.”
 
@@ -222,27 +222,27 @@ Ketika aku ingin menghidupkan kembali Eru, Ermenhilde lahir ....... nampaknya Na
 
 Pasti itu yang dimaksud Astraera.
 
-Sekarang Tuhan macam apakah [keberadaan yang sama sekali berbeda] ini —— bukankah itu masalahnya?
+Sekarang dewa macam apakah [keberadaan yang sama sekali berbeda] ini —— bukankah itu masalahnya?
 
 “Bahkan aku tidak tahu keberadaan macam apa itu.” (Ast)
 
 "Apa maksudmu?"
 
-“Artinya, apakah itu akan menahan keinginan Nayfell — salah satu dari 3 pilar dunia ini atau akankah itu tidak lebih dari avatar penghancur …… .atau itu hanya sebuah wadah belaka.”
+“Artinya, apakah itu akan membawa keinginan Nayfell — salah satu dari 3 pilar dunia ini atau akankah itu tidak lebih dari avatar penghancur …… .atau itu hanya sebuah wadah belaka.”
 
 "Dan kamu tidak tahu itu."
 
-“Ada banyak waktu ketika Dewa telah menghidupkan kembali makhluk ciptaan mereka sendiri, misalnya. manusia atau demihuman, tapi untuk keberadaan yang bahkan bukan keturunan untuk menghidupkan kembali Dewa, ini adalah kasus pertama. "
+"Ada banyak waktu ketika Dewa telah menghidupkan kembali makhluk ciptaan mereka sendiri, misalnya. manusia atau demihuman, tapi untuk keberadaan yang bahkan bukan keturunan untuk menghidupkan kembali Dewa, ini adalah kasus pertama. "
 
-Saya kira, itu benar.
+aku kira, itu benar.
 
 Meskipun Eru lahir dari energi magis Dewi itu sendiri, bahkan Dewi itu sendiri tidak dapat menghidupkannya kembali dengan benar.
 
-Lalu apa yang akan terjadi jika Iblis saja yang mencoba menghidupkan kembali Dewa Iblis mereka, aku bahkan tidak bisa membayangkan.
+Lalu apa yang akan terjadi jika Iblis biasa saja yang mencoba menghidupkan kembali Dewa Iblis mereka, aku bahkan tidak bisa membayangkan.
 
-Meskipun dunia dalam bahaya, saya merasa sedikit déjà vu, —– mungkin karena saya melakukan hal serupa.
+Meskipun dunia dalam bahaya, aku merasa sedikit déjà vu, —– mungkin karena aku melakukan hal serupa.
 
-Aku harus bertemu rekanku Ermenhilde tapi aku yakin Nayfell —- akan menjadi sesuatu yang berbeda juga. Itu adalah hal yang menyedihkan dan menyakitkan ……… .sekali lagi, begitu banyak yang akan dikorbankan.
+Aku bertemu rekanku Ermenhilde tapi aku yakin Nayfell —- akan menjadi sesuatu yang berbeda juga. Itu adalah hal yang menyedihkan dan menyakitkan ……… .sekali lagi, begitu banyak yang akan dikorbankan.
 
 Dewa Iblis itu, tidak ada kebencian yang cukup untuk hal itu. Jika itu dihidupkan kembali seperti sebelumnya …… ​​.Aku akan lagi, bertarung dengan seluruh kekuatanku. Bahkan saat mengetahui berapa banyak pengorbanan yang mungkin timbul untuk melakukan itu.
 
