@@ -368,11 +368,11 @@ Alasanku memikirkan itu adalah karena Kudou melakukan tindakan yang sama seperti
 
 Hanya dari kata-kata itu, semuanya terhubung di dalam kepalaku.
 
-Di saat yang sama, berat, sangat berat …… dari dalam perutku, aku mengeluarkan desahan.
+Di saat yang sama, berat, sangat berat …… dari dalam perutku, aku mengeluarkan helaan nafas.
 
 “Artinya?” (Renji)
 
-“Apakah saya harus mengatakan semuanya dengan lantang agar Anda mengerti? Atau apakah Anda hanya ingin saya mengatakannya? ”
+“Apakah aku harus mengatakan semuanya dengan lantang agar kamu mengerti? Atau apakah kamu hanya ingin aku mengatakannya? ”
 
 "--Tidak."
 
