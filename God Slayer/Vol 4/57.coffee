@@ -392,7 +392,7 @@ Dia ingin membunuh dan menghancurkan dunia. Namun, karena dia ada, monster-monst
 
 Pada akhirnya, —– apa yang ada di ujung jalannya? Jika aku kalah dan Nayfell masih hidup, …… .. akan seperti apa dunia ini?
 
-“Renji, kapan kamu akan kembali lagi nanti?”
+“Renji, kapan kamu akan kembali lagi kesini nanti?”
 
 Saat aku merasa ingin menggaruk-garuk kepalaku, sebuah suara tenang datang kepadaku.
 
