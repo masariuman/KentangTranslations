@@ -470,15 +470,15 @@ Yah, aku bisa memahaminya. Begitu kamu belajar menikmati hal-hal seperti itu, ru
 
 Meskipun dia mengatakan 'aku', dia hanyalah salah satu bagian dari keinginan Dewi Astrara.
 
-"Itu adalah ketidakpercayaan masa muda di pihak saya." (renji)
+"Itu adalah masa mudaku dulu." (renji)
 
-“Kamu masih terlihat sangat muda dari sudut pandangku?” (Ast)
+“Kamu masih terlihat sangat muda dari sudut pandangku...” (Ast)
 
 "Wah terima kasih."
 
 “Selain itu, menurutku cara bicaramu yang normal jauh lebih menyenangkan daripada ini.”
 
-"……..Tentu."
+"……..Tentu saja."
 
 Setelah itu, percakapan berakhir.
 
@@ -486,27 +486,27 @@ Setelah itu, percakapan berakhir.
 
 “……… ..”
 
-Tapi, saat itu dia membuat wajah yang sangat terkejut.
+saat itu dia membuat wajah yang sangat terkejut.
 
 “Apakah kamu benar-benar menanyakan itu padaku?” (Ast)
 
-Apa, apakah saya menanyakan sesuatu yang aneh?
+Apa, apakah aku menanyakan sesuatu yang aneh?
 
-"Tidak. Anda benar-benar sensitif terhadap permusuhan dan tidak ada yang lain, bukan? ”
+"Tidak. kamu benar-benar sensitif terhadap permusuhan dan tidak ada yang lain, bukan?"
 
 Tunggu, apakah dia memanggilku bodoh?
 
-Merasa sedikit cemberut, itu pasti terlihat di wajah saya saat Astraera memberikan senyuman lembut.
+Merasa sedikit cemberut, itu pasti terlihat di wajahku saat Astraera memberikan senyuman lembut.
 
-“Keturunan yang kalian sebut kura-kura. Itu gadis yang kamu temukan di mana kamu membantai keturunan itu. "
+"Keturunan yang kalian sebut kura-kura. Itu gadis yang kamu temukan di mana kamu melawan keturunan itu. "
 
 Torotise?
 
 Memiringkan kepalaku pada kata yang tidak ada di dunia ini, aku dengan cepat mengingat sesuatu.
 
-Kura-kura darat. Atau lebih tepatnya keturunan Koutarou yang bernama [Genbu]. (T / N: Genbu mengacu pada: Black Tortoise, simbol konstelasi Cina. Google untuk info lebih lanjut.)
+Kura-kura darat. Atau lebih tepatnya keturunan Koutarou yang bernama [Genbu].
 
-Itu raksasa seperti gunung, dan sangat lambat. Dari atas, itu benar-benar terlihat seperti kura-kura …… itu pernah disebut sebagai keturunan terkuat yang hidup di ion Imnesia. Mendengar nama lama itu, saya teringat tempat kami membunuhnya. Berarti…….
+Itu raksasa seperti gunung, dan sangat lambat. Dari atas, itu benar-benar terlihat seperti kura-kura …… itu pernah disebut sebagai keturunan terkuat yang hidup di Imnesia. Mendengar nama lama itu, aku teringat tempat kami membunuhnya. Berarti…….
 
 “……… Jadi itu Solnea, eh?”
 
