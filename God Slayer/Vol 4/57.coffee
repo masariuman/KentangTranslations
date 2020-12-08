@@ -70,25 +70,25 @@ Dia bisa saja mengeles.
 
 Sambil memikirkan betapa seriusnya dia, aku menghela nafas lagi. Mendengar itu, wajahnya yang hampir dingin dan cantik tersenyum.
 
-Ekspresinya, sangat mirip dengan Eru. Yah, kurasa itu sudah jelas. Bagaimanapun, Eru lahir dengan membagi bagian dari energi magis Astraera sendiri. Adalah normal bagi Eru untuk mirip dengan Astraera dalam banyak hal.
+Ekspresinya, sangat mirip dengan Eru. Yah, kurasa itu sudah jelas. Bagaimanapunjuga, Eru lahir dengan membagi bagian dari energi magis Astraera sendiri. normal bagi Eru untuk mirip dengan Astraera.
 
-Meskipun penampilan mereka mirip, kepribadian mereka sangat berlawanan. Mereka lebih, jika saya harus mengatakan, seperti ibu dan putrinya.
+Meskipun penampilan mereka mirip, kepribadian mereka sangat berlawanan. Mereka lebih seperti ibu dan anak.
 
-Astraera, Eru dan Ermenhilde. Jika saya harus berbicara tentang hubungan mereka, itulah cara terbaik untuk menggambarkannya.
+Astraera, Eru dan Ermenhilde. itulah cara terbaik untuk menggambarkannya.
 
 “Fakta bahwa kamu akhirnya di sini berarti, aku boleh berasumsi bahwa kamu akhirnya siap untuk melihat ke depan lagi kan?” (Ast)
 
-“Lakukan sesukamu. Tapi, itu hanya karena dunia tampaknya dalam bahaya lagi. "
+"Lakukan sesukamu. Tapi, ini semua hanya karena dunia tampaknya dalam bahaya lagi. "
 
-"Saya melihat. Kalau begitu, kamu akan menyelamatkan dunia sekali lagi, kan? ”
+"begitu ya... Kalau begitu, kamu akan menyelamatkan dunia sekali lagi, kan?"
 
 “Jika, dunia benar-benar dalam bahaya mematikan.”
 
 Setelah jeda singkat.
 
-"Selama lawan saya bukan Tuhan yang lain." (Renji)
+"Selama lawanku bukan Tuhan yang lain." (Renji)
 
-"Saya melihat."
+"begitu..."
 
 Saat aku mengatakan itu sambil mengangkat bahu, dia mengatakan itu sambil menghela nafas lega. Sepertinya dia benar-benar mengira aku akan menolak.
 
