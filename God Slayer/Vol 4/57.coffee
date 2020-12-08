@@ -44,15 +44,15 @@ Saat aku mengangkat kepalaku sambil memikirkan cara untuk meminta maaf padanya, 
 
 Tapi dengan kata-kata berikutnya, aku juga merasakan perasaan hangat 'berterima kasih atas semua masalah yg kamu berikan', atau semacamnya.
 
-Dia tidak menyilangkan kakinya, ketika aku mendengar beberapa gemerisik di bajunya. Dan di dalam ruang yang tenang, saya merasakan suasana yang lebih lembut meresap.
+Dia tidak menyilangkan kakinya, ketika aku mendengar beberapa gemerisik di bajunya. Dan di dalam ruang yang tenang, aku merasakan suasana yang lebih lembut meresap.
 
 “Setahun terakhir ini, bagaimana kabarmu?” (Ast)
 
 “…… ..Seperti biasanya.”
 
-"Saya melihat."
+"begitu...."
 
-Ketika saya mengatakan itu, sepertinya dia mengerti apa yang saya maksud karena caranya berbicara sangat lembut. Saat aku berdiri dan menghadapinya secara langsung, sekarang matanya menyipit dengan kelembutan.
+Ketika aku mengatakan itu, sepertinya dia mengerti apa yang aku maksud karena caranya berbicara sangat lembut. Saat aku berdiri dan menghadapinya secara langsung, sekarang matanya menyipit dengan kelembutan.
 
 Jadi dia hanya menggertak ……… .itu sangat buruk untuk hatiku.
 
