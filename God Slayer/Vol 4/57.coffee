@@ -326,31 +326,31 @@ Anak-anak dan orang tua harus mengambil senjata sekali lagi, dan daripada bekerj
 
 Saat aku menanyakan itu, dia menggelengkan kepalanya. Rambut perak halusnya bergoyang dari gerakannya.
 
-“Renji, aku hanya punya satu keinginan untuk membuatmu.”
+“Renji, aku hanya punya satu keinginan untukmu.”
 
 "Ya."
 
-“Dewa Iblis baru —- Pimpin Dewa Iblis baru yang benci bertarung memperebutkan takhta Dewa.”
+“Dewa Iblis baru —- pandu Dewa Iblis yang baru yang benci bertarung sampai mendapatkan takhta Dewa.”
 
 Tapi, kata-kata yang dia ucapkan benar-benar diluar harapanku.
 
 “…… .Apa?” (Renji)
 
-“Apakah kamu tidak mendengarku? Saya meminta Anda untuk memimpin Dewa Iblis baru ke benua Abenelm. "
+"Apakah kamu tidak mendengarku? aku meminta kamu untuk memandu Dewa Iblis baru ke benua Abenelm. "
 
-“Tidak, saya mengerti tapi ………”
+“Tidak, aku mengerti tapi ………”
 
-Saya mengerti bahwa itu perlu dan penting tetapi tetap saja ...
+aku mengerti bahwa itu perlu dan penting tetapi tetap saja ...
 
-Saya adalah salah satu Pahlawan yang menyelamatkan umat manusia dan Dewa Iblis adalah musuh yang harus dikalahkan umat manusia. Dia musuh alami semua makhluk hidup di dunia ini. Dan dia memintaku untuk mengatur Dewa Iblis baru ……… ..Aku sudah bisa membayangkan bagaimana orang akan bereaksi terhadap ini.
+aku adalah salah satu Pahlawan yang menyelamatkan umat manusia dan Dewa Iblis adalah musuh yang harus dikalahkan umat manusia. Dia musuh alami semua makhluk hidup di dunia ini. Dan dia memintaku untuk membuat Dewa Iblis baru ……… ..Aku sudah bisa membayangkan bagaimana orang akan bereaksi terhadap ini.
 
-Karena saya tidak memberinya jawaban, Astraera memiringkan kepalanya dengan bingung saat dia menatap saya. Tidak, bahkan jika kamu membuat gerakan yang lucu, aku masih tidak dapat dengan mudah menganggukkan kepalaku pada hal seperti itu, tahu?
+Karena aku tidak memberinya jawaban, Astraera memiringkan kepalanya dengan bingung sambil dia menatapku. Tidak, bahkan jika kamu membuat gerakan yang lucu, aku masih tidak dapat dengan mudah menganggukkan kepalaku pada hal seperti itu, tahu?
 
-“Apakah Anda mungkin membutuhkan penjelasan lebih lanjut?” (Ast)
+“Apakah kamu mungkin membutuhkan penjelasan lebih lanjut?” (Ast)
 
 "Tolong, ya."
 
-Suaraku begitu datar hingga membuatku terkejut.
+Suaraku begitu datar hingga bahkan membuatku terkejut.
 
 Melihatku seperti itu dan tertawa kecil, dia sekali lagi menyilangkan kaki rampingnya. Jika dia memakai kacamata juga, dia akan terlihat seperti guru yang seksi, aku yakin.
 
