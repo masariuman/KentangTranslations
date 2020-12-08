@@ -512,3 +512,7 @@ Itu raksasa seperti gunung, dan sangat lambat. Dari atas, itu benar-benar terlih
 
 Saat aku menyebut nama itu, senyum sang Dewi semakin dalam.
 
+
+---------------
+
+masariuman : ita sudah berada di akhir volume 4.. tapi maaf untuk terjemahan novel ini, mungkin akan saya hentikan disini... saya agak bingung sama urutan selanjutnya... jadi kalau ada yang bisa memberitahu saya untuk chapter selanjutnya dalam bentuk RAW yang mana, saya bisa menerjemahkannya lagi. terima kasih karena telah mendukung saya untuk menerjemahkan novel ini.... saya akan fokus pada hidup santai dan mungkin saya akan mengambil 1 novel lain yang tidak terlalu panjang di setiap chapternya... TERIMA KASIH BANYAK DAN NANTIKAN DI UPDATE BERIKUTNYA YAAAA !!! :D :D :D
