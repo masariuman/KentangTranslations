@@ -356,7 +356,7 @@ Melihatku seperti itu dan tertawa kecil, dia sekali lagi menyilangkan kaki rampi
 
 Alasanku memikirkan itu adalah karena Kudou melakukan tindakan yang sama seperti Astraera berkali-kali sebelumnya sambil mengatakan itu. Sungguh, baik Kudou maupun Koutarou tidak lebih dari pengaruh buruk bagi semua orang.
 
-“Dunia ini belum pulih untuk selamat dari perang lainnya. Jadi, kita perlu menempatkan Dewa Iblis di atas takhta yang tidak bertarung. Jika kita bisa melakukan itu, bahkan monster akan terdiam. "(Ast)
+"Dunia ini belum pulih untuk selamat dari perang lainnya. Jadi, kita perlu menempatkan Dewa Iblis baru di atas takhta yang tidak ingin bertarung. Jika kita bisa melakukan itu, bahkan monster akan terdiam. "(Ast)
 
 “……… .Tunggu, kenapa monster?”
 
