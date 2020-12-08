@@ -260,19 +260,19 @@ Apakah keinginannya tetap ada, atau hanya kekuatannya, atau mungkin dia hanya se
 
 Apakah sebanyak itu?
 
-Saya ingin bertanya berapa banyak, tetapi pada akhirnya memutuskan untuk tidak melakukannya. Saya merasa seperti saya hanya akan kehilangan motivasi saya mendengar beberapa angka gila.
+aku ingin bertanya berapa banyaknya, tetapi pada akhirnya memutuskan untuk tidak melakukannya. aku merasa seperti aku hanya akan kehilangan motivasi aku mendengar beberapa angka gila.
 
-Jika tidak mungkin bagiku sendirian, Souichi dan yang lainnya juga bisa membantu ........ Kupikir tapi, jika Astraera mengatakan itu, jumlahnya pasti sangat besar sehingga kita tidak akan datang tepat waktu.
+Jika tidak mungkin bagiku sendirian, Souichi dan yang lainnya juga bisa membantu ........ Kupikir tapi, jika Astraera mengatakan itu, jumlahnya pasti sangat besar sehingga kami tidak akan bisa tepat waktu.
 
-“Lalu, apa yang harus saya lakukan? Jika kau akan memberitahuku untuk membunuh Nayfell yang telah bangkit lagi, aku ………. ”
+“Lalu, apa yang harus aku lakukan? Jika kau akan memberitahuku untuk membunuh Nayfell yang telah bangkit lagi, aku ………. ”
 
-Saya sendiri, tidak cukup …… ..dalam hal kekuasaan, dan kehidupan …… .dalam segala hal.
+aku sendiri, tidak akan cukup …… ..dalam hal kekuasaan, dan kehidupan …… .dalam segala hal.
 
-——- tujuh kendala yang ditetapkan pada Ermenhilde. Sekarang saya tahu semuanya, saya tahu saya tidak bisa melawan Tuhan sendirian.
+——- tujuh kendala yang ditetapkan pada Ermenhilde. Sekarang aku tahu semuanya, aku tahu aku tidak bisa melawan dewa sendirian.
 
-[Keinginan saya untuk bertarung.]
+[Keinginanku untuk bertarung.]
 
-[Keinginan saya untuk melindungi seseorang.]
+[Keinginanlku untuk melindungi seseorang.]
 
 [Untuk menepati janji pada rekan rekanku.]
 
@@ -280,13 +280,13 @@ Saya sendiri, tidak cukup …… ..dalam hal kekuasaan, dan kehidupan …… .da
 
 [Menerima perlindungan Astraera.]
 
-[Kematian seorang kawan.]
+[Kematian seorang teman.]
 
 ……… .dan yang ketujuh.
 
-Saya tidak bisa bertarung sendirian. Jika saya tidak memiliki rekan —— jika saya tidak memiliki banyak rekan, saya tidak bisa melepaskan kekuatan penuh saya. Dan di atas segalanya —– Aku juga harus membuat pengorbanan yang besar.
+aku tidak bisa bertarung sendirian. Jika aku tidak memiliki rekan —— jika aku tidak memiliki banyak rekan, aku tidak bisa melepaskan kekuatan penuhku. Dan dari semua itu —– Aku juga harus membuat pengorbanan yang besar.
 
-Saya tidak cukup kuat, untuk sekali lagi memenuhi semua persyaratan itu.
+aku tidak cukup kuat, untuk sekali lagi memenuhi semua persyaratan itu.
 
 Aku yakin, jika ketujuh perjanjian dilepaskan, aku bisa bertarung satu lawan satu dengan Nayfell. Tidak, saya tahu saya bisa menang. Karena kekuatanku dan Eru …… ..Ermenhilde mengkhususkan diri dalam membunuh Dewa.
 
