@@ -94,13 +94,13 @@ Saat aku mengatakan itu sambil mengangkat bahu, dia mengatakan itu sambil menghe
 
 Dia benar-benar masih harus banyak belajar.
 
-Aku akan, tidak peduli apa yang dia katakan selanjutnya, tidak peduli apa yang dia inginkan dariku ……… jika itu untuk menyelamatkan dunia ini dari bahaya, aku tidak akan menolak. Itu saja, bisa saya katakan dengan bangga.
+Aku pasti melakukannya, tidak peduli apa yang dia katakan selanjutnya, tidak peduli apa yang dia inginkan dariku ……… jika itu untuk menyelamatkan dunia ini dari bahaya, aku tidak akan menolak. Itu saja, aku bisa mengatakan dengan bangga.
 
 “Jadi?” (Renji)
 
-Tapi, saya tidak akan menghadapi Tuhan yang lain.
+Tapi, aku tidak akan menghadapi Tuhan yang lain.
 
-Itu sama bahkan untuk Dewi ini. Meskipun dia pernah mengatakan bahwa dia benci berkelahi tetapi setelah menghadapi Dewa Iblis, saya tahu. Dewi ini berada dalam dimensi kekuatan yang sama sekali berbeda.
+Dewi ini juga sama. Meskipun dia pernah mengatakan bahwa dia benci bertarung tetapi setelah menghadapi Dewa Iblis, saya dapat melihatnya. Dewi ini berada dalam dimensi kekuatan yang sama sekali berbeda.
 
 Aku bahkan tidak bisa berpikir bahwa aku bisa membunuhnya dengan mudah bahkan jika aku bertarung dengan serius.
 
@@ -110,7 +110,7 @@ Aku bahkan tidak bisa berpikir bahwa aku bisa membunuhnya dengan mudah bahkan ji
 
 “Fakta bahwa keturunan Dewa Iblis muncul di Imnesia, dan monster mulai bergerak lebih aktif, bukan?”
 
-"Persis. Yang lebih serius adalah yang pertama —- fakta bahwa keturunan itu masih dilahirkan. ”
+"benar. Yang lebih serius adalah yang pertama —- fakta bahwa keturunan itu masih dilahirkan."
 
 Fumu.
 
