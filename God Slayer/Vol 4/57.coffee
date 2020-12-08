@@ -56,7 +56,7 @@ Ketika aku mengatakan itu, sepertinya dia mengerti apa yang aku maksud karena ca
 
 Jadi dia hanya menggertak ……… .itu sangat buruk untuk hatiku.
 
-Merasa dengan tubuh saya sendiri bahwa tekanannya telah berkurang, saya merasa lega. Sepertinya dalam satu tahun ini, dia tumbuh lebih seperti manusia juga.
+Merasa dengan tubuhku sendiri bahwa tekanannya telah berkurang, aku merasa lega. Sepertinya dalam satu tahun ini, dia lebih seperti manusia juga.
 
 Sambil bertanya-tanya apakah aku harus senang tentang itu, aku menghela nafas dalam-dalam tanpa membuatnya menyadarinya.
 
@@ -66,7 +66,7 @@ Sambil bertanya-tanya apakah aku harus senang tentang itu, aku menghela nafas da
 
 "Betulkah? Tapi aku tidak begitu mengerti. "
 
-Dia pasti bisa bicara.
+Dia bisa saja mengeles.
 
 Sambil memikirkan betapa seriusnya dia, aku menghela nafas lagi. Mendengar itu, wajahnya yang hampir dingin dan cantik tersenyum.
 
