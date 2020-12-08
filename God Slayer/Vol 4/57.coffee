@@ -288,7 +288,7 @@ aku tidak bisa bertarung sendirian. Jika aku tidak memiliki rekan —— jika ak
 
 aku tidak cukup kuat, untuk sekali lagi memenuhi semua persyaratan itu.
 
-Aku yakin, jika ketujuh perjanjian dilepaskan, aku bisa bertarung satu lawan satu dengan Nayfell. Tidak, saya tahu saya bisa menang. Karena kekuatanku dan Eru …… ..Ermenhilde mengkhususkan diri dalam membunuh Dewa.
+Aku yakin, jika ketujuh segel dilepaskan, aku bisa bertarung satu lawan satu dengan Nayfell. Tidak, aku tahu aku bisa menang. Karena kekuatanku dan Eru …… ..Ermenhilde dikhususkan dalam membunuh Dewa.
 
 Tapi--
 
