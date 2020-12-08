@@ -396,25 +396,25 @@ Pada akhirnya, —– apa yang ada di ujung jalannya? Jika aku kalah dan Nayfell
 
 Saat aku merasa ingin menggaruk-garuk kepalaku, sebuah suara tenang datang kepadaku.
 
-Itu setenang permukaan danau, itu adalah suara normal Astraera. Ketika saya mendengar suara yang sama yang saya dengar pertama kali saya bertemu dengannya, saya merasa sedikit lega.
+Itu setenang permukaan danau, itu adalah suara normal Astraera. Ketika aku mendengar suara yang sama yang aku dengar pertama kali bertemu dengannya, aku merasa sedikit lega.
 
 Tapi, apa yang dia ucapkan sangat berbeda dari waktu itu, itu adalah masalah pribadi.
 
-“…… ..lanjutnya ..” (renji)
+“…… ..berikutnya ..” (renji)
 
-“Kamu tidak akan datang lagi?”
+“Kamu tidak akan datang kesini lagi?”
 
-"Tidak, saya akan, saya pikir."
+"Tidak, aku akan datang, mungkin."
 
-"Saya melihat."
+"begitu ya..."
 
-Mungkin karena dia memiliki tubuh fisik sekarang, tapi ditunjukkan senyuman seperti itu membuatku sangat sadar tentang dia.
+Mungkin karena dia memiliki tubuh fisik sekarang, tapi ditunjukkan senyuman seperti itu membuatku sangat sadar tentangnya.
 
-Meskipun, bahkan jika dia hanyalah cahaya, atau harus saya katakan, distorsi di ruang angkasa, saya tetap akan mendengarkannya.
+Meskipun, bahkan jika dia hanyalah cahaya, atau bisa kukatakan, distorsi di rang waktu, aku tetap akan mendengarkannya.
 
-"Beberapa saat lagi." (Renji)
+"mungkin segera." (Renji)
 
-“Saya tidak suka menunggu. Tolong, datang bertemu lebih cepat lain kali. "
+"aku tidak suka menunggu. Tolong, datang bertemu denganku lebih cepat lain kali. "
 
 "Iya."
 
