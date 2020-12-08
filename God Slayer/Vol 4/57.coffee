@@ -312,13 +312,13 @@ Sementara manusia terbunuh dan berkurang karena monster, Monster itu sendiri ter
 
 "Iya. Jika itu terjadi, iblis akan sekali lagi mengarahkan taring mereka ke arah manusia dan demihuman. "
 
-Saya bahkan tidak perlu berpikir untuk membayangkan seperti apa hasilnya nanti. Perang akan dimulai, sekali lagi.
+aku bahkan tidak perlu berpikir untuk membayangkan seperti apa hasilnya nanti. Perang akan dimulai, sekali lagi.
 
-Anak-anak dan orang tua harus mengambil senjata sekali lagi, dan alih-alih bekerja di ladang dengan damai, itu akan mengubah dunia menjadi dunia pembunuh atau dunia yang terbunuh sekali lagi. Neraka itu, akan mulai lagi.
+Anak-anak dan orang tua harus mengambil senjata sekali lagi, dan daripada bekerja di ladang dengan damai, itu akan mengubah dunia menjadi dunia pembunuh atau dunia yang terbunuh sekali lagi. Neraka itu, akan dimulai lagi.
 
 ……… Hanya memikirkannya saja membuatku pusing.
 
-“Dan kali ini, dunia, yang sudah lelah bertarung melawan Demon God sekali, tidak akan bisa bertahan.” (Ast)
+“Dan kali ini, dunia, yang sudah lelah bertarung melawan dewa iblis, tidak akan bisa bertahan.” (Ast)
 
 “Kamu mengatakan itu tapi kamu masih terdengar cukup tenang …… .Atau itu hanya imajinasiku?” (Renji)
 
