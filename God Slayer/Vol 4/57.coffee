@@ -258,7 +258,7 @@ Apakah keinginannya tetap ada, atau hanya kekuatannya, atau mungkin dia hanya se
 
 "Jumlah pecahan tubuh utama Nayfell terlalu banyak. Aku yakin saat mereka menghidupkannya kembali, kamu tidak akan bisa membunuh semua keturunannya tepat waktu. "
 
-Apakah angkanya sebesar itu?
+Apakah sebanyak itu?
 
 Saya ingin bertanya berapa banyak, tetapi pada akhirnya memutuskan untuk tidak melakukannya. Saya merasa seperti saya hanya akan kehilangan motivasi saya mendengar beberapa angka gila.
 
