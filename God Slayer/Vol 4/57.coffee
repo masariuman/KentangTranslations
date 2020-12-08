@@ -244,13 +244,13 @@ Meskipun dunia dalam bahaya, aku merasa sedikit déjà vu, —– mungkin karena
 
 Aku bertemu rekanku Ermenhilde tapi aku yakin Nayfell —- akan menjadi sesuatu yang berbeda juga. Itu adalah hal yang menyedihkan dan menyakitkan ……… .sekali lagi, begitu banyak yang akan dikorbankan.
 
-Dewa Iblis itu, tidak ada kebencian yang cukup untuk hal itu. Jika itu dihidupkan kembali seperti sebelumnya …… ​​.Aku akan lagi, bertarung dengan seluruh kekuatanku. Bahkan saat mengetahui berapa banyak pengorbanan yang mungkin timbul untuk melakukan itu.
+Dewa Iblis itu, Jika itu dihidupkan kembali seperti sebelumnya …… ​​.Aku akan lagi, bertarung melawannya dengan seluruh kekuatanku. Bahkan saat mengetahui berapa banyak pengorbanan yang mungkin timbul untuk melakukan itu.
 
-Dia bilang dia bosan.
+dewa ibllis itu bilang dia bosan.
 
 Seperti halnya keinginan Astraera untuk melihat orang-orang yang hidup di dunia ini, seperti halnya Zwenelia yang suka tidur dengan damai dan tenang, ....... monster itu, menginginkan perselisihan dan konflik.
 
-Apakah keinginannya tetap ada, atau hanya kekuatannya, atau mungkin dia hanya sebuah wadah. Tapi —– Aku tidak akan mengabaikan Tuhan yang menginginkan perselisihan.
+Apakah keinginannya tetap ada, atau hanya kekuatannya, atau mungkin dia hanya sebuah wadah. Tapi —– Aku tidak akan mengabaikan dewa yang menginginkan perselisihan.
 
 (Bagian 2 )
 
