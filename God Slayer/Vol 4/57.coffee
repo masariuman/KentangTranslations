@@ -426,7 +426,7 @@ Sambil memberikan jawaban yang tidak jelas, aku menggelengkan kepala yang terasa
 
 “Karena ini adalah festival langka, aku berharap kamu memanggilku ke kota.”
 
-“……… .Jika kamu muncul di kota, itu bukan hanya festival yang ramai lagi, kamu tahu?”
+“……… .Jika kamu muncul di kota, itu bukan hanya festival yang ramai lagi lho...”
 
 Itu yang kamu pedulikan?
 
@@ -436,15 +436,15 @@ Saat aku menghela nafas sambil mengalihkan pandanganku, aku merasakan tekanan da
 
 “…… ..Aku tidak peduli.”
 
-Mengucapkan kata-kata yang biasanya dianggap hampir menghujat, aku mendesah keras.
+Mengucapkan kata-kata yang biasanya dianggap hampir menghujat, aku menghela nafas keras.
 
 “Meskipun tubuh ini tidak membutuhkan makanan, aku masih memiliki indra perasa lho?” (Ast)
 
 "Aku tahu."
 
-Saya telah membawanya ke begitu banyak kios sebelumnya, jadi tentu saja, saya tahu.
+aku telah membawanya ke begitu banyak kios sebelumnya, jadi tentu saja, aku tahu.
 
-Saya yakin itu pasti telah membangkitkan gourmet dalam dirinya. Sekarang kesampingkan apakah itu hal yang baik atau tidak, mengapa hanya saya yang diminta untuk melakukan hal-hal seperti itu?
+aku yakin itu pasti telah membangkitkan nafsu dalam dirinya. Sekarang kesampingkan apakah itu hal yang baik atau tidak, mengapa hanya aku yang diminta untuk melakukan hal-hal seperti itu?
 
 Biarpun bukan aku, Souichi dan Kuuki —– sebenarnya, aku yakin Koutarou akan segera mendengarkan apapun yang diminta Astraera. Itu pasti karena aku orang pertama yang membawanya keluar dari ruang ini, kurasa.
 
