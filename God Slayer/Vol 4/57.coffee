@@ -450,9 +450,9 @@ Biarpun bukan aku, Souichi dan Kuuki —– sebenarnya, aku yakin Koutarou akan 
 
 “Daging yang baru dipanggang benar-benar enak lho?”
 
-Mengatakan hal-hal yang seharusnya aneh bagi seorang Dewi, dia menatapku dengan kesal. Meskipun Dewa mengharuskan mereka disembah, Dewi ini masih menyukai festival lebih dari doa dan persembahan.
+Mengatakan hal-hal yang seharusnya aneh bagi seorang Dewi, dia menatapku dengan kesal. Meskipun Dewa seharusnya mereka disembah, Dewi ini masih menyukai festival lebih dari doa dan persembahan.
 
-Aku tidak tahu siapa yang ingin melihat kecantikan tiada tara seperti dia memakan daging Orc yang ditusuk dari sebuah kios di jalan. Saya pasti tidak mau.
+Aku tidak tahu siapa yang ingin melihat kecantikan tiada tara seperti dia memakan daging Orc yang ditusuk dari sebuah kios di jalanan. aku pasti tidak mau melakukannya.
 
 Tapi tetap saja, dewi ini sangat ingin memakannya. Aku benar-benar tidak mengerti apa yang dipikirkan dewa.
 
