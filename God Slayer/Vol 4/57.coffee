@@ -22,7 +22,7 @@ Matanya yang hampir dingin dan tenang menatapku dan mulutnya lurus seperti garis
 
 Jelas, dia tidak senang.
 
-Ekspresi senyumnya yang terlihat di patung peraknya terasa seperti ekspresi langka darinya. Tapi masih menganggapnya secantik sekarang, kurasa seperti yang diharapkan dari seorang Dewi ya?
+Ekspresi senyumnya yang terlihat di patung peraknya terasa seperti ekspresi langka darinya. Tapi masih menganggapnya secantik sekarang, namanya juga Dewi ya?
 
 Dewi Astraera. Pencipta umat manusia dan Dewi Cahaya.
 
