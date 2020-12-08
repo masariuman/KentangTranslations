@@ -454,19 +454,19 @@ Mengatakan hal-hal yang seharusnya aneh bagi seorang Dewi, dia menatapku dengan 
 
 Aku tidak tahu siapa yang ingin melihat kecantikan tiada tara seperti dia memakan daging Orc yang ditusuk dari sebuah kios di jalanan. aku pasti tidak mau melakukannya.
 
-Tapi tetap saja, dewi ini sangat ingin memakannya. Aku benar-benar tidak mengerti apa yang dipikirkan dewa.
+Tapi tetap saja, dewi ini sangat ingin memakannya. Aku benar-benar tidak mengerti apa yang dipikirkannya.
 
-"Lain kali aku datang, aku akan membawakan beberapa untukmu, oke?" (Renji)
+"nanti ketika aku datang, aku akan membawakan beberapa untukmu, oke?" (Renji)
 
 "Tidak, Renji, aku ingin makan yang baru dipanggang."
 
-"……..Apakah begitu?"
+"…….. begitu?"
 
 Sepertinya dia benar-benar ingin keluar dari ruang ini.
 
-Yah, aku bisa memahaminya. Begitu Anda belajar menikmati hal-hal seperti itu, ruang kosong ini akan selalu terasa membosankan. Aku rasa ini juga tanggung jawabku karena akulah yang membawanya keluar dari sini.
+Yah, aku bisa memahaminya. Begitu kamu belajar menikmati hal-hal seperti itu, ruang kosong ini akan selalu terasa membosankan. Aku rasa ini juga tanggung jawabku karena akulah yang membawanya keluar dari sini.
 
-"Meskipun saat itu, kamu selalu membawaku keluar." (Ast)
+"padahal dulu, kamu selalu membawaku keluar." (Ast)
 
 Meskipun dia mengatakan 'aku', dia hanyalah salah satu bagian dari keinginan Dewi Astrara.
 
