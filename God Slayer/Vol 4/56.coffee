@@ -508,4 +508,4 @@ Seperti yang diharapkan, bahkan dalam kata-kata itu, aku tidak bisa merasakan ap
 
 "Bukan apa-apa." (Renji)
 
-Aku ingin tahu apa yang dia pikirkan Feirona karena dia tersenyum kecut saat dia menatapku.
+Aku ingin tahu apa yang dipikirkan Feirona karena dia tersenyum kecut saat dia menatapku.
