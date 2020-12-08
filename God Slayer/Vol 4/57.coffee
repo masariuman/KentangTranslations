@@ -2,7 +2,7 @@ Bab 57 dewi
 
 tempat itu benar-benar kosong.
 
-Sejauh mata memandang, dalam semua 360 derajat, baik atas maupun bawah; semuanya putih bersih. Tidak ada semburat warna pun di sini dan itulah sebabnya 'Dia' adalah orang yang tinggal di sini.
+Sejauh mata memandang, baik atas maupun bawah; semuanya putih bersih. Tidak ada warna pun di sini dan itulah sebabnya 'Dia' adalah orang yang tinggal di sini.
 
 Berdoa kepada patung Dewi, doa itu akan sampai padanya, dan hanya setelah mendapatkan izinnya, seseorang dapat memasuki tempat ini.
 
