@@ -6,7 +6,7 @@ Sejauh mata memandang, baik atas maupun bawah; semuanya putih bersih. Tidak ada 
 
 Berdoa kepada patung Dewi, doa itu akan sampai padanya, dan hanya setelah mendapatkan izinnya, seseorang dapat memasuki tempat ini.
 
-Itu tenang dan murni.
+tempatnya tenang dan murni.
 
 Tanah suci di mana hanya beberapa orang terpilih yang diizinkan masuk.
 
