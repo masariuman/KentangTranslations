@@ -28,21 +28,21 @@ Dewi Astraera. Pencipta umat manusia dan Dewi Cahaya.
 
 Orang yang memanggil kita ke dunia ini dan meminta kita untuk membunuh Dewa Iblis.
 
-Dan dia, meski terlihat lebih seperti seorang Ratu, duduk di singgasananya, dengan menyilangkan kaki, melihat ke bawah ke arahku.
+Dan dia, terlihat lebih seperti seorang Ratu, duduk di singgasananya, dengan menyilangkan kaki, melihat ke bawah ke arahku.
 
-“Wah, Astraera-sama, kamu sepertinya baik-baik saja ——“ (renji)
+“Astraera-sama, kamu sepertinya baik-baik saja ——“ (renji)
 
-“Tidak perlu sanjungan kosong. Angkat kepalamu. "
+"Tidak perlu sanjungan seperti itu. Angkat kepalamu. "
 
-Lantai ——- yah, karena semuanya berwarna putih, itu tidak benar-benar terasa seperti lantai tapi tetap saja, aku mencoba menyapanya dengan normal sambil memberikan lutut biasa ketika dia memotongku seketika. Aku tahu dia sedang tidak dalam mood yang baik tapi dia sebenarnya terlihat sangat marah sekarang.
+Lantai ——- yah, karena semuanya berwarna putih, itu tidak benar-benar terasa seperti lantai tapi tetap saja, aku mencoba menyapanya dengan normal. Aku tahu dia sedang tidak dalam mood yang baik tapi dia sebenarnya terlihat sangat kesal sekarang.
 
 Mungkin karena aku tidak datang menemuinya sama sekali dalam setahun terakhir.
 
-Saat aku mengangkatku sambil memikirkan cara untuk meminta maaf padanya, dia terus menatapku dengan dingin. Karena dia memiliki fitur yang sangat tajam, dia terlihat sangat menakutkan. Hampir sama menakutkannya dengan Utano-san yang marah, jika saya harus membandingkan.
+Saat aku mengangkat kepalaku sambil memikirkan cara untuk meminta maaf padanya, dia terus menatapku dengan dingin. Karena dia memiliki tampilan yang sangat tajam, dia terlihat sangat menakutkan. Hampir sama menakutkannya dengan Utano-san yang marah.
 
-“Butuh beberapa saat untuk datang ke sini, eh?” (Ast) (T / N: 'Ast' untuk Astraera.)
+“Butuh banyak waktu untukmu datang ke sini, eh?”
 
-Tapi dengan kata-kata berikutnya, aku juga merasakan perasaan hangat 'berterima kasih atas masalah', atau semacamnya.
+Tapi dengan kata-kata berikutnya, aku juga merasakan perasaan hangat 'berterima kasih atas semua masalah yg kamu berikan', atau semacamnya.
 
 Dia tidak menyilangkan kakinya, ketika aku mendengar beberapa gemerisik di bajunya. Dan di dalam ruang yang tenang, saya merasakan suasana yang lebih lembut meresap.
 
