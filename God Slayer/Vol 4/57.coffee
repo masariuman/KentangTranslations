@@ -14,7 +14,7 @@ Tempat seperti itu.
 
 “Kamu akhirnya di sini, eh?”
 
-Sementara di tempat ini, meskipun dia seharusnya tidak terlihat, atau lebih tepatnya hanya terbuat dari cahaya, atau haruskah saya katakan terlihat seperti distorsi ...... bagaimanapun juga, meskipun dia tidak seharusnya memiliki tubuh fisik, dia saat ini , untuk beberapa alasan, duduk di singgasana tepat di depanku benar-benar terlihat.
+di tempat ini, meskipun dia seharusnya tidak terlihat, atau lebih tepatnya hanya terbuat dari cahaya, atau bisa kukatakan terlihat seperti distorsi ...... bagaimanapun juga, meskipun dia tidak seharusnya memiliki tubuh fisik, dia saat ini , untuk beberapa alasan, duduk di singgasana tepat di depanku dan benar-benar terlihat.
 
 Di dalam dunia putih ini, dia ada di sana dengan rambut perak, dengan elegan mengenakan gaun putih dengan sulaman perak, dan kulit putih yang mengintip dari gaunnya bisa memikat siapa pun. Bahkan tahta itu terbuat dari perak, dan bantal di atasnya terbuat dari bahan putih. Meskipun semuanya sangat terkait dengan putih, hanya mata emasnya, yang warnanya berbeda, yang menonjol.
 
