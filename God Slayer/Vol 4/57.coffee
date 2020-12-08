@@ -296,11 +296,11 @@ Tapi--
 
 Seolah dia bisa membaca pikiranku, Astraera berbicara sambil tersenyum.
 
-"Aku, setelah pengaruh monster berkurang sedikit, berencana untuk menyiapkan pengganti sebagai pengganti nayfell." (Ast)
+"Aku, setelah pengaruh monster berkurang sedikit, berencana untuk menyiapkan pengganti nayfell." (Ast)
 
 Pengganti Nayfell?
 
-“Saat ini dunia, karena pengaruh Nayfell juga, condong ke arah keuntungan monster. Jadi, saya berpikir untuk meningkatkan pengaruh manusia (Dewi) dan demihuman serta manusia binatang (Dewa Roh) untuk memulihkan keseimbangan di dunia. "
+"Saat ini dunia, karena pengaruh Nayfell juga, condong ke arah keuntungan monster. Jadi, aku berpikir untuk meningkatkan pengaruh manusia (Dewi) dan demihuman serta beastman (Dewa Roh) untuk memulihkan keseimbangan di dunia. "
 
 Ini pertama kalinya aku mendengar hal seperti ini.
 
