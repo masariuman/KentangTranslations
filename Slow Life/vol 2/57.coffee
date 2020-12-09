@@ -182,112 +182,74 @@ Kesalahan itu akhirnya membuatku mengerti, untuk 'melihat dengan jelas' pada pah
 
 Itu benar, sekarang aku bisa melihat ingatan masa laluku dengan baik.
 
-Ketika kami berdiskusi tentang kapal terbang, perubahan ekspresi Hero-sama sesekali ketika dia melihatku mirip dengan bagaimana aku tersenyum ketika aku melihat ke Ugeuge-san dan dia juga tersenyum ketika dia melihat ke Ugeuge-san.
+Ketika kami berdiskusi tentang kapal terbang, perubahan ekspresi pahlawan-sama sesekali ketika dia melihatku mirip dengan bagaimana aku tersenyum ketika aku melihat ke Ugeuge-san dan dia juga tersenyum ketika dia melihat ke Ugeuge-san.
 
-Malam itu, ketika dia mencari sesuatu, dia juga mencari tempat tidur kecil untuk Ugeuge-san. Hanya itu yang ada di sana. (TLN: Bab 48 bagian terakhir)
+Malam itu, ketika dia mencari sesuatu, dia juga mencari tempat tidur kecil untuk Ugeuge-san. Hanya itu saja. (chapter 48 bagian terakhir)
 
- 
+Pada akhirnya, pahlawan-sama tidak bisa memikirkan apa untuk dikatakan ...
 
-Pada akhirnya, Hero-sama tidak bisa memikirkan apa yang terbaik untuk dikatakan ...
-
- 
-
-“Maaf, aku tidak tahu kenapa aku membuatmu marah. Tapi saya harap Anda bisa memaafkan saya… maaf. ”
-
- 
+r"Maaf, aku tidak tahu kenapa aku membuatmu marah. Tapi aku harap Anda bisa memaafkanku... maaf. "
 
 Dia baru saja meminta maaf.
 
- 
+Dentang logam bergema, aku membiarkan pedang itu jatuh ke lantai.
 
-Dentang logam bergema saat aku membiarkan pedang itu jatuh ke tanah.
+aku bertanya pada diriku sendiri mengapa aku tidak pernah menyadarinya.
 
-Saya bertanya pada diri sendiri mengapa saya tidak pernah menyadarinya.
-
-Dan saya menyerah pada perasaan bersalah.
+Dan aku menyerah pada perasaan bersalah.
 
 Saat aku berjongkok, Ugeuge-san melompat ke punggung tanganku.
 
- 
-
 (Minta maaf?)
-
- 
 
 Ugeuge-san memberitahuku.
 
 Ya benar.
 
- 
-
-Aku melangkah menuju Hero-sama, menuju Ruti-san.
+Aku melangkah menuju pahlawan-sama, menuju Ruti-san.
 
 Ruti-san terkejut… dan bahunya sedikit gemetar.
 
- 
-
 Aku mengambil nafas untuk mengucapkan kata-kata itu.
 
- 
+"Seharusnya aku yang meminta maaf. aku salah paham tentangmu. aku benar-benar minta maaf."
 
-“Seharusnya aku yang meminta maaf. Saya salah paham tentang Anda. Saya benar-benar minta maaf."
+r"Betulkah? … Kamu tidak marah?"
 
-"Betulkah? … Kamu tidak marah? ”
+“Tidak, aku tidak marah. Apa Ruti-san tidak marah? ”
 
-“Tidak, saya tidak marah. Apa Ruti-san tidak marah? ”
+Dia tampak sedikit terkejut karena aku memanggilnya Ruti-san tetapi aku merasa bibirnya sedikit mengendur. aku yakin dia tidak membencinya.
 
- 
+r"aku tidak marah."
 
-Dia tampak sedikit terkejut karena saya memanggilnya Ruti-san tetapi saya merasa bibirnya sedikit mengendur. Saya yakin dia tidak membencinya.
+"baguslah. Tapi... aku lebih suka jika kamu memberi tahuku bahwa kamu ingin menyentuh hewan peliharaanku sebelum kamu menyentuhnya. "
 
- 
-
-"Saya tidak marah."
-
-"Itu hebat. Tapi… Saya lebih suka jika Anda memberi tahu saya bahwa Anda ingin menyentuh hewan peliharaan saya sebelum Anda menyentuhnya. "
-
-"Baiklah."
-
- 
+r"Baiklah."
 
 Aku mengulurkan punggung tanganku dimana Ugeuge-san berdiri menuju Ruti-san.
 
 Ruti-san juga mengulurkan tangan kirinya.
 
- 
-
 * Pyon *
-
- 
 
 Ugeuge-san dengan ringan melompat dari tanganku ke tangan Ruti-san.
 
 Kemudian, dia melambai ke Ruti-san dengan tangan kanannya.
 
- 
-
-”... Nama.”
+r"... Nama."
 
 "Ugeuge-san."
 
-Ugeuge?
+r"Ugeuge?"
 
 "Ugeuge-san, namanya sampai 'san'"
 
- 
-
 Ruti-san memberikan tatapan kosong dan kemudian melihat ke arah Ugeuge-san.
 
- 
-
-“Ugeuge-san, saya Ruti. Senang bekerja denganmu. "
-
- 
+r"Ugeuge-san, aku Ruti. Senang berkenalan denganmu. "
 
 Ruti-san menyipitkan matanya dan tersenyum lembut.
 
- 
+aku Tise‧Garland.
 
-Saya Tise‧Garland.
-
-Memiliki Perlindungan Ilahi dari Assassin, saat ini adalah teman Pahlawan Ruti-san.
+Memiliki Perlindungan Ilahi dari pembunuh bayaran, saat ini adalah teman Pahlawan Ruti-san.
