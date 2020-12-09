@@ -1,8 +1,4 @@
-Bab 59: Lit memiliki kopi, Ruti memiliki coklat
-
-Penerjemah: Tseirp
-
- 
+Bab 59: Lit minum kopi, Ruti minum coklat
 
 Saat Ruti dan Tise bekerja di etalase, saya meminta Lit membuat inventaris dengan menghitung jenis dan jumlah obat yang kami miliki di gudang.
 
