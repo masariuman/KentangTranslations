@@ -202,57 +202,39 @@ Danan pergi mencariku, Yarandorara meninggalkan tim sambil mengira aku dibunuh.
 
 Tise memasuki tim untuk menggantikanku tetapi satu untuk menggantikan tiga orang tidak sesuai.
 
-g”...”
+g"..."
 
-Mereka mengalahkan Angin Empat Raja Surgawi jadi kupikir pesta Pahlawan berjalan dengan baik.
+Mereka mengalahkan raja surgawi si empat angin jadi kupikir tim Pahlawan berjalan dengan baik.
 
 Namun, perjalanan sang Pahlawan sama sekali tidak berjalan dengan baik.
 
 Sama seperti rasa was-was yang Lit miliki, masalah besar muncul setelah aku pergi.
 
- 
-
-Jika saya ingin kembali, saya masih mendapat tempat di pesta Pahlawan.
+Jika aku ingin kembali, aku masih mendapat tempat di tim Pahlawan.
 
 Aku bisa kembali ke hari-hari bertualang sekali lagi jika aku menginginkannya.
 
- 
+Namun, meski begitu... terlepas dari semua itu, aku...
 
-Namun, meski begitu… terlepas dari semua itu, I.
+g"Maaf, Ruti. Aku sudah menemukan arti untuk tinggal di sini."
 
- 
-
-“Maaf, Ruti. Aku sudah menemukan maksudku tinggal di sini. ”
-
- 
-
-Bukan hanya Lit, toko ini, kehidupan sehari-hari ini telah menjadi tujuan hidup saya.
+Bukan hanya Lit, toko ini, kehidupan sehari-hari ini telah menjadi tujuan hidupku.
 
 Zoltan ini… sudah menjadi rumahku.
 
- 
+r"begitu..."
 
-"Saya melihat."
-
- 
-
-Ruti diam-diam menjawab, sepertinya ada firasat di tengah jalan.
+Ruti menjawab dengan pelan, sepertinya sudah tahu ini akan terjadi.
 
 Kemudian.
 
- 
-
-“Kalau begitu, aku akan tinggal di kota ini juga.”
-
- 
+r"Kalau begitu, aku akan tinggal di kota ini juga."
 
 Adik perempuanku yang tercinta berkata dengan tekad untuk meninggalkan petualangannya seperti aku.
 
-Kata-kata egois yang terbawa makna melarikan diri dari perang yang menentukan nasib dunia.
+Kata-kata egois yang bermakna melarikan diri dari perang yang menentukan nasib dunia.
 
-Namun, saya bertanya-tanya apakah ada yang bisa mengutuk kata-kata itu.
-
- 
+Namun, aku penasaran apakah ada yang bisa mengutuk kata-kata itu.
 
 Hari ini mungkin akan menjadi hari yang panjang.
 
