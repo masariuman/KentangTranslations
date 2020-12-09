@@ -38,135 +38,93 @@ r"Tidak."
 
 Ruti menyangkalnya dengan nada keras yang jarang dia gunakan denganku.
 
-Begitulah cara Ruti mengungkapkan penyangkalannya dimana tidak ada ruang untuk berdiskusi jadi saya dengan jujur ​​mengalah.
+Begitulah cara Ruti mengungkapkan penolakannya dimana tidak ada ruang untuk berdiskusi jadi jujur aku ​​mengalah.
 
- 
+g"Baiklah, sepertinya aku salah."
 
-"Baiklah, sepertinya aku salah."
+r"Iya."
 
-"Iya."
+Ruti mengoreksiku dengan sedih. Begitu... jadi dia tidak memiliki hubungan seperti itu dengan Ares…
 
- 
+walaupun aku merasa senang, aku juga sedih karena pada akhirnya Ruti tidak punya siapa-siapa untuk diandalkan.
 
-Ruti mengoreksi saya dengan sedih. Begitu, jadi dia tidak memiliki hubungan seperti itu dengan Ares…
+… Kurasa sudah waktunya aku menjelaskan kepada orang-orang di sekitarku.
 
-Sementara aku senang sebagian, aku juga sedih karena pada akhirnya Ruti tidak punya siapa-siapa untuk diandalkan.
+Tetapi bagaimana aku harus menjelaskannya?
 
- 
+"Onii-chan? jadi gadis itu adalah adik perempuan Red?"
 
-… Kurasa sudah waktunya aku menjelaskan kepada orang-orang di sekitar kita.
+"Onii-chan? jadi orang di depanku adalah Gideon-san?"
 
-Tetapi bagaimana saya harus menjelaskannya?
+"Gideon?"
 
- 
+"red?"
 
-"Onii-chan jadi gadis itu adalah adik perempuan Red?"
+Gonz dan gadis pecinta Chikuwa sama-sama memiringkan kepala dengan bingung.
 
-“Onii-chan jadi orang di depanku adalah Gideon-san?”
-
-Gideon?
-
-"Merah?"
-
- 
-
-Gadis pencinta Gonz dan Chikuwa sama-sama memiringkan kepala dengan bingung.
-
-Hah, bagaimana saya harus menjelaskan ini?
-
- 
+Hah, bagaimana aku harus menjelaskan ini?
 
 ☆☆
 
- 
-
 Lit keluar membeli makan malam.
 
-Saya harus menjelaskan semua jenis masalah kepada Ruti sebelum dia kembali.
+aku harus menjelaskan semua masalah ini kepada Ruti sebelum dia kembali.
 
-Pada saat yang sama, saya juga harus menjelaskan kepada Gonz.
+Pada saat yang sama, aku juga harus menjelaskan kepada Gonz.
 
 Gonz bukan orang yang bungkam, tetapi dia masih orang yang bisa membedakan apa yang tidak boleh dibicarakan.
 
- 
+g"Hmm."
 
-"Hmm."
+aku akan menutup toko untuk sementara waktu.
 
- 
+Bagaimanapun juga, aku tidak dapat mengelola toko dalam situasi ini.
 
-Saya akan menutup toko untuk sementara waktu.
-
-Bagaimanapun, saya tidak dapat mengelola toko dalam situasi ini.
-
- 
-
-“Er, pertama, Gonz.”
+g"Er, pertama, Gonz."
 
 "Ya."
 
-“Anak ini adalah adik perempuan saya. Tapi tolong jangan beri tahu orang-orang di sekitar kita untuk saat ini. Aku akan menjelaskan kepadamu dengan benar di lain hari sehingga akan membantuku jika kamu diam-diam pulang ke rumah hari ini. "
+g"Anak ini adalah adik perempuanku. Tapi tolong jangan beri tahu orang-orang di sekitar kita untuk saat ini. Aku akan menjelaskan kepadamu dengan benar di lain hari jadi itu akan membantuku jika kamu dengan diam pulang ke rumah hari ini."
 
-“Tentu, aku tidak begitu mengerti apa yang terjadi tapi aku pasti bisa mengatakan bahwa kalian berdua saling menyukai.”
+“Tentu, aku tidak begitu mengerti apa yang terjadi tapi aku bisa mengatakan bahwa kalian berdua saling menyukai satu sama lainnya.” 
 
- 
+Gonz tertawa licik.
 
-Gonz menyeringai.
-
- 
-
-“Adik perempuan itu baik.”
-
- 
+“Adik perempuan, baguslah...”
 
 Gonz juga memiliki Nao, adik perempuannya.
 
-Keduanya rukun dan dia memperlakukan suaminya Mido dan putra mereka Tanta seperti keluarganya sendiri.
-
- 
+Keduanya akrab dan dia memperlakukan suaminya Mido dan putra mereka Tanta seperti keluarganya sendiri.
 
 Gonz berdiri tegak dan menepuk pundakku.
 
 Kemudian,
 
- 
+“Erm, adik perempuan-san. red atau mungkin nama aslimu adalah Gideon? aku tidak tahu keadaanmu, tetapi orang ini adalah pria yang hebat dan dapat diandalkan untuk distrik Pusat Kota Zoltan ini. Dia tidak melakukan hal buruk jadi kamu bisa santai. ”
 
-“Erm, adik perempuan-san. Merah… atau mungkin nama aslimu adalah Gideon? Saya tidak tahu keadaan Anda, tetapi orang ini adalah pria yang hebat dan dapat diandalkan untuk distrik Pusat Kota Zoltan ini. Dia tidak melakukan hal buruk sehingga kamu bisa santai. ”
-
-"Baik."
-
- 
+r"okay."
 
 Ruti mengangguk.
 
-Namun, bagi saya tampaknya ada bayangan di ekspresinya.
-
- 
+Namun, bagiku tampaknya ada bayangan di ekspresinya.
 
 ☆☆
 
- 
-
 Di ruang tamu ada aku, Ruti, gadis pencinta Chikuwa… dia ternyata dipanggil Tise, seorang Assassin yang menggantikanku dengan rekomendasi Ares.
 
-Saya merasa bahwa peran saya dan seorang Assassin cukup jauh.
+aku merasa bahwa peranku dan seorang Assassin cukup bertolak belakang.
 
- 
+g"Ah - dari mana aku harus memulainya?"
 
-“Ah - dari mana saya harus mulai?”
+r"Onii Chan?"
 
-"Onii Chan?"
+g"Apa itu?"
 
-"Apa itu?"
-
-“Siapa yang tinggal denganmu?”
-
- 
+r"Siapa yang tinggal denganmu?"
 
 Tanya Ruti setelah melihat sekeliling ruangan.
 
 Ugh, dia menyadarinya bahkan sebelum aku menjelaskan ya?
-
- 
 
 Tidak ada apa pun di ruangan itu yang menunjukkan keberadaan Lit.
 
