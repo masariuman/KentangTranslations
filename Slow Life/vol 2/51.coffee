@@ -74,3 +74,127 @@ tidak, yaaah, itu benar, tapi...
 
 penjaga gerbang memegang bahuku.
 
+aku dengan kaku berputar kearahnya. bisa kubayangkan aku membuat suara berderit dan kemudian aku melihat penjaga gerbang terkejut dan matanya berkilauan.
+
+"temanmu hebat. aku akan memanggil tukang daging untuk membawa gerobak jadi tolong tunggu sebentar disini."
+
+pahlawan-sama sepertinya juga tidak keberatan dan tetap tidak acuh terhadap pujian dan pandangan dari orang sekitar.
+
+untuk sekarang,
+
+"ruru-san, penjaga gerbang akan membawa gerobak dari tukang pemotong daging jadi kamu bisa meletakkan kodoknya ditanah sekarang."
+
+r"ok."
+
+kodoknya di letakkan di tanah dengan suara yang nyaring.
+
+ah, aku yakin dengan ini, kami akan menjadi bahan pembicaraan di kota.
+
+tidak ada lagi pilihan untuk diam diam mencari orang tersebut...
+
+☆☆
+
+malam hari di gunung sangat dingin di musim ini.
+
+aku bergetar sambil menyelimuti diriku dengan kantung tidur.
+
+api unggun berderak terbakar.
+
+aku memeluk botol air hangat yang aku hangatkan.
+
+g"dinginnya..."
+
+gunung sangat dengan dengan ujung dunia jadi angin yang berhembus kebawh dari gunung yang besar sangat dingin sekali.
+
+dihari dimana angin sangat kuat, kami bisa merasakan dingin yang tidak bisa dibayangkan rasanya di wilayah subtropis seperti zoltan dan terkadang angin dari gunung mungkin membawa salju juga.
+
+itu seua hanya berasal dari angin saja tapi itu bisa menjadi dingin.
+
+g"aku rindu kasurku."
+
+aku sangat jarang merindukan rumah dulunya.
+
+aku bahkan berfikir untuk membangun gubuk kecil di gunung.
+
+aku berfikir untuk tetap tinggal dua sampai tiga hari di gunung akan meningkatkan efisiensi dalam memanen tanaman obat.
+
+tapi itu tidak kuperlukan lagi sekarang.
+
+aku ingin pulang kerumah sesegera mungkin.
+
+g"begitu ya, mungkin aku telah menemukan tempat untuk kembali."
+
+aku merasa ngantuk sambil berfikir tentang rumah dimana lit menungguku.
+
+☆☆
+
+di hari berikutnya, aku mengumpulkan tanaman obat di gunung juga dan turun dari gunung sebelum hari menjadi gelap.
+
+aku berlari pulang dengan kecepatan penuh ketika tidak ada orang yang melihat.
+
+aku kembali ke zoltan setelah berlari laju di jalanan dimalam hari dengan kecepatan penuh.
+
+g"hey~"
+
+penjaga pintu yang ingin menutup pintu melihat kebelakang ketika aku berteriak.
+
+"oh red, kamu baru pulang dari mengumpulkan tanaman obat ?"
+
+g"yup, tolong biarkan aku masuk."
+
+"merepotkan, lompat saja dari dinding sebelah."
+
+g"tidak mungkin, itu sangat merepotkan."
+
+penjaga pintu mengeluh ringan dan menungguku sebelum menutup pintu.
+
+dinding zoltan hanya 2 meter saja tingginya.
+
+sudah biasa untuk membiarkan petualang yang melewatkan jam malam dan kembali diam-diam dengan memanjal dinding.
+
+itu akan menjadi masalah besar dikota lain tapi di zoltan hanya menjadi bahan tertawaan saja.
+
+g"hampir saja."
+
+"red, kamu benar-benar ahli untuk datang tepat waktu."
+
+g"aku adalah orang yang rajin lho.."
+
+"kalau kamu rajin, datanglah sebelum jam pintu gerbang ditutup! ngomong=ngomong, tugasku selesai sekarang, mau minum bersama ?"
+
+g"ah~ maaf, aku lebih baik pulang."
+
+"ka~ dasar, kamu lebih baik dalam menjadi pengantin daripada aku huh?"
+
+g"tentu saja..."
+
+"jangan mengatakan itu dengan wajah datar...ok, bagaimana kalau 1 cangkir saja?"
+
+g"ah - yaah, aku juga sudah lama tidak minum-minum jadi baiklah, ayo kita minum sebentar."
+
+penting untuk menjaga hubungan dengan teman juga.
+
+walaupun aku tidak berniat untuk pulang tengah malam.
+
+kami masuk ke stand makanan 「Oden」 yang selalu buka di perbatasan distrik pelabuhan dan pusat kota.
+
+"selamat datang."
+
+yang bekerja disini...buka orang tua...tapi high-elf dengan gaya ramping dengan rambut perak yang di ikat menjadi ponytail.
+
+ketika orang tua itu dulu mengomel dia sudah lama membuka stand ini dan ingin menutupnya, oparara berkata 'sayang sekali kalau stand ini tutup, kalau begitu, aku akan melanjutkannya!'.
+
+pak tua berwajah kasar itu sangat lemah terhadap orang cantik walaupun dia menolaknya 30 detik kemudian, dia kalah karena antusias oparara dan sekaang, mereka berdua bekerja bersama di stand ini tapi sekarang, oparara membuka stand ini sendirian.
+
+bangsa high-elf memiliki kerajaan yang dinamakan kerajaan kiramine dan itu hanya satu-satunya kerjaan di benua avalon yang memiliki raja selain bangsa manusia.
+
+para kurcaci tinggal di gunung sir beard dan itu tidak lebih dari pemerintahan sendiri yang diberikan oleh bangsawan.
+
+daripada kerajaan hebat, raja dan high-elf adalah satu-satunya kerajaan di benua avalon yang memiliki arti benar-benar sebuah kerajaan.
+
+karena itulah, mereka menyebut diri mereka sebagai high-elf, bangsalwan elf.
+
+manusia tidak mempermasalahkannya dan memanggil mereka high-elf juga.
+
+akan tetapi, daripada campuran dengan darah manusia, half-elf, adalah keturunan asli dari penaklik benua avalon, wood-elf; dan wild-elf yang garis keturunannya dapat di lacak sampai ke warga yang hilang dari elf purba, yang sekarang disebut sebagai avant-elf (elf-kota).
+
