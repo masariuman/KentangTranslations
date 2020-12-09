@@ -228,53 +228,33 @@ Pertanyaannya mengacu pada mengapa mereka memilikinya atau mengapa mereka membeb
 
 r“Supaya aku bisa menggunakannya.”
 
-Sang Alchemist tidak bisa menghentikan tubuhnya dari gemetar ketika Ruti mengumumkan niatnya sendiri dan memandang rendah dirinya dengan mata dingin.
+Sang Alchemist tidak bisa menghentikan tubuhnya dari gemetar ketika Ruti memberi tahu niatnya sendiri dan memandang rendah dirinya dengan mata dingin.
 
-Pria yang tinggal di masyarakat bawah tanah itu ketakutan seperti anak kecil.
-
- 
+Pria yang tinggal di masyarakat bawah itu ketakutan seperti anak kecil.
 
 “Aku mengerti, aku akan melakukan apapun yang kamu katakan! Jadi tolong hentikan dengan mata itu !! ”
 
- 
-
 Sang alkemis memohon kepada Ruti dengan meratap.
-
- 
 
 ☆☆
 
- 
+"Perlindungan Ilahi Iblis terlalu terkenal di Zoltan."
 
-Perlindungan Ilahi Iblis terlalu terkenal di Zoltan.
-
-"Iya."
-
- 
+r"Iya."
 
 Ruti mengangguk pada komentar Tise.
 
- 
-
-“Bahkan tanpa itu, kita telah membebaskan pria Codwin itu dari penjara jadi kita harus meninggalkan Zoltan secepat mungkin. Ayo pergi malam ini. "
-
- 
+"Bahkan tanpa itu, kita telah membebaskan pria Codwin itu dari penjara jadi kita harus meninggalkan Zoltan secepat mungkin. Ayo pergi malam ini. "
 
 Mereka mengikat Codwin dengan tali dan menyembunyikannya di peti besar yang terletak di gudang.
 
-Alchemist itu patuh dan tidak menunjukkan niat untuk melawan.
+Alchemist itu menurutinya dan tidak menunjukkan niat untuk melawan.
 
- 
-
-“Dimengerti.”
-
- 
+r“ok.”
 
 Ruti tidak keberatan meninggalkan Zoltan.
 
 Tujuan berikutnya adalah kota tempat diadakannya perayaan untuk menaklukkan Desmond dari Bumi.
-
- 
 
 "... Aku pasti akan menemukanmu."
 
