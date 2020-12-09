@@ -36,11 +36,9 @@ Menurut buku-buku Gereja Suci, penciptaan dunia mengikuti urutan peristiwa itu.
 
 Istilah 'ancient-elf' diciptakan di era saat ini sementara di bahan tertua yang masih ada hingga hari ini, ancient-elf hanya disebut sebagai elf dan elf yang diciptakan pada hari kelima dicatat sebagai 'Fey' .
 
-Mereka adalah beberapa sarjana Elf yang memiliki pandangan berbeda tapi para Kurcaci dan Orc yang tinggal di Benua Hitam juga merupakan spesies Peri. Selain itu, Goblin yang merambat di kedua benua juga merupakan spesies Elf yang berasal dari Benua Hitam.
+Mereka adalah beberapa Elf yang memiliki pandangan berbeda tapi para Kurcaci dan Orc yang tinggal di Benua Hitam juga merupakan spesies elf. Selain itu, Goblin yang merambat di kedua benua juga merupakan spesies Elf yang berasal dari Benua Hitam.
 
 Jika kita mengkategorikan Elf yang saat ini ada, silsilah yang dibuat oleh ahli Elf arus utama adalah,
-
- 
 
 〇 Ancient-Elf (Punah)
 
