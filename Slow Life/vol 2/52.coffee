@@ -92,3 +92,11 @@ tise tidak akan main main dalam hal perbandingan. itu adalah penilaiannya sendir
 
 dan juga, tisak menilai pria itu adalah orang yang paling kuat yang pernah dia hadapi.
 
+"orang seperti itu harusnya hidup tanpa diketahui siapapun. dia mungkin petualang terkuat di zoltan."
+
+r"tapi di kios, mereka bilang yang terkuat di zoltan sekarang adalah byuui dengan rank-B."
+
+"itu pasti hanya untuk publik saja. aku merasakan sikapnya agak bermatabat. mungkin...dia pernah sesekali menjadi knight order."
+
+r"knight order."
+
