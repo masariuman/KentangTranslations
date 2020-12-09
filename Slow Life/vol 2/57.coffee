@@ -20,253 +20,167 @@ Kami harus menyiapkan tempat untuk Alchemist pada jarak di mana pahlawan-sama bi
 
 (Sulit.)
 
-Itu adalah pikiranku.
+Itu pikirku.
 
-Jika ada lebih banyak dari kita di sini, kita mungkin bisa membuat beberapa rencana lain tapi hanya Hero-sama dan aku yang ada di sana.
+Jika ada lebih banyak dari kita di sini, kita mungkin bisa membuat beberapa rencana lain tapi hanya pahlawan-sama dan aku yang ada di sini.
 
-Ini adalah pertama kalinya kami ke Zoltan jadi tidak ada orang yang bisa kami percayai. Tidak ada cabang dari Guild Assassin juga.
+Ini adalah pertama kalinya kami ke Zoltan jadi tidak ada orang yang bisa kami percayai. Tidak ada cabang dari Guild pembunuh bayaran juga.
 
-Jika saya harus memilih, saya akan mengatakan bahwa saudara laki-laki Pahlawan-sama, Gideon-san, harus dapat dipercaya ...
-
- 
+Jika aku harus memilih, aku lebih percaya kepada saudara laki-laki Pahlawan-sama, Gideon-san ...
 
 "Pahlawan-sama, ini masih sulit."
 
-"Iya."
+r"Iya."
 
- 
+pahlawan-sama mengangguk sambil diam.
 
-Hero-sama mengangguk dalam diam.
+“apa lebih baik kita pindah ke kota lain dan tinggal di sana sampai kita menyiapkan obat yang cukup? Kita bisa kembali ke Zoltan setelah itu. ”
 
- 
-
-“Bukankah kita harus pindah ke kota lain dan tinggal di sana sampai kita menyiapkan obat yang cukup? Kita bisa kembali ke Zoltan setelah itu. ”
-
-"Aku tahu."
+r"Aku tahu."
 
 “Heeee !?”
 
- 
-
-Aku tanpa sadar tersentak saat merasakan suasana hati yang buruk datang dari Hero-sama.
+Aku tanpa sadar tersentak saat merasakan suasana hati yang buruk datang dari pahlawan-sama.
 
 Meskipun dia hanya merenung sambil duduk di kursi, niatnya menakutkan.
 
 Kupikir suasana hatinya akan sedikit melunak setelah bertemu Gideon-san tapi bukan itu masalahnya.
 
- 
+r"Besok, ada sesuatu yang ingin aku selidiki. aku ingin kamu menemukan tempat persembunyian sambil menungguku, tidak apa-apa asalkan bisa tetap tersembunyi selama seminggu."
 
-“Besok, ada sesuatu yang ingin saya selidiki. Sampai saat itu, saya ingin Anda menemukan tempat persembunyian, tidak apa-apa asalkan bisa tetap tersembunyi selama seminggu. ”
+“A-jika memang seperti itu, kupikir aku bisa mengaturnya tapi... apa yang ingin kamu selidiki?”
 
-“A-jika memang seperti itu, kupikir aku bisa mengaturnya tapi… apa yang ingin kamu selidiki?”
-
-“Tampaknya ada reruntuhan Ancient-Elf di gunung di sebelah tempat kami menghentikan kapal terbang. Jika fasilitasnya berfungsi, saya berpikir untuk menggunakannya sebagai tempat persembunyian. "
-
- 
+r"Tampaknya ada reruntuhan Ancient-Elf di gunung di sebelah tempat kita menghentikan kapal terbang. Jika fasilitasnya berfungsi, aku berpikir untuk menggunakannya sebagai tempat persembunyian."
 
 Kapan dia memperoleh informasi seperti itu?
 
- 
+r"Wood-Elf rupanya tinggal di suatu tempat di dekat gunung itu juga, kudengar tanaman yang berguna tumbuh dan berkelompok di sana."
 
-“Wood-Elf rupanya tinggal di suatu tempat di dekat gunung itu juga, jadi kudengar tanaman yang berguna tumbuh dengan berkelompok di sana.”
+“Reruntuhan ancient-elf dan wood-elf ada di tempat yang sama?”
 
-“Reruntuhan Peri-Kuno dan Peri-Kayu ada di tempat yang sama?”
+Luar biasa. Itu pertama kalinya aku mendengar tentang reruntuhan ancient-elf dan wilayah wood-elf di wilayah yang sama.
 
- 
+mungkin saja karena saat ini kami tidak mengetahuinya.
 
-Luar biasa. Itu pertama kalinya aku mendengar tentang reruntuhan Peri-Kuno dan wilayah Peri-Kayu di wilayah yang sama.
+Bagaimanapun juga, Wood-Elf tampaknya percaya pada daur ulang alam.
 
- 
-
-Meskipun mungkin saja karena saat ini kami tidak mengetahuinya.
-
-Bagaimanapun, Wood-Elf tampaknya percaya pada daur ulang alam.
-
- 
-
-Instruktur di Assassin's Guild menyebutkan ketika dia mengajariku sejarah bahwa bangunan Wood-Elf menyatu dengan alam jadi begitu para Wood-Elf menghilang, pepohonan akan tumbuh dan reruntuhan Wood-Elf akan menghilang tanpa jejak.
+Instruktur di guild pembunuh bayaran bilang kepadaku ketika dia mengajariku sejarah bahwa bangunan Wood-Elf menyatu dengan alam jadi begitu para Wood-Elf menghilang, pepohonan akan tumbuh dan reruntuhan Wood-Elf akan menghilang tanpa jejak.
 
 Mungkin saja… reruntuhan Wood-Elf berada di atas reruntuhan Ancient-Elf lainnya tapi jejaknya telah menghilang.
 
- 
-
-“Jika reruntuhan Ancient-Elf berfungsi, itu pasti akan berfungsi sebagai tempat persembunyian… tapi, kenapa?”
-
- 
+“Jika reruntuhan Ancient-Elf berfungsi, itu pasti akan berfungsi sebagai tempat persembunyian... tapi, kenapa?”
 
 Mengapa kita harus berusaha keras untuk tinggal di Zoltan?
 
-Namun, setelah melihat ekspresi serius Hero-sama, saya tidak bisa lagi mengartikulasikan sisa pertanyaannya.
+Namun, setelah melihat ekspresi serius pahlawan-sama, aku tidak bisa lagi bertanya...
 
 Mengerikan…
-
- 
 
 * Tap tap * Kaki kecil menepuk pundakku.
 
 Ugeuge-san memiringkan kepalanya.
 
- 
-
 Ugeuge-san bertanya ada apa.
 
-Jangan berpikir terlalu dalam? Tidak, mungkin itu berarti jangan berpikir terlalu keras? Dan agar terlihat benar?
-
- 
+Jangan berpikir terlalu dalam? Tidak, mungkin itu berarti jangan berpikir terlalu keras? Dan agar lihatlah dengan benar?
 
 Ugeuge-san sangat cerewet saat berkomunikasi denganku.
 
 Bahkan sekarang dia terus menggerakkan kedua kaki depannya untuk menyampaikan pikirannya kepadaku.
 
- 
+"ada apa?"
 
-"Apa yang salah?"
-
- 
-
-Saya sedikit gelisah.
+aku sedikit gelisah.
 
 Ugeuge-san mencoba memberitahuku sesuatu tapi aku tidak bisa mengerti.
 
-Aku menjawab dengan pertanyaan entah bagaimana mengerti tapi Ugeuge-san mengulangi gambar yang sama.
+Aku menjawab dengan pertanyaan entah bagaimana tapi Ugeuge-san mengulangi hal yang sama.
 
-Apa artinya? Sudah lama sekali saya tidak merasakan hal ini.
+Apa artinya? Sudah lama sekali aku tidak merasakan hal ini.
 
- 
+...Itulah mengapa perhatianku tertuju pada Ugeuge-san dan bukan pada pahlawan-sama.
 
-… Itulah mengapa perhatianku tertuju pada Ugeuge-san dan bukan pada Hero-sama.
-
- 
-
-"Tise."
+r"Tise."
 
 “Eh?”
 
- 
+tanpa aku menyadarinya, pahlawan-sama ada di depanku.
 
-Sebelum aku menyadarinya, Hero-sama ada di depanku.
-
-Namun, tatapan Pahlawan-sama tidak ditujukan pada saya yang terkejut dan membekukan.
+Namun, tatapan Pahlawan-sama tidak ditujukan padaku yang terkejut dan terbeku.
 
 Dia menatap pundakku.
 
 Pada Ugeuge-san yang memiringkan kepalanya dengan tatapan kosong.
 
- 
-
-Hero-sama mengulurkan tangannya ke bahuku.
-
- 
+pahlawan-sama mengulurkan tangannya ke bahuku.
 
 Pikiranku membeku. Ketakutan dan kebingungan menusuk kepalaku.
 
 Mungkin aku melakukan sesuatu yang membuat Pahlawan-sama marah.
 
- 
-
 Walaupun demikian!
-
- 
 
 Tanpa sadar, aku melompat mundur dan menghunus pedangku dalam posisi berdiri.
 
-Gigi saya mengeluarkan suara saat saya mengertakkannya.
+Gigiku mengeluarkan suara saat aku mengertakkannya.
 
 Ketakutan karena menarik pedangku melawan musuh yang tidak mungkin aku menangkan, membakar di dalam kepalaku.
 
- 
-
-Hero-sama berhenti bergerak sementara tanpa ekspresi tetap berada di posisinya dengan tangan terentang.
+pahlawan-sama berhenti bergerak sementara tanpa ekspresi tetap berada di posisinya dengan tangan terentang.
 
 Dia menatap lurus ke arahku.
 
-Saya percaya itu hanya sesaat tapi… bagi saya, itu adalah durasi yang sangat lama.
+aku percaya itu hanya sesaat tapi... bagiku, itu adalah durasi yang sangat lama.
 
- 
-
-" … Anda salah."
-
- 
+r" … kamu salah."
 
 Kata Pahlawan-sama saat dia menatapku.
 
- 
-
-“Aku tahu anak itu adalah peliharaanmu. Aku tidak mencoba menepuk pundakmu tanpa menyadarinya. "
-
- 
+r"Aku tahu anak itu adalah peliharaanmu. Aku tidak mencoba menepuk pundakmu tanpa menyadarinya."
 
 Apa yang dia katakan?
 
-Aku mendengarkannya saat aku menghembuskan nafas dengan kasar. Tapi saya tidak bisa mengerti isinya.
+Aku mendengarkannya dan aku menghembuskan nafas dengan kuat. Tapi aku tidak bisa mengerti maksudnya.
 
- 
+r"aku melihatnya banyak menggerakkan tangan dan kakinya saat berada di samping Tise. aku juga melihat Tise memberinya makan beberapa serangga yang kamu tangkap… "
 
-“Saya telah melihatnya banyak menggerakkan tangan dan kakinya saat berada di samping Tise. Saya juga melihat Tise memberinya makan beberapa serangga yang Anda tangkap… "
+pahlawan-sama berbicara terus menerus.
 
- 
+Aku gemetar dan aku bersiap memegang pedang.
 
-Hero-sama berbicara terus menerus.
-
-Aku gemetar saat aku bersiap memegang pedang.
-
- 
-
-Bayangan kecil melompati saya.
-
- 
+Bayangan kecil melompatiku.
 
 “Ugeuge-san !?”
 
- 
-
 Ugeuge-san melompat ke lantai, mengangkat kedua lengannya dan mencoba yang terbaik untuk membuat dirinya terlihat besar dengan tubuh kecilnya saat berdiri di depanku.
 
- 
+“A-apa… eh? 'Lihat dengan jelas'? ”
 
-“A-apa… eh? 'Lihat dengan benar'? ”
+Apa yang harus aku lihat…
 
- 
+Ugeuge-san dengan putus asa menggerakkan tubuh kecilnya dan berulang kali menyuruhku untuk 'melihat dengan jelas'.
 
-Apa yang harus saya lihat…
+Saat itulah aku... akhirnya 'terlihat dengan jelas'.
 
-Ugeuge-san dengan putus asa menggerakkan tubuh kecilnya dan berulang kali menyuruhku untuk 'melihat dengan benar'.
-
- 
-
-Saat itulah saya… akhirnya 'terlihat benar'.
-
- 
-
-“Kamu salah, aku sama sekali tidak punya niat seperti itu.”
-
- 
+r"Kamu salah, aku sama sekali tidak punya niat seperti itu."
 
 Siapa yang ada di depanku?
 
 Pahlawan-sama. Pemilik Perlindungan Ilahi terkuat umat manusia, dibebani dengan takdir untuk menyelamatkan dunia, hidup demi keadilan dan seseorang yang ditakuti oleh semua rekannya.
 
-Namun, saya melihat… seorang gadis muda yang membuat marah teman baiknya tetapi tidak mengerti mengapa dia membuatnya marah dan bingung.
+Namun, aku melihat... seorang gadis muda yang membuat marah teman baiknya tetapi tidak mengerti mengapa dia membuatnya marah dan bingung.
 
- 
+aku terlalu kacau.
 
-Saya pergi.
+Meskipun aku menghunus pedangku karena takut dan menunjukkan postur bertempur, tapi bagi pahlawan-sama, dia tidak bisa mengerti dan sepertinya dia entah bagaimana membuatku marah.
 
-Meskipun aku menghunus pedangku karena takut dan menunjukkan postur bertempur, tapi bagi Hero-sama, dia tidak bisa mengerti dan sepertinya dia entah bagaimana membuatku marah.
-
-Hero-sama terlalu kuat dan berada di tempat yang terlalu jauh dari kita ... sehingga dia tidak bisa lagi berempati dengan niat membunuh dan niat bermusuhan orang biasa.
+pahlawan-sama terlalu kuat dan berada di tempat yang terlalu jauh dari kami ... sehingga dia tidak bisa lagi berempati dengan niat membunuh dan niat bermusuhan dengan orang biasa.
 
 Itu mungkin mirip dengan bagaimana orang dewasa hanya tertawa kecut meskipun seorang anak kecil sangat marah.
 
- 
-
-Kesalahan itu akhirnya membuatku mengerti, untuk 'melihat dengan baik' pada Hero-sama, bahwa Hero-sama selalu sendirian.
-
- 
+Kesalahan itu akhirnya membuatku mengerti, untuk 'melihat dengan jelas' pada pahlawan-sama, bahwa pahlawan-sama selalu sendirian.
 
 Itu benar, sekarang aku bisa melihat ingatan masa laluku dengan baik.
-
- 
 
 Ketika kami berdiskusi tentang kapal terbang, perubahan ekspresi Hero-sama sesekali ketika dia melihatku mirip dengan bagaimana aku tersenyum ketika aku melihat ke Ugeuge-san dan dia juga tersenyum ketika dia melihat ke Ugeuge-san.
 
