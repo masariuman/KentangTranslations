@@ -318,6 +318,7 @@ yang Berdiri di sana bukanlah Pahlawan dengan aura tegang yang dirasakan Tise sa
 
 Di pelukan pria itu ada Ruti yang tersenyum dan menangis, hanya gadis muda biasa.
 
+<gambar> vol3 9.jpg
 
 -----------------------
 
