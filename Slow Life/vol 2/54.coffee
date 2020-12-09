@@ -294,11 +294,9 @@ Ada sejumlah gambar artistik di dinding toko dan ada patung malaikat bersayap de
 
 sepertinya, mereka ingin meminta Ramuan seperti Ramuan penyembuh dari petugas toko secara langsung. List item yang diletakkan di samping patung itu cukup tebal jadi sepertinya memang benar tempat itu memiliki bermacam-macam item yang bagus.
 
-Petugas toko adalah seorang laki-laki. Dia sedang berbicara dengan seorang pria Half-Elf saat dia mengatur obatnya.
+Petugas toko adalah seorang laki-laki. Dia sedang berbicara dengan seorang pria Half-Elf sambil dia mengatur obatnya.
 
 “Orang itu !?”
-
- 
 
 Tise merasa napasnya membeku karena pria itu adalah petualang terampil yang dia temui di warung oden.
 
