@@ -124,27 +124,21 @@ Pada saat para narapidana bergegas menuju lubang, Ruti sudah tidak terlihat lagi
 
 ☆☆
 
-Penyusup dengan berani berjalan menyusuri koridor paviliun rumah sakit.
+Penyusup dengan berani berjalan menyusuri koridor rumah sakit.
 
-Tapi tidak ada yang memperhatikan mereka.
+Tapi tidak ada yang menyadari mereka.
 
-Penyusup itu berjalan di sekitar paviliun rumah sakit tanpa menggunakan sihir apa pun tetapi tidak ada yang mempertanyakan mereka saat mereka mengingat posisi personel.
-
- 
-
-Setelah melihat sekeliling dengan kasar, penyusup itu naik ke jendela yang dibatasi jeruji besi dan menyelinap di antara 'celah' jeruji besi.
+Penyusup itu berjalan di sekitar rumah sakit tanpa menggunakan sihir apa pun tetapi tidak ada yang menyadari mereka karena mereka mengingat posisi tiap-tiap personel.
 
  
+
+Setelah melihat sekeliling, penyusup itu naik ke jendela yang dibatasi jeruji besi dan menyelinap di antara 'celah' jeruji besi.
 
 “Selamat datang kembali, Ugeuge-san.”
 
- 
-
-Tise tersenyum lembut setelah melihat pasangannya kembali.
+Tise tersenyum lembut setelah melihat partnernya kembali.
 
 Ugeuge-san melambaikan satu kaki sebagai tanggapan.
-
- 
 
 Itu melompat ke lengan Tise dan Tise mengaktifkan keterampilan 'Spider Empathy' untuk membangun komunikasi pikiran.
 
