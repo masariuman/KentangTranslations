@@ -82,122 +82,80 @@ Tise menyeka keringat di dahinya dengan punggung tangan.
 
 Tidak seperti Ruti yang memiliki ekspresi tenang, Tise menghadapi beberapa skenario berbahaya dan kelelahan terlihat di wajahnya.
 
-(Selain gelombang Prajurit Mesin Jam yang tak kenal lelah, kami telah melawan empat Raksasa Mesin Jam meskipun biasanya hanya ada satu Raksasa Mesin Jam tepat di depan Ibu Mesin Jam di reruntuhan lainnya. Tidak hanya itu, kami bahkan telah melawan senjata penyerbuan Penghancur Mesin Jam serta juga senjata selam Clockwork Leviathan… ada apa dengan reruntuhan ini?)
-
- 
+(Selain gelombang Prajurit Mesin Jam yang tak kenal lelah, kami telah melawan empat Raksasa Mesin Jam meskipun biasanya hanya ada satu Raksasa Mesin Jam tepat di depan sumber Mesin Jam di reruntuhan lainnya. Tidak hanya itu, kami bahkan telah melawan senjata penyerbuan Penghancur Mesin Jam serta juga senjata selam jam Leviathan… ada apa dengan reruntuhan ini?)
 
 Tise mengutuk secara internal.
 
-Namun demikian, Ruti bisa menyelesaikannya ketika musuh muncul sendirian sehingga Tise bisa maju melalui kehancuran level ancaman abnormal itu.
+Namun demikian, Ruti bisa menyelesaikannya sendirian sehingga Tise bisa maju melalui kehancuran level ancaman abnormal itu.
 
- 
+Akhirnya, mereka berdua tiba di depan ruang sumber Jarum Jam di ujung reruntuhan.
 
-Akhirnya, mereka berdua tiba di depan ruang Ibu Jarum Jam di ujung reruntuhan.
-
-Setelah mereka menghancurkannya, semua Monster Clockwork akan berhenti berfungsi. Hanya menjual bagian-bagiannya saja akan menghasilkan keuntungan lebih dari 100 ribu Peryl jadi bagi para petualang, menaklukkan reruntuhan Peri-Kuno secara harfiah adalah mimpi cepat kaya.
-
- 
+Setelah mereka menghancurkannya, semua Monster jam akan berhenti berfungsi. Hanya menjual bagian-bagiannya saja akan menghasilkan keuntungan lebih dari 100 ribu Peryl jadi bagi para petualang, menaklukkan reruntuhan Peri-Kuno secara harfiah adalah mimpi cepat kaya.
 
 (Aku ingin tahu apakah akan ada petualang yang berpikir untuk menjadi kaya dengan cepat ketika menghadapi ini.)
 
- 
-
 Tise tanpa sadar mundur setengah langkah dan mencemooh dirinya sendiri.
 
-The Clockwork Mother, kumpulan jarum jam yang mengendalikan semua Monster Clockwork. Dan berdiri di jalan mereka, kumpulan logam yang bersinar, Naga Mesin Jam.
+Sumber jam, kumpulan jarum jam yang mengendalikan semua Monster jam. Dan berdiri di depan mereka, kumpulan logam yang bersinar, Naga Mesin Jam.
 
-Tidak seperti Monster Clockwork lainnya yang membuat suara tidak menyenangkan setiap kali mereka bergerak, tubuhnya yang disatukan secara artistik dan rumit tidak membuat derit satu pun selama gerakan. Tubuhnya dipenuhi dengan ter yang dipanaskan dan dia bisa melihat sekilas lidah merahnya yang digunakan sebagai percikan untuk menyalakan ter itu begitu dia membuka mulutnya.
+Tidak seperti Monster jam lainnya yang membuat suara tidak menyenangkan setiap kali mereka bergerak, tubuhnya yang disatukan secara artistik dan rumit tidak membuat derit satu pun selama gerakan. Tubuhnya dipenuhi dengan tar yang dipanaskan dan dia bisa melihat sekilas lidah merahnya yang digunakan sebagai percikan untuk menyalakan tar itu begitu dia membuka mulutnya.
 
- 
-
-Demon Lord generasi sebelumnya pernah memperbaiki model yang serupa dan menggunakannya sebagai senjata, senjata pamungkas yang pernah membunuh semua sahabat dari Hero generasi sebelumnya yang bepergian bersamanya sejak awal dan menyebabkan Hero generasi sebelumnya kabur dalam kekalahan.
-
- 
+raja iblis generasi sebelumnya pernah memperbaiki model yang serupa dan menggunakannya sebagai senjata, senjata pamungkas yang pernah membunuh semua sahabat dari pahlawan generasi sebelumnya yang bepergian bersamanya sejak awal dan menyebabkan pahlawan generasi sebelumnya kabur dalam kekalahan.
 
 "Pahlawan-sama!"
-
- 
 
 Tise menyarankan untuk mundur sementara untuk mendapatkan kerja sama dari Gideon-san dan Lit-san.
 
 Itu terlalu kuat untuk mereka berdua tantang.
 
- 
+r"Tidak masalah."
 
-"Tidak masalah."
-
- 
-
-Namun, Ruti, dengan sikap acuh tak acuh yang sama dan Pedang Suci yang dipegang dengan longgar di tangan kanannya mengarah ke bawah, berjalan menuju naga buatan yang dibuat oleh Peri-Kuno.
-
- 
+Namun, Ruti, dengan sikap acuh tak acuh yang sama dan Pedang Suci yang dipegang dengan longgar di tangan kanannya mengarah ke bawah, berjalan menuju naga buatan yang dibuat oleh ancient-elf.
 
 ☆☆
 
- 
+Dua minggu telah berlalu sejak Ruti datang ke tokoku.
 
-Dua minggu telah berlalu sejak Ruti datang ke toko saya.
-
-Ruti tampaknya telah meninggalkan Zoltan selama tiga hari setelah kami pertama kali bertemu, tetapi dia pada dasarnya tinggal di Zoltan setelah itu.
+Ruti tampaknya telah meninggalkan Zoltan selama tiga hari setelah kami bertemu, tetapi dia pada dasarnya tinggal di Zoltan juga.
 
 Dia mendaftar di Guild Petualang bersama dengan Tise dan meskipun tidak secara proaktif, mereka kadang-kadang menerima permintaan untuk menaklukkan goblin di dekat kota.
 
 Penaklukan Goblin sedikit tidak proporsional dengan kemampuan mereka yang sebenarnya, tetapi ... mereka mungkin melakukannya untuk menghilangkan impuls dari Perlindungan Ilahi mereka.
 
-Menundukkan goblin tipe manusia yang menyerang desa akan menjadi pilihan yang tepat untuk menghilangkan dorongan Pahlawan untuk membantu orang dan dorongan pembunuhan Assassin.
+Menundukkan goblin tipe manusia yang menyerang desa akan menjadi pilihan yang tepat untuk menghilangkan dorongan Pahlawan untuk membantu orang dan dorongan pembunuhan pembunuh bayaran.
 
- 
-
-Meskipun itu hanya goblin, penampilan mereka yang menerima permintaan apapun hanya dengan mereka berdua tanpa mempedulikan jumlah lawan, dengan santai memasuki kediaman goblin seolah-olah berjalan-jalan dan kembali setelah memusnahkan mereka telah membuat mereka menjadi perbincangan. kota sebagai pendatang baru yang andal.
+Meskipun itu hanya goblin, cara mereka yang menerima permintaan apapun hanya dengan mereka berdua tanpa mempedulikan jumlah lawan, dengan santai memasuki kediaman goblin seolah-olah berjalan-jalan dan kembali setelah memusnahkan mereka telah membuat mereka menjadi perbincangan di kota sebagai pendatang baru yang andal.
 
 Lebih jauh lagi, meskipun goblin lebih rendah dalam hal kekuatan fisik dan kecerdasan jika dibandingkan dengan manusia, karena mereka hidup di lingkungan pertempuran dan penjarahan, terkadang ada beberapa dengan tingkat Perlindungan Ilahi yang tinggi yang tidak bisa dianggap enteng. Mereka akan menjadi ancaman yang tidak terduga jika dibiarkan.
 
-Tetapi kemudian, karena mereka tidak menyembunyikan kemampuan mereka sendiri, dimungkinkan untuk mengetahui sebelumnya jika ada individu seperti itu hanya dengan mengumpulkan informasi dengan benar. Bagaimanapun, permintaan semacam itu diposting di papan nama yang ditargetkan untuk petualang pendatang baru.
+Tetapi kemudian, karena mereka tidak menyembunyikan kemampuan mereka sendiri, bisa saja mengetahui sebelumnya jika ada individu seperti itu hanya dengan mengumpulkan informasi dengan benar. Bagaimanapun juga, permintaan semacam itu dipajang di papan nama yang ditargetkan untuk petualang pendatang baru.
 
- 
-
-Selain itu, itu adalah pemahaman diam-diam karena sifat Zoltan yang membuat banyak pengembara mengunjungi yang tidak ada yang menyombongkan masa lalu mereka dan mereka tampaknya bertualang dengan hati-hati.
-
- 
+Selain itu, itu adalah pemahaman rahasia karena sifat Zoltan yang membuat banyak pengembara berkunjung yang tidak ada menyombongkan masa lalu mereka dan mereka tampaknya bertualang dengan hati-hati.
 
 Lalu …
 
- 
-
-"Selamat datang."
+r"Selamat datang."
 
 “Heee !?”
 
- 
-
-Hari ini, untuk beberapa alasan, dia membantu di toko saya.
+Hari ini, untuk beberapa alasan, dia membantu di tokoku.
 
 Meskipun dia terlihat berdiri di belakang meja, mungkin karena auranya yang kuat, setiap kali dia menyapa pelanggan yang memasuki toko, mereka secara refleks akan berteriak.
 
 Itu mungkin melukai perasaannya.
 
- 
+Namun, aku menemukan sesuatu yang baru.
 
-Namun, saya menemukan sesuatu yang baru.
+g"Mungkin mereka tidak akan berteriak jika kamu tersenyum sedikit?"
 
- 
-
-“Mungkin mereka tidak akan berteriak jika kamu tersenyum sedikit lagi?”
-
-"Betulkah?"
-
- 
+r"Betulkah?"
 
 Kupikir aku satu-satunya yang memperhatikan Ruti terluka tapi sepertinya Tise juga menyadarinya.
 
 Tise memberinya beberapa nasihat seperti itu.
 
- 
+g"Benar, kamu pasti akan baik-baik saja jika kamu tersenyum sedikit saja. bisakah aku meninggalkan konter untukmu sedikit lebih lama?"
 
-“Benar, kamu pasti akan baik-baik saja jika kamu tersenyum sedikit lagi. Dapatkah saya meninggalkan konter untuk Anda sedikit lebih lama? ”
-
-"Tentu."
-
- 
+r"Tentu."
 
 Ruti mengepalkan tangan mungilnya dan menunjukkan bahwa dia akan bekerja keras.
