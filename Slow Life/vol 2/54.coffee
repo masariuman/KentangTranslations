@@ -264,11 +264,9 @@ Hanya dengan itu saja sudah cukup mengintimidasi dan menyebabkan Tise menjerit p
 
 "Kami ada di sini, orang-orang di penginapan distrik pelabuhan bilang kalau tempat ini memiliki pilihan produk terbaik."
 
-“Tidak bisakah kita menyembuhkannya dengan Hands of Healing?”
+“Tidak bisakah kita menyembuhkannya dengan tangan penyembuh?”
 
-"Tidak, Ruru-san adalah satu-satunya orang dengan skill Hands of Healing."
-
- 
+"Tidak, Ruru-san adalah satu-satunya orang dengan skill tangan penyembug."
 
 Jika mereka berniat untuk menyembunyikan identitas mereka, akan lebih baik untuk tidak membiarkan Alchemist yang tertangkap mengetahui bahwa Ruti adalah sang Pahlawan juga.
 
