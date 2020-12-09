@@ -20,9 +20,7 @@ Tise merevisi kesannya kepada Pahlawan.
 
 Dia kekurangan akal sehat tetapi dia sama sekali tidak ceroboh.
 
-Ruti menyelidiki jadwal harian narapidana kemarin dan mengumpulkan materi sehingga mereka bisa menilai kapan waktu terbaik untuk menyusup.
-
- 
+Ruti menyelidiki jadwal harian narapidana kemarin dan mengumpulkan beberapa info sehingga mereka bisa menilai kapan waktu terbaik untuk menyusup.
 
 Hasil dari diskusi mereka adalah untuk mengambil strategi dengan tingkat keberhasilan tertinggi dengan melakukannya secara cepat tetapi meminimalkan kerusakan.
 
