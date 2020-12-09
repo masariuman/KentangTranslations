@@ -264,21 +264,17 @@ Hanya dengan itu saja sudah cukup mengintimidasi dan menyebabkan Tise menjerit p
 
 "Kami ada di sini, orang-orang di penginapan distrik pelabuhan bilang kalau tempat ini memiliki pilihan produk terbaik."
 
-“Tidak bisakah kita menyembuhkannya dengan tangan penyembuh?”
+r"Tidak bisakah kita menyembuhkannya dengan tangan penyembuh?"
 
 "Tidak, Ruru-san adalah satu-satunya orang dengan skill tangan penyembug."
 
 Jika mereka berniat untuk menyembunyikan identitas mereka, akan lebih baik untuk tidak membiarkan Alchemist yang tertangkap mengetahui bahwa Ruti adalah sang Pahlawan juga.
 
-Selain itu, setelah mereka meninggalkan Zoltan, mereka mungkin akan menemukan Penyembuh yang dapat menggunakan mantra 'Regenerasi' yang dapat menyembuhkan luka bahkan setelah beberapa waktu berlalu.
+Selain itu, setelah mereka meninggalkan Zoltan, mereka mungkin akan menemukan Penyembuh yang dapat menggunakan sihir 'Regenerasi' yang dapat menyembuhkan luka bahkan setelah berlalu cukup lama.
 
-Akan membutuhkan biaya yang cukup besar untuk memiliki mantra tingkat tinggi seperti itu tetapi itu bukan masalah dengan kekuatan finansial Pahlawan.
-
- 
+Akan membutuhkan biaya yang cukup besar untuk memiliki sihir tingkat tinggi seperti itu tetapi itu bukan masalah dengan kekuatan finansial Pahlawan.
 
 "Mari kita tetap berpegang pada tindakan pertolongan pertama menggunakan analgesik dan ramuan obat sampai kita meninggalkan Zoltan."
-
- 
 
 Cure Ramuan hanya bisa menghentikan pendarahan dari luka terbuka tapi itu sudah cukup untuk saat ini.
 
