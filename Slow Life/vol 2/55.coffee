@@ -238,12 +238,10 @@ Namun, aku penasaran apakah ada yang bisa mengutuk kata-kata itu.
 
 Hari ini mungkin akan menjadi hari yang panjang.
 
-Apa yang seharusnya saya katakan? Apa yang bisa kukatakan?
+Apa yang harus aku katakan? Apa yang bisa kukatakan?
 
 Pikiranku ditelan oleh pusaran pahit.
 
-Tapi saya tidak merasa sakit.
-
- 
+Tapi aku tidak merasa sakit.
 
 Karena di depan mataku ada adik perempuanku yang tercinta, seorang gadis muda yang menahan kesedihan tak tertahankan dengan wajah tanpa ekspresi.
