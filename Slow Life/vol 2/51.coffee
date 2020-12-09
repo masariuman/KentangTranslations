@@ -198,3 +198,21 @@ manusia tidak mempermasalahkannya dan memanggil mereka high-elf juga.
 
 akan tetapi, daripada campuran dengan darah manusia, half-elf, adalah keturunan asli dari penaklik benua avalon, wood-elf; dan wild-elf yang garis keturunannya dapat di lacak sampai ke warga yang hilang dari elf purba, yang sekarang disebut sebagai avant-elf (elf-kota).
 
+pada era wood-elf, mereka disebut elf-abu-abu karena warna rambut mereka.
+
+yaaah, aku hanya memanggil mereka sebagai high-elf seperti biasa.
+
+aku manusia dan mereka biasanya langsung badmood kalau dipanggil avant-elf.
+
+pada dasarnya high-elf tidak terlalu basa-basi. mereka selalu berkata apapunya yang ada di hati mereka.
+
+jika mood mereka tidak bagus, mereka bisa saja berkata dengan sadisnya yang bisa melukai siapapun yang mendengarnya. tapi, itu bisa membuat kita susah akrab dengannya dan juga bisa membuat kita akrab dengannya.
+
+tentu saja, setiap individu berbeda.
+
+ada juga high-elf yang tidak mau menampakkan perasaan mereka yang sebenarnya.
+
+mereka hanya tidak terlalu menampakkan diri mereka sendiri karena mereka tidak menyukainya tapi ketika mereka menampakkannya, mereka bisa lebih licik daripada manusia.
+
+kapten squad knight selalu berkata kalau keluarga kerajaan dari kiramine tidak dapat dipercaya.
+
