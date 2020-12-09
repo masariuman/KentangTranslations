@@ -8,25 +8,17 @@ Ruti dan Tise sedang berjalan ke utara.
 
 Udara dingin di pagi hari membuat napas mereka memutih.
 
-“Jika kita akan membebaskannya dari penjara, pasti ada sesuatu untuk mencegah sihir. Jubah tembus pandang mungkin tidak akan berfungsi. ”
+r"Jika kita akan membebaskannya dari penjara, pasti ada sesuatu untuk menangkal sihir. Jubah tembus pandang mungkin tidak akan berfungsi."
 
- 
+Sihir Ilusi yang membuat seseorang tidak terlihat akan menjadi yang pertama memiliki penangkalnya.
 
-Sihir Ilusi yang akan membuat seseorang tidak terlihat akan menjadi yang pertama memiliki tindakan balasan yang disiapkan.
+Akan sulit untuk menghilangkan setiap sihir tetapi penangkal bisa dipasang dengan menggunakan anggaran lokal jika mereka fokus pada sistem sihir tertentu.
 
-Akan sulit untuk menghilangkan setiap mantra tetapi penanggulangan dimungkinkan menggunakan anggaran lokal jika mereka terjebak pada sistem sihir tertentu.
+r"Rencananya akan sesuai dengan apa yang telah kita diskusikan."
 
- 
+Tise merevisi kesannya kepada Pahlawan.
 
-“Rencananya akan sesuai dengan apa yang telah kita diskusikan.”
-
- 
-
-Kata Ruti lirih.
-
-Tise merevisi kesannya tentang Pahlawan.
-
-Dia jelas kurang akal sehat tetapi dia sama sekali tidak sembrono.
+Dia kekurangan akal sehat tetapi dia sama sekali tidak ceroboh.
 
 Ruti menyelidiki jadwal harian narapidana kemarin dan mengumpulkan materi sehingga mereka bisa menilai kapan waktu terbaik untuk menyusup.
 
