@@ -22,25 +22,19 @@ Setelah beberapa saat, setelah Ruti akhirnya tenang, aku dengan lembut meremas b
 
 Ekspresinya telah kembali ke ekspresi biasanya juga.
 
-Dia tersenyum bahkan sekarang tapi mereka yang tidak mengenal Ruti mungkin akan melihatnya sebagai ekspresi tanpa ekspresi.
+Dia tersenyum bahkan sekarang juga tapi mereka yang tidak mengenal Ruti mungkin akan melihatnya sebagai ekspresi tanpa ekspresi.
 
-“Onii-chan… kamu salah.”
+r"Onii-chan… kamu salah."
 
-”…? Apa yang Anda maksud?"
+g"…? apa maksudmu?"
 
-"Aku tidak merasakan apa-apa untuk Ares."
+r"Aku tidak memiliki perasaan apa-apa kepada Ares."
 
- 
+Apakah maksudnya pada saat Ares memeluknya ketika aku pergi?
 
-Apakah dia mengacu pada saat Ares memeluknya ketika aku pergi?
+g"benarkah? aku yakin kalau.... "
 
- 
-
-"Betulkah? Saya yakin bahwa… ”
-
-"Tidak."
-
- 
+r"Tidak."
 
 Ruti menyangkalnya dengan nada keras yang jarang dia gunakan denganku.
 
