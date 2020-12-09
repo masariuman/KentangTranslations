@@ -96,4 +96,78 @@ g"aku akan mencoba membuat pizza seafood."
 
 zoltan terletak didekat sungan jadi mendapatkan produk air juga tidak sulit.
 
-pertama, kuletakkan lapisan keju, kerang yang sudah dikupas, 
+pertama, kuletakkan lapisan keju, kerang yang sudah dikupas, sosis, dan irisan tomat berbentuk bulat.
+
+dan setelah itu akan dilapisi keju lagi.
+
+ketika pizza di panggang, aku memarut tomat yang dapatkan dari petani dan membuat sup tomat yang kental. sup ini akan menjadi dasar untuk sum kaldu dengan potongan daging dan sayur yang aku buat sehari-hari.
+
+aku membumbui sisa saus dengan garam dan menumis mereka pada teflon. saus berwarna emas kecoklatan melebar merata karena panas. aku mencobanya sedikit dan itu memberikan rasa garing yang memuaskan.
+
+terakhir, aku membuat salad menggunakan tomat dan salada.
+
+itu mudah karena yang aku lakukan hanya memotongnya.
+
+aku membuka oven dan mengeluarkan pizza dan melihat keju emas kecoklatan meleleh dengan baik dan aroma dari keju menyebar ke seluruh dapur.
+
+aku menaburkan daun sup diatas pizza dan menyajikannya dengan bumbu capsium di wadah kecil.
+
+lit datang setelah aku selesai memasak.
+
+l"keliahatannya enak! aku akan membawanya ke ruang tengah."
+
+g"terima kasih."
+
+lit dengan hebat menyusun makanan.
+
+dia sudah terbiasa untuk itu.
+
+gl""terima kasih atas makanannya.""
+g""
+
+lit mengambil satu potong pizza yang sudah dipotong menjadi 8 bagian dan menggigitnya.
+
+melihat lit tersenyum karena enak sambil memegang pipinya, aku berpose seakan-akan menag sedikit.
+
+☆☆
+
+l"oh iya..."
+
+lit berbicara setelah makan dan sambil meminum teh herbal.
+
+l"pagi ini, ada yang melarikan diri dari penjara."
+
+g"melarikan diri dari penjara?"
+
+l"yup, penjaga yang datang ke toko membeli obat memberitahuku tentang itu."
+
+g"hmmm, itu sangat langka. apa mereka sudah tertangkap?"
+
+l"itu adalah insiden yang besar dan mereka memakai peledak khusus untuk menghancurkan dindin penjara."
+
+g"apa?"
+
+itu besar sekali.
+
+g"hmmm, kenalan big hawk? aku pikir guild penjuri senang dengan lepasnya big haw tapi fraksi big hawk mungkin lebih besar dari yang dibayangkan. sepertinya penerusnya bahkan lebih kuat bahkan tanpa big hawk. penjagaan kota akan menjadi buruk apabila itu menjadi pelarian diri yang besar."
+
+l"sepertinya bukan karena itu."
+
+g"apa maksudmu?"
+
+l"ledakan dinding bagian dalam penjara sepertinya sudah direncanakan akan meledak ketika sarapan. ada beberapa narapidana mencoba kabur tapi dinding bagian luar masih utuh seutuhnya jadi tidak ada yang lari pada akhirnya juga."
+
+g"itu aneh sekali."
+
+l"ada beberapa narapidana yang mencoba melewati dinding luar dan ada juga yang menangkap penjaga sebagai sandera tapi semuanya gagal pada akhirnya. dan pada akhirnya, hanya ada satu orang saja yang lolos."
+
+begitu ya... pengalihan huh ?
+
+rencananya mungkin membuat semuanya terlihat seperti percobaan lari dari penjara untuk semua orang tapi yang diselamatkan hanya satu orang saja.
+
+g"tapi aku tidak mengerti. apakah ada orang penting di penjara?"
+
+l"yang berhasil lari adalah orang yang red kalahkan dan diobati di penjara. alchemist yang menangkap al."
+
+g"ah, orang itu..."
+
