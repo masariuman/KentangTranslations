@@ -48,7 +48,7 @@ Jika kita mengkategorikan Elf yang saat ini ada, silsilah yang dibuat oleh ahli 
     → High-Elf
     → Spesies Elf Benua Gelap (Dwarf, Orc, Goblin)
 
-Kembali ke topik Peri-Kuno, telah ditetapkan bahwa mereka memiliki peradaban yang jauh lebih unggul jika dibandingkan dengan zaman sekarang, tetapi banyak aspek lain yang masih diselimuti misteri.
+Kembali ke topik ancient-elf, telah ditetapkan bahwa mereka memiliki peradaban yang jauh lebih unggul jika dibandingkan dengan zaman sekarang, tetapi banyak aspek lain yang masih diselimuti misteri.
 
 Dengan melihat Koin Elf yang dapat meningkatkan tingkat Perlindungan Ilahi seseorang untuk sementara dan sebaliknya obat rahasia Peri Liar yang dapat menguranginya, kita dapat mengetahui bahwa Peri-Kuno telah menganalisis Perlindungan Ilahi sampai batas tertentu.
 
