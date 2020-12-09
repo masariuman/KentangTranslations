@@ -274,21 +274,15 @@ Melihat chikuwa yang terinjak-injak, Tise menekan sedikit lebih keras dengan jar
 
 ☆☆
 
-Pada saat kedua preman itu diserahkan kepada Pengawal yang datang dengan terburu-buru setelah mendengar keributan tersebut, mereka berdua sudah menangis dan meringkuk tanpa mengkhawatirkan penampilan mereka.
+Pada saat kedua preman itu diserahkan kepada Pengawal yang datang dengan tergesa-gesa setelah mendengar keributan tersebut, mereka berdua sudah menangis dan meringkuk tanpa mengkhawatirkan penampilan mereka.
 
-“Dengan itu, mereka tidak akan pernah melakukannya lagi.”
-
- 
+r"Dengan itu, mereka tidak akan pernah melakukannya lagi."
 
 Ruti bergumam melihat kondisi kedua preman itu.
 
 Tise juga mengangguk.
 
- 
-
 "Terima kasih untuk bantuannya."
-
- 
 
 Para pengawal tampak geram dengan ulah kedua pria tersebut sehingga mereka tidak mengatakan sepatah kata pun tentang aksi kekerasan Ruti dan Tise dan menyeret keduanya pergi setelah mengucapkan terima kasih.
 
