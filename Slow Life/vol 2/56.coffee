@@ -286,65 +286,43 @@ Tise juga mengangguk.
 
 Para pengawal tampak geram dengan ulah kedua pria tersebut sehingga mereka tidak mengatakan sepatah kata pun tentang aksi kekerasan Ruti dan Tise dan menyeret keduanya pergi setelah mengucapkan terima kasih.
 
- 
-
 Fuuuu.
-
- 
 
 Tise sedikit puas.
 
-Sebagai seorang Assassin, sangat jarang membantu orang lain seperti itu. Itu tidak biasa… tapi tidak terasa buruk.
+Sebagai seorang pembunuh bayaran, sangat jarang membantu orang lain seperti itu. Itu tidak biasa... tapi tidak terasa buruk.
 
-Sebaliknya, Ruti sedikit merosotkan bahunya.
+Sebaliknya, Ruti sedikit mengendurkan bahunya.
 
- 
+"T-terima kasih! Kamu menyelamatkanku!"
 
-“T-terima kasih! Kamu menyelamatkanku!"
-
- 
-
-Oparara mendekati mereka sambil menempelkan handuk basah ke pipinya yang sudah dilubangi.
+Oparara mendekati mereka sambil menempelkan handuk basah ke pipinya yang dipukul.
 
 Ruti meletakkan tangan kanannya di pipi itu saat melihat wajahnya.
 
- 
-
 "Ruru-san!"
-
- 
 
 Tise memperingatkan Ruti ketika dia menyadari apa yang akan dia lakukan.
 
-Namun, Ruti mengaktifkan 'Healing Hands' tanpa mengindahkannya.
-
- 
+Namun, Ruti mengaktifkan 'tangan penyembuh' tanpa memperdulikannya.
 
 'Eh !?'
-
- 
 
 Oparara mengeluarkan suara kaget.
 
 Dalam sekejap, rasa sakit di pipi dan tubuhnya menghilang dan tidak ada luka atau bengkak dari pipinya yang sebelumnya merah dan bengkak.
 
- 
-
-“Saya masih tidak bisa meninggalkan orang yang membutuhkan.”
+r"Saya masih tidak bisa meninggalkan orang yang membutuhkan."
 
 "Ruru-san."
 
-"Maaf, meskipun kamu menyuruhku untuk tidak menggunakan keahlianku."
+r"Maaf, meskipun kamu menyuruhku untuk tidak menggunakan skillku."
 
 “T-tidak, tidak apa-apa… Aku yakin itu hal yang benar untuk dilakukan.”
-
- 
 
 Itu benar, itulah yang dimaksud dengan menjadi Pahlawan.
 
 Tise yakin dan sedikit bangga bahwa dia berdiri di samping orang yang akan melakukan hal yang benar.
-
- 
 
 Ruti menatap tangan kanannya yang bertarung melawan yang kuat dan melindungi yang lemah.
 
