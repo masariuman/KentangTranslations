@@ -144,31 +144,21 @@ Kata Ruti sedikit sedih.
 
 Kurasa itu benar-benar kesalahanku untuk berpikir bahwa dia menyukai Ares daripada aku.
 
-Sejak kami bepergian bersama… tidak, sejak kami masih kecil, Ruti hanya memperhatikan saya.
+Sejak kami bepergian bersama… tidak, sejak kami masih kecil, Ruti hanya memperhatikanku.
 
- 
+g"Bagaimanapun juga, katakan yang sebenarnya tentang apa yang terjadi yang menyebabkan ini. aku yakin aku meminta Ares untuk mengatakan bahwa aku meninggalkan tim untuk melakukan mencari informasi karena aku merasa sulit bagiku untuk bertarung."
 
-“Bagaimanapun, katakan yang sebenarnya tentang apa yang terjadi yang menyebabkan ini. Saya yakin saya meminta Ares untuk mengatakan bahwa saya meninggalkan partai untuk melakukan pramuka karena saya merasa sulit bagi saya untuk bertarung. "
-
-“Setelah itu, Yarandorara mulai mengklaim bahwa Ares membunuh Onii-chan padahal dia mengklaim Onii-chan kabur.”
-
- 
+r"Setelah itu, Yarandorara mulai mengklaim bahwa Ares membunuh Onii-chan padahal ares mengklaim Onii-chan kabur."
 
 Bajingan Ares itu, dia tidak menepati janjinya ya?
 
-Meskipun mungkin bukan tempat saya untuk mengeluh setelah saya meninggalkan pesta.
+Meskipun mungkin bukan tempatku untuk mengeluh setelah aku meninggalkan tim.
 
- 
+aku memberi tahu mereka keadaanku di mana aku diberitahu oleh Ares bahwa aku adalah beban ditim dan disuruh meninggalkan tim, jatuh dalam keputusasaan, berakhir di Zoltan, membuka Apoteker dan akhirnya tinggal bersama Lit.
 
-Saya memberi tahu mereka keadaan saya di mana saya diberitahu oleh Ares bahwa saya adalah penghalang ke pesta dan untuk meninggalkan pesta, jatuh dalam keputusasaan, berakhir di Zoltan, membuka Apoteker dan akhirnya tinggal bersama Lit.
+g"aku berniat untuk hidup seperti ini bersama Lit. aku berencana untuk menikahinya."
 
- 
-
-“Saya berniat untuk hidup seperti ini bersama Lit. Saya berencana untuk akhirnya menikahinya. "
-
- 
-
-Saya sedikit gugup untuk mengucapkan kata pernikahan dengan jelas.
+aku sedikit gugup untuk mengucapkan kata pernikahan dengan jelas.
 
 Lit adalah seorang putri sementara aku adalah seorang Ksatria dengan tidak lebih dari satu generasi gelar bangsawan.
 
