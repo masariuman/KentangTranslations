@@ -224,69 +224,43 @@ Ada supremasi manusia seperti mereka di kota mana pun.
 
 Dalam kebanyakan kasus, sebagian besar manusia tidak menyukai tindakan mereka tetapi ada cukup banyak orang di komunitas mereka sehingga mereka ada di setiap kota.
 
-Mereka sepertinya dipenuhi dengan kegembiraan yang membengkok saat mereka melihat Oparara yang berwajah merah karena pemukulan ...
+Mereka sepertinya dipenuhi dengan kesenangan ketika mereka melihat Oparara yang dengan wajahnya yang memerah karena dipukul ...
 
 Namun,
 
- 
-
 “Eh?”
-
- 
 
 Itu terjadi dalam sekejap mata.
 
 Detik berikutnya, ada pukulan tepat di depannya dari seorang gadis muda dengan kaki dalam posisi lebar.
 
- 
-
 Tidak ada waktu sama sekali baginya untuk melindungi dirinya sendiri.
-
- 
 
 “Oge !?”
 
- 
-
-Dia kehilangan udara di paru-parunya dan setelah itu, dia dirusak oleh rasa sakit yang hebat seolah-olah organ dalamnya dihancurkan dan dihancurkan.
+Dia kehilangan udara di paru-parunya dan setelah itu, dia merasakah rasa sakit yang hebat seolah-olah organ dalamnya dihancurkan.
 
 Ruti menahan diri agar tidak membunuh pria itu.
 
-Namun, itu bukan karena belas kasihan. Dia bertujuan untuk menahan diri agar dia tidak kehilangan kesadaran tetapi kesakitan sehingga dia berharap dia telah mati.
+Namun, itu bukan karena belas kasihan. Dia bertujuan untuk menahan diri agar dia tidak kehilangan kesadaran tetapi agar dia merasakan kesakitan sehingga dia berharap dia ingin mati.
 
 Pukulan tunggal itu mungkin akan tetap menjadi trauma mental seumur hidup bagi pria itu.
 
-Pria itu membungkuk dua kali lipat dan menekan perutnya saat dia mengerang sementara air mata dan air liurnya mengalir deras.
-
- 
+Pria itu membungkuk dua kali lipat dan menekan perutnya serta dia mengerang sementara air mata dan air liurnya mengalir deras.
 
 “Heee, ap-apa !?”
 
- 
-
 Pria yang lain mencoba melarikan diri dengan tergesa-gesa tetapi Tise sudah melilitnya.
 
- 
-
-"M-pindah!"
-
- 
+"M-menyingkirlah!"
 
 Tise meraih lengan pria itu yang dia rentangkan untuk mendorongnya pergi dan dia melemparkannya ke udara dengan satu putaran.
 
- 
-
 “Ugya !!”
-
- 
 
 Menekan sendi pria yang jatuh ke tanah, Tise dengan lembut menekan jarinya ke sisi pria itu.
 
- 
-
 “U-ugaaaaaaAA !!!!!!”
-
- 
 
 Dia berteriak sangat keras sampai tenggorokannya akan robek.
 
@@ -294,23 +268,13 @@ Dia telah menerapkan teknik Penghancuran Tubuh Manusia.
 
 Serangan yang hanya menimbulkan rasa sakit pada lawan tanpa menyebabkan cedera.
 
- 
-
 “Chikuwa… sayang sekali.”
-
- 
 
 Melihat chikuwa yang terinjak-injak, Tise menekan sedikit lebih keras dengan jarinya.
 
- 
-
 ☆☆
 
- 
-
 Pada saat kedua preman itu diserahkan kepada Pengawal yang datang dengan terburu-buru setelah mendengar keributan tersebut, mereka berdua sudah menangis dan meringkuk tanpa mengkhawatirkan penampilan mereka.
-
- 
 
 “Dengan itu, mereka tidak akan pernah melakukannya lagi.”
 
