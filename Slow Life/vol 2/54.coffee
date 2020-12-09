@@ -24,57 +24,37 @@ Ruti menyelidiki jadwal harian narapidana kemarin dan mengumpulkan beberapa info
 
 Hasil dari diskusi mereka adalah untuk mengambil strategi dengan tingkat keberhasilan tertinggi dengan melakukannya secara cepat tetapi meminimalkan kerusakan.
 
-Berbeda dengan dinding batu yang mengelilingi Zoltan, dinding bata luar penjara cukup tinggi dan ada juga paku-paku tajam di atasnya.
+tidak seperti dinding batu mengelilingi Zoltan, dinding bata luar penjara cukup tinggi dan ada juga paku-paku tajam di atasnya.
 
-Tanpa skill 'Leap Mastery' yang dimiliki oleh Divine Protections seperti 『Roof Walker』 atau 『Flying Dragon Knight』, mungkin akan sulit untuk memanjat dinding.
-
- 
+Tanpa skill 'Master Melompat' yang dimiliki oleh perlindunga ilahi seperti 『Roof Walker』 atau 『Flying Dragon Knight』, mungkin akan sulit untuk memanjat dinding.(masariuman : saya pakai bahasa inggris aja soalnya jelek roof walker diterjemahkan sebagai pejalan di atap)
 
 Ruti menghunus pedang goblinnya yang berlubang.
 
- 
+r"Seni Bela Diri, Pengiris Batu."
 
-Seni Bela Diri, Pengiris Batu.
+Dengan ayunan pedang Ruti, dinding itu robek dengan mulus tanpa ada hambatan.
 
- 
+Keduanya melewati lubang persegi yang dibuat ruti.
 
-Dengan ayunan pedang Ruti, dinding itu robek dengan mulus tanpa ada perlawanan.
+Dan setelah mereka melewatinya, mereka memasang kembali bagian dinding yang berlubang ke tempat semula.
 
-Keduanya melewati lubang persegi yang dilubangi.
+Karena ketajaman ekstrim yang dicapai oleh seni bela diri, pemasangan sempurna tanpa celah sampai-sampai tidak ada yang akan memperhatikan potongannya tanpa menyelidikinya dengan cermat.
 
- 
+mereka hanya membutuhkan waktu kurang dari satu detik dari mendekati dinding, memotong dan menyusup kedalam.
 
-Dan setelah melewati, mereka memasang kembali bagian dinding yang berlubang ke tempat semula.
-
-Karena ketajaman ekstrim yang dicapai oleh seni bela diri, itu cocok dengan sempurna tanpa celah sampai-sampai tidak ada yang akan memperhatikan potongannya tanpa menyelidikinya dengan cermat.
-
- 
-
-Selain itu, mereka membutuhkan waktu kurang dari satu detik dari mendekati dinding hingga mengiris dan menyusup.
-
-Pada saat penjaga penjara di menara pengawal, yang menganggap mengawasi tugas yang merepotkan, melihat ke atas, mereka berdua sudah menyelinap ke dalam bayang-bayang.
-
- 
+diwaktu penjaga penjara di menara pengawal, yang menganggap mengawasi tugas yang merepotkan, melihat ke atas, mereka berdua sudah menyelinap ke dalam bayangan gelap.
 
 ☆☆
 
- 
-
 Bel untuk sarapan berbunyi di dalam penjara.
 
-Para narapidana berbaris di samping meja dan menggumamkan doa sebelum makan mengikuti kata-kata penjaga.
-
- 
+Para narapidana berbaris di samping meja dan berdoa sebelum makan mengikuti kata-kata penjaga.
 
 Suara bantingan terdengar.
 
-Penjaga itu mengerutkan kening tetapi tidak mengucapkan sepatah kata pun.
-
- 
+Penjaga mengerutkan kening tetapi tidak mengucapkan sepatah kata pun.
 
 "Geh, serangga menyebalkan."
-
- 
 
 Itu adalah suara narapidana berkepala kulit yang menginjak kumbang besar yang merangkak di lantai.
 
