@@ -266,3 +266,33 @@ memesan 4 chikuwa hebat juga.
 
 dia pasti benar-benar menyukai chikuwa.
 
+kesampingkan hal itu, ini pertama kalinya aku melihatnya.
+
+dia pendek dan badannya sepertinya terlatih.
+
+bajunya usang karena perjalanan tapi memiliki kualitas yang bagus.
+
+dia memiliki pedang pendek di pinggangnya. dibajunya, dia memiliki 3 pisau lempar disampingnya.
+
+pedang kecil sepertinya memiliki sihir penguat dan beberapa efek spesial lainnya. ada juga sihir untuk menyembunyikan semua itu.
+
+baju chainmail yang dibuat dari mirthil perak terlihat didalam bajunya.
+
+itu adalah equipment yang fokus pada kelincahan. dan dia sengaja membuat itu terlihat seperti barang biasa dan tetap bersikap rendah.
+
+anak itu memiliki keterampilan yang hebat. dia pasti petualang yang sudah biasa berkelana...tapi kehadirannya terasa tipis.
+
+dia pasti memiliki pekerjaan yang memerlukannya agar tidak ketahuan.
+
+pencuri, mata-mata...atau pembunuh bayaran?
+
+gadis kecil itu tiba-tiba melihatku.
+
+"ada apa?"
+
+g"ah, maaf. aku hanya tertarik karena aku belum pernah melihatmu sebelumnya. dan kamu sepertinya ingin meminta mustard lagi."
+
+"mustard dibutuhkan untuk oden."
+
+g"aku ingin bisa berkata seperti itu juga."
+
