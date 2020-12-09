@@ -162,61 +162,41 @@ Itu bukan masalah yang bisa segera diselesaikan.
 
 Kami butuh waktu.
 
-Beberapa orang mungkin menuduh kami menunda Pahlawan.
+Beberapa orang mungkin menuduh kami menghambat Pahlawan.
 
-Tetapi jika itu adalah kejahatan, kesalahannya ada pada saya. Ruti tidak melakukan kesalahan apapun.
+Tetapi jika itu adalah kejahatan, kesalahannya ada padaku. Ruti tidak melakukan kesalahan apapun.
 
-Bagaimanapun, bahkan jika nasib dunia ada di pundak itu, Ruti masihlah seorang gadis muda berusia 17 tahun.
-
- 
+Bagaimanapun juga, bahkan jika nasib dunia ada di pundaknya, Ruti masihlah seorang gadis muda berusia 17 tahun.
 
 ☆☆
 
- 
-
 Usai meninggalkan toko, Ruti segera meninggalkan lokasi dan mengerang sambil memegangi dadanya.
 
- 
+“Pa, Ruru-san !?”
 
-“Yu, Ruru-san !?”
-
- 
-
-Tise terburu-buru.
+Tise mendekat dengan tergesa-gesa.
 
 Ruti mengeluarkan Perlindungan Ilahi Iblis dari saku dadanya dan minum seteguk.
 
- 
+r"aku seharusnya tidak mengatakan bahwa aku akan tetap tinggal di kota ini."
 
-“Saya seharusnya tidak mengatakan bahwa saya akan tetap tinggal di kota ini.”
-
- 
-
-Ruti dengan lembut bergumam saat keringat dingin muncul di dahinya.
+Ruti dengan lembut bergumam dan keringat dingin muncul di dahinya.
 
 Ruti saat ini sedang menderita serangan dari dorongan kuat dari Perlindungan Ilahi miliknya.
 
-Meskipun dorongan itu seharusnya telah dilemahkan oleh Perlindungan Ilahi Iblis, ketika Pahlawan menyatakan keinginannya untuk meninggalkan peran Pahlawan, Perlindungan Ilahi terkuat di dunia, keinginan untuk mengejar keadilan diprotes dengan rasa sakit yang dapat menghancurkan hati seseorang.
+Meskipun dorongan itu seharusnya telah dilemahkan oleh Perlindungan Ilahi Iblis, ketika Pahlawan menyatakan keinginannya untuk meninggalkan peran Pahlawan, Perlindungan Ilahi terkuat di dunia, keinginan untuk mengejar keadilan memprotes dengan rasa sakit yang dapat menghancurkan hati seseorang.
 
- 
-
-"Itu belum melemah."
+r"ini masih belum melemah."
 
 “Ruru-san…”
-
- 
 
 Tise khawatir.
 
 Seperti yang dia duga, Pahlawan-sama saat ini agak aneh.
 
-Tise jelas tidak bepergian dengan Pahlawan untuk waktu yang lama tetapi kondisinya saat ini tidak dapat disangkal tidak normal.
-
- 
+Tise tidak bepergian dengan Pahlawan untuk waktu yang lama tetapi kondisinya saat ini tidak normal.
 
 “Kyaaaaaa !!!”
-
- 
 
 Saat itulah mereka mendengar teriakan.
 
@@ -224,39 +204,25 @@ Tise menanggapi dengan cepat.
 
 Tapi Ruti telah bergegas bahkan sebelum dia melakukannya.
 
- 
-
 ☆☆
-
- 
 
 Di luar distrik pusat kota, di kanal air yang berbatasan dengan distrik pelabuhan.
 
 Seorang wanita High-Elf dijambak rambutnya dan ditarik ke tanah.
 
- 
+"Hei, siapa yang membiarkanmu berjualan di sini?"
 
-"Hei, siapa yang mau berbisnis di sini ya?"
+Ada warung oden terbalik di sampingnya.
 
- 
-
-Ada warung oden terbalik di sekitarnya.
-
-Bahan oden yang dibuat oleh High-Elf Oparara dengan hati-hati tersebar dengan menyedihkan di tanah dan ada dua pria mabuk berwajah merah menyeringai saat mereka menginjaknya.
-
- 
+Bahan oden yang dibuat oleh High-Elf Oparara dengan hati-hati berceceran dengan menyedihkan di tanah dan ada dua pria mabuk berwajah merah tersenyum jahat dan mereka menginjaknya.
 
 "Hentikan!"
 
-“Ini adalah kota human-sama, demi-human sepertimu yang menunjukkan wajahmu di sini akan merusak estetika tempat itu.”
-
- 
+“Ini adalah kota manusia-sama, setengah-manusia sepertimu yang menunjukkan wajahmu di sini akan merusak estetika tempat itu.”
 
 Ada supremasi manusia seperti mereka di kota mana pun.
 
 Dalam kebanyakan kasus, sebagian besar manusia tidak menyukai tindakan mereka tetapi ada cukup banyak orang di komunitas mereka sehingga mereka ada di setiap kota.
-
- 
 
 Mereka sepertinya dipenuhi dengan kegembiraan yang membengkok saat mereka melihat Oparara yang berwajah merah karena pemukulan ...
 
