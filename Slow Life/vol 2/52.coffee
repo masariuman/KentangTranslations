@@ -100,3 +100,34 @@ r"tapi di kios, mereka bilang yang terkuat di zoltan sekarang adalah byuui denga
 
 r"knight order."
 
+muka dari seseorang yang ruti kenal muncul di kepalanya.
+
+akan tetapi, ada banyak knight di dunia ini. orang yang dia temui kemarin di jembatan yang bahkan dia tidak terlalu ingat juga adalah knight. ruti menolak pikirannya sendiri.
+
+tise terus berkata tanpa mengetahui itu.
+
+"mantan knight dan pejuang veteran yang bertarung di garis depan melawan pasukan raja iblis. aku rasa mungkin orang itu melakukan sesuai yang hina dan keji jika dia berakhir di tempat seperti ini. kalau seorang petualang yang melakukannya makan bisa diabaikan. berbeda dengan knight karena itu akan menyangkut keseluruhan nama knight order."
+
+r"begitu..."
+
+"walaupun aku tidak tahu apa yang terjadi..."
+
+tise merenung sejenak
+
+"ini tidak lebih dari spekulasi tapi mungkin saja dia diasingkan oleh atasannya karena dia terlalu muda dan hebat dan tidak ada pilihan lain selain membunuhnya. aku tidak bisa membayangkan seseorang dengan keterampilan seperti itu lari kesini hanya karena kesalahan yang simpel."
+
+r"begitu..."
+
+tise memlepaskan pedang kecil yang dia letakkan di pinggangnya.
+
+dia duduk di kasur dan menghela nafas dalam-dalam.
+
+"zoltan tidak memiliki petualang yang hebat. petualang terhebat hanya rank-b. aku pikir aneh kalau mereka bisa mengalahkan iblis rank-senior."
+
+tise mendengar sedikit tentang insiden yang terjadi di zoltan dari ares yang bertanya kepada albert.
+
+iblis rank-senior dan petualang rank-b berkolusi dan dihentikan oleh petualang yang hebat.
+
+akan tetapi, menurut informasi yang dia dapatkan di zoltan kemarin dan hari ini, itu adalah petualang yang berkelana dan penjaga yang menyelesaikan insiden itu. petualang itu sepertinya juga di lantik sebagai rank-b.
+
+""
