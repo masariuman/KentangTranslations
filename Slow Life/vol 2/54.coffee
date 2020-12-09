@@ -8,7 +8,7 @@ Ruti dan Tise sedang berjalan ke utara.
 
 Udara dingin di pagi hari membuat napas mereka memutih.
 
-“Jika kita akan membebaskannya dari penjara, harus ada tindakan pencegahan ajaib. Jubah tembus pandang mungkin tidak akan berfungsi. ”
+“Jika kita akan membebaskannya dari penjara, pasti ada sesuatu untuk mencegah sihir. Jubah tembus pandang mungkin tidak akan berfungsi. ”
 
  
 
