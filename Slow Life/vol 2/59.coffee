@@ -146,59 +146,45 @@ Tise menunjukkan senyum tipis kebahagiaan saat dia menatapku.
 
 (Baik Gideon-san dan Ruti-san memberikan jawaban yang sama ketika mereka mendengar nama Ugeuge-san. Seperti yang diharapkan dari saudara kandung.)
 
-Dia tidak memiliki ekspresi wajah tapi gadis bernama Tise itu mungkin gadis biasa di dalam seperti Ruti.
+Dia tidak memiliki ekspresi wajah tapi gadis bernama Tise itu mungkin gadis biasa seperti Ruti.
 
-"Onii Chan."
+r"Onii Chan."
 
-“Hn, ada apa?”
+g"Hn, ada apa?"
 
-“Bisakah kita makan siang bersama juga?”
+r"Bisakah kita makan siang bersama juga?"
 
- 
-
-Saya menepuk kepala Ruti.
+aku menepuk kepala Ruti.
 
 Gadis ini, meskipun aku baru saja membicarakan makan malam dengan Tise.
 
- 
+g"Tentu saja. Itulah rencananya. "
 
-"Tentu saja. Itu adalah rencana aslinya. "
+r"okay."
 
-"Baik."
+g"Bukan hanya makan siang, kamu juga akan makan malam kan?"
 
-“Bukan hanya makan siang, kamu juga akan makan malam kan?”
-
-"Ya."
-
- 
+r"Ya."
 
 Ruti tersenyum lembut.
 
- 
-
-“Sebenarnya, aku suka masakan Onii-chan.”
-
- 
+r"Sebenarnya, aku suka masakan Onii-chan."
 
 Senyuman yang sangat alami. Itu berkilauan dan merupakan senyuman indah yang bisa dilihat orang lain yang berasal dari hatinya hanya dengan sekali pandang.
 
- 
+g"Ya aku tahu."
 
-"Ya aku tahu."
+r"Ya!"
 
-"Ya!"
+g"Apakah ada yang kamu inginkan?"
 
-“Apakah Anda punya permintaan?”
+r"... aku ingin minum susu madu."
 
-"... Saya ingin minum susu madu."
+g"Baiklah."
 
-"Baiklah."
+Permintaannya berbeda dari yang aku harapkan.
 
- 
-
-Permintaannya berbeda dari yang saya harapkan.
-
-Tapi itu baik-baik saja.
+Tapi itu tidak masalah.
 
 Masih ada satu setengah jam sebelum makan siang.
 
