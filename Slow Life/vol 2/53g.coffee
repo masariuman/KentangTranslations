@@ -74,3 +74,26 @@ setelah aku berhenti membawa tanaman obat ke guild petualang, sepertinya mereka 
 
 karena itu, harga tanaman obat meningkat.
 
+tapi sepertinya petualang akan membelinya dari guild petualang dengan harga yang mereka tawarkan.
+
+aku percaya mereka bisa mendapatkan lebih banyak keuntungan apabila mereka menangani itu dengan lihat tapi guild petualang zoltan sepertinya tidak peduli tentang itu.
+
+l"selamat datang."
+
+lit berbicara di depan toko.
+
+aku tersenyum ringan dan meninggalkan bagian depan tolo kepada lit karena aku akan berkonsentrasi untuk pekerjaan pembuatan obat.
+
+☆☆
+
+makan siang hari ini adalah pizza.
+
+lit bekerja di toko bagian depan jadi au mulai masa agak awal hari ini.
+
+aku meratakan adonan yang aku siapkan di pagi hari dan menyebarkan saus tomat merata.
+
+g"aku akan mencoba membuat pizza seafood."
+
+zoltan terletak didekat sungan jadi mendapatkan produk air juga tidak sulit.
+
+pertama, kuletakkan lapisan keju, kerang yang sudah dikupas, 
