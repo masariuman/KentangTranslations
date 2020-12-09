@@ -184,6 +184,8 @@ Itu benar, sekarang aku bisa melihat ingatan masa laluku dengan baik.
 
 Ketika kami berdiskusi tentang kapal terbang, perubahan ekspresi pahlawan-sama sesekali ketika dia melihatku mirip dengan bagaimana aku tersenyum ketika aku melihat ke Ugeuge-san dan dia juga tersenyum ketika dia melihat ke Ugeuge-san.
 
+<gambar> vol3 10.jpg
+
 Malam itu, ketika dia mencari sesuatu, dia juga mencari tempat tidur kecil untuk Ugeuge-san. Hanya itu saja. (chapter 48 bagian terakhir)
 
 Pada akhirnya, pahlawan-sama tidak bisa memikirkan apa untuk dikatakan ...
