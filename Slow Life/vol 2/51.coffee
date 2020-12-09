@@ -296,3 +296,8 @@ g"ah, maaf. aku hanya tertarik karena aku belum pernah melihatmu sebelumnya. dan
 
 g"aku ingin bisa berkata seperti itu juga."
 
+aku hanya melihat sekilas kepadanya dari ujung mataku tapi anak itu sadar akan tatapanku kepadanya huh ?
+
+dia lumayan hebat.
+
+siapa dia ?
