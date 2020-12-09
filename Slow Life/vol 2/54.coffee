@@ -164,33 +164,19 @@ Umpan adalah keterampilan yang digunakan untuk membuat tubuh terbelah dari tubuh
 
 Tubuh yang terbelah tidak dapat bergerak sendiri atau mengeluarkan suara tetapi dapat diberi perintah sederhana seperti berjalan di sekitar jarak tertentu atau mengangguk jika sesuatu dikatakan padanya.
 
-Tubuh terbelah seperti balon tanpa isi sehingga mereka tidak memiliki kemampuan bertarung sama sekali tapi itu adalah kemampuan yang dimiliki oleh sistem pemanggilan daripada sistem ilusi. Dengan demikian, itu tidak dapat dideteksi melalui penanggulangan sihir anti-ilusi.
+Tubuh terbelah seperti balon tanpa isi sehingga mereka tidak memiliki kemampuan bertarung sama sekali tapi itu adalah kemampuan yang dimiliki oleh sistem pemanggilan daripada sistem ilusi. Dengan demikian, itu tidak dapat dideteksi melalui pencegahan sihir anti-ilusi.
 
- 
+Dari pengalaman, Tise tahu bahwa umpan bisa memberi lebih banyak waktu daripada tapi tubuh yang terbelah secara fisik lemah.
 
-Dari pengalaman, Tise tahu bahwa umpan bisa membeli lebih banyak waktu daripada yang diharapkan dari tubuh yang terbelah secara fisik lemah.
+Sejak saat itu, semuanya tentang masalah waktu.
 
- 
-
-Sejak saat itu, perlombaan melawan waktu.
-
- 
-
-Para penjaga hanya menyadari bahwa ajudan dekat Big Hawk, Alchemist Codwin, hilang 30 menit setelah mereka selesai menekan upaya melarikan diri dari penjara.
-
- 
+Para penjaga menyadari bahwa ajudan dekat Big Hawk, Alchemist Codwin, hilang 30 menit setelah mereka selesai menekan upaya melarikan diri dari penjara.
 
 ☆☆
 
- 
-
 Ruti melepas sumbat yang diikatkan ke mulut pria itu.
 
- 
-
 “A-siapa kalian?”
-
- 
 
 Diseret ke gudang redup di distrik pelabuhan, Alchemist Codwin memegangi lukanya yang sakit karena dipindahkan dan dia bertanya dengan suara ketakutan.
 
