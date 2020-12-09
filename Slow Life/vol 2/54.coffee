@@ -78,25 +78,21 @@ Dia yakin bahwa dia bisa mengimbangi lawan yang melanggar hukum dalam pertarunga
 
 Sebagai perbandingan, Perlindungan Ilahi dari narapidana berkepala botak adalah 『Bar Brawler』.
 
-Dia adalah seorang biasa di penjara dan telah dipenjarakan berkali-kali karena insiden kekerasan.
+Dia adalah orang biasa di penjara dan telah dipenjarakan berkali-kali karena insiden kekerasan.
 
 Sidang terakhirnya berakhir dalam satu menit dan hukumannya diputuskan tanpa dia mengucapkan sepatah kata pun.
 
 Dia telah menerima bahwa dia adalah orang seperti itu dan terus melewati hari demi hari sebagai penolong untuk perkelahian atau dengan mengguncang orang.
 
-Itu bukanlah kehidupan yang bisa dibanggakan oleh seseorang tetapi karena itu, dia memiliki kepribadian yang tidak dapat menahan orang lain untuk meremehkan kekuatan fisiknya.
+Itu bukanlah kehidupan yang bisa dibanggakan oleh seseorang tetapi karena itulah dia memiliki kepribadian yang tidak dapat tahan orang lain kalau meremehkan kekuatan fisiknya.
 
- 
+Pria dengan bekas luka bakar di pipinya yang berdiri di samping narapidana berkepala botak itu adalah seorang pekerja yang memiliki Perlindungan Ilahi dari 『Pejuang』.
 
-Pria dengan bekas luka bakar di pipinya yang berdiri di samping narapidana berkepala kulit itu adalah seorang pekerja yang memiliki Perlindungan Ilahi dari 『Prajurit』.
+Dia menikam seseorang hanya karena pertarungan sepele dan sayangnya, pria itu meninggal. Dia sudah menghabiskan satu tahun di penjara.
 
-Dia menikam seseorang selama pertarungan sepele dan sayangnya, pria itu meninggal. Dia sudah menghabiskan satu tahun di penjara.
-
-Insiden yang menyebabkan dia datang ke sini sama sekali tidak berhubungan dengan Perlindungan Ilahi.
+Insiden yang menyebabkan dia datang ke sini sama sekali tidak berhubungan dengan Perlindungan Ilahinya.
 
 Namun, ia hanya merasa menyesal ketika melihat kelakuan konyol para napi.
-
- 
 
 Ketiganya memiliki seperangkat nilai dan Perlindungan Ilahi yang sangat berbeda.
 
