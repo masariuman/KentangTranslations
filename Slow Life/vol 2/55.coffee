@@ -182,37 +182,27 @@ r"Lit juga bisa ikut. Onii-chan, ayo kita berkelana lagi."
 
 Kata Ruti seolah memohon padaku.
 
-Rasa sakit menjalari hatiku.
+Rasa sakit muncul dihatiku.
 
-Saya… berpikir bahwa ada orang lain yang dapat diandalkan Ruti selain saya.
+aku... berpikir bahwa ada orang lain yang dapat diandalkan Ruti selain diriku.
 
 Ares, Danan, Theodora, Yarandorara.
 
 Mereka semua memiliki kelemahan tetapi mereka lebih kuat dariku dan merupakan rekannya yang menguasai jalan mereka masing-masing.
 
- 
+Bahkan tanpa aku, sihir Ares, tinju Danan, tombak dan keajaiban Theodora, kekuatan Yarandorara untuk memanipulasi tanaman... Kupikir mereka bisa mendukung Ruti.
 
-Bahkan tanpa aku, sihir Ares, tinju Danan, tombak dan keajaiban Theodora, kekuatan Yarandorara untuk memanipulasi tanaman… Kupikir mereka bisa mendukung Ruti.
+r"timnya tidak bisa berjalan baik tanpa Onii-chan. Aku bahkan bisa mengusir Ares. Kami membutuhkan Onii-chan."
 
- 
+Ruti menjelaskan situasi tim saat ini.
 
-“Pestanya tidak bisa berlangsung tanpa Onii-chan. Aku bahkan bisa mengusir Ares. Kami membutuhkan Onii-chan. ”
+Bahwa Ares gagal menggantikan pekerjaanku.
 
- 
+Danan pergi mencariku, Yarandorara meninggalkan tim sambil mengira aku dibunuh.
 
-Ruti menjelaskan situasi pesta saat ini.
+Tise memasuki tim untuk menggantikanku tetapi satu untuk menggantikan tiga orang tidak sesuai.
 
-Bahwa Ares gagal menyelesaikan pekerjaanku sendiri.
-
-Danan pergi mencariku, Yarandorara meninggalkan pesta sambil mengira aku dibunuh.
-
-Tise memasuki partai untuk menggantikan saya tetapi memiliki satu untuk menggantikan tiga tidak cocok.
-
- 
-
-”……”
-
- 
+g”...”
 
 Mereka mengalahkan Angin Empat Raja Surgawi jadi kupikir pesta Pahlawan berjalan dengan baik.
 
