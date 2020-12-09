@@ -56,35 +56,27 @@ Penjaga mengerutkan kening tetapi tidak mengucapkan sepatah kata pun.
 
 "Geh, serangga menyebalkan."
 
-Itu adalah suara narapidana berkepala kulit yang menginjak kumbang besar yang merangkak di lantai.
+Itu adalah suara narapidana botak yang menginjak kumbang besar yang merangkak di lantai.
 
-Cairan tubuh serangga itu menempel di kaki telanjang manusia saat ia mengangkat kakinya.
+Cairan tubuh serangga itu menempel di kakinya.
 
- 
+Narapidana dengan bekas luka bakar di pipinya meludahi lantai.
 
-Narapidana dengan bekas luka bakar di pipinya merengut dan meludahi lantai.
-
-Pejabat paruh baya, yang dikirim ke sana karena korupsi, berdiri di hadapan mereka mendecakkan lidahnya dengan keras karena dia muak dengan tindakan narapidana yang tidak sehat dan tidak sopan.
-
- 
+Pejabat paruh baya, yang dikirim ke sana karena korupsi, berdiri di hadapan mereka mendecakkan lidahnya dengan keras karena dia muak dengan tindakan narapidana yang tidak sopan.
 
 "Apa itu tadi?"
 
- 
+Kepala botak yang menghancurkan serangga itu mengancamnya.
 
-Kepala kulit yang menghancurkan serangga itu mengancamnya.
+Meskipun narapidana paruh baya adalah seorang pejabat, dia memiliki Perlindungan Ilahi dari 『penggenggam』.
 
-Meskipun narapidana paruh baya adalah seorang pejabat, dia memiliki Perlindungan Ilahi dari 『Grappler』.
+Dia menodai tangannya dengan korupsi karena dia telah menyerah pada karirnya karena Perlindungan Ilahi-nya yang tidak cocok dengan bekerja sebagai pejabat.
 
-Dia menodai tangannya dengan korupsi karena dia telah menyerah pada karirnya karena Perlindungan Ilahi-nya tidak cocok dengan bekerja sebagai pejabat.
-
-Karena dia tidak bisa menghilangkan rasa frustrasi dari dorongan Divine Protection saat melakukan pekerjaan biasa, dia terus berburu Goblin pada hari liburnya sehingga level Divine Protection-nya cukup tinggi.
+Karena dia tidak bisa menghilangkan rasa frustrasi dari dorongan perlindungan ilahinya saat melakukan pekerjaan biasa, dia terus berburu Goblin pada hari liburnya sehingga level perlindungan ilahinya-nya cukup tinggi.
 
 Dia yakin bahwa dia bisa mengimbangi lawan yang melanggar hukum dalam pertarungan tak bersenjata.
 
- 
-
-Sebagai perbandingan, Perlindungan Ilahi dari narapidana berkepala kulit adalah 『Bar Brawler』.
+Sebagai perbandingan, Perlindungan Ilahi dari narapidana berkepala botak adalah 『Bar Brawler』.
 
 Dia adalah seorang biasa di penjara dan telah dipenjarakan berkali-kali karena insiden kekerasan.
 
