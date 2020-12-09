@@ -120,15 +120,9 @@ Tinju Ruti-lah yang menghancurkan tembok.
 
 Hanya saja suara tinju terkuat manusia yang menghantam dinding terdengar persis seperti ledakan.
 
- 
-
 Pada saat para narapidana bergegas menuju lubang, Ruti sudah tidak terlihat lagi.
 
- 
-
 ☆☆
-
- 
 
 Penyusup dengan berani berjalan menyusuri koridor paviliun rumah sakit.
 
