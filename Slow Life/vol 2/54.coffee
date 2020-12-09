@@ -138,39 +138,27 @@ Setelah melihat sekeliling, penyusup itu naik ke jendela yang dibatasi jeruji be
 
 Tise tersenyum lembut setelah melihat partnernya kembali.
 
-Ugeuge-san melambaikan satu kaki sebagai tanggapan.
+Ugeuge-san melambaikan satu kaki menjawabnya.
 
-Itu melompat ke lengan Tise dan Tise mengaktifkan keterampilan 'Spider Empathy' untuk membangun komunikasi pikiran.
+ugeuge-san melompat ke lengan Tise dan Tise mengaktifkan skill 'empati laba-laba' untuk membangun komunikasi antar pikiran.
 
 Laba-laba tidak memahami kata-kata dan huruf sehingga yang bisa dirasakan Tise hanyalah gambar yang samar-samar.
 
-Namun, Tise telah melatih dan belajar sendiri untuk memahaminya.
+Namun, Tise telah melatih dan belajar dirinya sendiri untuk memahaminya.
 
- 
+“Oke, aku mengerti. Terima kasih, Ugeuge-san. ”
 
-“Oke, saya mengerti. Terima kasih, Ugeuge-san. ”
-
- 
-
-Semoga perjalanan aman, Ugeuge-san mengangkat kedua kaki depannya seolah menandakan itu.
-
- 
+Semoga perjalanan aman, Ugeuge-san mengangkat kedua kaki depannya seolah mengerti.
 
 ☆☆
 
- 
-
 Para penjaga keluar dengan kekuatan penuh untuk menanggapi kekacauan dari upaya pembobolan penjara.
 
-Hanya satu orang yang tersisa di pintu masuk lampiran rumah sakit dan orang itu sudah dibuat pingsan oleh pukulan Tise ke titik vitalnya.
+Hanya satu orang yang tersisa di pintu masuk bagian rumah sakit dan orang itu sudah dibuat pingsan oleh pukulan Tise ke titik vitalnya.
 
- 
+“Skill: umpan”
 
-“Skill: Decoy”
-
- 
-
-Ketika Tise mengaktifkan skillnya, seseorang dengan penampilan yang sama persis dengan penjaga tak sadar muncul di depan mata Tise.
+Ketika Tise mengaktifkan skillnya, seseorang dengan penampilan yang sama persis dengan penjaga muncul di depan mata Tise.
 
 Umpan adalah keterampilan yang digunakan untuk membuat tubuh terbelah dari tubuh pengguna atau orang yang mereka sentuh.
 
