@@ -1,38 +1,24 @@
-Bab 55: Ditelan pusaran air pahit
+Bab 55: Ditelan pusaran air pahit 
 
-Penerjemah: Tseirp
+Adik perempuanku ada di pelukanku.
 
- 
+Adik perempuanku yang aku pikir mungkin tidak akan pernah aku lihat lagi atau setidaknya sampai dia mengalahkan Raja Iblis.
 
-Adik perempuan saya ada di pelukan saya.
-
-Adik perempuan saya yang saya pikir mungkin tidak akan pernah saya lihat lagi atau setidaknya sampai dia mengalahkan Raja Iblis.
-
- 
-
-"Onii Chan!"
-
- 
+r"Onii Chan!" 
 
 Ruti meremas lengannya yang melingkari punggungku.
 
 Ruti tersenyum sambil menangis.
 
- 
-
 Gonz yang ada di sampingku dan anak pencinta Chikuwa yang masuk dengan Ruti kaget kaku dengan mulut terbuka lebar.
 
- 
-
-Saya harus mengatakan sesuatu…
+aku harus mengatakan sesuatu…
 
 Pertama, aku balas memeluk erat Ruti.
 
 Aku juga senang bisa bertemu kembali dengan adik perempuanku. Dari lubuk hatiku.
 
- 
-
-Setelah beberapa saat, begitu Ruti akhirnya tenang, aku dengan lembut meremas bahu Ruti dan dia dengan patuh berpisah dariku.
+Setelah beberapa saat, setelah Ruti akhirnya tenang, aku dengan lembut meremas bahu Ruti dan dia dengan patuh berpisah dariku.
 
 Ekspresinya telah kembali ke ekspresi biasanya juga.
 
