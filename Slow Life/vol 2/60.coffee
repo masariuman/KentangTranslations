@@ -36,21 +36,17 @@ Tentu saja bisa untuk melatih secara perlahan yang memiliki Perlindungan Ilahi d
 
 Tugas umum bagi pemilik peternakan adalah untuk menentukan apakah hewan ternak tersebut adalah 『Ternak』 atau 『Binatang Buas』 saat Binatang tersebut masih kecil dan membuang 『Binatang Buas』 Mumpung masih kecil.
 
-Beberapa orang mungkin mempertanyakan praktik ini tetapi saya tidak memiliki cukup pengetahuan tentang ternak untuk ikut campur di dalamnya.
+Beberapa orang mungkin mempertanyakan ini tetapi aku tidak memiliki cukup pengetahuan tentang binatang ternak untuk ikut campur di dalamnya.
 
-Ambil contoh kejadian ini. Mungkin akan baik-baik saja jika yang dilakukannya hanyalah merusak pagar tetapi itu juga melukai ternak dan manusia lainnya jadi saya pikir mungkin lebih baik meletakkan mereka saat mereka masih muda.
+contohnya kejadian ini. Mungkin akan baik-baik saja jika yang dilakukannya hanyalah merusak pagar tetapi itu juga melukai binatang ternak dan manusia lainnya jadi kupikir mungkin lebih baik memusnahkan mereka saat mereka masih kecil.
 
- 
+Setelah mendengar bahwa ayam tersebut dibuang karena itu adalah 『Binatang buas』, Ruti memandang naga ayam dengan serius sebelum memakannya.
 
-Setelah mendengar bahwa ayam tersebut dibuang karena itu adalah 『Beast』, Ruti memandang Dragon Chicken dengan serius sebelum memakannya.
+aku tahu bahwa Ruti tidak terlalu banyak bicara tetapi Tise juga sama.
 
- 
+Tise berbicara saat dibutuhkan dan juga akan menyampaikan pemikirannya tetapi misalnya, meskipun dia menyebutkan bahwa hidangannya enak, dia tidak mengatakan sepatah kata pun dan hanya makan dalam diam.
 
-Saya tahu bahwa Ruti tidak terlalu banyak bicara tetapi Tise juga sama.
-
-Tise dapat berbicara saat dibutuhkan dan juga akan menyampaikan pemikirannya tetapi misalnya, meskipun dia menyebutkan bahwa hidangannya enak, dia tidak mengatakan sepatah kata pun setelah itu dan hanya makan dalam diam.
-
-Dilihat dari gerakan matanya, dia menaruh banyak perhatian pada kata-kata dan sikap kami, tetapi dia sepertinya bukan tipe yang mengemukakan topik obrolan ringan atau pengisi.
+Dilihat dari gerakan matanya, dia menaruh banyak perhatian pada kata-kata dan sikap kami, tetapi dia sepertinya bukan tipe yang mengemukakan topik obrolan ringan.
 
 Sebagai tipe yang hanya akan berbicara ketika dia memiliki tujuan yang jelas, menurutku kata-kata adalah alat untuk menyampaikan pikirannya hanya ketika dia harus melakukannya.
 
