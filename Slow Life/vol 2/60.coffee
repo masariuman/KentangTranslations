@@ -267,3 +267,9 @@ Namun, dia merasa bahwa Albert, dengan kondisinya yang menghabiskan vitalitasnya
 (Aku tidak bisa membiarkan dia mati karena hal seperti ini.)
 
 Theodora dengan kuat memutuskan dirinya sendiri.
+
+
+--------------------------
+
+
+masariuman : FU**ING AR*S #%$^@((&#))
