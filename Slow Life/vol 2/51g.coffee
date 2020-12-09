@@ -301,3 +301,5 @@ aku hanya melihat sekilas kepadanya dari ujung mataku tapi anak itu sadar akan t
 dia lumayan hebat.
 
 siapa dia ?
+
+<gambar> vol3 7.jpg
