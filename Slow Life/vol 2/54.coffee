@@ -24,8 +24,6 @@ Ruti menyelidiki jadwal harian narapidana kemarin dan mengumpulkan beberapa info
 
 Hasil dari diskusi mereka adalah untuk mengambil strategi dengan tingkat keberhasilan tertinggi dengan melakukannya secara cepat tetapi meminimalkan kerusakan.
 
- 
-
 Berbeda dengan dinding batu yang mengelilingi Zoltan, dinding bata luar penjara cukup tinggi dan ada juga paku-paku tajam di atasnya.
 
 Tanpa skill 'Leap Mastery' yang dimiliki oleh Divine Protections seperti 『Roof Walker』 atau 『Flying Dragon Knight』, mungkin akan sulit untuk memanjat dinding.
