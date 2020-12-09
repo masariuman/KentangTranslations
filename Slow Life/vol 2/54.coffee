@@ -250,17 +250,17 @@ Mereka mengikat Codwin dengan tali dan menyembunyikannya di peti besar yang terl
 
 Alchemist itu menurutinya dan tidak menunjukkan niat untuk melawan.
 
-r“ok.”
+r"ok."
 
 Ruti tidak keberatan meninggalkan Zoltan.
 
 Tujuan berikutnya adalah kota tempat diadakannya perayaan untuk penaklukan desmond si bumi.
 
-"... Aku pasti akan menemukanmu."
+r"... Aku pasti akan menemukanmu."
 
 Ruti bergumam tegas dengan suara lembut tapi ekspresi serius.
 
-Hanya dengan itu saja sudah cukup intimidasi untuk menyebabkan Tise menjerit pelan.
+Hanya dengan itu saja sudah cukup mengintimidasi dan menyebabkan Tise menjerit pelan.
 
 "Kami di sini, orang-orang di penginapan distrik pelabuhan mengatakan bahwa tempat ini memiliki pilihan produk terbaik."
 
