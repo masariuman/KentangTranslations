@@ -94,13 +94,11 @@ Insiden yang menyebabkan dia datang ke sini sama sekali tidak berhubungan dengan
 
 Namun, ia hanya merasa menyesal ketika melihat kelakuan konyol para napi.
 
-Ketiganya memiliki seperangkat nilai dan Perlindungan Ilahi yang sangat berbeda.
+Ketiganya memiliki nilai dan Perlindungan Ilahi yang sangat berbeda.
 
-Pada akhirnya, narapidana berkepala kulit itu melompat ke atas meja dan narapidana paruh baya itu mengangkat kedua tangannya.
+Pada akhirnya, narapidana berkepala botak itu melompat ke atas meja dan narapidana paruh baya itu mengangkat kedua tangannya.
 
 Tiba-tiba terjadi ledakan keras.
-
- 
 
 Ketiga narapidana itu melihat ke arah asal suara dengan mulut terbuka lebar.
 
@@ -108,21 +106,13 @@ Seseorang di antara ketiganya berteriak. Kemudian, ketika ditanya siapa yang ber
 
 Pada saat itu, ketiga narapidana dengan nilai yang sangat berbeda dan Perlindungan Ilahi memiliki pemikiran yang sama persis.
 
- 
-
 "Di luar!"
 
- 
-
-Ada lubang besar yang ditiup ke dinding ruang makan.
+Ada lubang besar yang meledak ke dinding ruang makan.
 
 Pada saat penjaga menoleh untuk melihat, semua narapidana sudah mengerumuni lubang di dinding, berusaha untuk menjadi yang pertama mencapainya.
 
- 
-
 ☆☆
-
- 
 
 Itu adalah kesalahpahaman oleh para penjaga dan narapidana yang mengira mereka mendengar ledakan.
 
