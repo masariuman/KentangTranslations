@@ -128,21 +128,17 @@ Ugh, dia menyadarinya bahkan sebelum aku menjelaskan ya?
 
 Tidak ada apa pun di ruangan itu yang menunjukkan keberadaan Lit.
 
-Namun, dia mungkin menyadari bahwa orang lain selain saya tinggal di rumah ini dari rangkaian bunga dan pot bunga serta indra peralatan makan.
+Namun, dia mungkin menyadari bahwa orang lain selainku tinggal di rumah ini dari rangkaian bunga dan pot bunga serta peralatan makan.
 
-Saya sedikit gugup mengungkapkannya kepada adik perempuan saya.
+aku sedikit gugup mengungkapkannya kepada adik perempuanku.
 
- 
+g"Aku punya seseorang yang tinggal bersamaku."
 
-“Aku punya seseorang yang tinggal bersamaku.”
+r" … begitu."
 
-" … Saya melihat."
+g"Dia mungkin akan segera kembali tapi kamu ingat putri-sama Lislet pemilik shotel yang bertarung bersama kita di Logavia?"
 
-“Dia mungkin akan segera kembali tapi kamu ingat putri-sama pemilik shotel Lislet yang berakting dengan kita di Logavia?”
-
-“Orang itu ya?”
-
- 
+r"Orang itu ya?"
 
 Kata Ruti sedikit sedih.
 
