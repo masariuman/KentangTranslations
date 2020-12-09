@@ -24,8 +24,6 @@ Ekspresinya telah kembali ke ekspresi biasanya juga.
 
 Dia tersenyum bahkan sekarang tapi mereka yang tidak mengenal Ruti mungkin akan melihatnya sebagai ekspresi tanpa ekspresi.
 
- 
-
 “Onii-chan… kamu salah.”
 
 ”…? Apa yang Anda maksud?"
