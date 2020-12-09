@@ -86,23 +86,15 @@ Ruti mengangguk.
 
 Malam hari.
 
-Kami makan malam dengan kami berempat bersama lagi dan meskipun Ruti tanpa ekspresi seperti biasanya, dia mengungkapkan bahwa dia menikmati dirinya sendiri melalui gerakan tubuhnya.
+Kami makan malam berempat bersama lagi dan meskipun Ruti tanpa ekspresi seperti biasanya, dia mengungkapkan bahwa dia menikmati dirinya sendiri melalui gerakan tubuhnya.
 
- 
-
-"Ngomong-ngomong."
-
- 
+g"Ngomong-ngomong."
 
 Aku berkata setelah itu muncul di pikiranku.
 
- 
+g"Kami mandi di sini. Apakah kamu ingin mencobanya sebelum kembali ke penginapanmu?"
 
-“Kami mandi di sini. Apakah Anda ingin masuk sebelum kembali ke penginapan Anda? ”
-
-“Mandi, ya, aku akan masuk.”
-
- 
+r"Mandi, ya, aku akan mencobanya."
 
 Hanya ada sedikit kesempatan untuk masuk ke pemandian saat dalam perjalanan.
 
