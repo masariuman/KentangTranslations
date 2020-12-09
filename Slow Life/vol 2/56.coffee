@@ -326,14 +326,10 @@ Tise yakin dan sedikit bangga bahwa dia berdiri di samping orang yang akan melak
 
 Ruti menatap tangan kanannya yang bertarung melawan yang kuat dan melindungi yang lemah.
 
-Penderitaan yang dia rasakan dari dorongan hatinya sampai sekarang diselesaikan dengan membantu High-Elf. Setelah beberapa waktu berlalu, Perlindungan Ilahi Iblis akan mulai berlaku juga.
+Penderitaan yang dia rasakan dari dorongan hatinya sampai sekarang diselesaikan dengan membantu High-Elf. Setelah beberapa waktu berlalu, Perlindungan Ilahi Iblis akan mulai muncul juga.
 
-Dia datang berlari justru karena dia tahu bahwa melakukan ini akan menghilangkan impuls Perlindungan Ilahi-nya.
+Dia datang berlari justru karena dia tahu bahwa melakukan ini akan menghilangkan dorongan Perlindungan Ilahi-nya.
 
- 
-
-"Aku ingin tahu apakah ini hal yang benar untuk dilakukan."
-
- 
+r"Aku ingin tahu apakah ini hal yang benar untuk dilakukan."
 
 Ruti menanyakan Perlindungan Ilahi miliknya dengan suara yang cukup lembut sehingga tidak ada orang lain yang mendengarnya.
