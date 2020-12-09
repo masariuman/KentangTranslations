@@ -130,4 +130,58 @@ iblis rank-senior dan petualang rank-b berkolusi dan dihentikan oleh petualang y
 
 akan tetapi, menurut informasi yang dia dapatkan di zoltan kemarin dan hari ini, itu adalah petualang yang berkelana dan penjaga yang menyelesaikan insiden itu. petualang itu sepertinya juga di lantik sebagai rank-b.
 
-""
+"itu mungkin hanya informasi untuk publik saja. pahlawan sebenarnya mungkin adalah pria itu. sekarang baru aku berfikir, dia akrab dengan penjaga gerbang itu pasti supaya dia bisa mendapatkan informasi orang-orang yang mengunjungi kota. dia langsung berdiri setelah aku berdiri juga jadi dia mewaspadaiku. dia hanya minum satu gelas artinya dia selalu waspada agar dapat bersikap seperti biasa kapanpun. dengan sikap seperti itu dimanapun di medan perang, tidak tertarik dengan ketenaran dan hanya diam-diam menyembunyikan dirinya yang asli, benar-benar seorang pahlawan."
+
+tise merenungi aksinya sendiri.
+
+dia terlalu naif untuk berfikir bahwa yang menjadi masalah di perjalan ini adalah menyembunyikan pahlawan.
+
+perjalanan pahlawan tidak mungkin mudah, bahkan perbatasan terpencil zoltan, masalah besar akan menghadang pahlawan.
+
+"pahlawan-sama, kita harus menentukannya sekarang."
+
+r"menentukan?"
+
+"untuk bekerja sama dengan pria itu atau melawannya. jika dia adalah knight dan pejuang yang berani, aku rasa kepercayaannya mirip seperti kita."
+
+r"itu akan sangat susah. alchemist yang aku cari sepertinya berada di penjara."
+
+"penjara?"
+
+ruti sepertinya mengumpulkan informasi juga.
+
+tise khawatir jika ruti akan menimbulkan masalah tapi karena dia tidak mengatakan apapun, mungkin tidak ada yang terjadi. pahlawan juga sudah mengumpulkan informasi sendiri sebelumnya.
+
+walaupun itu lebih intimidasi daripada negoisasi...
+
+ritu dengar dari iblis kontrak kalau itu adalah alchemist yang dekat dengan big hawk dalam membuat obat. akan tetapi, setelah meminum obat itu, iblis kontrak menolak untuk mengatakan apapun jadi dia hanya mendapatkan nama alchemist dan tampilannya saja.
+
+semua orang terdekat big hawk dipenjara dan dia menemukan informasi yang berhubungan dengan alchemist itu bahwa dia sedang dalam pengobatan di dalam penjara karena tangannya tertebas ketika dalam kerusuhan.
+
+r"selama aku menyembunyikan fakta kalau aku adalah pahlawan, akan sangat mustahil untuk negoisasi dengan alchemist."
+
+"begitu ya... jadi pelarian diri dari penjara huh?"
+
+r"ya."
+
+"kita akan bermusuhan dengan seluruh kota dan pria itu."
+
+r"haruskah aku menemuinya langsung?"
+
+bertemu dan mengalahkannya.
+
+tise yakin apa yang dia maksudkan.
+
+"...tentu saja, pahlawan-sama tidak akan kalah. itu mustahin tapi pria itu pasti juga sudah merencanakan sesuatu apabila dia kalah. akan sangat berbahaya menemuinya tanpa mengetahui asal usulnya."
+
+r"begitu..."
+
+pahlawan mengangguk sambil memiringkan kepalanya sedikit.
+
+tise tidak bisa disalahkan karena terlalu waspada.
+
+tise, seorang pembunuh bayaran, sudah banyak melihat individu dan konspirator yang ambisius dan tidak pernah terbayang dengan akal sehatnya kalau orang yang kekuatannya mendekatinya lebih memilih hidup santai.
+
+mereka berdua sama-sama berdiskusi tentang rencana mereka sampai larut malam.
+
+pada saat yang sama, ugeuge-san tidur dengan kakinya yang dilipat di tas tise.
