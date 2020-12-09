@@ -40,3 +40,51 @@ g"ya, gadis itu datang untuk makan oden sendirian."
 
 tifa mengangguk sedikit.
 
+penjaga gerbang menggarik kepalanya.
+
+"maaf, aku agak bersemangat."
+
+"tidak apa-apa. permisi, aku ingin membawa sisanya pulang, apa boleh?"
+
+tifa berkata begitu sambil berdiri, dan membawa sisanya dari oparara setelah memesan chikuwa tambahan dan jelly konjac dan pergi.
+
+g"kaaan, kau membuatnya marah."
+
+aku berkata begitu sambil menghabiskan sisa birku.
+
+g"ok kalau begitu, aku juga akan pergi."
+
+"eh - temani aku sebentar dan hibur aku karena membuat pengelana marah."
+
+g"tidak mau."
+
+"geh - oparara! aku mau chikuwa juga!"
+
+g"ah, tolong bungkuskan chikuwa, lobak dan daging ayam untukku, aku ingin membawakannya untuk lit."
+
+aku meletakkan 1 seperempat peryl koin perak dan beberapa koin tembaga sebagai bayaran.
+
+☆☆
+
+tise waspada takut diikuti jadi dia memutar beberapa kali sebelum kembali ke penginapannya di pelabuhan.
+
+r"ada apa?"
+
+ruti bertanya setelah menyadari tise.
+
+"pahlawan-sama, tolong berhati-hatilah. jujur, aku meremehkan kota ini tapi sepertinya ada musuh yang merepotkan di zoltan juga."
+
+r"musuh yang merepotkan?"
+
+"seorang pria muda. kami hanya berbicara sebentar tapi dia menyadari perlengkapan dan senajataku."
+
+tise mengatakan itu sambil menunjuk ke jaitan perak mithril di dalam bajunya dan pisau yang dia sembunyikan.
+
+perlengkapannya sudah diperhitungkan agar tidak mengeluarkan suara bagaimanapun dia bergerak.
+
+jangankan musuh biasa, tise bahkan yakin kalau selama orang itu tidak memiliki perlindungan ilahi dari penyelidik dan detektif tidak akan menyadari itu.
+
+"akan tetapi, dia mengetahui semuanya. dia juga kuat, kemungkina setara denganku. aku tidak berfikir aku akan menang jika kami bertarung di situasi ketika dia memiliki keuntungan. tentu saja, itu akan berbeda dengan pahlawan-sama."
+
+walaupun dia lemah kalau dibandingkan dengan pahlawan, tisa dipilih oleh ares sebagai yang terkuat di guild pembunuh bayaran.
+
