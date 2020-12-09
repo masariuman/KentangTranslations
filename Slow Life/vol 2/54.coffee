@@ -208,39 +208,25 @@ Alchemist dengan putus asa memutar otaknya untuk mencari jalan untuk bertahan hi
 
 Perilaku Alchemist menunjukkan bahwa dia tidak tahu harus berkata apa untuk menjelaskannya tapi ...
 
-"Sini."
+r"ini."
 
- 
-
-Pikiran Alchemist itu semua terhempas saat dia melihat kertas yang diberikan Ruti padanya.
-
- 
+Pikiran Alchemist itu semua hilang saat dia melihat kertas yang diberikan Ruti padanya.
 
 “I-Ini adalah resep peracikan untuk Perlindungan Ilahi Iblis !?”
 
- 
+alchemist itu bingung.
 
-Alkemis itu bingung.
-
-Mengapa gadis-gadis ini memiliki ini dan mengapa mereka sengaja mengeluarkannya jika mereka tahu tentang metode peracikan?
+Mengapa gadis-gadis ini memilikinya dan mengapa mereka sengaja mengeluarkannya jika mereka tahu tentang metode peracikannya?
 
 Keterampilan yang dibutuhkan untuk menggabungkan Perlindungan Ilahi Iblis adalah Alkimia Tingkat Menengah Level 5 dan Peracikan Tingkat Menengah 1.
 
 Itu adalah persyaratan yang cukup tetapi itu bukan sesuatu yang hanya mampu dilakukan oleh Codwin.
 
- 
-
 “Ke-kenapa…”
-
- 
 
 Pertanyaannya mengacu pada mengapa mereka memilikinya atau mengapa mereka membebaskannya dari penjara tetapi Ruti salah paham.
 
- 
-
-“Supaya aku bisa menggunakannya.”
-
- 
+r“Supaya aku bisa menggunakannya.”
 
 Sang Alchemist tidak bisa menghentikan tubuhnya dari gemetar ketika Ruti mengumumkan niatnya sendiri dan memandang rendah dirinya dengan mata dingin.
 
