@@ -50,19 +50,15 @@ Jika kita mengkategorikan Elf yang saat ini ada, silsilah yang dibuat oleh ahli 
 
 Kembali ke topik ancient-elf, telah ditetapkan bahwa mereka memiliki peradaban yang jauh lebih unggul jika dibandingkan dengan zaman sekarang, tetapi banyak aspek lain yang masih diselimuti misteri.
 
-Dengan melihat Koin Elf yang dapat meningkatkan tingkat Perlindungan Ilahi seseorang untuk sementara dan sebaliknya obat rahasia Peri Liar yang dapat menguranginya, kita dapat mengetahui bahwa Peri-Kuno telah menganalisis Perlindungan Ilahi sampai batas tertentu.
+Dengan melihat Koin Elf yang dapat meningkatkan tingkat Perlindungan Ilahi seseorang walau sementara dan sebaliknya obat rahasia wild-elf yang dapat menguranginya, kita dapat mengetahui bahwa ancient-elf telah menganalisis Perlindungan Ilahi sampai batas tertentu.
 
-Ada pendeta yang percaya bahwa tindakan kurang ajar membuat marah Dewa dan para Peri Kuno dimusnahkan sebagai hasilnya.
-
- 
+Ada pendeta yang percaya bahwa tindakan kurang ajar membuat marah Dewa dan para ancient-elf dimusnahkan sebagai hasilnya.
 
 Pada akhirnya, alasan kepunahan mereka tidak diketahui.
 
 Namun, di era ini, Raja Iblis pertama dan Pahlawan pertama lahir dan legenda tetap ada tentang kekalahan Raja Iblis pertama oleh tangan Pahlawan pertama.
 
-Artinya, Pahlawan pertama bukanlah manusia melainkan Peri-Kuno.
-
- 
+Artinya, Pahlawan pertama bukanlah manusia melainkan ancient-elf.
 
 Kalau begitu, Elf harus menjadi Pahlawan di era ini juga.
 
