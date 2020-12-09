@@ -88,3 +88,7 @@ jangankan musuh biasa, tise bahkan yakin kalau selama orang itu tidak memiliki p
 
 walaupun dia lemah kalau dibandingkan dengan pahlawan, tisa dipilih oleh ares sebagai yang terkuat di guild pembunuh bayaran.
 
+tise tidak akan main main dalam hal perbandingan. itu adalah penilaiannya sendiri.
+
+dan juga, tisak menilai pria itu adalah orang yang paling kuat yang pernah dia hadapi.
+
