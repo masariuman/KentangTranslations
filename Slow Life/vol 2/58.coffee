@@ -22,23 +22,19 @@ Pada hari kedua, Langit dan Bumi, Matahari, Bulan, dan bintang-bintang dibuat.
 
 Pada hari ketiga, serangga, hewan, dan tumbuhan dijadikan sebagai makanan.
 
-Pada hari keempat, monster yang memenuhi tanah dibuat.
+Pada hari keempat, monster yang memenuhi bumi dibuat.
 
 Pada hari kelima, Elf, Naga, dan Iblis yang memiliki kecerdasan dibuat.
 
-Di hari keenam, dia menjadikan Peri-Kuno yang menyerupai makhluk paling luar biasa di Dunia Pertama, para Peri, untuk menjadi penguasa dan manusia yang menyerupai penampilannya sendiri.
+Di hari keenam, dia menjadikan ancient-elf yang menyerupai makhluk paling luar biasa di Dunia Pertama, para Peri, untuk menjadi penguasa dan manusia yang menyerupai penampilannya juga.
 
 Pada hari ketujuh, Asura lahir pada malam hari ketika dia pergi beristirahat setelah menyelesaikan semua pekerjaannya.
 
 Pada hari kedelapan, Dewa marah saat melihat Asura menyapanya dan berkata 'Aku tidak menciptakan sesuatu sepertimu'.
 
- 
-
 Menurut buku-buku Gereja Suci, penciptaan dunia mengikuti urutan peristiwa itu.
 
-Istilah 'Peri-Kuno' diciptakan di era saat ini sementara di bahan tertua yang masih ada hingga hari ini, Peri-Kuno hanya disebut sebagai Peri dan Peri yang diciptakan pada hari kelima dicatat sebagai 'Fey' .
-
- 
+Istilah 'ancient-elf' diciptakan di era saat ini sementara di bahan tertua yang masih ada hingga hari ini, ancient-elf hanya disebut sebagai elf dan elf yang diciptakan pada hari kelima dicatat sebagai 'Fey' .
 
 Mereka adalah beberapa sarjana Elf yang memiliki pandangan berbeda tapi para Kurcaci dan Orc yang tinggal di Benua Hitam juga merupakan spesies Peri. Selain itu, Goblin yang merambat di kedua benua juga merupakan spesies Elf yang berasal dari Benua Hitam.
 
