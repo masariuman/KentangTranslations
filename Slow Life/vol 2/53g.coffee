@@ -171,3 +171,18 @@ l"yang berhasil lari adalah orang yang red kalahkan dan diobati di penjara. alch
 
 g"ah, orang itu..."
 
+pria kecil yang menggunakan bom lengket sebagai senjata.
+
+dia adalah alchemist level tinggi walaupun penampilannya dan musuh yang memojokkan lit dengan bom bunuh dirinya.
+
+mungkin akan berbahaya jika dia bisa lolos.
+
+yaaah, dia terluka jadi dia mungkin butuh beberapa waktu untuk sembuh dan hanya bisa sembuh untuk luka luar saja. aku tidak berfikir dia akan bisa bergerak banyak.
+
+g"akan lebih baik kalau dia segera ditangkap."
+
+l"yeah."
+
+kami selesai berbicara dan lit berdiri dan kembali ke toko bagian depan setelah beristirahat dan aku berdiri untuk bergerak ke ruang kerja.
+
+walaupun kami tetap di bangunan yang sama dan hanya dipisahkan beberapa meter, lit enggan untuk berpisah jadi aku memeluknya dan mencium pipinya.
