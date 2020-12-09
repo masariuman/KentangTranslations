@@ -162,35 +162,23 @@ aku sedikit gugup untuk mengucapkan kata pernikahan dengan jelas.
 
 Lit adalah seorang putri sementara aku adalah seorang Ksatria dengan tidak lebih dari satu generasi gelar bangsawan.
 
-Ini bukan kasus di mana klasemen kami cocok, tetapi… Lit dan saya sama-sama siap untuk meninggalkan klasemen sosial kami.
+Ini bukan kasus di mana klasemen kami cocok, tetapi… Lit dan aku sama-sama siap untuk meninggalkan klasemen sosial kami.
 
- 
+r"begitu..."
 
-"Saya melihat."
+Ekspresiku mungkin memberi tahu Ruti bahwa aku serius. Ruti tidak mengatakan apapun tentang perbedaan kami dan hanya mengangguk.
 
- 
+g"Aku minta maaf karena pergi tanpa memberitahumu."
 
-Ekspresi saya mungkin memberi tahu Ruti bahwa saya serius. Ruti tidak mengatakan apapun tentang perbedaan silsilah dan hanya mengangguk.
-
- 
-
-"Aku minta maaf karena pergi tanpa memberitahumu."
-
-”… Ares-lah yang salah. Tapi."
-
- 
+r"… Ares-lah yang salah. Tapi."
 
 Ruti menatapku langsung.
 
- 
+r"Aku akan membungkam Ares. Jadi, apakah semuanya baik-baik saja? "
 
-"Aku akan membungkam Ares. Jadi, apakah semuanya baik-baik saja? ”
+g"..."
 
-”…”
-
-“Lit juga bisa ikut. Onii-chan, ayo kita jalan-jalan lagi. ”
-
- 
+r"Lit juga bisa ikut. Onii-chan, ayo kita berkelana lagi."
 
 Kata Ruti seolah memohon padaku.
 
