@@ -70,27 +70,17 @@ Di reruntuhan Ancient-Elf yang terletak di dalam gunung tempat Red memanen rumpu
 
 Lapisan atas telah dihancurkan oleh petualang Chimera dan Zoltan yang mengincar harta Elf Kuno tetapi perangkat untuk naik dan turun ke lapisan bawah tidak rusak.
 
-Kristal mana yang menyediakan energi berada dalam keadaan tidak aktif untuk beberapa saat setelah daya habis tetapi karena telah mengisi ulang selama berbulan-bulan dan bertahun-tahun, sepertinya tidak ada masalah untuk memulai ulang.
+Kristal mana yang menyediakan energi berada dalam keadaan tidak aktif untuk beberapa saat setelah daya habis tetapi karena telah mengisi ulang selama berbulan-bulan dan bertahun-tahun, sepertinya tidak ada masalah untuk menggunakannya kembali.
 
- 
+Ruti, yang telah menaklukkan reruntuhan ancient-elf yang tak terhitung jumlahnya hingga saat ini, memanipulasi perangkat dengan gerakan berpengalaman dan maju ke lapisan bawah.
 
-Ruti, yang telah menaklukkan reruntuhan Peri-Kuno yang tak terhitung jumlahnya hingga saat ini, memanipulasi perangkat dengan gerakan berpengalaman dan maju ke lapisan bawah.
-
- 
-
-Di sana, mereka menemukan Monster Mesin Jam biasa dari reruntuhan Peri-Kuno dan mereka berangkat mencari Ibu Mesin Jam yang mengendalikan mereka.
-
- 
+Di sana, mereka menemukan Monster Mesin Jam biasa dari reruntuhan ancient-elf dan mereka berangkat mencari sumber Mesin Jam yang mengendalikan mereka.
 
 “Fuuu…”
-
- 
 
 Tise menyeka keringat di dahinya dengan punggung tangan.
 
 Tidak seperti Ruti yang memiliki ekspresi tenang, Tise menghadapi beberapa skenario berbahaya dan kelelahan terlihat di wajahnya.
-
- 
 
 (Selain gelombang Prajurit Mesin Jam yang tak kenal lelah, kami telah melawan empat Raksasa Mesin Jam meskipun biasanya hanya ada satu Raksasa Mesin Jam tepat di depan Ibu Mesin Jam di reruntuhan lainnya. Tidak hanya itu, kami bahkan telah melawan senjata penyerbuan Penghancur Mesin Jam serta juga senjata selam Clockwork Leviathan… ada apa dengan reruntuhan ini?)
 
