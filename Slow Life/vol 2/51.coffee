@@ -216,3 +216,53 @@ mereka hanya tidak terlalu menampakkan diri mereka sendiri karena mereka tidak m
 
 kapten squad knight selalu berkata kalau keluarga kerajaan dari kiramine tidak dapat dipercaya.
 
+"lobak dan urat daging sapi, telur, hanpen. bir juga."//hanpen adalah ikan segitiga putih\\
+
+penjaga pintu memesan dengan menunjuk kearah bahan-bahan yang melayang didalam pot kotak.
+
+g"aku ingin lobak dan sosis, ah dan chikuwa. dan segelas bir." //bisa dicek di google gimana bentuk chikuwa tapi kalau malas anggap saja bakso ikan :D\\
+
+"baiklah!"
+
+oparara menjawab dengan semangat dengan suara tinggi high-elf.
+
+dia meletakkan bahan di wadah kayu dengan pergerakan tangannya yang hebat.
+
+"oh iya...."
+
+ketika dia memberikan wadah itu kepadaku, dia sepertinya mengingat sesuatu ketika dia melihat tas tanaman obat yang aku letakkan di lantai dan dia bertanya kepadaku.
+
+"red, kamu tidak lagi menjual mustard?"
+
+walaupun itu semua punya red-san sampai dia membuka stand makanan, mungkin itu bisa dikaitkan dengan sifat cerewetnya high-elf dan dia menirukan cara pak tua itu memanggilku.
+
+g"yeah~ itu karena aku sudah tidak terlalu sering ke gunung sekarang. aku hanya mengumpulkan rempah-rempah untuk diriku sendiri."
+
+"sangat disayangkan. suplai di kota juga lagi tidak stabil."
+
+harga pasar dari mustard di pos dagang adalah 5 peryl per kilo.
+
+harga itu bisa menjadi lebih mahal setelah itu masuk ke pasar.
+
+tidak masalah untuk oden tapi itu adalah kenaikan harga yang normal.
+
+jadi penjaga gerbang dan aku sudah tahan dengan kekuarangan itu.
+
+akan tetapi, perempuan kecil muncul.
+
+"selamat datang."
+
+"daikon, urat daging, telur, 4 chikuwa, dan mustard."
+
+"ok!"
+
+setelah mengambil bahan, perempuan kecil itu dengan senang hati mencelupkannya kedalam piring yang berisi mustard didalamnya.
+
+cara makan itu adalah cara king oden yang mana dia harus memesan mustard lagi ketika sudah mau habis!
+
+wow!
+
+memesan 4 chikuwa hebat juga.
+
+dia pasti benar-benar menyukai chikuwa.
+
