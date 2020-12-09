@@ -1,228 +1,152 @@
 Bab 59: Lit minum kopi, Ruti minum coklat
 
-Saat Ruti dan Tise bekerja di etalase, saya meminta Lit membuat inventaris dengan menghitung jenis dan jumlah obat yang kami miliki di gudang.
+ketika Ruti dan Tise bekerja di etalase, aku meminta Lit membuat inventaris dengan menghitung jenis dan jumlah obat yang kami miliki di gudang.
 
-Kami biasanya mengelola inventaris kami, tetapi Lit dan saya berdiskusi dan kami memutuskan bahwa ini adalah kesempatan yang baik untuk memeriksa inventaris kami dengan benar.
+Kami biasanya mengelola inventaris kami, tetapi Lit dan aku berdiskusi dan kami memutuskan bahwa ini adalah kesempatan yang baik untuk memeriksa inventaris kami dengan benar.
 
- 
+g"Kerja bagus."
 
-"Kerja bagus."
-
-Saya mengunjungi gudang dengan dua cangkir kopi di tangan.
+aku mengunjungi gudang dengan dua cangkir kopi di tangan.
 
 Lit memegang pulpen dan kertas dan sepertinya kesulitan menghitung jumlah obat yang sangat banyak…
 
- 
-
-"Ah-! Astaga! Saya tidak ingat di mana saya menghitung sampai !! ”
-
- 
+l"Ah-! Astaga! aku tidak ingat sampai mana aku menghitungnya  !! "
 
 Dia berteriak putus asa.
 
- 
-
-“Maaf maaf, aku akan membantu nanti jadi kenapa kamu tidak istirahat saja?”
+g"Maaf maaf, aku akan membantu nanti jadi kenapa kamu tidak istirahat saja?"
 
 Oke, aku sedikit lelah.
 
- 
-
 Kami pindah untuk duduk di kursi di ruang tamu.
 
-Saya bisa mendengar Ruti dan Tise berinteraksi dengan pelanggan di etalase.
+aku bisa mendengar Ruti dan Tise berinteraksi dengan pelanggan di etalase.
 
- 
+l"Apa kau yakin tidak perlu mengawasi sisi itu?"
 
-“Apa kau yakin tidak perlu mengawasi sisi itu?”
+g"Tidak akan ada artinya meminta mereka membantu jika aku masih harus tetap di sana, kan? Ruti adalah anak kecil yang akan memikirkah hal itu."
 
-“Tidak akan ada artinya meminta mereka membantu jika aku masih harus tinggal di sana, kan? Ruti adalah anak kecil yang akan memperhatikan itu. "
+l"Kamu sangat memahaminya."
 
-“Kamu sangat memahaminya.”
-
-“Yah, bagaimanapun juga dia adalah adik perempuanku.”
-
- 
+g"Yah, bagaimanapun juga dia adalah adik perempuanku."
 
 Lit dan aku menyesap kopinya pada saat bersamaan.
 
- 
+g"Nn, kopi hari ini kental, banyak gula dan susu. Tapi masih enak. "
 
-“Nn, kopi hari ini kaya, banyak gula dan susu. Tapi masih enak. "
+aku berusaha lebih keras untuk menyeduh kopi hari ini.
 
- 
-
-Saya berusaha lebih keras untuk menyeduh kopi hari ini.
-
-Saya menambahkan air panas ke kopi bubuk kasar dan menyaringnya melalui tiga filter logam dengan lubang kecil.
+aku menambahkan air panas ke kopi bubuk kasar dan menyaringnya melalui tiga filter logam dengan lubang kecil.
 
 Karena celah saringan terhalang oleh bubuk kopi, kopi sengaja diekstraksi dalam waktu lama.
 
-Karena rasa kopi yang dihasilkan sangat kuat, saya masih bisa membuat kopi kental bahkan setelah menambahkan susu dan gula ke dalamnya.
+Karena rasa kopi yang dihasilkan sangat kuat, aku masih bisa membuat kopi kental bahkan setelah menambahkan susu dan gula ke dalamnya.
 
- 
+g"Ini beberapa teh herbal untuk membersihkan langit-langit mulutmu."
 
-"Ini beberapa teh herbal untuk membersihkan langit-langit mulutmu."
+l"Jadi ini adalah kopi untuk dinikmati sesaat."
 
-“Jadi ini adalah kopi untuk dinikmati saat ini dan bukan untuk sisa rasa.”
+g"Ya."
 
-"Ya."
-
-“Terima kasih, ini enak.”
-
- 
+l"Terima kasih, ini enak."
 
 Itu adalah gaya pembuatan bir untuk membuat kopi kental yang dimaksudkan untuk diminum perlahan.
 
-Teh herbal di sebelahnya dimaksudkan untuk mengatur ulang selera makan dan memungkinkan seseorang untuk merasakan rasa pertama yang menyegarkan sekali lagi.
-
- 
+Teh herbal di sebelahnya dimaksudkan untuk mengatur ulang indra perasa agar seseorang dapat merasakan rasa yang menyegarkan sekali lagi.
 
 Kami menikmati waktu yang menenangkan bersama.
 
- 
-
 ☆☆
 
- 
+l"Terima kasih untuk kopinya."
 
-"Terima kasih untuk traktirannya."
-
-"Sama-sama."
-
- 
+g"Sama-sama."
 
 Lit meletakkan cangkir itu dengan ekspresi puas.
 
-Kami saling menatap dalam diam untuk beberapa saat.
-
- 
+Kami saling menatap dan diam untuk beberapa saat.
 
 Tapi Lit langsung berdiri.
 
- 
+l"Baiklah, aku akan pergi ke etalase."
 
-"Baiklah, aku akan pergi ke etalase."
+g"Bagian depan toko?"
 
-"Bagian depan toko?"
+l"Sudah waktunya kita membiarkan Ruti dan Tise istirahat juga."
 
-"Sudah waktunya kita membiarkan Ruti dan Tise istirahat juga."
+g"aku juga akan pergi ke etalase."
 
-"Lalu aku akan pergi ke etalase."
-
-"Tidak."
-
- 
+l"jangan."
 
 Kata Lit sambil tersenyum lebar.
 
- 
-
-“Tentunya Ruti juga ingin menikmati waktu yang menyenangkan sambil minum kopi bersamamu.”
-
- 
+l"Tentunya Ruti juga ingin menikmati waktu yang menyenangkan sambil minum kopi bersamamu."
 
 Lit meninggalkan ruangan sebelum aku bisa berkata apa-apa.
 
-Saya bermain dengan cangkir kopi dengan jari saya. Itu membuat suara yang bagus.
+aku bermain dengan cangkir kopi dengan jariku. Itu membuat suara yang bagus.
 
 Peralatan makan yang dipilih Lit yang bahkan tetap sesuai anggaran sangat bagus.
 
- 
+g"Baiklah, kurasa aku akan menyiapkan minuman untuk mereka berdua."
 
-“Baiklah, kurasa aku akan menyiapkan minuman untuk mereka berdua.”
-
- 
-
-Saya meletakkan cangkir di atas nampan kayu dan pindah ke dapur.
-
- 
+aku meletakkan cangkir di atas nampan kayu dan pindah ke dapur.
 
 ☆☆
 
- 
-
-Kerja bagus, kalian berdua.
+g"Kerja bagus, kalian berdua."
 
 Di atas meja ada tiga kue dan tiga cangkir coklat rasa manis.
 
- 
+r"Terima kasih."
 
-"Terima kasih."
-
-"Terima kasih untuk traktirannya."
-
- 
+"Terima kasih." 
 
 Mata Ruti berbinar setelah dia mengambil cangkir dan menyesapnya.
 
-Tise memulai dengan cookie.
+Tise memulai dengan kue.
 
- 
-
-“Ini adalah jatah yang diawetkan yang dimakan para petualang, kan?”
-
- 
+“Ini adalah makanan yang diawetkan yang dimakan para petualang, kan?”
 
 Tise menunjukkan ekspresi terkejut.
 
- 
-
 “Ini… sangat lezat.”
 
-“Saya mencampurkan beberapa kacang pohon yang saya kumpulkan di gunung. Rasanya mirip dengan kayu manis. "
+g"aku mencampurkan beberapa kacang pohon yang aku kumpulkan di gunung. Rasanya mirip dengan kayu manis. "
 
 “Kayu manis… aku belum pernah makan itu.”
 
-"Betulkah? Kalau begitu, aku akan membuat pai kayu manis untuk malam ini. "
-
- 
+g"Betulkah? Kalau begitu, aku akan membuat pai kayu manis untuk malam ini. "
 
 Oh iya.
 
- 
-
-“Juga, di sini, kain yang dibasahi sirup.”
+g"dan juga, ini, kain yang dibasahi sirup."
 
 “Eh?”
 
-"Kupikir itu akan menjadi camilan yang enak untuk laba-laba itu."
-
- 
+g"Kupikir itu akan menjadi camilan yang enak untuk laba-laba itu."
 
 Aku berkata sambil mengeluarkan piring dengan potongan kecil kain di atasnya.
 
 Laba-laba di bahu Tise melompat.
 
- 
+Laba-laba itu berperilaku baik dan mengangkat tangan untuk menyambutku sebelum mulai meminum sirup.
 
-Laba-laba itu berperilaku baik saat mengangkat tangan untuk menyambut saya sebelum mulai meminum sirup.
+"Terima kasih banyak. Jadi kamu menyadarinya."
 
- 
-
-"Terima kasih banyak. Jadi kamu menyadarinya. ”
-
-"Anak ini? Tentu saja, karena Anda berhubungan baik dengannya. "
+g"Anak ini? Tentu saja, karena kamu berhubungan baik dengannya. "
 
 "Ugeuge-san."
 
-Ugeuge?
+g"Ugeuge?"
 
 “Namanya sampai 'san'”
 
- 
-
 Tise menunjukkan senyum tipis kebahagiaan saat dia menatapku.
-
- 
 
 (Baik Gideon-san dan Ruti-san memberikan jawaban yang sama ketika mereka mendengar nama Ugeuge-san. Seperti yang diharapkan dari saudara kandung.)
 
- 
-
 Dia tidak memiliki ekspresi wajah tapi gadis bernama Tise itu mungkin gadis biasa di dalam seperti Ruti.
-
- 
 
 "Onii Chan."
 
