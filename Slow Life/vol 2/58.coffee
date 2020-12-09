@@ -62,17 +62,13 @@ Artinya, Pahlawan pertama bukanlah manusia melainkan ancient-elf.
 
 Kalau begitu, Elf harus menjadi Pahlawan di era ini juga.
 
-Ruti berpikir sambil membelah, dengan Pedang Suci Pembunuh Iblis, Raksasa Mesin Jam yang mengeluarkan suara gerinda logam yang tidak menyenangkan di depannya.
-
- 
+Ruti berpikir membelah, dengan Pedang Suci Pembunuh Iblis, Raksasa Mesin Jam yang mengeluarkan suara gerinda logam yang tidak menyenangkan di depannya.
 
 ☆☆
 
- 
+Di reruntuhan Ancient-Elf yang terletak di dalam gunung tempat Red memanen rumput obat. Setelah penyelidikan Ruti dan Tise, mereka menemukan bahwa reruntuhannya masih berfungsi.
 
-Di reruntuhan Ancient-Elf yang terletak di dalam gunung tempat Red memanen rumput obat. Setelah penyelidikan Ruti dan Tise, mereka menemukan bahwa untungnya masih berfungsi.
-
-Lapisan atas telah dihancurkan oleh petualang Chimeras dan Zoltan yang mengincar harta Elf Kuno tetapi perangkat untuk naik dan turun ke lapisan bawah tidak rusak.
+Lapisan atas telah dihancurkan oleh petualang Chimera dan Zoltan yang mengincar harta Elf Kuno tetapi perangkat untuk naik dan turun ke lapisan bawah tidak rusak.
 
 Kristal mana yang menyediakan energi berada dalam keadaan tidak aktif untuk beberapa saat setelah daya habis tetapi karena telah mengisi ulang selama berbulan-bulan dan bertahun-tahun, sepertinya tidak ada masalah untuk memulai ulang.
 
