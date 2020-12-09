@@ -298,32 +298,27 @@ Petugas toko adalah seorang laki-laki. Dia sedang berbicara dengan seorang pria 
 
 “Orang itu !?”
 
-Tise merasa napasnya membeku karena pria itu adalah petualang terampil yang dia temui di warung oden.
+Tise merasa napasnya membeku karena pria itu adalah petualang hebat yang dia temui di warung oden.
 
 Tise mencoba memperingatkan Ruti tapi ...
 
- 
+r"Onii Chan!!!!"
 
-"Onii Chan!!!!"
+g"Ruti !?"
 
-“Ruti !?”
-
- 
-
-Adegan yang dilihat Tise saat itu sudah cukup untuk meremukkan sosok Pahlawan Ruti yang ada di benaknya hingga titik itu berkeping-keping.
-
- 
+Adegan yang dilihat Tise saat itu sudah cukup untuk menghancurkan sosok Pahlawan Ruti yang ada di benaknya hingga berkeping-keping. 
 
 Dengan mata berkaca-kaca tapi senyum cerah di wajahnya, Ruti membuka kedua lengannya untuk memeluk pria itu.
 
 Pria itu menangkap Ruti yang melompat itu meski terkejut.
 
- 
+r"Aku ingin bertemu denganmu! Aku sangat merindukanmu !!"
 
-“Aku ingin bertemu denganmu! Aku sangat merindukanmu !! ”
-
- 
-
-Berdiri di sana bukanlah Pahlawan dengan aura tegang yang dirasakan Tise sampai sekarang.
+yang Berdiri di sana bukanlah Pahlawan dengan aura tegang yang dirasakan Tise sampai beberapa waktu lalu.
 
 Di pelukan pria itu ada Ruti yang tersenyum dan menangis, hanya gadis muda biasa.
+
+
+-----------------------
+
+masariuman : kok.... aku ... mau nangis juga :'(
