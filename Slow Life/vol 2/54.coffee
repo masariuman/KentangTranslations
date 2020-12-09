@@ -290,17 +290,11 @@ Semua jenis obat dipajang di rak di dinding.
 
 Ada wadah ramuan penangkal racun yang ditempatkan di sana-sini jadi ada juga aroma yang sedikit menyegarkan di dalam toko.
 
- 
+Ada sejumlah gambar artistik di dinding toko dan ada patung malaikat bersayap dengan mata iba di tengah ruangan. Tise tidak dapat memahami seni tetapi lukisan yang dibuat dengan menggunakan warna-warna lembut dan patung malaikat membuat hatinya rileks.
 
-Ada sejumlah gambar artistik di dinding toko dan ada patung malaikat bersayap dengan mata welas asih di tengah ruangan. Tise tidak dapat memahami seni tetapi lukisan yang dibuat dengan menggunakan warna-warna lembut dan patung malaikat membuat hatinya rileks.
-
- 
-
-Ternyata, mereka harus meminta Ramuan Ajaib seperti Ramuan Obat dari petugas toko secara langsung. List item yang diletakkan di samping patung itu cukup tebal jadi sepertinya memang benar tempat itu memiliki bermacam-macam item yang bagus.
+sepertinya, mereka ingin meminta Ramuan seperti Ramuan penyembuh dari petugas toko secara langsung. List item yang diletakkan di samping patung itu cukup tebal jadi sepertinya memang benar tempat itu memiliki bermacam-macam item yang bagus.
 
 Petugas toko adalah seorang laki-laki. Dia sedang berbicara dengan seorang pria Half-Elf saat dia mengatur obatnya.
-
- 
 
 “Orang itu !?”
 
