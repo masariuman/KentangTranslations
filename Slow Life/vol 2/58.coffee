@@ -41,20 +41,12 @@ Mereka adalah beberapa Elf yang memiliki pandangan berbeda tapi para Kurcaci dan
 Jika kita mengkategorikan Elf yang saat ini ada, silsilah yang dibuat oleh ahli Elf arus utama adalah,
 
 〇 Ancient-Elf (Punah)
-
-→ Wild-Elf
-
- 
+    → Wild-Elf
 
 〇 Elf = 'Fey'
-
-→ Wood-Elf (Punah) → Half-Elf
-
-→ High-Elf
-
-→ Spesies Elf Benua Gelap (Dwarf, Orc, Goblin)
-
- 
+    → Wood-Elf (Punah) → Half-Elf
+    → High-Elf
+    → Spesies Elf Benua Gelap (Dwarf, Orc, Goblin)
 
 Kembali ke topik Peri-Kuno, telah ditetapkan bahwa mereka memiliki peradaban yang jauh lebih unggul jika dibandingkan dengan zaman sekarang, tetapi banyak aspek lain yang masih diselimuti misteri.
 
