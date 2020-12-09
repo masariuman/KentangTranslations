@@ -180,31 +180,19 @@ Ruti melepas sumbat yang diikatkan ke mulut pria itu.
 
 Diseret ke gudang redup di distrik pelabuhan, Alchemist Codwin memegangi lukanya yang sakit karena dipindahkan dan dia bertanya dengan suara ketakutan.
 
-Pria itu tidak terikat dengan cara apapun selain dari mulutnya tetapi dia mengerti bahwa dua orang di sana jauh lebih kuat darinya. Dia tahu bahwa menentang mereka bukanlah ide yang baik.
+Pria itu tidak terikat dengan cara apapun selain mulutnya tetapi dia mengerti bahwa dua orang di sana jauh lebih kuat darinya. Dia tahu bahwa menentang mereka bukanlah ide yang baik.
 
 Setelah memikirkan sedikit tentang pertanyaan yang diajukan Alchemist, Ruti…
 
- 
+r"Aku ingin kamu membuat Perlindungan Ilahi Iblis."
 
-Aku ingin kamu menggabungkan Perlindungan Ilahi Iblis.
-
- 
-
-Dia terus terang mengatakan tujuannya.
-
- 
+Dia mengatakan itu dengan terus terang.
 
 “Perlindungan Ilahi Iblis…”
 
- 
-
 Alchemist mendapatkan kembali sedikit ketenangannya setelah mengetahui tujuan dari dua orang yang membebaskannya dari penjara.
 
- 
-
-(Begitu, jadi mereka ingin berbisnis dengan menjual Perlindungan Ilahi Iblis. Saya pikir saya tidak akan bisa menghindari hukuman mati tapi sepertinya ada harapan bagi saya untuk hidup.)
-
- 
+(Begitu, jadi mereka ingin berbisnis dengan menjual Perlindungan Ilahi Iblis. aku pikir aku tidak akan bisa menghindari hukuman mati tapi sepertinya ada harapan bagiku untuk hidup.)
 
 Perlindungan Ilahi Iblis adalah item yang menyangkal kepercayaan Gereja Suci.
 
@@ -212,23 +200,13 @@ Sebagai Alchemist yang membuatnya, dia membayangkan bahwa dia akan menjadi orang
 
 Dia terpojok ke titik di mana dia terus diam-diam menggosok lukanya ke tempat tidur untuk melakukan perjuangan yang sia-sia untuk menunda hari itu sebanyak mungkin.
 
- 
+(Namun, Perlindungan Ilahi Iblis membutuhkan hati iblis. Tanpa Big Hawk-san, aku tidak dapat melakukannya. Jika mereka mengetahuinya, nilai jualku akan hilang. aku harus mengulur waktu dan membuat mereka membawaku ke tempat yang aman di luar. dari Zoltan.)
 
-(Namun, Perlindungan Ilahi Iblis membutuhkan hati iblis. Tanpa Big Hawk-san, saya tidak dapat melakukannya. Jika mereka mengetahuinya, nilai saya akan hilang. Saya harus mengulur waktu dan membuat mereka membawa saya ke tempat yang aman di luar. dari Zoltan.)
+Alchemist dengan putus asa memutar otaknya untuk mencari jalan untuk bertahan hidup.
 
- 
-
-Alchemist dengan putus asa menghancurkan otaknya untuk mencari jalan untuk bertahan hidup.
-
- 
-
-(Materi tidak lagi dapat diperoleh di Zoltan. Pilihan yang tersisa adalah daerah terpencil atau kota kriminal di mana poster yang diinginkan tidak akan mencapai. Benar, Muzari akan bagus. Budak yang melarikan diri dipekerjakan sebagai penambang di sana jadi jika saya bisa dipekerjakan sebagai Alchemist untuk obat majemuk untuk para penambang, aku bisa menghabiskan sisa hidupku di sana.)
-
- 
+(bahannya tidak lagi dapat diperoleh di Zoltan. Pilihan yang tersisa adalah daerah terpencil atau kota kriminal di mana poster wanted tidak akan tercapai. Benar, Muzari terdengar bagus. Budak yang melarikan diri dipekerjakan sebagai penambang di sana jadi jika aku bisa dipekerjakan sebagai Alchemist untuk membuat obat untuk para penambang, aku bisa menghabiskan sisa hidupku di sana.)
 
 Perilaku Alchemist menunjukkan bahwa dia tidak tahu harus berkata apa untuk menjelaskannya tapi ...
-
- 
 
 "Sini."
 
