@@ -50,55 +50,41 @@ Dilihat dari gerakan matanya, dia menaruh banyak perhatian pada kata-kata dan si
 
 Sebagai tipe yang hanya akan berbicara ketika dia memiliki tujuan yang jelas, menurutku kata-kata adalah alat untuk menyampaikan pikirannya hanya ketika dia harus melakukannya.
 
- 
-
-Dalam situasi seperti itu, orang yang umumnya berbicara secara alami akhirnya adalah aku dan Lit.
+Dalam situasi seperti itu, orang yang umumnya berbicara secara alami adalah aku dan Lit.
 
 Saat ini, kami sedang menjelaskan bagaimana kami menghabiskan waktu kami di Zoltan.
 
 Dibandingkan ketika aku terbang bolak-balik sebagai Ksatria, berkeliling kota melawan Tentara Raja Iblis sebagai pendamping Pahlawan, atau menyelesaikan masalah yang muncul di kota-kota, setiap hari di sini terasa damai dan Ruti mendengarkan dengan penuh minat.
 
- 
+g"Intinya, Lit dan keseharianku berjalan seperti itu."
 
-"Intinya, Lit dan keseharianku berjalan seperti itu."
+l"Meskipun kadang-kadang Red tidak ada karena dia pergi memanen tanaman obat."
 
-"Meskipun kadang-kadang Red tidak ada saat dia pergi memanen rumput obat."
+Lit memanggilku red seperti biasa.
 
- 
+Kami berdiskusi tadi malam tentang apakah akan memanggil saya red atau Gideon di depan Ruti dan karena kami telah tinggal di Zoltan sebagai red dan Lit, kami memutuskan untuk tetap berpegang pada cara biasa kami memanggil satu sama lain red dan Lit.
 
-Lit memanggilku Merah seperti biasa.
+r"Onii Chan."
 
-Kami berdiskusi tadi malam tentang apakah akan memanggil saya Merah atau Gideon di depan Ruti dan karena kami telah tinggal di Zoltan sebagai Merah dan Lit, kami memutuskan untuk tetap berpegang pada cara biasa kami memanggil satu sama lain Merah dan Lit.
+g"ada apa?"
 
- 
+r"Tempat kamu memanen rumput obat, apakah itu gunung di barat laut?"
 
-"Onii Chan."
+g"Ya itu benar."
 
-"Apa itu?"
+r"... Kalau begitu, aku tahu lokasinya jadi aku akan memanen rumput obat."
 
-“Tempat Anda memanen rumput obat, apakah itu gunung di barat laut?”
+g"aku berterima kasih atas tawaran tersebut, tetapi apakah kamu yakin?"
 
-"Ya itu benar."
+r"Ya."
 
-"... Kalau begitu, aku tahu lokasinya jadi aku akan memanen rumput obat."
-
-"Saya berterima kasih atas tawaran tersebut, tetapi apakah Anda yakin?"
-
-"Ya."
-
-"Baiklah. Terima kasih, kamu bisa membantu saat kamu tidak sibuk. ”
-
- 
+g"Baiklah. Terima kasih, kamu bisa membantu saat kamu tidak sibuk."
 
 Ruti mengangguk.
 
- 
-
 ☆☆
 
- 
-
-Malam.
+Malam hari.
 
 Kami makan malam dengan kami berempat bersama lagi dan meskipun Ruti tanpa ekspresi seperti biasanya, dia mengungkapkan bahwa dia menikmati dirinya sendiri melalui gerakan tubuhnya.
 
