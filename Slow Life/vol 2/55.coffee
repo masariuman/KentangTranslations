@@ -245,3 +245,7 @@ Pikiranku ditelan oleh pusaran pahit.
 Tapi aku tidak merasa sakit.
 
 Karena di depan mataku ada adik perempuanku yang tercinta, seorang gadis muda yang menahan kesedihan tak tertahankan dengan wajah tanpa ekspresi.
+
+-----------------------------------
+
+masariuman : REDDO ONII CHAAAAAN !!!!
