@@ -276,19 +276,15 @@ Akan membutuhkan biaya yang cukup besar untuk memiliki sihir tingkat tinggi sepe
 
 "Mari kita tetap berpegang pada tindakan pertolongan pertama menggunakan analgesik dan ramuan obat sampai kita meninggalkan Zoltan."
 
-Cure Ramuan hanya bisa menghentikan pendarahan dari luka terbuka tapi itu sudah cukup untuk saat ini.
+Ramuan penyembuhan hanya bisa menghentikan pendarahan dari luka terbuka tapi itu sudah cukup untuk saat ini.
 
 Tidak apa-apa selama Alchemist tidak mati.
 
- 
-
-Saat itulah mereka berdua tiba di 『Apoteker Merah dan Lit』 untuk membeli obat.
-
- 
+Saat itulah mereka berdua tiba di 『Apotek Red dan Lit』 untuk membeli obat.
 
 Pintu berdentang saat Tise membukanya.
 
-Itu adalah Apoteker di Pusat Kota jadi dia membayangkan toko kecil yang kotor tetapi interior toko jauh lebih bersih dari yang dia duga.
+Itu adalah Apotek di Pusat Kota jadi dia membayangkan toko kecil yang kotor tetapi interior toko jauh lebih bersih dari yang dia duga.
 
 Semua jenis obat dipajang di rak di dinding.
 
