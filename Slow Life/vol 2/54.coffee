@@ -262,7 +262,7 @@ Ruti bergumam tegas dengan suara lembut tapi ekspresi serius.
 
 Hanya dengan itu saja sudah cukup mengintimidasi dan menyebabkan Tise menjerit pelan.
 
-"Kami di sini, orang-orang di penginapan distrik pelabuhan mengatakan bahwa tempat ini memiliki pilihan produk terbaik."
+"Kami ada di sini, orang-orang di penginapan distrik pelabuhan bilang kalau tempat ini memiliki pilihan produk terbaik."
 
 “Tidak bisakah kita menyembuhkannya dengan Hands of Healing?”
 
