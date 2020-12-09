@@ -186,3 +186,7 @@ l"yeah."
 kami selesai berbicara dan lit berdiri dan kembali ke toko bagian depan setelah beristirahat dan aku berdiri untuk bergerak ke ruang kerja.
 
 walaupun kami tetap di bangunan yang sama dan hanya dipisahkan beberapa meter, lit enggan untuk berpisah jadi aku memeluknya dan mencium pipinya.
+
+--------------------
+
+masariuman : BANGKEEEEEE GULAAA NYA OVAAADURAIBUUUU !!!
