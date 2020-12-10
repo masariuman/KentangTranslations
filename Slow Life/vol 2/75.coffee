@@ -16,21 +16,17 @@ g"kamu benar-benar blak-blakan ya."
 
 Godwin sebenarnya adalah Alchemist level tertinggi di Zoltan tetapi dia tidak akan memiliki peluang melawan sekelas lawan yang dihadapi Pahlawan. Dia sendiri sangat menyadari hal itu.
 
-Bagaimanapun, formasi ini adalah hasil dari perencanaan.
+formasi ini adalah hasil dari perencanaan.
 
- 
-
-* Kedutan * Ruti bereaksi terhadap sesuatu di belakangnya.
+* ckk * Ruti bereaksi terhadap sesuatu di belakangnya.
 
 Aku langsung melempar pisau lempar dari tas barang yang aku pinjam dari Lit.
 
 Pisau itu menembus Ular Besi yang menyelinap dan menghancurkannya.
 
-Ruti dan saya tidak membutuhkan kata-kata untuk berkomunikasi. Saya yakin bisa bertindak sesuai dengan niat Ruti hanya dengan melihat sedikit perubahan dalam pandangannya.
+Ruti dan aku tidak membutuhkan kata-kata untuk berkomunikasi. aku yakin bisa bertindak sesuai dengan niat Ruti hanya dengan melihat sedikit perubahan dalam pandangannya.
 
 Kami adalah kombinasi saudara kandung yang berjuang melalui pertempuran yang tak terhitung jumlahnya. Tidaklah berlebihan untuk mengklaim bahwa saya dapat berbagi keterampilan sensorik Ruti yang luar biasa begitu dia mendeteksi sesuatu.
-
- 
 
 “Meski tidak bisa dikatakan kokoh karena ukurannya yang kecil tapi bisa menghancurkan golem besi dengan satu lemparan pisau. Siapa Anda Apoteker? Apa yang Anda lakukan sehingga Anda harus bersembunyi? "
 
