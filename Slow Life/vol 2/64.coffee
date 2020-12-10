@@ -144,15 +144,11 @@ biasanya yang digunakan adalah kapal layar.
 
 Meski begitu, karena Zoltan berada di jalur badai, sangat berbahaya bagi kapal semacam itu untuk melakukan perjalanan selama musim panas.
 
-Meski dengan kondisi seperti itu, alasan kapal dagang tetap datang adalah karena Zoltan berada di garis depan.
+Meski dengan kondisi seperti itu, alasan kapal dagang tetap datang adalah karena Zoltan berada di perbatasan.
 
 Dan yang mengejutkan, ada tiga kapal baru yang berlabuh di pelabuhan tersebut.
 
- 
-
-Meskipun biasanya hanya ada satu kapal.
-
- 
+g"biasanya hanya ada satu kapal."
 
 Kapal yang biasanya ditambatkan di Zoltan adalah perahu pekerja yang digunakan untuk menangkap ikan, perahu dayung yang dimaksudkan untuk melakukan perjalanan ke sungai untuk berdagang dengan desa-desa tetangga dan hanya tiga karavel, perahu layar kecil, yang masing-masing mampu membawa 20 orang.
 
