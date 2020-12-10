@@ -8,9 +8,9 @@ r“Wajar jika Ares memanggil Naga Roh.”
 
 Tise mengangguk pada kata-kata Ruti.
 
-Aku juga menyadari bahwa Ares adalah pengguna mantra terkuat bagi umat manusia tapi ...
+Aku juga menyadari bahwa Ares adalah pengguna sihir terkuat bagi umat manusia tapi ...
 
-"Aku penasaran dengan Ares, tapi aku juga mengkhawatirkan orang yang bersama Ares."
+g"Aku penasaran dengan Ares, tapi aku juga mengkhawatirkan orang yang bersama Ares."
 
 Orang itu rupanya meninggalkan Ares dan bergerak lebih jauh ke bawah tanah. Gerakan mereka selanjutnya tidak kami ketahui.
 
