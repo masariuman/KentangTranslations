@@ -264,8 +264,8 @@ Theodora berdiri di puncak umat manusia dalam hal seni sihir. Jika Theodora seca
 
 Theodora tidak memiliki cara berpikir Danan yang sederhana.
 
-Theodora gagal mendaftarkan pertanyaan Albert tentang kondisinya saat dia terus khawatir tentang apa yang harus dia lakukan.
+Theodora gagal mendengarkan pertanyaan Albert tentang kondisinya karena dia terus khawatir tentang apa yang harus dia lakukan.
 
 Secara emosional dia ingin bekerja sama dengan Ruti dan Gideon. Jika Ruti menderita maka dia ingin membantunya!
 
-Theodora tidak pernah membayangkan bahwa dia akan membenci dirinya sendiri seperti dia membenci dirinya sendiri hari ini karena tidak memiliki keterusterangan Danan.
+Theodora tidak pernah membayangkan bahwa dia akan membenci dirinya sendiri seperti dia membenci dirinya sendiri hari ini karena tidak memiliki keterusterangan seperti Danan.
