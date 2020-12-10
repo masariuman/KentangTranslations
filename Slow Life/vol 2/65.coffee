@@ -138,17 +138,13 @@ Theodora berkata kepada Albert dengan ekspresi bermasalah.
 
 Tidak berarti Ares memiliki kepribadian yang baik tetapi dia juga tidak pemarah.
 
-"Alasan Ares bergabung dalam perjalanan ini adalah untuk menaklukkan Raja Iblis bersama dengan Pahlawan untuk menghidupkan kembali rumah Adipati Suroa yang telah kehilangan tidak hanya nama mereka tetapi juga tanah, prestise, dan aset mereka."
-
- 
+"Alasan Ares bergabung dalam perjalanan ini adalah untuk menaklukkan Raja Iblis bersama dengan Pahlawan untuk menghidupkan kembali keluarga bangsawan Suroa yang telah kehilangan tidak hanya nama mereka tetapi juga tanah, prestise, dan aset mereka."
 
 Albert menggelengkan kepalanya untuk menunjukkan bahwa dia tidak mempermasalahkannya.
 
- 
+“Apakah sulit untuk menghidupkan kembali keluarga yang hancur?”
 
-“Apakah sulit untuk menghidupkan kembali rumah yang roboh?”
-
-“Kepala keluarga empat generasi lalu memulai pemberontakan. Apalagi dia berkonspirasi dengan negara tetangga yang mengincar wilayah mereka. Sebuah kejahatan pengkhianatan tingkat tinggi. Mereka mencoba membunuh raja dan merebut negara. Dan itu melalui kontrak untuk menyerahkan wilayah negara ke negara asing. Mayoritas keluarga dieksekusi dan nama keluarga diwarisi oleh kakek buyut Ares yang belajar di bawah rumah lain. "
+"Kepala keluarga empat generasi lalu memulai pemberontakan. Apalagi dia berkonspirasi dengan negara tetangga yang mengincar wilayah mereka. Sebuah kejahatan pengkhianatan tingkat tinggi. Mereka mencoba membunuh raja dan merebut negara. Dan itu melalui kontrak untuk menyerahkan wilayah negara ke negara asing. Mayoritas keluarga dieksekusi dan nama keluarga diwarisi oleh kakek buyut Ares yang lagi ada di tempat lain."
 
 “Itu… adalah masa lalu yang mengerikan.”
 
