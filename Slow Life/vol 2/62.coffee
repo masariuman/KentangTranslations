@@ -24,99 +24,61 @@ Namun, pasukan Raja Iblis yang dipimpin oleh iblis Asura Shisandan menyerang dan
 
 Kekuatan prajurit Logavia berasal dari peralatan berkualitas tinggi mereka. Bahan bakar dalam jumlah besar dibutuhkan untuk mengoperasikan pabrik produksi untuk produksi peralatan tersebut.
 
-Pasukan Logavia kehilangan momentum dan kastil mereka dikepung.
+Pasukan Logavia kehilangan momentum dan istana mereka dikepung.
 
-Ada alasan mengapa Shisandan melakukan manuver rahasia di belakang layar untuk membunuh Kapten Kekaisaran Gayus yang sangat dipercaya oleh Raja Logavia.
+Ada alasan mengapa Shisandan melakukan manuver rahasia di belakang layar untuk membunuh Kapten Kekaisaran Gaius yang sangat dipercaya oleh Raja Logavia.
 
 Bahkan setelah Shisandan dikalahkan oleh Pahlawan Ruti, pasukan Raja Iblis di sekitarnya tidak mundur dan terus mengepung Logavia meskipun tidak lagi secara proaktif melakukan serangan. Manuver rahasia Shisandan telah memojokkan Logavia sampai-sampai mereka tidak bisa lagi melakukan serangan balik.
 
- 
+Saat itulah Pahlawan Ruti, ditemani Lit, menerobos kepungan dengan memanfaatkan rute melalui Hutan penipu yang dianggap tidak mungkin untuk melarikan diri, mengambil komando pasukan bala bantuan yang terdiri dari seratus kavaleri drake elit, dan menginjak-injak pasukan Raja Iblis yang telah kehilangan rantai komandonya yaitu Shisandan.
 
-Saat itulah Pahlawan Ruti, ditemani Lit, menerobos pengepungan dengan memanfaatkan rute melalui Hutan Penipuan yang dianggap tidak mungkin untuk melarikan diri, mengambil komando pasukan bala bantuan yang terdiri dari seratus kavaleri drake elit, dan menginjak-injak pasukan Raja Iblis yang telah kehilangan rantai komandonya yaitu Shisandan.
-
- 
-
-“Saya yakin Ruti juga melihatnya, betapa saya sangat putus asa di dalam Hutan Penipuan. Saya merasa bahwa kami berlarian berputar-putar dan itu berlangsung selama seminggu ... Saya khawatir Logavia sudah dikalahkan dan semua orang telah terbunuh. ”
-
- 
+l"aku yakin Ruti juga melihatnya, betapa sangat putus asanya aku di dalam Hutan Penipu. aku merasa bahwa kita berlarian berputar-putar dan itu berlangsung selama seminggu ... aku khawatir Logavia sudah dikalahkan dan semua orang telah terbunuh."
 
 Ekspresi Lit masih cerah meski ceritanya kelam.
 
 Itu mungkin kenangan yang menyakitkan tapi di saat yang sama, itu mungkin juga ingatan pertemuan pertamanya dengan Gideon-san.
 
- 
+l"Tapi Red ada di sana. Dia bertengkar denganku. Dia berkata bahwa kita akan menyelamatkan Logavia. aku senang bahwa red ada di sana di Hutan Penipu yang gelap di mana bahkan sinar matahari tidak bisa menembusnya. Itu adalah pertama kalinya aku merasakan perasaan seperti itu. "
 
-“Tapi Red ada di sana. Dia bertengkar dengan saya. Dia berkata bahwa kita akan menyelamatkan Logavia. Saya senang bahwa Merah ada di sana di Hutan Penipuan yang gelap di mana bahkan sinar matahari tidak bisa menembusnya. Itu adalah pertama kalinya saya merasakan perasaan seperti itu. "
+Lit memeluk lututnya dan menyembunyikan senyumnya.
 
- 
+Begitu ya, jadi Gideon-san adalah orang seperti itu.
 
-Lit memeluk lututnya dan menyembunyikan senyumnya di balik itu.
-
- 
-
-Begitu, jadi Gideon-san adalah orang seperti itu.
-
-Setelah mengumpulkan begitu banyak pengalaman, tidak heran jika Ruti-sama dan Lit-san sama-sama mencintai Gideon-san.
-
- 
+Setelah sebanyak itu, tidak heran jika Ruti-sama dan Lit-san sama-sama mencintai Gideon-san.
 
 Ruti-sama mengambil air panas dengan kedua tangannya.
 
 Air panas yang keluar dari telapak tangannya terciprat kembali ke bak mandi air panas.
 
- 
+r"Bagiku, mandi tidak lagi terasa senyaman dulu."
 
-Bagi saya, mandi tidak lagi terasa senyaman dulu.
+l"Eh?"
 
-“Eh?”
-
-“Kenikmatan mandi dari memanaskan tubuh, meningkatkan sirkulasi darah, dan menyembuhkan otot yang lelah.”
-
- 
+r"Kenikmatan mandi dari memanaskan tubuh, meningkatkan sirkulasi darah, dan menyembuhkan otot yang lelah."
 
 Ruti-sama mengambil air panas lagi. Suara cipratan bergema di kamar mandi.
 
- 
+r"aku memiliki semua jenis kekebalan di tubuhku. Tidak peduli apakah itu sangat dingin atau panas, suhu tubuhku tidak akan pernah berubah. Itu berlaku untuk kehangatan dari bak mandi juga, aku hanya dapat memperoleh informasi bahwa ini adalah air panas."
 
-“Saya memiliki semua jenis perlawanan di tubuh saya. Tidak peduli apakah itu sangat dingin atau panas yang hebat, suhu tubuh saya tidak akan pernah berubah. Itu berlaku untuk kehangatan dari bak mandi juga, saya hanya dapat memperoleh informasi bahwa ini adalah air panas. "
+*splash*
 
- 
+r"aku tidak jatuh sakit dan aku tidak lelah. Kondisi tubuhku selalu berada di yang terbaik."
 
-*Guyuran*
+*splash*
 
- 
+r"Begitu pula untuk makanan. aku tidak pernah merasa lapar. aku juga tidak membutuhkan air. aku bisa mencicipi makanan tapi tubuhku tidak membutuhkan nutrisi. "
 
-“Saya tidak jatuh sakit dan saya tidak lelah. Kondisi tubuh saya selalu berada di puncaknya. ”
+*splash*
 
- 
+r"Menurutku masuk ke bak mandi rasanya enak karena aku ingat kalau masuk bak mandi rasanya enak. aku hanya menciptakan kembali emosiku dari ingatanku. "
 
-*Guyuran*
-
- 
-
-“Begitu pula untuk makanan. Saya tidak pernah merasa lapar. Saya juga tidak membutuhkan air. Saya bisa mencicipi makanan tapi tubuh saya tidak membutuhkan nutrisi. "
+*splash*
 
  
 
-*Guyuran*
+r"Saat aku masih kecil, susu madu yang dibuat oleh Onii-chan untukku sangat enak. Rasanya manis dan lembut dan aku pikir aku bisa meminumnya lagi. Tapi, susu madu yang aku minum hari ini, meski rasanya lebih enak dari sebelumnya, aku tidak bisa lagi merasakan kelezatan masa lalu. Meski begitu, aku masih bisa mengingat rasa enak susu madu Onii-chan."
 
- 
-
-“Menurutku masuk ke bak mandi rasanya enak karena aku ingat kalau masuk bak mandi rasanya enak. Saya hanya menciptakan kembali emosi saya dari ingatan saya. "
-
- 
-
-*Guyuran*
-
- 
-
-“Saat aku masih kecil, susu madu yang dibuat oleh Onii-chan untukku sangat enak. Rasanya manis dan lembut dan saya pikir saya bisa meminumnya berapa pun. Tapi, susu madu yang aku minum hari ini, meski rasanya lebih enak dari sebelumnya, aku tidak bisa lagi merasakan kelezatan masa lalu. Meski begitu, aku masih bisa mengingat rasa enak susu madu Onii-chan. ”
-
- 
-
-Begitu ... jadi itu memperburuk keadaan.
-
- 
+Begitu ... jadi itu memperburuk keadaannya.
 
 Ruti-sama adalah manusia terkuat.
 
