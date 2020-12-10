@@ -244,50 +244,36 @@ Dia tampak bingung dengan apa yang terjadi dan dia menatap tercengang pada darah
 
 Ruti mencabut pedangnya tanpa ragu.
 
-r"Saya tidak lembut."
+r"aku tidak lembut."
 
 “U, uaaaaaaaah, ke-kenapa, apakah kamu salah, aku adalah Sage Ares, kenapa kamu menusukku…”
 
-“Aku menghindari tanda vitalmu. Anda harus bisa menyembuhkan diri sendiri dengan sihir. Tapi inilah jawaban saya. Aku tidak akan ragu untuk menusukmu dengan pedangku jika kamu menyakiti orang yang penting bagiku. Jika Anda telah melukai Onii-chan dengan parah, saya mungkin akan membunuh Anda. "
-
- 
+r"Aku menghindari tanda vitalmu. kamu bisa menyembuhkan dirimu sendiri dengan sihir. Tapi inilah jawabanku. Aku tidak akan ragu untuk menusukmu dengan pedangku jika kamu menyakiti orang yang penting bagiku. Jika kamu telah melukai Onii-chan dengan parah, aku mungkin akan membunuhmu."
 
 Ruti mengatakannya dengan terus terang.
 
 Dia kemudian memutar tumitnya dan menuju ke arahku.
 
- 
+r"Onii-chan, kamu baik-baik saja? Aku akan segera menyembuhkanmu."
 
-“Onii-chan, kamu baik-baik saja? Aku akan segera menyembuhkanmu. "
+g"A-ah, terima kasih."
 
-"A-ah, terima kasih."
+Lukaku tidak dalam. Force Hammer adalah sihir yang bertujuan untuk meledakkan targetnya daripada berfokus pada kekuatan destruktif. aku mungkin hanya akan berakhir dengan memar karena tingkat Perlindungan Ilahiku yang tinggi.
 
- 
+“Ru-Ruti... lukaku semakin parah... sembuh...”
 
-Luka saya tidak dalam. Force Hammer adalah mantra yang bertujuan untuk meledakkan targetnya alih-alih berfokus pada kekuatan destruktif. Saya mungkin hanya akan berakhir dengan memar karena tingkat Perlindungan Ilahi saya yang tinggi.
-
- 
-
-“Ru-Ruti… lukaku semakin parah… sembuh…”
-
- 
-
-Ares mengimbau Ruti sambil memegangi lukanya.
+Ares mendatangi Ruti sambil memegangi lukanya.
 
 Ruti menjawab tanpa melihat ke belakang.
 
- 
-
-“Saya Ruti, bukan Pahlawan. Saya tidak akan lagi membantu Anda. ”
-
- 
+r"aku Ruti, bukan Pahlawan. aku tidak akan lagi membantumu."
 
 Ruti menolak mentah-mentah Ares.
 
- 
+---------------
 
 Catatan penulis:
 
-Saya memikirkan sejumlah percakapan untuk memberi Ares perubahan hati, tetapi saya memutuskan untuk membiarkan Ares memainkan peran penjahat sampai akhir.
+aku memikirkan sejumlah percakapan untuk memberi Ares perubahan hati, tetapi aku memutuskan untuk membiarkan Ares memainkan peran jahat sampai akhir.
 
-Meskipun ada ruang untuk merasa kasihan padanya, saya memutuskan untuk menggambarkannya sebagai orang yang menjauhkan dan menyakiti orang-orang penting di sekitar Ruti demi dirinya sendiri dan keberadaan untuk memaksa Ruti menjadi Pahlawan dan saya berencana untuk terus seperti itu sampai kesimpulan untuk busur Ruti.
+Meskipun ada ruang untuk merasa kasihan padanya, aku memutuskan untuk menggambarkannya sebagai orang yang jauh dan menyakiti orang-orang penting di sekitar Ruti demi dirinya sendiri dan keberadaan untuk memaksa Ruti menjadi Pahlawan dan aku berencana untuk terus seperti itu sampai akhir arc Ruti.
