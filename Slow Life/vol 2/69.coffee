@@ -128,77 +128,51 @@ Bagi Lit, dia adalah lawan yang dibenci yang membunuh gurunya. Dia mungkin tidak
 
 Kebencian yang membara melintas di ekspresi Lit untuk sesaat.
 
- 
-
-“Shisandan… apakah Asura Demon yang Ruti-sama lawan di Logavia?”
-
- 
+“Shisandan... apakah iblis Asura yang Ruti-sama lawan di Logavia?”
 
 Aku mengangguk pada kata-kata Tise.
 
- 
+"aku belum benar-benar melihatnya jadi saya tidak tahu pasti. aku baru saja mendengarnya. "
 
-“Saya belum benar-benar melihatnya jadi saya tidak tahu pasti. Saya baru saja mendengarnya. "
+l"Mungkin itu semacam kesalahan?"
 
-“Mungkin itu semacam kesalahan?”
-
-“Saya tidak tahu. Tapi Danan tidak akan melupakan lawan yang pernah dia lawan sebelumnya. Saya yakin kredibilitasnya tinggi kalau diklaim Danan. ”
-
- 
+g"aku tidak tahu. Tapi Danan tidak akan melupakan lawan yang pernah dia lawan sebelumnya. aku yakin kebenarannya tinggi kalau danan yang bilang."
 
 Kami berlari dalam diam untuk beberapa saat.
 
- 
+l"Danan yang kutemui..."
 
-“Danan yang kutemui…”
+g"Mungkin Shisandan. Dia memakan lengan kanannya dan meniru penampilannya."
 
-“Mungkin Shisandan. Dia memakan lengan kanannya dan meniru penampilannya. "
+Ada banyak misteri seputar kemampuan ras iblis Asura yang merupakan satu-satunya ras yang tidak memiliki Perlindungan Ilahi di dunia ini.
 
- 
+aku tidak tahu bahwa mereka dapat berubah tanpa membunuh lawan mereka.
 
-Ada banyak misteri seputar kemampuan ras Asura Demon yang merupakan satu-satunya ras yang tidak memiliki Perlindungan Ilahi di dunia ini.
+l"Kalau saja aku memberitahumu lebih awal... jika itu kamu, kamu akan menyadari bahwa dia palsu. Jika itu terjadi, aku... bisa melakukannya dengan cepat...."
 
-Saya tidak tahu bahwa mereka dapat berubah tanpa membunuh lawan mereka.
+g"membunuhnya dia?"
 
- 
+l"... Ya, aku mungkin tidak lagi ingin tetap sebagai petualang tetapi orang itu adalah pengecualian."
 
-“Kalau saja aku memberitahumu lebih awal… jika itu kamu, kamu akan menyadari bahwa dia palsu. Jika itu terjadi, saya… bisa melakukannya dengan cepat. ”
-
-"Bunuh dia?"
-
-"... Ya, saya mungkin tidak lagi ingin melanjutkan sebagai petualang tetapi orang itu adalah pengecualian."
-
- 
-
-Lit merasa berkonflik tapi aku bisa mengerti.
+Lit merasa kacau tapi aku bisa mengerti itu.
 
 Dia ingin menghargai kehidupan sehari-hari kami dan terus menjalankan toko bersama.
 
 Perasaan itu pasti asli.
 
- 
-
 Namun, membalas dendam adalah masalah yang sama sekali berbeda.
-
- 
 
 Shisandan-lah yang menipu dan membunuh gurunya serta banyak penjaga kerajaan dan Petualang Logavia yang mempercayai Lit.
 
- 
+g"... Meskipun kita tidak tahu apakah Shisandan ada hubungannya dengan itu."
 
-"… Meskipun kami tidak tahu apakah Shisandan ada hubungannya dengan itu."
-
- 
-
-Yang tertangkap di pandangan saya adalah Spirit Drake yang terbang di langit.
+Yang tertangkap di pandanganku adalah Spirit Drake yang terbang di langit.
 
 Jarak di antara kami secara bertahap semakin lebar.
 
- 
+g"Aku akan bertarung bersamamu jika itu Shisandan. Bahkan jika itu adalah orang lain dan Shisandan masih di Zoltan, aku akan tetap bertarung bersamamu. Kali ini, kita akan membalas dendam untuk gaius."
 
-“Aku akan bertarung bersamamu jika itu Shisandan. Bahkan jika itu adalah orang lain dan Shisandan masih di Zoltan, aku akan tetap bertarung bersamamu. Kali ini, kami akan membalas dendam untuk Gayus. ”
-
-“Tapi Merah…”
+l"Tapi red..."
 
 “Benar, aku sudah memutuskan untuk tidak lagi bertarung demi dunia.”
 
