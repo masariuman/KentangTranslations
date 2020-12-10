@@ -160,13 +160,13 @@ Sungguh konyol untuk berpikir bahwa teknik yang tidak berhubungan dengan pertemp
 
 Terlepas dari pikiran batin Shisandan, rasa waspada Ares terhadapnya telah berkurang drastis. Shisandan memutuskan bahwa sudah waktunya dia pindah ke topik utama.
 
-“Warisan dari Pahlawan generasi sebelumnya terletak di bawah reruntuhan ini. Bagaimana dengan itu, kita selalu bisa bertarung setelah kita mendapatkannya dulu, kan? ”
+“Warisan dari Pahlawan generasi sebelumnya terletak di bawah reruntuhan ini. Bagaimana ? kita selalu bisa bertarung setelah kita mendapatkannya dulu, kan? ”
 
 "Warisan Pahlawan generasi sebelumnya !?"
 
-“Jika kamu memberikan itu padanya,『 Hero 』generasi saat ini mungkin akan mengingat misinya. Dia sepertinya akan mengerti bahwa tidak ada gunanya memiliki individualitas sebagai Pahlawan. ”
+“Jika kamu memberikan itu padanya,『 pahlawan 』generasi saat ini mungkin dia akan mengingat misinya. Dia sepertinya akan mengerti bahwa tidak ada gunanya memiliki individualitas sebagai Pahlawan. ”
 
-"Individualitas? Apa maksudmu… tidak, yang lebih penting, aku tidak bisa menyerahkan warisan Pahlawan generasi sebelumnya kepada anggota pasukan Raja Iblis. ”
+"Individualitas? Apa maksudmu... tidak, yang lebih penting, aku tidak bisa menyerahkan warisan Pahlawan generasi sebelumnya kepada anggota pasukan Raja Iblis."
 
 “Tetapi jika situasi saat ini berlanjut, Pahlawan akan berhenti menjadi『 Pahlawan 』. Jika itu terjadi, warisan atau yang lainnya tidak akan menjadi masalah sama sekali. "
 
