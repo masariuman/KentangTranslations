@@ -24,9 +24,11 @@ Itu mengeluarkan larutan perekat hijau tetapi pada saat sama, aku sudah masuk ke
 
 "Ka- kau pria dari Apotek itu! kau di sini untuk menangkapku! "
 
-g"Ah, aku di sini bukan untuk bertarung.”
+g"Ah, aku di sini bukan untuk bertarung."
 
-"Itu ironis mengingat kamu memiliki pedang yang mengarah padaku!""
+"Itu ironis mengingat kamu memiliki pedang yang mengarah padaku!"
+
+<gambar> vol4 5.jpg
 
 g"Yah, itu karena kamu melempar bom itu. Lagipula, jika aku berniat bertarung, pedang ini pasti sudah menembus lehermu."
 
