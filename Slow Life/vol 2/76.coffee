@@ -156,11 +156,9 @@ Berbeda dengan ekspresi Ares yang bingung, Shisandan mengutuk di dalam hatinya t
 
 Shisandan berbicara tentang cita-cita Raja Iblis tradisional. Bagi iblis Asura yang tidak memiliki Perlindungan Ilahi, itu tidak lebih dari lelucon yang tidak masuk akal.
 
-Sungguh konyol untuk berpikir bahwa teknik yang tidak berhubungan dengan pertempuran seperti pertanian atau teknik tidak akan maju tanpa perang. Asura Demons merasa bahwa Perlindungan Ilahi adalah belenggu yang konyol.
+Sungguh konyol untuk berpikir bahwa teknik yang tidak berhubungan dengan pertempuran seperti pertanian atau teknik tidak akan maju tanpa perang. iblis Asura merasa bahwa Perlindungan Ilahi adalah belenggu yang konyol.
 
-Terlepas dari pikiran batin Shisandan, permusuhan Ares terhadapnya telah berkurang drastis. Shisandan memutuskan bahwa sudah waktunya dia pindah ke topik utama.
-
- 
+Terlepas dari pikiran batin Shisandan, rasa waspada Ares terhadapnya telah berkurang drastis. Shisandan memutuskan bahwa sudah waktunya dia pindah ke topik utama.
 
 “Warisan dari Pahlawan generasi sebelumnya terletak di bawah reruntuhan ini. Bagaimana dengan itu, kita selalu bisa bertarung setelah kita mendapatkannya dulu, kan? ”
 
