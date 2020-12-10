@@ -204,13 +204,9 @@ Ares membutuhkan Pahlawan, bukan Ruti.
 
 Karena itulah Ruti mengakhiri perjalanannya bersama Ares. Itu adalah kata-kata perpisahan tetapi pada saat yang sama, kata-kata dari Ruti yang menunjukkan perbedaan terhadap Ares yang bepergian bersamanya dalam waktu yang lama.
 
- 
-
 Ares tertelungkup sembari mempertahankan senyum di wajahnya.
 
- 
-
-“Ruti lembut. Karena Gideon ada di sini, kamu tidak tega membuang bobot mati dan memilih pemegang Perlindungan Ilahi sampah daripada aku? "
+"Ruti lembut. Karena Gideon ada di sini, kamu tidak tega membuang bobot mati dan memilih pemegang Perlindungan Ilahi sampah daripada aku?"
 
 “Kamu salah Ares, Ruti…”
 
