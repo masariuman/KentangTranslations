@@ -122,7 +122,7 @@ Perangkat yang awalnya ada di dalam ruangan semuanya telah dihancurkan sementara
 
 Mayat mumi Wood-Elf yang telah dikeringkan dibungkus sepenuhnya dengan baju besi dan memegang pedang Elf di dada mereka yang masih tidak memiliki setitik pun karat setelah lebih dari satu dekade.
 
-“Wood-Elf menekankan pentingnya kembali ke alam. Kebiasaan mereka adalah menempatkan jenazah mereka di hutan setelah upacara untuk mengizinkan hewan memakannya, tetapi saya mengerti, ada sesuatu di depan yang ingin mereka lindungi bahkan dengan mengorbankan lingkaran kehidupan dan terikat selamanya. "
+"Wood-Elf menekankan pentingnya kembali ke alam. Kebiasaan mereka adalah menempatkan jenazah mereka di hutan setelah upacara agar hewan memakannya, tetapi aku mengerti, ada sesuatu di depan yang ingin mereka lindungi bahkan dengan mengorbankan lingkaran kehidupan dan terikat selamanya. "
 
 Seringai muncul di mulut pemuda berkulit kecokelatan itu.
 
