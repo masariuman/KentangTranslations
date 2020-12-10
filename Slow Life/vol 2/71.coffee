@@ -1,36 +1,26 @@
 Bab 71: Semoga sukses untuk Kehidupan santai yang kamu inginkan
 
-Tise hanya menjelaskan kepadaku dengan kata-kata lokasi ruangan di mana mereka memiliki obat Alchemist Godwin.
+Tise hanya menjelaskan kepadaku dengan kata-kata lokasi ruangan di mana mereka menyembunyikan ALchemist Obat Godwin.(TN: entah mengapa si penulis mengubahnya dari コドウィン menjadi  ゴドウィン. jadi ya ngikut aja jadi godwin)
 
-Menemukannya di blok pemukiman Peri-Kuno yang terdiri dari kamar-kamar seragam agak sulit.
+mencari di blok pemukiman ancient-elf yang terdiri dari kamar-kamar yang sama bentuknya agak sulit.
 
- 
+g"Apakah itu disini?"
 
-"Apakah itu disini?"
-
- 
-
-Saya akhirnya menghabiskan cukup banyak waktu.
+aku menghabiskan cukup banyak waktu.
 
 Kupikir Lit dan yang lainnya sudah mulai mendaki gunung.
 
-Aku membuka pintu geser yang anehnya berat yang bisa dilihat di mana-mana di reruntuhan Peri-Kuno.
+Aku membuka pintu geser yang anehnya berat yang bisa ditemukan di mana-mana di reruntuhan ancient-elf.
 
- 
-
-Ups.
-
- 
+g"Ups."
 
 Sebuah botol kaca terbang keluar dari balik pintu.
 
-Aku merunduk ke depan dan menghindari botol itu.
+Aku menunduk ke depan dan menghindari botol itu.
 
-Detik berikutnya, botol itu meledak dengan ledakan.
+Detik berikutnya, botol itu meledak.
 
 Itu memerciki larutan perekat hijau tetapi pada saat itu, aku sudah menyerbu ke dalam ruangan dengan gulungan depan, berdiri dan menusukkan pedangku ke leher Alchemist.
-
- 
 
 “Ka- kau pria dari Apoteker itu! Anda di sini untuk menangkap saya! "
 
