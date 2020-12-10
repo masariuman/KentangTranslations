@@ -30,25 +30,21 @@ g"Apakah tidak ada penggantinya?"
 
 "Awalnya aku tidak lebih dari seorang alchemist-wannabe yang berafiliasi dengan Guild pencuri. Mengubah resep peracikan di luar kemampuanku. "
 
-Godwin menggunakan keahliannya untuk menganalisis obat dan membuat dugaan dengan menggabungkan informasi yang dia dengar dari Demon Kontrak dan dari kami.
+Godwin menggunakan keahliannya untuk menganalisis obat dan membuat dugaan dengan menggabungkan informasi yang dia dengar dari iblis Kontrak dan dari kami.
 
-Sebagai eksekutif Thieves Guild yang bekerja di bawah Big Hawk, pengetahuan alkemis Godwin jelas tidak berlimpah.
+Sebagai eksekutif Guild pencuri yang bekerja di bawah Big Hawk, pengetahuan alkemis Godwin jelas tidak banyak.
 
-Saya berpikir sendiri setelah saya menerima dari Godwin catatannya tentang hasil keterampilan analisisnya.
+aku berpikir sendiri setelah aku menerima dari Godwin catatannya tentang hasil keterampilan analisisnya.
 
- 
-
-Saya tidak dapat menyimpulkan tentang mengganti bahan hanya dengan informasi ini.
+aku tidak dapat menyimpulkan tentang mengganti bahan hanya dengan informasi ini.
 
 Meski begitu, Tangan Penyembuh Ruti bisa sepenuhnya mengobati kecanduan narkoba.
 
-Sebagai alternatif, ada banyak Penyembuh tingkat tinggi di kota-kota besar yang mampu menggunakan mantra yang dapat mengobati efek samping obat. Itu akan membutuhkan biaya yang cukup besar tetapi itu akan menjadi jumlah yang tidak signifikan jika dibandingkan dengan aset Pahlawan.
+Sebagai alternatif, ada banyak Penyembuh tingkat tinggi di kota-kota besar yang mampu menggunakan sihir yang dapat mengobati efek samping obat. Itu akan membutuhkan biaya yang cukup besar tetapi itu akan menjadi jumlah yang tidak signifikan jika dibandingkan dengan aset Pahlawan.
 
-Saya kira saya akan mengabaikannya untuk saat ini. Meskipun saya berencana untuk menyelesaikannya suatu hari nanti.
+aku kira aku akan mengabaikannya untuk saat ini. Meskipun aku berencana untuk menyelesaikannya suatu hari nanti.
 
- 
-
-“Mengacu kembali pada desakan pembantaian dari Perlindungan Ilahi Iblis, menurut Anda apa yang akan terjadi jika tingkat Perlindungan Ilahi tanpa nama melebihi tingkat Perlindungan Ilahi bawaan?"
+g"Mengacu kembali pada desakan pembantaian dari Perlindungan Ilahi Iblis, menurut Anda apa yang akan terjadi jika tingkat Perlindungan Ilahi tanpa nama melebihi tingkat Perlindungan Ilahi bawaan?"
 
 “Aku tidak bisa mengatakan dengan pasti tapi… karena dorongan Iblis Kapak adalah penyebabnya, aku percaya tidak apa-apa untuk berasumsi bahwa tidak ada yang akan terjadi untuk Perlindungan Ilahi tanpa dorongan.”
 
