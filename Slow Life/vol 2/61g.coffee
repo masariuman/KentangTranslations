@@ -246,93 +246,65 @@ Owlbear melolong dan menyerang.
 
 Aku menghunus pisauku dan memegangnya dengan posisi terbalik.
 
-Peluang menang bahkan lebih tipis dari es tipis. Tetapi hanya kematian yang menunggu jika saya tidak menang.
+Peluang menang bahkan lebih tipis dari es tipis. Tetapi hanya kematian yang menunggu jika aku tidak menang.
 
-Saya hanya punya satu kesempatan.
+aku hanya punya satu kesempatan.
 
- 
+owlbear yang menyerang ke arahku menebaskan cakarnya.
 
-Burung hantu yang menyerang ke arahku menggesekku dengan cakarnya.
-
-Burung hantu akan merobek lawannya dengan cakarnya, menahannya dan memberikan pukulan fatal dengan paruhnya.
+owlbear akan merobek lawannya dengan cakarnya, menahannya dan memberikan pukulan fatal dengan paruhnya.
 
 Itu adalah gaya bertarung khas Owlbear.
 
-Kecepatan serangannya jauh lebih tinggi dari kemampuan menghindar saya.
+Kecepatan serangannya jauh lebih tinggi dari kemampuan menghindarku.
 
-Namun, saya memegang tangan kiri saya di depan dada saya dan menunggu saat itu.
-
- 
+Namun, aku memegang tangan kiriku di depan dadaku dan menunggu saat itu.
 
 “Kyaaaaa !!”
 
- 
+Anak yang lebih tua dariku berteriak ketika dia melihatku terkoyak.
 
-Anak yang lebih tua dari saya berteriak ketika dia melihat saya terkoyak.
+r"tangan penyembuh."
 
- 
+tapi, aku tidak terluka meskipun aku seharusnya tercabik-cabik.
 
-“Healing Hand.”
+aku menyembuhkan tubuhku dengan Skill: tangan penyembuh segera setelah tubuhku dicabik-cabik.
 
- 
+Pada levelku, aku akan menggunakan hampir semua kekuatan penyembuhanku hanya dalam sekali pakai.
 
-Namun, saya tidak terluka meskipun saya seharusnya tercabik-cabik.
+Namun, itulah satu-satunya kesempatanku.
 
-Saya menyembuhkan tubuh saya dengan Skill: Healing Hands segera setelah tubuh saya dicabik-cabik.
-
-Pada level saya, saya akan menggunakan hampir semua kekuatan penyembuhan saya hanya dalam satu gips.
-
-Namun, itulah satu-satunya kesempatan saya.
-
- 
-
-Melihat lawan yang diserang tetap tidak terluka tidak terduga bagi Owlbear.
+Melihat lawan yang diserang tetap tidak terluka, owbler lengah.
 
 Karena lengah, aku menusukkan pisau peganganku yang terbalik ke mata kiri Owlbear.
 
- 
-
 Owlbear berteriak kesakitan.
 
- 
+(tidak dalam...)
 
-(Dangkal…)
-
- 
-
-Tapi pisauku hanya menembus bola matanya.
+Tapi pisauku menembus bola matanya.
 
 Itu adalah luka yang dalam yang pada akhirnya akan menyebabkan kematian Owlbear.
 
-Namun, pisaunya harus mencapai otak jika saya melukai Owlbear sedemikian rupa sehingga tidak bisa bergerak pada saat itu juga.
-
- 
+Namun, pisaunya harus mencapai otak jika aku ingin memberikan luka fatal ke Owlbear sehingga tidak bisa bergerak.
 
 Tubuhku terbang ke udara dengan suara bantingan.
 
-Saya dipukul oleh lengan Owlbear yang terayun keluar.
+aku dipukul oleh lengan Owlbear.
 
-Namun, cakar itu tidak menyerang saya jadi saya lolos dari kematian seketika.
-
- 
+Namun, cakar itu tidak menyerangku jadi aku lolos dari kematian seketika.
 
 Tubuhku terguling dan berguling di tanah sebelum akhirnya berhenti.
 
 Hanya serangan itu saja sudah cukup untuk menyebabkan luka di seluruh tubuhku dan aku bahkan tidak bisa lagi berdiri.
 
- 
+(Ini sejauh yang bisa aku lakukan.)
 
-(Ini sejauh yang saya lakukan.)
+aku melakukan yang terbaik. inilah yang kubisa.
 
- 
+Perlindungan Ilahiku tidak memaksaku berdiri dan berjuang sampai akhir seolah-olah telah mengakui fakta itu. sepertinya perlindungan ilahiku menunjukkan belas kasihan untuk membiarkanku mati sambil berbaring pada akhirnya.
 
-Saya melakukan yang terbaik. Tidak ada yang membantunya.
-
-Perlindungan Ilahi saya tidak memaksa bahwa saya berdiri dan berjuang sampai akhir seolah-olah telah mengakui fakta itu. Tampaknya menunjukkan belas kasihan untuk memungkinkan saya mati sambil berbaring pada akhirnya.
-
- 
-
-Bahkan jika saya hidup, saya akan mengalami rasa sakit seperti itu demi orang-orang yang tidak dekat dengan saya.
+Bahkan jika aku hidup, aku akan mengalami rasa sakit seperti itu demi orang-orang yang tidak dekat denganku.
 
 Bahkan jika aku hidup, aku akan disebut anak menyeramkan di belakangku oleh mereka yang membuatku kesakitan.
 
