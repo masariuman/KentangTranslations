@@ -1,130 +1,80 @@
-Bab 69: Lit ragu-ragu dan memutuskan
-
-Penerjemah: Tseirp
-
- 
+Bab 69: Lit yang ragu-ragu dan memutuskan sesuatu
 
 Spirit Drake di langit sangat cepat.
 
- 
+g"Itu bukan Spirit Drake biasa. Mantra atau sesuatu telah digunakan untuk meningkatkan kecepatan gerakannya. "
 
-“Itu bukan Spirit Drake biasa. Mantra atau sesuatu telah dilakukan untuk meningkatkan kecepatan gerakannya. "
+Dalam hal kecepatan murni, aku percaya bahwa aku bergerak dengan kecepatan yang sama tetapi perbedaannya adalah aku berada di darat.
 
- 
+aku tidak punya pilihan selain memperlambat saat berbelok di tikungan dan kecepatanku akan turun dalam sekejap jika aku lari dari jalan raya.
 
-Dalam hal kecepatan murni, saya percaya bahwa saya bergerak dengan kecepatan yang sama tetapi perbedaannya adalah saya berada di darat.
+aku ingin percaya bahwa Ruti baik-baik saja.
 
-Saya tidak punya pilihan selain memperlambat saat berbelok di tikungan dan kecepatan saya akan turun dalam sekejap jika saya lari dari jalan raya.
+Ruti jauh lebih kuat dariku. aku merasa bahwa aku tidak perlu mengkhawatirkannya.
 
- 
+Namun, seperti yang diharapkan, aku tidak bisa tenang ketika, tepat di depanku, lawan yang mencurigakan sedang menuju ke gunung tempat Ruti berada.
 
-Saya ingin percaya bahwa Ruti baik-baik saja.
+Setelah berlari beberapa saat, aku melihat dua drake yang sedang berlari di depanku.
 
- 
-
-Ruti jauh lebih kuat dariku. Saya merasa bahwa saya tidak perlu mengkhawatirkannya.
-
-Namun, seperti yang diharapkan, saya tidak bisa tenang ketika, tepat di depan saya, lawan yang mencurigakan sedang menuju ke gunung tempat Ruti berada.
-
- 
-
-Setelah berlari beberapa saat, saya melihat dua drake yang sedang berlari di depan saya.
-
- 
-
-"Hn, jadi aku sudah menyusul."
-
- 
+g"Hn, jadi aku sudah menyusul mereka."
 
 Aku tidak mungkin salah mengira sosok Lit dari belakang bahkan saat dia berada di kejauhan.
 
- 
+g"LIT! Tise!"
 
-“Menyala! Tise! ”
+l"red!"
 
-"Merah!"
-
- 
-
-Drake yang sedang berlari itu menatap saya dengan penuh minat saat saya berlari di sampingnya dan ia berteriak dengan rasa ingin tahu.
+Drake yang sedang berlari itu menatap aku dengan penuh minat saat aku berlari di sampingnya dan ia berteriak dengan rasa penasaran.
 
 Roh Air dan Angin melayang di sekitar drake yang sedang berlari.
 
-Karena saya tidak tahu sihir apa pun dan tidak memiliki keterampilan apa pun yang menganalisis sihir, saya hanya bisa menyimpulkan bahwa Roh Air mengobati kelelahan sementara Roh Angin meningkatkan kecepatan gerakan.
+Karena aku tidak tahu sihir apa pun dan tidak memiliki keterampilan apa pun yang menganalisis sihir, aku hanya bisa menyimpulkan bahwa Roh Air mengobati kelelahan sementara Roh Angin meningkatkan kecepatan gerakan.
 
-Seperti yang diduga, mereka telah meningkatkan kecepatan menggunakan sihir.
+Seperti yang kuduga, mereka telah meningkatkan kecepatan menggunakan sihir.
 
- 
+g"Lit, apakah kamu melihat Spirit Drake di langit?"
 
-“Lit, apakah kamu melihat Spirit Drake di langit?”
+l"Ya, aku melihatnya. Tapi tidak ada orang di Zoltan yang bisa memanggil itu. Bahkan Mistome-shi dari tim peringkat-B generasi sebelumnya tidak bisa melakukannya."
 
-“Ya, saya melihatnya. Tapi tidak ada orang di Zoltan yang bisa memanggil itu. Bahkan Mistome-shi dari partai peringkat-B generasi sebelumnya tidak bisa melakukannya. ”
+Sebagai petualang terkuat Zoltan, Lit secara akurat memahami kemampuan individu kuat yang tinggal di Zoltan jadi itu mungkin benar kalau lit yang mengatakannya.
 
- 
-
-Sebagai petualang terkuat Zoltan, Lit secara akurat memahami kemampuan individu kuat yang tinggal di Zoltan jadi itu mungkin kebenaran yang datang dari Lit.
-
- 
-
-“Seseorang dari luar ya?”
-
- 
+g"Seseorang dari luar ya?"
 
 Tidak hanya Danan yang muncul, tetapi individu lain yang memegang Perlindungan Ilahi bidang sihir dengan tingkat Perlindungan Ilahi yang sebanding dengan kelompok Pahlawan juga datang ke Zoltan?
 
 Apakah itu kebetulan?
 
- 
+g"Oh benar, Danan juga di sini, dia akan segera menyusul."
 
-"Oh benar, Danan juga di sini, dia akan segera menyusul."
-
-“Danan !?”
-
- 
+l"Danan !?"
 
 Lit meninggikan suaranya karena terkejut dan mata Tise juga terbuka lebar.
 
- 
+l"Red, kamu bertemu Danan?"
 
-“Red, kamu bertemu Danan?”
+g"Ya, di pelabuhan. Rupanya dia datang untuk mencariku."
 
-“Ya, di pelabuhan. Rupanya, dia datang untuk mencariku. "
+Setelah Lit mendengar itu, dia menjadi ragu.
 
- 
-
-Setelah Lit mendengar itu, dia ragu-ragu sebelumnya.
-
- 
-
-“Begitu… maaf, tapi sebenarnya aku pernah bertemu dengannya juga.”
-
- 
+l"Begitu... maaf, tapi sebenarnya aku pernah bertemu dengannya juga."
 
 Dia berkata dengan mata sedikit tertunduk.
 
- 
+g"Lit bertemu Danan?"
 
-“Lit bertemu Danan?”
-
-"Ya. Dia datang untuk menyeret Red kembali. Tapi dia menemukan bahwa Red menjalani kehidupan yang damai dan memutuskan untuk memperlakukannya seolah-olah dia tidak melihat apa-apa jadi saya tidak memberi tahu Red. ”
-
- 
+l"Ya. Dia datang untuk membawa Red kembali. Tapi dia menemukan bahwa Red menjalani kehidupan yang damai dan memutuskan untuk memperlakukannya seolah-olah dia tidak melihat apa-apa jadi aku tidak memberi tahu Red."
 
 Danan melakukannya? Orang itu bukan tipe orang yang mengatakan hal seperti itu.
 
-Orang itu adalah otot otak yang tidak akan bisa memahami konsep kebahagiaan yang datang dari hidup damai. Dia mungkin akan mengatakan tanpa ragu-ragu bahwa jika kita menikmati hidup bersama, kita bisa saja menaklukkan Raja Iblis sambil bersama.
+Orang itu adalah otak otot yang tidak akan bisa memahami konsep kebahagiaan yang datang dari hidup damai. Dia mungkin akan mengatakan tanpa ragu-ragu bahwa jika kita menikmati hidup bersama, kita bisa saja menaklukkan Raja Iblis sambil bersama.
 
 Dia akan dengan mudah menghilangkan unsur kedamaian yang penting bagi kebahagiaan kita. Dia orang yang seperti itu.
 
-Selanjutnya…
+kemudian...
 
- 
+g"Kapan itu terjadi?"
 
-"Kapan itu terjadi?"
-
-“Erm, saya pertama kali bertemu dengannya ketika saya sedang mencari basis produksi Perlindungan Ilahi Iblis…”
-
- 
+"Erm, aku pertama kali bertemu dengannya ketika aku sedang mencari markas produksi Perlindungan Ilahi Iblis..."
 
 Itu aneh.
 
@@ -132,65 +82,47 @@ Danan menyebutkan bahwa dia tiba di Zoltan hari ini. Tidak ada alasan bagi Danan
 
 Namun, Lit juga tidak punya alasan untuk berbohong.
 
- 
+g"Lit, apakah Danan itu terlihat aneh?"
 
-“Lit, apakah Danan itu punya ciri-ciri aneh?”
+l"aneh? Tidak, aku tidak ingat apa-apa secara khusus ... yah, aku tidak banyak bicara dengan Danan jadi aku tidak akan bisa mengatakannya dengan baik. "
 
-“Fitur aneh? Tidak, saya tidak ingat apa-apa secara khusus ... yah, saya tidak banyak bicara dengan Danan jadi saya tidak akan bisa mengatakannya dengan baik. "
-
- 
-
-Ketika Lit masuk sebagai anggota selama kami menerobos Hutan Penipuan, Theodora dan Danan tetap tinggal di Logavia untuk bertahan. Sebagai gantinya, kami memanggil bala bantuan yaitu Yarandorara dan Lit.
+Ketika Lit masuk sebagai anggota selama kami menerobos Hutan Penipu, Theodora dan Danan tetap tinggal di Logavia untuk bertahan. Sebagai gantinya, kami memanggil bala bantuan yaitu Yarandorara dan Lit.
 
 Itulah sebabnya Lit tidak banyak bicara dengan Danan.
 
-… Meskipun tidak, tidak terpikirkan bahwa dia tidak akan melihat perbedaan besar di Danan.
+... Meskipun tidak, tidak terpikirkan bahwa dia tidak akan melihat perbedaan besar di Danan.
 
- 
+g"Apakah Danan memiliki kedua lengannya?"
 
-"Apakah Danan memiliki kedua lengannya?"
+l"Eh? aku tidak mengerti pertanyaanmu..."
 
-“Eh? Saya tidak mengerti pertanyaan Anda… ”
+g"Persis seperti yang aku katakan. Lengan kanan dan kiri, apakah dia memiliki keduanya?"
 
-“Persis seperti yang saya katakan. Lengan kanan dan kiri, apakah dia memiliki keduanya? ”
+l"Ya-ya."
 
-Ya-ya.
-
- 
-
-"Apa yang salah?"
-
- 
+g"Apa yang salah?"
 
 Tise juga memiringkan kepalanya ke samping karena pertanyaan yang tidak bisa dimengerti.
 
- 
-
-“Danan yang saya temui telah kehilangan lengan kanannya dari siku ke bawah.”
+g"Danan yang aku temui telah kehilangan lengan kanannya dari siku ke bawah."
 
 “Danan-san hanya punya satu tangan !? Apa yang sebenarnya terjadi !? ”
 
-“T-tapi aku yakin Danan memiliki tangan kanannya saat aku bertemu dengannya…”
+l"T-tapi aku yakin Danan memiliki tangan kanannya saat aku bertemu dengannya..."
 
-"... Lit, saya mengerti jika Anda akan terkejut dan saya masih tidak tahu detail pastinya juga,"
+g"... Lit, aku mengerti jika Anda akan terkejut dan aku masih tidak tahu detail pastinya juga,... tapi...."
 
-“Aku sudah terkejut!”
+l"Aku sudah terkejut!"
 
-“Ada sesuatu yang lebih serius. Danan… rupanya Shisandan yang memakan lengan kanan Danan. ”
-
- 
+g"Ada sesuatu yang lebih serius. Danan... rupanya Shisandan yang memakan lengan kanan Danan."
 
 Tubuh Lit menegang.
 
-Drake yang sedang berlari merasakan keragu-raguan pada penunggangnya dan hendak berhenti dalam kebingungan tetapi saya menarik kendali dan mendesaknya untuk terus berlari. Drake yang sedang berlari itu memutar pupil hitamnya untuk menatapku dengan gelisah tetapi dia terus berlari dengan patuh.
+Drake yang sedang berlari merasakan keragu-raguan pada penunggangnya dan hendak berhenti tetapi aku menarik dan mendesaknya untuk terus berlari. Drake yang sedang berlari itu memutar pupil hitamnya untuk menatapku dengan gelisah tetapi dia terus berlari dengan patuh.
 
- 
+l"Tidak mungkin. aku yakin bahwa kita membunuh Shisandan saat itu!"
 
-"Tidak mungkin. Saya yakin bahwa kami membunuh Shisandan saat itu! ”
-
-"Pasti. Aku yakin Lit membawa kembali kepala Shisandan dan menguburnya di Logavia. ”
-
- 
+g"iya. Aku yakin Lit membawa kembali kepala Shisandan dan menguburnya di Logavia."
 
 Bagi Lit, dia adalah lawan yang dibenci yang membunuh gurunya. Dia mungkin tidak bisa menerima bahwa lawan yang dia pikir dia telah balas dendam sebenarnya masih hidup.
 
