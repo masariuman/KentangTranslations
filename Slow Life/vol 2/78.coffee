@@ -56,13 +56,9 @@ Itu benar, jadi tidak perlu memikirkannya sama sekali.
 
 Danan orangnya sederhana. Mirip dengan pengalamannya sendiri, Ares juga ditipu oleh Shisandan. Itulah mengapa, begitu dia mengetahui identitas Shisandan yang sebenarnya, dia secara alami akan memusuhi Shisandan.
 
-Hanya itu yang dia pikirkan. Terlepas dari seberapa besar dia membenci Ares, dia percaya pada kebaikan dalam Ares sebagai anggota kelompok Pahlawan.
+Hanya itu yang dia pikirkan. Terlepas dari seberapa besar dia membenci Ares, dia percaya pada kebaikan Ares sebagai anggota kelompok Pahlawan.
 
- 
-
-“Apa !? Ares! Kamu keparat!?"
-
- 
+"Apa !? Ares! keparat kau!?"
 
 Itu adalah tombak awan hitam yang merupakan kondensasi dari badai besar yang dapat menutupi seluruh negeri. Mantra tingkat lanjut yang hanya bisa digunakan oleh Perlindungan Ilahi pengguna mantra yang unggul.
 
