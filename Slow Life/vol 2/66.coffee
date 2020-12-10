@@ -166,17 +166,13 @@ g"Bagaimanapun Danan. aku ingin memberi tahumu semua yang aku tahu. Apa yang Rut
 
 "Penderitaan Pahlawan-sama?"
 
- 
+Mengapa rekan pahlawan menjadi berpencar hanya karena aku pergi? aku gagal untuk mengerti ketika aku pertama kali mendengarnya.
 
-Mengapa sahabat pahlawan menjadi terputus-putus hanya karena saya pergi? Saya gagal untuk mengerti ketika saya pertama kali mendengarnya.
+Yang aku lakukan hanyalah pekerjaan yang tidak membutuhkan keterampilan apa pun. Terus terang, itu adalah tugas yang dapat dilakukan siapa pun hanya dengan sedikit kerja keras.
 
-Yang saya lakukan hanyalah pekerjaan yang tidak membutuhkan keterampilan apa pun. Terus terang, itu adalah tugas yang dapat dilakukan siapa pun hanya dengan sedikit kerja keras.
+aku membayangkan bahwa mereka mungkin akan berjuang setelah aku pergi tetapi itu adalah tugas yang dapat diselesaikan hanya dengan berbagi beban di antara mereka.
 
-Saya membayangkan bahwa mereka mungkin akan berjuang setelah saya pergi tetapi itu adalah tugas yang dapat diselesaikan hanya dengan berbagi beban di antara teman.
-
-Namun dalam kenyataannya, Ares mencoba melakukan semuanya sendiri dan gagal total. Anggota partai menjadi tidak puas dan partai itu berantakan.
-
- 
+Namun dalam kenyataannya, Ares mencoba melakukan semuanya sendiri dan gagal total. Anggota tim menjadi tidak puas dan tim itu berantakan.
 
 Apakah Ares penyebabnya?
 
