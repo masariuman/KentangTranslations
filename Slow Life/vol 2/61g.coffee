@@ -349,3 +349,10 @@ Karena orang di depanku selalu ada di sisiku ketika aku menderita.
 Setelah itu, aku digendong di bahu Onii-chan dan kami dengan aman menuruni gunung.
 
 Aku baru tahu lama setelah itu bahwa alasan Onii-chan menguasai semua skill umumnya adalah karena dia memprioritaskan meningkatkan Swift Skill-nya sehingga dia bisa meningkatkan kecepatan dan dia bisa bergegas ke arahku kapan pun dia mau.
+
+
+
+
+-----------------------------
+
+masariuman : BEST BIG BROROOOROROOROOOOOOO
