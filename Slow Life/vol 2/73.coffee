@@ -178,15 +178,11 @@ g"Tapi Perlindungan Ilahi tanpa nama ya... selain menjadi Perlindungan Ilahi yan
 
 Semua Perlindungan Ilahi memiliki perannya masing-masing.
 
-Keterampilan dan dorongan masing-masing dari Perlindungan Ilahi yang kuat dan lemah, serta nama mereka, semuanya dirancang sedemikian rupa sehingga bahkan kita yang menerima Perlindungan Ilahi pun sadar bahwa itu dimaksudkan untuk memungkinkan seseorang untuk menyadari peran Anda sendiri dan untuk memberikan kemampuan untuk mencapainya.
+Keterampilan dan dorongan masing-masing dari Perlindungan Ilahi yang kuat dan lemah, serta nama mereka, semuanya dirancang sedemikian rupa sehingga bahkan kita yang menerima Perlindungan Ilahi pun sadar bahwa itu dimaksudkan untuk memungkinkan seseorang untuk menyadari peranmu sendiri dan untuk memberikan kemampuan untuk mencapainya.
 
 Namun, bagaimana dengan Perlindungan Ilahi tanpa nama?
 
- 
-
-“Saya tidak tahu sama sekali, saya ingin mendengar pendapat Godwin sebagai Alchemist profesional.”
-
- 
+"aku tidak tahu sama sekali, aku ingin mendengar pendapat Godwin sebagai Alchemist profesional."
 
 Kami berdiskusi saat kami berjalan dan tiba di kamar Godwin.
 
@@ -194,18 +190,10 @@ Saat Ruti membongkar pintu ruangan yang dipenuhi peralatan alkemis, kami bisa me
 
 Bahu Godwin gemetar saat kami memasuki ruangan.
 
- 
-
 “Oh, jangan menakuti aku.”
-
- 
 
 Godwin menghela nafas lega ketika dia tahu bahwa kamilah yang memasuki ruangan.
 
- 
-
-"Godwin, maaf untuk langsung mengejar, tapi saya ingin mendengar secara detail tentang Perlindungan Ilahi Iblis."
-
- 
+"Godwin, maaf untuk langsung ke inti utamanya, tapi aku ingin mendengar secara detail tentang Perlindungan Ilahi Iblis."
 
 Meskipun kami tidak tahu seberapa jauh kami bisa sampai ke inti permasalahan, kami menangani obat yang diperkenalkan oleh iblis itu secara langsung.
