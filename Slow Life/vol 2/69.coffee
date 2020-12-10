@@ -182,48 +182,30 @@ aku memilih untuk hidup dengan Lit daripada bepergian untuk menyelamatkan dunia.
 
 Lit merasa jika aku memutuskan untuk melakukan itu, dia juga harus mengesampingkan dendamnya pada Shisandan dan perjuangannya untuk hidup bersamaku. Itu adalah pikiran Lit dan dia menderita karena dia tidak bisa membuat pilihan itu.
 
-“Jika Lit punya alasan untuk bertarung, aku akan bertarung bersamamu. Gaya hidup kita bukanlah kutukan yang mengikat. Tidak, kami tidak akan membiarkannya mengikat kami. Tidak ada alasan untuk menghindari pertengkaran dan meninggalkan penyesalan pahit. "
+g"Jika Lit punya alasan untuk bertarung, aku akan bertarung bersamamu. Gaya hidup kita bukanlah kutukan yang mengikat. Tidak, kita tidak akan membiarkannya mengikat kita. Tidak ada alasan untuk menghindari pertarungan dan meninggalkan penyesalan pahit. "
 
-"... Maaf."
+l"... Maaf."
 
- 
+Air matanya menetes sebentar di mata Lit sebelum dia mengeraskan ekspresi wajahnya.
 
-Air mata menetes sebentar di mata Lit sebelum dia mengeraskan ekspresi wajahnya.
-
- 
-
-“Jika kita bertemu Shisandan, aku akan kembali menjadi Hero Lit sebentar.”
-
- 
+l"Jika kita bertemu Shisandan, aku akan kembali menjadi Hero Lit sebentar."
 
 Dia mengalihkan pandangannya yang teguh ke arah Spirit Drake di langit.
 
- 
+l"Terima kasih, aku baik-baik saja sekarang jadi Red, kamu pergilah duluan."
 
-“Terima kasih, aku baik-baik saja sekarang jadi Red, kamu harus pergi dulu.”
+g"oke."
 
-"Baik."
+Sekali lagi, aku menyalurkan kekuatan ke kakiku.
 
- 
+Mulai saat ini dan seterusnya, jalan menuju gunung secara bertahap akan menjadi lebih buruk jadi aku mungkin harus mengurangi kecepatanku. Aku tidak akan bisa mengejar Spirit Drake itu.
 
-Sekali lagi, saya menyalurkan kekuatan ke kaki saya.
+Tetapi aku harus bisa tiba dalam selisih sepuluh menit.
 
-Mulai saat ini dan seterusnya, jalan menuju gunung secara bertahap akan menjadi lebih buruk jadi saya mungkin harus mengurangi kecepatan saya. Aku tidak akan bisa mengejar Spirit Drake itu.
+g"Hati-hati juga, Lit dan Tise."
 
-Tetapi saya harus bisa tiba dalam selisih sepuluh menit.
-
- 
-
-Hati-hati juga, Lit dan Tise.
-
- 
-
-Drake yang berlari terkejut ketika saya meningkatkan kecepatan saya lebih jauh dan mencoba untuk tidak kalah tetapi saya dengan cepat melaju ke depan.
-
- 
+Drake yang berlari terkejut ketika aku meningkatkan kecepatanku lebih jauh dan mencoba untuk tidak kalah tetapi aku dengan cepat melaju ke depan.
 
 "Gya!"
 
- 
-
-Sambil mendengar jeritan frustasi dari deru yang berlari di belakangku, aku berlari ke depan untuk mencapai sisi Ruti.
+Sambil mendengar jeritan frustasi dari drake yang berlari di belakangku, aku berlari ke depan untuk mencapai sisi Ruti.
