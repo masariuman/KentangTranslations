@@ -108,87 +108,61 @@ Danan membanting meja.
 
 Supnya melonjak ke atas dan sedikit tumpah ke atas meja.
 
- 
-
-“Aku menyadarinya sepenuhnya setelah kamu pergi. Gideon, kamu kuat. Bukan dalam hal kekuatan fisik murni tetapi keberanian Anda untuk membuat keputusan yang tenang bahkan saat berperang melawan musuh yang lebih kuat dari diri Anda sendiri dan pengetahuan Anda tentang tindakan paling efektif untuk diambil dalam pertempuran bahkan tanpa memiliki teknik dan mantra pertempuran; Anda benar-benar pria yang kuat. Kami membutuhkan Anda untuk perjalanan ini. "
-
- 
+"Aku menyadarinya setelah kamu pergi. Gideon, kamu kuat. Bukan dalam hal kekuatan fisik murni tetapi keberanianmu untuk membuat keputusan yang tenang bahkan saat berperang melawan musuh yang lebih kuat dari dirimu sendiri dan pengetahuanmu tentang tindakan paling efektif untuk diambil dalam pertempuran bahkan tanpa memiliki teknik dan sihir pertempuran; aku benar-benar pria yang kuat. Kami membutuhkanmu untuk perjalanan ini. "
 
 Mata Danan serius.
 
-Namun… Saya telah membuat keputusan dan saya tidak bisa tinggal di sana untuk waktu yang tidak terbatas untuk sesi tanya jawab.
+Namun… aku telah membuat keputusan dan aku tidak bisa diam untuk sesi tanya jawab.
 
- 
-
-“Maaf, tapi saya sudah menemukan tempat di mana saya seharusnya berada di sini. Aku tidak akan lagi melakukan perjalanan dengan kalian. ”
+g"Maaf, tapi aku sudah menemukan tempat di mana aku seharusnya berada di sini. Aku tidak akan lagi melakukan perjalanan dengan kalian."
 
 “Tapi Raja Iblis harus dikalahkan jika kau ingin melindungi rumahmu ini!”
 
-"Itu benar."
+g"Itu benar."
 
- 
+Danan berbicara ke intinya.
 
-Danan terjun langsung ke masalah tersebut.
-
-Saya mengingat kembali kata-kata Albert di kepala saya.
-
- 
+aku mengingat kembali kata-kata Albert di kepalaku.
 
 『Mereka yang memiliki kekuasaan memiliki kewajiban untuk menggunakan kekuatan itu. 』
 
- 
+Apakah besalah untuk tidak berperang? Apakah tugas kita untuk berperang karena Perlindungan Ilahi kita dilahirkan menginginkan itu?
 
-Apakah berdosa tidak berperang? Apakah tugas kita untuk berperang karena Perlindungan Ilahi kita dilahirkan dengan keinginan untuk itu?
+aku telah merenungkan pertanyaan itu selama ini ketika aku memandang Ruti.
 
-Saya telah merenungkan pertanyaan itu selama ini ketika saya memandang Ruti.
-
-Ruti muda diamanatkan untuk menyelamatkan dunia sejak lahir. Orang-orang, dunia, dan bahkan Perlindungan Ilahi tidak akan mengizinkannya untuk mengatakan bahwa dia tidak ingin berperang.
+Ruti diamanatkan untuk menyelamatkan dunia sejak lahir. Orang-orang, dunia, dan bahkan Perlindungan Ilahi tidak akan mengizinkannya untuk mengatakan bahwa dia tidak ingin berperang.
 
 Kami terus menatap satu sama lain tetapi Danan yang pertama mengalihkan pandangannya.
 
- 
-
 “... Fuuu, yah, begitu, kamu keluar dari perjalanan atas kemauanmu sendiri.”
 
-"Pemicunya mungkin Ares tapi aku memutuskan untuk menghentikan perjalanan itu sendiri."
-
- 
+g"Pemicunya mungkin Ares tapi aku memutuskan untuk menghentikan perjalanan itu sendiri."
 
 Kami terdiam beberapa saat.
 
 Kedua tatapan kami saling bersilangan, dipenuhi dengan emosi yang kompleks.
 
- 
+"aku tidak mengerti tapi, baiklah. Biar aku lihat apa yang kamu lakukan di Zoltan sebentar. aku akan memikirkan apa yang harus dilakukan setelah itu. "
 
-“Saya tidak mengerti tapi bagaimanapun, saya mengerti. Biar saya lihat apa yang Anda lakukan di Zoltan sebentar. Saya akan memikirkan apa yang harus dilakukan setelah itu. "
-
-“Saya tidak keberatan tapi… ada satu masalah.”
+g"Saya tidak keberatan tapi... ada satu masalah."
 
 "Apa itu?"
 
-"Ruti juga ada di sini."
+g"Ruti juga ada di sini."
 
 "Ha?"
 
- 
-
 Danan membeku karena shock.
 
- 
+"Mengapa pahlawan-sama?"
 
-"Mengapa Hero-sama?"
+g"... Kamu mungkin akan kesal dengan Ruti jika kamu mendengar apa yang aku katakan."
 
-“… Kamu mungkin akan kesal dengan Ruti jika kamu mendengar apa yang aku katakan.”
+"Aku ? Pahlawan-sama? Itu tidak mungkin."
 
-"Aku akan? Menuju Hero-sama? Itu tidak mungkin."
+Haruskah aku mengatakan yang sebenarnya pada Danan? Untuk menghindari masalah, aku pasti bisa menipu Danan dan menjauhkannya dari masalah Ruti.
 
- 
-
-Haruskah saya mengatakan yang sebenarnya pada Danan? Untuk menghindari masalah, saya pasti bisa menipu Danan dan menjauhkannya dari masalah Ruti.
-
- 
-
-“Bagaimanapun Danan. Saya ingin memberi tahu Anda semua yang saya tahu. Apa yang Ruti pikirkan, apa yang dia derita. Karena Anda adalah pendamping Ruti. "
+g"Bagaimanapun Danan. aku ingin memberi tahumu semua yang aku tahu. Apa yang Ruti pikirkan, apa yang dia derita. Karena Anda adalah teman Ruti. "
 
 "Penderitaan Pahlawan-sama?"
 
