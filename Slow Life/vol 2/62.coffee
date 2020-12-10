@@ -84,65 +84,43 @@ Ruti-sama adalah manusia terkuat.
 
 Aku, Ares-sama, Danan-sama, Theodora-sama, dan bahkan Gideon-san mungkin semuanya cukup kuat untuk berdiri di puncak umat manusia.
 
-Namun, kami bukanlah yang terkuat. Bahkan jika kita semua bekerja sama melawan Hero-sama, kita tidak akan menang. Ruti-sama sepertinya tidak akan pernah mengalami diselamatkan oleh siapapun lagi.
+Namun, kami bukanlah yang terkuat. Bahkan jika kami semua bekerja sama melawan pahlawan-sama, kami tidak akan menang. Ruti-sama sepertinya tidak akan pernah mengalami diselamatkan oleh siapapun lagi.
 
 Emosinya tidak bisa muncul sebanyak dulu. Karena Perlindungan Ilahi Ruti-sama menyangkal semua emosi yang berbahaya.
 
 Itulah mengapa Ruti-sama tidak punya pilihan selain merindukan masa lalunya.
 
- 
-
 (... Jadi Ruti-sama hanya memiliki Gideon-san ya?)
-
- 
 
 Lit-san mengatakan sesuatu sambil terlihat terkejut.
 
- 
+Ini ... Perlindungan Ilahi Pahlawan ya? Harapan Umat Manusia, Pahlawan yang dipilih oleh Tuhan, Kekuatan Terkuat di Dunia.
 
-Ini adalah ... Perlindungan Ilahi Pahlawan ya? Harapan Umat Manusia, Pahlawan yang dipilih oleh Tuhan, Kekuatan Terkuat di Dunia.
+r"Sebenarnya aku benci Lit-san saat aku bekerja sama denganmu di Logavia."
 
- 
-
-“Sebenarnya aku benci Lit-san saat bekerja sama denganmu di Logavia.”
-
-“Kamu merasa seperti aku mengandalkanmu sepenuhnya sebagai Pahlawan, kan?”
-
- 
+l"Kamu merasa aku mengandalkanmu sepenuhnya sebagai Pahlawan, kan?"
 
 Lit-san tersenyum kecut.
 
- 
-
-"Salah. Saya cemburu. Memiliki kebebasan untuk tertawa, marah, menangis… jatuh cinta. Aku cemburu, sangat cemburu pada Lit-san yang secara bertahap menyusutkan jarak dengan Onii-chan… ”
-
- 
+r"tidak. aku cemburu. Memiliki kebebasan untuk tertawa, marah, menangis... jatuh cinta. Aku cemburu, sangat cemburu pada Lit-san yang secara bertahap menyusutkan jarak dengan Onii-chan..."
 
 Ada suara lembut tetesan yang jatuh ke air.
 
 Itu adalah suara tetesan kecil yang jatuh dari kedua mata Ruti-sama ke dalam bak mandi.
 
- 
+r"Aku sangat cemburu… jadi aku membencimu. Jadi saat Onii-chan dan Ares menyarankan agar kamu masuk ke tim, aku tidak mengundangmu."
 
-“Aku sangat cemburu… jadi aku membencimu. Jadi saat Onii-chan dan Ares menyarankan agar kamu ditambahkan ke pesta, aku tidak mengundangmu. ”
+l"... Ruti."
 
-"... Ruti."
-
-“Lit-san, Tise… inilah aku.”
-
- 
+r"Lit-san, Tise… inilah aku."
 
 Ruti-sama tersenyum cukup jelas bahkan hingga aku dan Lit-san menyadarinya.
 
- 
+r"Ini adalah Pahlawan Ruti... Lit-san, aku tidak ingin menjadi Pahlawan, aku ingin menjadi dirimu."
 
-“Ini adalah Pahlawan Ruti… Lit-san, aku tidak ingin menjadi Pahlawan, aku ingin menjadi dirimu.”
+aku salah. Ini tidak mungkin bagiku.
 
- 
-
-Saya salah. Ini tidak mungkin bagi saya.
-
-Saya khawatir tentang hal-hal yang tidak perlu dan tidak dapat memahami masalah yang sebenarnya.
+aku khawatir tentang hal-hal yang tidak perlu dan tidak dapat memahami masalah yang sebenarnya.
 
 Aku seharusnya tidak berada di tempat ini, seharusnya Gideon-san.
 
