@@ -80,41 +80,29 @@ Begitu dia menyalip levelku yang merupakan satu-satunya kelebihanku, tidak ada l
 
 Danan berkata sedikit sedih setelah mendengar kata-kataku.
 
-Danan dan aku bersuara serak saat kami minum sup.
+Danan dan aku bersuara serak sambil minum sup.
 
-Itu dibumbui secara sederhana dengan hanya mengandalkan rasa ikan serta garam dan selain fillet ikan, potongan besar kentang dan kubis melayang di dalam sup.
+sup Itu dibumbui dengan sederhana dengan hanya mengandalkan rasa ikan serta garam dan selain fillet ikan, potongan besar kentang dan kubis melayang di dalam sup.
 
-Itu bukanlah hidangan yang rumit tapi tetap enak. Jika kemampuan memasak Anda rendah, manfaatkan saja rasa bahannya. Itu adalah hidangan enak yang mengikuti prinsip itu.
+Itu bukanlah hidangan yang rumit tapi tetap enak. Jika kemampuan memasakmu rendah, manfaatkan saja rasa bahannya. Itu adalah hidangan enak yang mengikuti prinsip itu.
 
-Wanita tua yang mengelola toko itu dulunya adalah penyanyi yang bernyanyi untuk para pelaut. Setelah pensiun, dia beralih ke pekerjaan yang sama sekali berbeda untuk menjadi pemilik sebuah penginapan dan terus menjalankan toko ini selama bertahun-tahun dengan mengandalkan kecerdikan dan senyuman khasnya meskipun tidak memiliki keterampilan yang sesuai dengan pekerjaannya.
-
- 
+Wanita tua yang mengelola toko itu dulunya adalah penyanyi yang bernyanyi untuk para pelaut. Setelah pensiun, dia beralih ke pekerjaan yang sama sekali berbeda dan menjadi pemilik sebuah penginapan dan terus menjalankan toko ini selama bertahun-tahun dengan mengandalkan kecerdikan dan senyuman khasnya meskipun tidak memiliki keterampilan yang sesuai dengan pekerjaannya.
 
 “Jadi kenapa kamu pergi?”
 
- 
-
 Danan hanya menggumamkan beberapa patah kata.
 
- 
+g"... Apa kau tidak mendengarnya dari Ares? Aku kabur."
 
-“… Apa kau tidak mendengar kabar dari Ares? Aku kabur. ”
-
- 
-
-Saya meminta Ares untuk mengoordinasikan alasan dengan saya sehingga saya tidak akan merepotkan ordo ksatria tetapi dari apa yang saya dengar dari Tise, Ares dengan cepat mengungkapkan bahwa saya melarikan diri setelah mereka menyelidikinya lebih lanjut.
+aku meminta Ares untuk mengoordinasikan alasanku sehingga aku tidak akan merepotkan ksatria ordo tetapi dari apa yang aku dengar dari Tise, Ares dengan cepat mengungkapkan bahwa aku melarikan diri.
 
 Danan kemungkinan besar juga mendengarnya.
 
- 
-
 “Karena Ares mengatakan hal-hal itu padamu?”
 
-“Ada itu juga tapi… yang lebih penting, aku mengenalinya sendiri. Saya dibuat sangat menyadarinya selama pertempuran dengan Desmond of the Sand. Bahwa saya tidak bisa lagi mengikuti pertempuran. "
+g"Ada itu juga tapi... yang lebih penting, aku tahu sendiri. aku dibuat sangat menyadarinya selama pertempuran dengan Desmond. aku tidak bisa lagi mengikuti pertempuran."
 
-"Anda salah!"
-
- 
+"kamu salah!"
 
 Danan membanting meja.
 
