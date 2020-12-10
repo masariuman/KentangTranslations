@@ -154,74 +154,48 @@ Bahkan pilihannya untuk mengambil risiko bahaya dan melakukan kontak dengan Ares
 
 Shisandan memiliki dua kekhawatiran.
 
-Yang pertama adalah kemungkinan Pahlawan memperkuat kemampuan bertarungnya melalui Perlindungan Ilahi Iblis. Secara khusus, situasi di mana manusia menyadari bahwa hati iblis tidak diperlukan untuk itu. Namun, karena sifatnya yang menolak Perlindungan Ilahi, Gereja Suci akan menentangnya; dan selama Perlindungan Ilahi mereka masih ada meski dilemahkan, mungkin tidak akan seperti era Peri Kuno.
+Yang pertama adalah kemungkinan Pahlawan memperkuat kemampuan bertarungnya melalui Perlindungan Ilahi Iblis. Secara khusus, situasi di mana manusia menyadari bahwa hati iblis tidak diperlukan untuk itu. Namun, karena sifatnya yang menolak Perlindungan Ilahi, Gereja Suci akan menentangnya; dan selama Perlindungan Ilahi mereka masih ada meski dilemahkan, mungkin tidak akan seperti era ancient-elf.
 
-Perhatian lainnya adalah jika Pahlawan memperoleh 『objek tertentu』 yang dicari Shisandan. Ini akan menjadi kesalahan besar yang akan pucat jika dibandingkan dengan kapal terbang yang direnggut darinya.
-
- 
+alasan lainnya adalah jika Pahlawan memperoleh 『objek tertentu』 yang dicari Shisandan. Ini akan menjadi kesalahan besar jika dibandingkan dengan kapal terbang yang direnggut darinya.
 
 Shisandan mungkin merupakan tokoh jenderal utama tetapi dia dinilai sangat baik dalam bersembunyi dan bekerja di wilayah musuh.
 
 Itulah alasan mengapa dia dipercayakan pada tugas penting kali ini.
 
- 
-
 " … Betul sekali!"
-
- 
 
 Ares meninggikan suaranya tanpa memperhatikan pikiran Shisandan.
 
- 
-
-“Ruti menyadari bahwa Gideon dan Red adalah orang yang sama dari kata-kata iblis itu. Itulah mengapa dia membawa kapal terbang ke tempat ini! ”
-
- 
+“Ruti menyadari bahwa Gideon dan Red adalah orang yang sama dari kata-kata iblis itu. Itulah mengapa dia membawa kapal terbang ke tempat ini!”
 
 (Hmph, terlepas dari apakah dugaan orang ini benar, Pahlawan meninggalkan rekannya untuk datang ke Zoltan ya? Sepertinya itu tidak ada hubungannya dengan misiku.)
 
- 
+"Danan! Di mana toko Gideon !? "
 
-“Danan! Di mana toko Gideon !? ”
+“Tentu aku tahu di mana itu, tetapi apa yang akan kamu lakukan?”
 
-“Tentu saja saya tahu di mana itu, tetapi apa yang akan Anda lakukan?”
+"Ruti sekarang bukan di Zoltan tapi di gunung yang jauh. aku akan mengambil kesempatan ini untuk bertemu Gideon dan memerintahkan dia untuk menghilang dari pandangan Ruti. "
 
-“Ruti sekarang bukan di Zoltan tapi di gunung yang jauh. Saya akan mengambil kesempatan ini untuk bertemu Gideon dan memerintahkan dia untuk menghilang dari pandangan Ruti. "
+"memerintah?"
 
-"Memesan?"
+“Orang itu sekarang adalah orang biasa yang telah meninggalkan tim. Bukankah dia harus mematuhi perintahku !? ”
 
-“Orang itu sekarang adalah orang biasa yang telah meninggalkan pesta. Bukankah dia harus mematuhi perintahku !? ”
+"haa~~~, kurasa dia tidak akan menurutinya dengan patuh."
 
-"Sigh, kurasa dia tidak akan menurutinya dengan patuh."
-
-“Aku akan membuatnya patuh meski aku harus menggunakan kekuatanku! Sekarang beritahu saya di mana toko orang itu! "
+"Aku akan membuatnya patuh meski aku harus menggunakan kekuatanku! Sekarang beritahu aku di mana toko orang itu! "
 
  
 
-(Orang ini sangat frustasi hanya karena Pahlawan meninggalkannya ya? Jika saya ingat dengan benar, saya mendengar ketika saya di Logavia bahwa tujuan orang ini adalah untuk membangun kembali rumahnya. Dia mungkin tidak bisa meninggalkan pesta Pahlawan ... mungkin saya bisa gunakan dia untuk sesuatu.)
+(Orang ini sangat frustasi hanya karena Pahlawan meninggalkannya ya? Jika aku ingat dengan benar, aku mendengar ketika aku di Logavia bahwa tujuan orang ini adalah untuk membangun kembali nama bangsawannya. Dia mungkin tidak bisa meninggalkan tim Pahlawan ... mungkin aku bisa gunakan dia untuk sesuatu.)
 
- 
-
-Mulut Shisandan menyeringai. Jika Red ada di sana, hanya dengan melihat ekspresi itu, dia mungkin akan menyadari bahwa itu bukanlah ekspresi yang dibuat Danan.
-
- 
+Mulut Shisandan tersenyum licik. Jika Red ada di sana, hanya dengan melihat ekspresi itu, dia mungkin akan menyadari bahwa itu bukanlah ekspresi yang dibuat Danan.
 
 “Baiklah. Aku akan membawamu ke sana. ”
 
- 
-
 Dan jika Ares memiliki ketenangan seperti biasa, dia akan memperhatikan bahwa Danan yang dekat dengan Gideon tidak akan dengan patuh membimbingnya ke toko mengikuti arus percakapan. Namun.
 
- 
+“Ku, kuku, sialan Gideon, seberapa jauh kamu harus menghalangiku...”
 
-“Ku, kuku, sialan Gideon, seberapa jauh kamu harus menghalangiku…”
-
- 
-
-Ares tersenyum seolah dia kejang dan pembuluh darah putih pucat muncul di tinjunya yang terkepal.
+Ares tersenyum pembuluh darah putih pucat muncul di tinjunya yang terkepal.
 
 Pikiran Ares hanya dipenuhi dengan kebencian terhadap Gideon yang menghalanginya.
-
- 
-
-TLN: Penulis benar-benar berusaha keras untuk membuat Ares dibenci.
