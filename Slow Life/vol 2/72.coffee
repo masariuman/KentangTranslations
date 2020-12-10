@@ -128,88 +128,62 @@ Namun, piringan itu tidak mampu menunjukkan arah vertikal.
 
 Lokasi Ruti saat ini berada di dalam reruntuhan kuno yang luas di bawah gunung.
 
- 
-
-"Mengapa! Mengapa saya tidak dapat menemukannya! "
-
- 
+"Mengapa! Mengapa aku tidak dapat menemukannya! "
 
 Ares terus berteriak terlepas dari darah yang mengalir dari lengannya dari cakarannya.
 
 Shisandan bingung dengan apa yang harus dilakukan saat melihat kondisinya.
 
- 
-
-Kesan Shisandan terhadap Danan yang penampilannya ditiru oleh Shisandan adalah sebagai manusia yang tidak secerdas itu. Meskipun dia tidak merebut ingatannya, dia telah berbicara dengannya beberapa kali selama dia menyusup ke Logavia sebagai Gayus.
+Kesan Shisandan terhadap Danan yang penampilannya ditiru oleh Shisandan adalah sebagai manusia yang tidak secerdas itu. Meskipun dia tidak merebut ingatannya, dia telah berbicara dengannya beberapa kali selama dia menyusup ke Logavia sebagai Gaius.
 
 Shisandan yakin kesannya itu tidak salah mengingat sikap Ares.
 
-Shisandan sudah mengantisipasi bahwa Pahlawan Ruti telah memasuki kehancuran Peri Kuno. Ares mungkin tidak dapat menemukannya karena dia berada di bawah tanah.
+Shisandan sudah mengantisipasi bahwa Pahlawan Ruti telah memasuki reruntuhan ancient-elf. Ares mungkin tidak dapat menemukannya karena dia berada di bawah tanah.
 
-Tapi dia bertanya-tanya apakah itu ide yang bagus untuk mengatakan bahwa dia telah menyamar sebagai Seniman Bela Diri idiot yaitu Danan.
+Tapi dia bingung apakah itu ide yang bagus untuk mengatakan bahwa dia telah menyamar sebagai Seniman Bela Diri idiot yaitu Danan.
 
 Pria yang dikenal sebagai Ares itu sangat terpojok. Dapat dikatakan bahwa dia berada dalam keadaan dimana proses berpikirnya terhenti.
 
- 
-
-Namun, ras Asura Demon memiliki nilai dan filosofi yang berbeda secara fundamental dibandingkan dengan manusia atau Elf atau bahkan iblis lainnya.
+Namun, ras iblis Asura memiliki nilai dan filosofi yang berbeda secara fundamental dibandingkan dengan manusia atau Elf atau bahkan iblis lainnya.
 
 Shisandan telah memakan banyak manusia hingga hari ini dan telah melihat semua ingatan mereka namun meski begitu, Shisandan masih belum bisa memahami proses berpikir manusia.
 
-Ketika dia menyusup ke manusia, dia hanya mereproduksi tindakan orang yang dia tiru dengan memilih tindakan mereka dari ingatan masa lalu sesuai dengan situasinya.
+Ketika dia menyusup menjadi manusia, dia hanya mereproduksi tindakan orang yang dia tiru dengan memilih tindakan mereka dari ingatan masa lalu sesuai dengan situasinya.
 
 Kali ini, Shisandan tidak mendapatkan ingatan Danan. Karena itu, dia tidak akan berbicara kecuali diperlukan dan hanya mengikuti di belakang Ares.
 
- 
-
 (Tetapi jika ini terus berlanjut, kami tidak akan bergerak maju.)
-
- 
 
 Di antara banyak kenangan yang telah dikonsumsi Shisandan, ada juga kenangan tentang pria yang terpojok seperti Ares. Shisandan memutuskan bahwa dia harus bertindak dengan ingatan itu sebagai referensi.
 
- 
+“Hei, aku baru ingat tapi bukankah ada reruntuhan ancient-elf di gunung ini?”
 
-“Hei, aku baru ingat tapi bukankah ada reruntuhan Peri-Kuno di gunung ini?”
-
-“Dan bagaimana dengan itu! Berhentilah menumbuhkan omong kosong yang tidak berguna dan bantu mencari Ruti! "
+"Terus Kenapa! Berhentilah berbicara omong kosong yang tidak berguna dan bantu mencari Ruti! "
 
 "Tidak, yah, kudengar reruntuhan itu meluas ke bawah tanah juga."
 
 "... Kenapa kamu tidak mengatakan itu sebelumnya!"
 
-“Sepertinya aku sudah benar-benar melupakannya.”
+“Sepertinya aku benar-benar melupakannya.”
 
-“Cih, itulah kenapa aku benci orang bodoh yang tidak kompeten. Dimana reruntuhan itu! "
+"Cih, itulah kenapa aku benci orang bodoh yang tidak kompeten. Dimana reruntuhan itu! "
 
- 
-
-(Apakah itu berjalan dengan baik? Aku memutarnya untuk memberi kesan bahwa itu bukanlah sesuatu yang gagal dipertimbangkan Ares tetapi sesuatu yang seharusnya ditemukan Ares tetapi dia melupakannya.)
-
- 
+(Apakah itu berjalan dengan baik? Aku mengatakannya dengan memberi kesan bahwa itu bukanlah sesuatu yang gagal dipertimbangkan Ares tetapi sesuatu yang seharusnya ditemukan Ares tetapi dia melupakannya.)
 
 Sepertinya Ares tidak memiliki rasa was-was.
 
 Shisandan tertawa sendiri.
 
- 
+(Selain itu, aku bisa menggunakan orang ini. Bukan dengan menipunya tetapi sebaliknya, aku mungkin bisa mengubahnya menjadi sekutuku.)
 
-(Selain itu, saya bisa menggunakan orang ini. Bukan dengan menipunya tetapi sebaliknya, saya mungkin bisa mengubahnya menjadi sekutu saya.)
-
- 
-
-Namun, jelas, tidak mungkin membujuknya jika identitasnya terungkap sekarang. Tapi setelah pria ini ditolak oleh sang pahlawan dan mimpinya hancur?
+Namun, jelas, tidak mungkin membujuknya jika identitasku terungkap sekarang. Tapi setelah pria ini ditolak oleh sang pahlawan dan mimpinya hancur?
 
 Jika dia menemukan bahwa bahkan setelah semua hilang, keinginannya masih bisa menjadi kenyataan dengan mengotori tangannya, apakah pria ini bersedia memenuhinya dengan cara apa pun yang diperlukan?
 
- 
-
-(Ini masalah waktu. Bagaimanapun, saya mungkin tidak bisa menang jika saya memilih untuk memusuhi dia sekarang.)
-
- 
+(Ini masalah waktu. Bagaimanapun juga, aku mungkin tidak bisa menang jika aku memilih untuk memusuhinya sekarang.)
 
 Kekuatan magis Ares benar-benar nyata. Dia bahkan mungkin bisa mengoperasikan 'artefak' yang tertidur di dalam reruntuhan Ancient-Elf jika dia berhasil mendapatkannya.
 
-Shisandan memikirkan skema yang harus dia buat saat dia berjalan ke depan. Bagi Shisandan, waktu yang dihabiskan untuk memikirkan cara menjerat lawan semacam itu adalah waktu yang paling menyenangkan. Pada catatan itu, dia senang saat dia menipu Lit di Logavia.
+Shisandan memikirkan skema yang harus dia buat sambil dia berjalan ke depan. Bagi Shisandan, waktu yang dihabiskan untuk memikirkan cara menjerat lawan semacam itu adalah waktu yang paling menyenangkan. dia senang saat dia menipu Lit di Logavia.
 
 Shisandan diam-diam mengungkapkan senyuman jahat yang tidak bisa dilihat Ares.
