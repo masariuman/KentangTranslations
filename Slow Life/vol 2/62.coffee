@@ -126,35 +126,21 @@ Aku seharusnya tidak berada di tempat ini, seharusnya Gideon-san.
 
 Gideon-san adalah satu-satunya orang yang pasti bisa menyelamatkan Ruti-sama.
 
- 
-
-Wajah tersenyum Ruti-sama tampak begitu sedih sehingga saya ingin mengalihkan pandangan saya.
-
- 
+Wajah tersenyum Ruti-sama tampak begitu sedih sehingga aku ingin mengalihkan pandanganku.
 
 ☆☆
 
- 
-
 * Tap tap * Sebuah lengan kecil menepuk pundakku.
 
-Saat aku melihat sekeliling, aku melihat Ugeuge-san.
+Saat aku melihat kesebelah, aku melihat Ugeuge-san.
 
- 
-
-“Eh, saya salah?”
-
- 
+"Eh, aku salah?"
 
 Ugeuge-san mengangkat kedua lengannya.
 
-Jika Ugeuge-san bisa mengeluarkan suara, itu mungkin akan berteriak sekarang.
+Jika Ugeuge-san bisa mengeluarkan suara, dia mungkin akan berteriak sekarang.
 
- 
-
-(Tidak ada yang tidak mungkin, ini baru permulaan !!)
-
- 
+(Tidak ada yang tidak mungkin, ini masih permulaan !!)
 
 Ugeuge-san berteriak.
 
@@ -164,46 +150,39 @@ Putri yang dipenjara oleh Perlindungan Ilahi yang bahkan menyangkal keinginannya
 
 Pahlawan Gideon-san yang bisa menyelamatkan sang Putri.
 
-Kalau begitu, apakah saya penyihir yang 'membimbing' sang pahlawan?
+Kalau begitu, apakah aku penyihir yang 'membimbing' sang pahlawan?
 
- 
+aku tiba-tiba merasakan seseorang menatapku.
 
-Saya tiba-tiba merasakan seseorang menatap saya.
+Lit-san melihat ke arahku. Tatapan kami bertemu.
 
-Lit-san melihat ke arahku. Tatapan kami berpotongan.
-
-Tatapan Lit-san mengandung keinginan kuat saat dia mengangguk sedikit. Ini mungkin waktu yang singkat tapi Lit-san juga seorang rekan yang berpetualang bersama dengan Hero-sama.
+Tatapan Lit-san memiliki keinginan kuat saat dia mengangguk sedikit. Ini mungkin waktu yang singkat tapi Lit-san juga seorang rekan yang berpetualang bersama dengan pahlawan-sama.
 
 Ada dua manusia dan satu penyihir serangga yang akan membimbing sang pahlawan.
 
- 
+Inilah mungkin peran kami. Kami telah memahami perkembangan yang menyebabkan penderitaan Putri.
 
-Ini akan menjadi pemeran untuk cerita. Kami telah memahami perkembangan yang menyebabkan penderitaan Putri yang ditangkap.
+Dalam hal ini, tindakan selanjutnya adalah membimbing sang pahlawan dan untuk melawan Naga jahat yang menangkap sang Putri dan menyelamatkannya.
 
-Dalam hal ini, tindakan selanjutnya adalah membimbing sang pahlawan dan sang pahlawan untuk melawan Naga jahat yang menangkap sang Putri dan menyelamatkannya.
-
- 
-
-Saya tidak tahu apa yang harus saya lakukan untuk menyelamatkan Ruti-sama.
+aku tidak tahu apa yang harus aku lakukan untuk menyelamatkan Ruti-sama.
 
 Namun, Ugeuge-san dan aku adalah teman Ruti-sama.
 
-Jadi itu dimulai di sini bahkan jika kita tidak dapat melihat tujuannya!
+Jadi semuanya dimulai dari sini bahkan jika kami tidak dapat melihat tujuannya!
 
- 
-
-Kisah untuk menyelamatkan Hero-sama, sebuah cerita dimana semua orang pada akhirnya tersenyum!
-
- 
+Kisah untuk menyelamatkan pahlawan-sama, sebuah cerita dimana semua orang pada akhirnya tersenyum!
 
 Catatan penulis:
 
-Saya telah mencapai peringkat 100 kumulatif yang tidak pernah saya bayangkan akan dapat saya capai.
+aku telah mencapai peringkat 100 kumulatif yang tidak pernah aku bayangkan akan dapatku capai.
 
-Ini semua berkat Anda semua yang menikmati pekerjaan bersama saya ini. Saya sangat berterima kasih.
+Ini semua berkat kalian semua yang menikmati ini. aku sangat berterima kasih.
 
-Tahun ini adalah tahun yang luar biasa. Saya menulis dua karya dan keduanya memiliki banyak pembaca yang menikmatinya.
+Tahun ini adalah tahun yang luar biasa. aku menulis dua karya dan keduanya memiliki banyak pembaca yang menikmatinya.
 
+------------
+
+masariuman : itu catatan penulis, maksudnya catatan si pembuat cerita yaaa, saya hanya menerjemahkan saja..
  
 
 Saya berharap semua orang memiliki tahun yang baik. Saya dalam perawatan Anda tahun depan juga!
