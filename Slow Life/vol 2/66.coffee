@@ -258,13 +258,9 @@ Kata pria dengan perban melilit kepalanya duduk beberapa kursi dari tempat Danan
 
 Theodora yang memiliki tombak di punggungnya menjawab dengan diam saat dia melihat tangannya sendiri diletakkan di atas meja.
 
-Theodora berdiri di puncak umat manusia dalam hal seni magis. Jika Theodora secara serius menggunakan sihir eliminasi kehadiran, bahkan dengan kombinasi Danan dan Red, akan sulit bagi Danan dan Red untuk mendeteksi mereka saat mereka tidak memiliki permusuhan. (TLN: Sebelumnya menerjemahkan Theodora sebagai master teknik tetapi paragraf ini akhirnya menunjukkan bahwa dia adalah master dalam seni magis sebagai gantinya.)
-
- 
+Theodora berdiri di puncak umat manusia dalam hal seni sihir. Jika Theodora secara serius menggunakan sihir eliminasi kehadiran, bahkan dengan kombinasi Danan dan Red, akan sulit bagi Danan dan Red untuk mendeteksi mereka.
 
 (Pahlawan-sama sudah menyerah untuk menaklukkan Raja Iblis?)
-
- 
 
 Theodora tidak memiliki cara berpikir Danan yang sederhana.
 
