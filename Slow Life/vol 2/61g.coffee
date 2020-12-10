@@ -152,33 +152,25 @@ Sementara aku sibuk dalam pemikiran itu, Ruti-sama sangat tidak bisa berhenti me
 
 ☆☆
 
-Hari itu, seorang anak yang bahkan bukan temanku masuk dan tersesat di sebuah gunung di mana hewan-hewan itu baru saja bangun dari hibernasi dan sedang mencari makan dengan perut kosong.
+Hari itu, seorang anak yang bahkan bukan temanku masuk dan tersesat di sebuah gunung di mana hewan-hewan baru saja bangun dari hibernasi dan sedang mencari makan dengan perut kosong.
 
 Pada dasarnya, anak-anak dilarang pergi ke gunung untuk bermain.
 
-Tetapi karena ada banyak pohon buah-buahan dan sejenisnya yang bisa dimakan sebagai makanan ringan, ada banyak anak-anak terobsesi yang melihat gunung murni sebagai taman bermain dan melewati mata orang dewasa untuk masuk.
+Tetapi karena ada banyak pohon buah-buahan dan sejenisnya yang bisa dimakan sebagai makanan ringan, ada banyak anak-anak terobsesi dan gunung sebagai taman bermain dan membutuhkan pengawasan orang dewasa untuk kegunung.
 
-Namun demikian, kebanyakan anak memiliki cukup keleluasaan untuk mengetahui agar tidak masuk ketika musim berganti dari musim dingin ke awal musim semi karena mereka tahu bahwa itu berbahaya.
+kebanyakan anak cukup mengetahui agar tidak masuk ketika musim berganti dari musim dingin ke awal musim semi karena mereka tahu bahwa itu berbahaya.
 
- 
+Gadis itu tidak memiliki pengetahuan tentang itu.
 
-Gadis itu tidak memiliki keleluasaan itu.
-
-Dan Perlindungan Ilahi saya juga tidak memiliki keleluasaan untuk menunggu dan mengamati situasi sampai orang dewasa berkumpul setelah bekerja untuk berangkat mencari anak yang hilang.
-
- 
+Dan Perlindungan Ilahiku juga tidak membiarkanku untuk menunggu dan mengamati situasi sampai orang dewasa berkumpul setelah bekerja untuk berangkat mencari anak yang hilang.
 
 Onii-chan sedang pergi entah kemana pada hari itu.
 
-Saya tidak punya orang lain untuk diandalkan.
+aku tidak punya orang lain untuk diandalkan.
 
-Ayah dan ibu saya juga tidak cukup kuat untuk memasuki gunung selama musim itu.
+Ayah dan ibuku juga tidak cukup kuat untuk memasuki gunung selama musim itu.
 
- 
-
-Meskipun saya tahu bahwa itu berbahaya, Perlindungan Ilahi saya mendesak saya untuk maju.
-
- 
+Meskipun aku tahu bahwa itu berbahaya, Perlindungan Ilahiku mendesakku untuk maju.
 
 Tanda-tanda kecil salju putih masih tersisa di pegunungan.
 
@@ -186,81 +178,63 @@ Suara deras air dari sungai mungkin karena air yang berasal dari salju yang menc
 
 Saat berusia lima tahun, monster dan hewan akan menjadi musuh yang mematikan bagiku.
 
-Saya hanya memiliki satu pisau di tangan saya.
+aku hanya memiliki satu pisau di tanganku.
 
-Menjelang senja, saya memanggil nama anak itu sambil terus bergerak sehingga saya tidak akan dikelilingi oleh ancaman di gunung.
-
- 
+Menjelang senja, aku memanggil nama anak itu sambil terus bergerak sehingga aku tidak akan dikelilingi oleh ancaman di gunung.
 
 Aku mendengar lolongan serigala di kejauhan. Sesuatu berdesir di semak di dekatnya.
 
-Tiba-tiba, saya merasakan kehadiran yang besar dan berbalik untuk melihat binatang ajaib yang disebut Amphisbaena, seekor ular dengan tubuh besar seukuran tubuh kuda dengan panjang total 14 meter dan kepala ular di ujung ekornya. juga, menatapku dengan empat murid emasnya.
+Tiba-tiba, aku merasakan kehadiran yang besar dan berbalik untuk melihat binatang sihir yang disebut Amphisbaena, seekor ular dengan tubuh besar seukuran tubuh kuda dengan panjang total 14 meter dan kepala ular di ujungnya. juga, menatapku dengan empat mata emasnya.
 
-Namun, mungkin ia tidak menganggap hewan kecil seperti saya sebagai mangsa karena ia dengan tidak tertarik mengalihkan pandangannya dan pergi dengan gerakan seperti riak yang tidak membuat satu suara pun.
-
- 
+Namun, mungkin ia tidak menganggap hewan kecil sepertiku sebagai mangsa karena ia dengan tidak tertarik mengalihkan pandangannya dan pergi dengan gerakan yang tidak membuat satu suara pun.
 
 Seorang anak biasa, bahkan mereka yang memiliki keberanian besi, akan larut dalam jeritan dan air mata dan melarikan diri. Itu hal yang normal.
 
-Namun, saya tidak merasa takut.
+Namun, aku tidak merasa takut.
 
-Saya hanya mengakui bahwa ancaman telah pergi dan tidak ada pilihan lain selain melanjutkan petualangan berbahaya itu.
+aku hanya mengakui bahwa ancaman telah pergi dan tidak ada pilihan lain selain melanjutkan petualangan berbahaya itu.
 
- 
+aku mungkin mencari sekitar dua jam.
 
-Saya mungkin mencari sekitar dua jam.
-
-Dan saya akhirnya menemukan anak itu setelah sekelilingnya benar-benar menjadi gelap.
+Dan aku akhirnya menemukan anak itu setelah sekelilingnya benar-benar menjadi gelap.
 
 Anak itu tidak dapat menemukan jalan pulang sehingga dia menemukan gua yang hangat dan menangis di dalamnya.
-
- 
 
 Ada tanda cakar di pohon terdekat yang menandakan bahwa ini adalah wilayah makhluk yang tidak akan ragu untuk menyerang penyusup tanpa syarat.
 
 Ada juga bau binatang yang kuat yang berasal dari gua.
 
-Jika seseorang memiliki keterampilan persepsi, mereka akan melihat kehadiran besar yang bersembunyi di kedalaman.
+Jika seseorang memiliki keterampilan persepsi, mereka akan melihat kehadiran besar yang bersembunyi di ujung dalam goa.
 
- 
-
-Binatang ajaib 'Owlbear' sudah menganggap anak itu sebagai makanannya.
+Binatang sihir 'Owlbear' sudah menganggap anak itu sebagai makanannya.
 
 Owlbear adalah monster dengan tubuh beruang grizzly dan kepala burung hantu, monster yang berdiri di puncak rantai makanan di gunung.
 
 Bahkan Amphisbaena berkepala dua sekarang tidak bisa menang melawan Owlbear.
 
- 
+Ia mungkin tidak membunuh anak tersebut meskipun ia bisa memakannya kapan saja karena ia baru saja selesai makan. Mungkin dia berpikir untuk memakannya saat dia merasa sedikit lapar.
 
-Ia mungkin tidak membunuh anak tersebut meskipun ia bisa memakannya kapan saja karena ia baru saja selesai makan baru-baru ini di tempat lain. Mungkin dia berpikir untuk memakannya saat dia merasa sedikit lapar.
-
-Anak itu tidak diikat dengan tali apapun. Namun, jika dia pernah mencoba meninggalkan gua, Owlbear mungkin akan segera menyerang dan mematahkan kaki anak itu.
+Anak itu tidak diikat dengan tali apapun. Namun, jika dia mencoba meninggalkan gua, Owlbear mungkin akan segera menyerang dan mematahkan kaki anak itu.
 
 Ia tidak melakukannya sekarang karena ia tahu bahwa anak-anak manusia mati dengan mudah.
 
 Sehingga dibiarkan sendiri untuk saat ini karena ingin menjaganya dalam kondisi segar selama mungkin sebelum mengkonsumsinya.
 
- 
-
 Burung hantu sepertinya memiliki Perlindungan Ilahi yang tidak biasa.
 
-Itu jauh lebih licik dan kejam dibandingkan dengan Owlbear biasa. Itu mungkin telah memakan anak-anak manusia sebelumnya.
+dia jauh lebih licik dan kejam dibandingkan dengan Owlbear biasa. dia mungkin telah memakan anak-anak manusia sebelumnya.
 
- 
+Meskipun aku memiliki Perlindungan Ilahi dari Pahlawan, itu masih level 1 dan tubuhku adalah anak-anak.
 
-Meskipun saya memiliki Perlindungan Ilahi dari Pahlawan, itu masih pada level 1 dan tubuh saya adalah anak-anak.
-
-Lawannya adalah Owlbear yang dikatakan tidak terkalahkan kecuali tingkat Perlindungan Ilahi Anda sekitar level 15.
+Lawannya adalah Owlbear yang dikatakan tidak terkalahkan kecuali tingkat Perlindungan Ilahimu sekitar level 15.
 
 Perbedaan kekuatan terlihat jelas.
 
- 
-
-Namun, saya tidak bisa meninggalkan anak itu. Itu mungkin cacat dari Perlindungan Ilahi dari Pahlawan.
+Namun, aku tidak bisa meninggalkan anak itu. Itu jeleknya dari Perlindungan Ilahi dari Pahlawan.
 
 Perlindungan Ilahi tidak takut mati dan memprioritaskan tindakan menjadi pahlawan daripada bertahan hidup.
 
-Jika saya memiliki tujuan besar di depan seperti menaklukkan Raja Iblis, saya akan memiliki pilihan untuk meninggalkan orang di depan saya tetapi ... pada saat itu, menyelamatkan gadis itu adalah tujuan utama saya dan saya harus membantunya bahkan jika itu membutuhkan biaya. saya hidup saya.
+Jika aku memiliki tujuan besar di depan seperti menaklukkan Raja Iblis, saya akan memiliki pilihan untuk meninggalkan orang di depan saya tetapi ... pada saat itu, menyelamatkan gadis itu adalah tujuan utama saya dan saya harus membantunya bahkan jika itu membutuhkan biaya. saya hidup saya.
 
  
 
