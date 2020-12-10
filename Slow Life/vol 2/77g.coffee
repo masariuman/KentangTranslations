@@ -219,5 +219,3 @@ Kata Danan sambil menatap Shisandan.
 Ares tahu dari gaya bertarung Danan selama perjalanan mereka bahwa dia tidak menggertak.
 
 Meski absurd, maniak bela diri ini justru semakin kuat setelah kehilangan lengan kanannya.
-
-<gambar> vol4 7.jpg
