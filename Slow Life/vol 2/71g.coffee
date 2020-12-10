@@ -208,98 +208,68 @@ g"... Kurasa aku tidak pernah benar-benar memberi tahu Ruti yang sebenarnya."
 
 Perjalanan penaklukan Raja Iblis yang dipilih Ruti.
 
-Aku telah bersamanya sejak awal ketika pasukan perampok pasukan Raja Iblis menyerang desa asal kami dan Ruti bertarung melawan Orc sendirian.
+Aku telah bersamanya sejak awal ketika pasukan Raja Iblis menyerang desa asal kami dan Ruti bertarung melawan Orc sendirian.
 
-Sejak saat itu, ada orang yang menjadi teman Ruti untuk sementara dan ada anggota yang mundur dari party tapi saya terus bepergian bersamanya hingga setelah bertengkar dengan Desmond of the Earth.
+Sejak saat itu, ada orang yang menjadi teman Ruti untuk sementara dan ada anggota yang mundur dari tim tapi aku terus bepergian bersamanya sampai melawan Desmond si bumi .
 
-Namun, saya masih khawatir jika saya harus mengucapkan kata-kata itu. Karena kebaikan bisa menyakiti orang juga.
+Namun, aku masih khawatir jika aku harus mengucapkan kata-kata itu. Karena kebaikan bisa menyakiti orang juga.
 
- 
-
-“Kenapa Onii-chan ingin mengalahkan Raja Iblis?”
-
- 
+r"Kenapa Onii-chan ingin mengalahkan Raja Iblis?"
 
 Ruti menatapku langsung dengan kegelisahan yang mengambang di mata indahnya.
 
- 
-
-"Aku hanya ingin melindungimu."
-
- 
+g"Aku hanya ingin melindungimu."
 
 Mata Ruti terbuka sedikit lebih lebar. Tatapannya sedikit gemetar seolah dia terguncang.
 
- 
+r"Bahkan ketika kamu mengalahkan monster sejak kamu masih muda?"
 
-“Bahkan ketika kamu mengalahkan monster sejak kamu masih muda?”
+g"Dan juga saat aku bergabung dengan ksatria ordo Bahamut. Karena aku mengharapkan kekuatan yang cukup untuk melindungi Ruti saat kamu melakukan perjalanan. "
 
-“Dan juga saat aku bergabung dengan ordo kesatria Bahamut. Karena aku mengharapkan kekuatan yang cukup untuk melindungi Ruti saat kamu melakukan perjalanan. "
+r"Kenapa...? Karena aku adalah Pahlawan?"
 
-“Kenapa…? Karena aku adalah Pahlawan? ”
+g"Bodoh, bukankah sudah jelas... itu karena Ruti adalah orang yang penting bagiku. aku tahu bahwa Ruti pada akhirnya akan melakukan perjalanan jadi aku hanya mempersiapkan hari itu. Itulah mengapa jika Ruti berhenti menjadi Pahlawan, aku tidak akan mempermasalahkannya dan aku juga tidak akan menyalahkanmu untuk itu."
 
-“Bodoh, bukankah sudah jelas… itu karena Ruti adalah orang yang penting bagiku. Saya tahu bahwa Ruti pada akhirnya akan melakukan perjalanan jadi saya hanya mempersiapkan hari itu. Itulah mengapa jika Ruti berhenti menjadi Pahlawan, saya tidak akan mempermasalahkannya dan saya juga tidak akan menyalahkan Anda untuk itu. "
+Sejujurnya... aku akan berbohong jika aku mengatakan bahwa aku tidak ragu-ragu.
 
- 
+aku sangat sadar sejak aku melakukan perjalanan dengannya ketika dia adalah Pahlawan. Jika Ruti tidak ada di sana, kerusakan yang disebabkan oleh pasukan Raja Iblis akan berkembang pesat. Mungkin saja... benua Avalon bahkan mungkin binasa.
 
-Sejujurnya… Saya akan berbohong jika saya mengatakan bahwa saya tidak ragu-ragu.
+Itu sebabnya aku tidak memaksa Ruti untuk berhenti menjadi Pahlawan.
 
-Saya sangat sadar sejak saya melakukan perjalanan dengannya ketika dia adalah Pahlawan. Jika Ruti tidak ada di sana, kerusakan yang disebabkan oleh pasukan Raja Iblis akan berkembang pesat. Mungkin saja… benua Avalon bahkan mungkin binasa.
+Namun, aku akan tetap menjadi sekutu Ruti. Itu adalah keputusanku.
 
-Itu sebabnya saya tidak memaksa Ruti untuk berhenti menjadi Pahlawan.
+r"Apa benar tidak apa-apa? aku bahkan meninggalkan temanku untuk datang ke sini. Aku membebaskan Godwin dari penjara... dan berhenti menjadi Pahlawan. Onii-chan masih akan memaafkanku setelah semua itu?"
 
-Namun, saya akan tetap menjadi sekutu Ruti. Itu adalah keputusanku.
+g"pasti."
 
- 
+r"Apakah aku diperbolehkan untuk menjadi egois? Apakah tidak apa-apa melakukan apa yang ingin aku lakukan daripada melakukannya demi dunia atau demi Perlindungan Ilahiku?"
 
-“Apa benar tidak apa-apa? Saya bahkan meninggalkan teman saya untuk datang ke sini. Aku membebaskan Godwin dari penjara… dan berhenti menjadi Pahlawan. Onii-chan masih akan memaafkanku setelah semua itu? ”
+Hidup santai. Itu mungkin sesuatu yang dianggap egois dan terlarang bagi Pahlawan.
 
-"Aku akan."
+Meski demikian, keinginan Ruti tidak akan aku tolak.
 
-“Apakah saya diperbolehkan untuk menjadi egois? Apakah tidak apa-apa melakukan apa yang ingin saya lakukan daripada melakukannya demi dunia atau demi Perlindungan Ilahi saya? "
-
- 
-
-Hidup lambat. Itu mungkin sesuatu yang dianggap egois dan terlarang bagi Pahlawan.
-
-Meski demikian, keinginan Ruti tidak akan saya tolak.
-
- 
-
-“Seperti bagaimana hidupku adalah milikku, hidup Ruti adalah milik Ruti.”
-
- 
+g"Seperti bagaimana hidupku adalah milikku, hidup Ruti adalah milik Ruti."
 
 Ruti perlahan meletakkan kedua tangannya di pipiku.
 
-Setelah menatapku lekat-lekat, Ruti meletakkan keningnya di dadaku.
+Setelah menatapku, Ruti meletakkan keningnya di dadaku.
 
- 
+r"Onii-chan, aku sangat egois. Egois sampai-sampai aku gagal sebagai Pahlawan."
 
-“Onii-chan, aku sangat egois. Egois sampai-sampai aku gagal sebagai Pahlawan. "
-
- 
-
-Dari posisi itu, saya tidak bisa melihat raut wajah Ruti.
+Dari posisi itu, aku tidak bisa melihat raut wajah Ruti.
 
 Tapi aku bisa mengetahui suhu tubuh Ruti yang hangat dari telapak tangannya di pipiku.
 
- 
+r"Meski begitu, aku harap kamu tidak datang untuk membenciku."
 
-“Meski begitu, aku harap kamu tidak datang untuk membenciku.”
+aku meletakkan tanganku di atas tangan Ruti.
 
- 
+g"Ruti akan selalu menjadi adik perempuanku yang tercinta."
 
-Saya meletakkan tangan saya di atas tangan Ruti.
-
- 
-
-“Ruti akan selalu menjadi adik perempuanku yang tercinta.”
-
-“Terima kasih, aku juga suka Onii-chan.”
-
- 
+r"Terima kasih, aku juga cinta Onii-chan."
 
 Kata Ruti pelan.
 
-Saya teringat hari yang penuh badai saat kami berpegangan erat ketika kami masih muda.
+aku teringat hari yang penuh badai saat kami berpegangan erat ketika kami masih muda.
+
+<gambar> vol3 12.jpg
