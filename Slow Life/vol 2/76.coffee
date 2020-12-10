@@ -90,25 +90,17 @@ Jika Ares benar-benar menggunakan 'Appraisal' ketika Shisandan menyamar sebagai 
 
 Tapi kali ini berbeda. Ares tidak memiliki kepribadian yang naif untuk mempercayai seorang petualang yang dia temui untuk pertama kalinya di dalam reruntuhan kuno.
 
-Sebuah senyuman menyelimuti Byuui… bibir Shisandan melihat kondisi Ares.
-
- 
+Sebuah senyuman menyelimuti Byuui... bibir Shisandan melihat kondisi Ares.
 
 "Seperti yang diharapkan dari『 Sage 』, kamu menyadari identitas asliku."
 
- 
-
-Shisandan menggelitik harga diri Ares.
+Shisanda tertawa.
 
 Ares segera mempertahankan postur yang memungkinkannya mengeluarkan sihir kapan saja.
 
 Namun, seorang pengguna sihir yang bertarung sendiri adalah situasi yang sangat tidak menguntungkan.
 
- 
-
 (Pertama, saya harus memanggil.)
-
- 
 
 Membiarkan binatang spiritual melindungi diri mereka sendiri adalah permainan yang ada di buku. Namun, Ares sudah berada dalam jangkauan Shisandan.
 
