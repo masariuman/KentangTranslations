@@ -199,3 +199,5 @@ Dan jika Ares memiliki ketenangan seperti biasa, dia akan memperhatikan bahwa Da
 Ares tersenyum pembuluh darah putih pucat muncul di tinjunya yang terkepal.
 
 Pikiran Ares hanya dipenuhi dengan kebencian terhadap Gideon yang menghalanginya.
+
+<gambar> vol3 14.jpg
