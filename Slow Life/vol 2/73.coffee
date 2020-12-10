@@ -120,19 +120,13 @@ Albert benar-benar terkejut melihat bagaimana Ares, Theodora, dan Danan adalah t
 
 Setelah Ruti tenang, kami kembali ke koridor.
 
-"Merah!"
-
- 
+l"red!!"
 
 Saat kami keluar, kami menemukan Lit dan Tise berlari ke arah kami.
 
- 
+l"cepat sekali."
 
-"Itu tadi cepat."
-
-Karena aku terburu-buru.
-
- 
+g"Karena aku berlari dengna kecepatan penuh."
 
 Lit mengangguk sambil tersenyum.
 
@@ -140,73 +134,47 @@ Ruti tampak tanpa ekspresi tapi pipinya menjadi agak merah.
 
 Itu adalah gesturnya saat dia bahagia.
 
- 
-
-"Terima kasih."
-
- 
+r"Terima kasih."
 
 Ruti bergumam pelan.
 
- 
-
 Kami mulai berjalan menuju kamar Godwin. Untuk mendapatkan informasi tentang Perlindungan Ilahi Iblis.
 
-Pengetahuan medis yang telah saya kumpulkan hingga hari ini mungkin berguna untuk menemukan prinsip di balik bagaimana Perlindungan Ilahi Iblis menekan Perlindungan Ilahi bawaan.
+Pengetahuan medis yang telah aku kumpulkan hingga hari ini mungkin berguna untuk menemukan prinsip di balik bagaimana Perlindungan Ilahi Iblis menekan Perlindungan Ilahi bawaan.
 
 Awalnya, Kontrak Iblis menggambarkan prinsip Perlindungan Ilahi Iblis sebagai obat yang akan menekan Perlindungan Ilahi bawaan seseorang dengan menciptakan kembali Perlindungan Ilahi iblis menggunakan hati iblis sebagai bahan bakunya.
 
- 
+r"Iblis kontrak juga menjelaskannya kepadaku."
 
-“Kontrak Iblis juga menjelaskannya kepadaku.”
+Ruti setuju. tapi, Ruti memiringkan kepalanya ke samping.
 
- 
+r"Tapi tubuhku memperlakukan efek jantung iblis sebagai kutukan. Karena itulah, jantung kapak iblis yang digunakan sebagai bahan untuk obat yang aku minum tidak akan menciptakan kembali Perlindungan Ilahi Iblis Kapak dalam diriku."
 
-Ruti setuju. Namun, Ruti memiringkan kepalanya ke samping.
-
- 
-
-“Tapi tubuhku memperlakukan efek jantung iblis sebagai kutukan. Karena itu, jantung iblis kapak yang digunakan sebagai bahan untuk obat yang saya minum tidak akan menciptakan kembali Perlindungan Ilahi Iblis Kapak dalam diri saya. ”
-
-“Kalau begitu, bagaimana Ruti menekan Perlindungan Ilahi bawaanmu?”
-
- 
+g"Kalau begitu, bagaimana Ruti menekan Perlindungan Ilahi bawaanmu?"
 
 Ruti memiringkan kepalanya.
 
- 
+r"Perlindungan Ilahi yang terbentuk dalam diriku adalah Perlindungan Ilahi tanpa nama."
 
-Perlindungan Ilahi yang terbentuk dalam diri saya adalah Perlindungan Ilahi tanpa nama.
+g"Perlindungan Ilahi Tanpa Nama?"
 
-Perlindungan Ilahi Tanpa Nama?
-
-“Ya, bahkan jika saya mencoba menghubunginya, itu tidak memiliki keterampilan apa pun, tidak memiliki dorongan apa pun, itu hanya Perlindungan Ilahi yang hanya ada.”
-
- 
+r"Ya, bahkan jika aku mencoba merasakannya, itu tidak memiliki skill apa pun, tidak memiliki dorongan apa pun, itu hanya Perlindungan Ilahi yang hanya ada."
 
 Apa?
 
-Itu adalah pertama kalinya saya mendengar tentang Perlindungan Ilahi meskipun saya telah mengumpulkan cukup banyak pengetahuan tentang Perlindungan Ilahi dari buku-buku.
+Itu adalah pertama kalinya aku mendengar tentang Perlindungan Ilahi seperti itu meskipun aku telah mengumpulkan cukup banyak pengetahuan tentang Perlindungan Ilahi dari buku-buku.
 
 Atau lebih tepatnya, dapatkah itu disebut Perlindungan Ilahi?
 
- 
+r"Tapi levelku telah berpindah ke perlindungan ilahi tanpa nama itu. Itu telah menekan impuls Perlindungan Ilahi Pahlawanku juga. "
 
-“Tapi levelku telah berpindah ke Divine Protection tanpa nama itu. Itu telah menekan impuls Perlindungan Ilahi Pahlawan saya juga. "
+l"Jika ia tidak memiliki impuls, bukankah itu berarti ia tidak akan menyebabkan dorongan untuk membantai bahkan jika tingkat Perlindungan Ilahi menjadi lebih tinggi dari tingkat Perlindungan Ilahi bawaan orang tersebut?"
 
-“Jika ia tidak memiliki impuls, bukankah itu berarti ia tidak akan menyebabkan dorongan untuk membantai bahkan jika tingkat Perlindungan Ilahi menjadi lebih tinggi dari tingkat Perlindungan Ilahi bawaan orang tersebut?
+Lit menambahkan sedikit ekspektasi dalam nada bicaranya.
 
- 
+Peristiwa yang mengguncang Zoltan pasti disebabkan oleh dorongan pembantaian yang disebabkan oleh dorongan dari perlindungan ilahi iblis kapak. Jika Perlindungan Ilahi yang baru terbentuk tidak memiliki dorongan, itu tidak akan menunjukkan keinginan untuk membantai juga.
 
-Lit menambahkan dengan sedikit ekspektasi dalam nada bicaranya.
-
-Peristiwa yang mengguncang Zoltan pasti disebabkan oleh dorongan pembantaian yang disebabkan oleh dorongan dari Axe Demon Divine Protection. Jika Perlindungan Ilahi yang baru terbentuk tidak memiliki dorongan hati, itu tidak akan menunjukkan keinginan untuk membantai juga.
-
- 
-
-“Tapi Perlindungan Ilahi tanpa nama ya… selain menjadi Perlindungan Ilahi yang sama sekali tidak dikenal, itu jelas berbeda sifatnya dibandingkan dengan Perlindungan Ilahi lainnya. Sebaliknya, saya merasakan rasa ngeri dari ketidakpastian.
-
- 
+g"Tapi Perlindungan Ilahi tanpa nama ya... selain menjadi Perlindungan Ilahi yang sama sekali tidak dikenal, itu jelas berbeda sifatnya dibandingkan dengan Perlindungan Ilahi lainnya. Sebaliknya, aku merasakan rasa ngeri akan ketidakpastiannya."
 
 Semua Perlindungan Ilahi memiliki perannya masing-masing.
 
