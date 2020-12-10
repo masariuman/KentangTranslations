@@ -136,45 +136,45 @@ Keduanya maju lebih dalam ke reruntuhan.
 
 Para wood-elf memelototi mereka berdua dengan tatapan hampa tapi Shisandan mencibir pada tindakan mereka sambil bersenandung pada dirinya sendiri.
 
-Ruangan itu dipenuhi dengan permusuhan yang melingkari mereka. Itu sangat kuat sehingga Ares secara naluriah merasakan dinginnya.
+Ruangan itu dipenuhi dengan musuh yang melingkari mereka. Itu sangat kuat sehingga Ares secara naluriah merasakan dingin.
 
-Namun, mereka bukanlah undead. Hanya mayat. Pertama-tama, untuk Mayat Hidup yang tidak memiliki Perlindungan Ilahi, mereka tidak akan dapat menyakiti mereka berdua tidak peduli seberapa besar kemampuan fisik mereka diperkuat.
+Namun, mereka bukanlah mayat hidup. Hanya mayat. Pertama-tama, untuk Mayat Hidup yang tidak memiliki Perlindungan Ilahi, mereka tidak akan dapat menyakiti mereka berdua tidak peduli seberapa besar kemampuan fisik mereka diperkuat.
 
 Itu terjadi tepat saat mereka hendak melangkah melewati pintu keluar ruangan.
 
-Mereka berdua tiba-tiba dilanda gelombang permusuhan yang sengit. Shisandan secara reflektif menghunus pedangnya.
+Mereka berdua tiba-tiba dilanda diserang banyak musuh. Shisandan secara reflektif menghunus pedangnya.
 
-Detik berikutnya, pedang Elf terbang menuju Shisandan. Shisandan memegang pedang yang dia tarik dengan dua tangan untuk menerima pukulan itu.
+Detik berikutnya, pedang Elf terbang menuju Shisandan. Shisandan memegang pedang yang dia tarik dengan dua tangan untuk menangkisnya.
 
-Itu adalah pukulan yang tajam. Jari-jari Shisandan yang memegang pedang masih mati rasa.
+Itu adalah tebasan yang tajam. Jari-jari Shisandan yang memegang pedang masih mati rasa.
 
-"Siapa ini?"
+"Siapa itu?"
 
-Salah satu Wood-Elf duduk dengan keras.
+Salah satu Wood-Elf duduk.
 
 Dan kemudian mulai runtuh ke tanah.
 
 “Da-Danan !?”
 
-Ares berteriak. Pria yang bersembunyi di dalam peti mati menyeringai tanpa rasa takut.
+Ares berteriak. Pria yang bersembunyi di dalam peti mati tersenyum tanpa rasa takut.
 
-“Shisandan, aku bisa datang sebelum kamu karena kamu mengambil waktu manismu sendiri.”
+“Shisandan, aku bisa datang sebelum kamu karena kamu sibuk sendiri.”
 
 Ares bingung. Danan ikut bersamanya ke reruntuhan ini jadi tidak aneh kalau dia ada di sini.
 
 Namun demikian, Danan ini memiliki banyak perbedaan yang signifikan dibandingkan dengan Danan yang ditemui Ares.
 
-Secara khusus, kekurangan tangan kanannya merupakan perbedaan besar.
+dia tidak memiliki tangan kanannya dan itu merupakan perbedaan besar.
 
 Apalagi ia yakin inilah Danan yang asli karena kehadirannya yang kuat terpancar.
 
 Ares akhirnya mengerti.
 
-Danan yang dipertemukan oleh Ares dengan Ares sebenarnya adalah penipu ulung, Asura Demon ini.
+Danan yang bertemu Ares sebenarnya adalah penipu, iblis Asura.
 
-“Danan ya? Jadi Anda sebenarnya masih hidup. Anda memiliki kekuatan hidup sebanyak kecoa. "
+"Danan ya? Jadi kamu sebenarnya masih hidup. kamu memiliki kekuatan hidup seperti kecoa. "
 
-"Ha ha ha. Itu mungkin dimaksudkan untuk menyindir tetapi saya bangga dengan kecoa atau kekuatan hidup saya yang seperti tikus. Kekuatan itu juga salah satu kekuatan makhluk hidup. "
+"Ha ha ha. kamu mungkin menyundirku tetapi aku bangga dengan kecoa atau kekuatan hidupku yang seperti tikus. Kekuatan itu juga salah satu kekuatan makhluk hidup. "
 
 Danan mengulurkan lengan kirinya dan perlahan melangkah ke dalam jangkauan.
 
@@ -186,17 +186,17 @@ Ekspresi Shisandan tidak menunjukkan kepuasan apapun saat Danan mendekat sambil 
 
 Shisandan menyadari bahwa serangan mendadak pertama dimaksudkan untuk dia memblokirnya. Dia tidak bisa memberikan kekuatan pada jari-jarinya yang gemetar dan hanya bisa melakukan gerakan-gerakan canggung seperti seorang pemula yang baru saja memegang pedang.
 
-(Dia menangkapku. Sangat buruk kedua lenganku rusak sekarang. Bahkan setelah kembali ke wujud Asura Demon, keenam lenganku masih tidak bisa bergerak.)
+(Dia berhasil. kedua lenganku rusak sekarang. Bahkan setelah kembali ke wujud iblis Asura, keenam lenganku masih tidak bisa bergerak.)
 
-Asura Demon awalnya adalah iblis dengan enam lengan tetapi kerusakan yang mereka terima saat menyamar akan tetap ada.
+iblis Asura awalnya adalah iblis dengan enam lengan tetapi kerusakan yang mereka terima saat menyamar akan tetap ada.
 
 Jika salah satu lengannya dipotong dalam keadaan ini, itu sama dengan memotong tiga lengannya.
 
-(Tapi, kamu juga kehilangan lengan kananmu. Aku ingin tahu apakah kamu masih bisa bertarung dengan benar.)
+(Tapi, kamu juga kehilangan lengan kananmu. Aku penasaran apakah kamu masih bisa bertarung dengan benar.)
 
-Saat Danan melangkah ke jangkauan serangan Shisandan, Seniman Bela Diri berlengan tunggal dan Asura Demon menendang tanah dan menyerang satu sama lain pada saat yang sama.
+Saat Danan melangkah ke jangkauan serangan Shisandan, Seniman Bela Diri berlengan tunggal dan iblis Asura menendang tanah dan menyerang satu sama lain pada saat yang sama.
 
-Danan menangkis dengan tangan kirinya pedang yang diayunkan Shisandan saat dia menyerang.
+Danan menangkis dengan tangan kirinya untuk menangkis pedang yang diayunkan Shisandan saat dia menyerang.
 
 Detik berikutnya, saat masih dalam posisi menangkis, seperti cambuk, lengan kiri Danan berganti arah dan menangkap wajah Shisandan.
 
@@ -204,7 +204,7 @@ Detik berikutnya, saat masih dalam posisi menangkis, seperti cambuk, lengan kiri
 
 Shisandan tersandung ke belakang.
 
-Dia segera mencoba mengangkat pedangnya tetapi Shisandan kehilangan kekuatan dan jatuh ke satu lutut.
+Dia segera mencoba mengangkat pedangnya tetapi Shisandan kehilangan kekuatan dan jatuh satu lutut.
 
 “Ah, benar.”
 
@@ -214,8 +214,10 @@ Kata Danan sambil menatap Shisandan.
 
 "Apa?"
 
-“Terima kasih telah membuat saya memperhatikan betapa malasnya saya dengan tangan kiri saya. Saya tidak akan pernah tahu bahwa tangan kiri saya bisa bergerak seperti ini jika saya tidak mencoba. Berkat itu, saya sekarang lebih kuat dari Anda. "
+"Terima kasih telah membuatku memperhatikan betapa malasnya aku dengan tangan kiriku. aku tidak akan pernah tahu bahwa tangan kiriku bisa bergerak seperti ini jika aku tidak mencobanya. Berkat itu, aku sekarang lebih kuat darimu. "
 
 Ares tahu dari gaya bertarung Danan selama perjalanan mereka bahwa dia tidak menggertak.
 
-Meski absurd, maniak Martial Artist ini justru semakin kuat setelah kehilangan lengan kanannya.
+Meski absurd, maniak bela diri ini justru semakin kuat setelah kehilangan lengan kanannya.
+
+<gambar> vol4 7.jpg
