@@ -168,26 +168,16 @@ Terlepas dari pikiran batin Shisandan, rasa waspada Ares terhadapnya telah berku
 
 "Individualitas? Apa maksudmu... tidak, yang lebih penting, aku tidak bisa menyerahkan warisan Pahlawan generasi sebelumnya kepada anggota pasukan Raja Iblis."
 
-“Tetapi jika situasi saat ini berlanjut, Pahlawan akan berhenti menjadi『 Pahlawan 』. Jika itu terjadi, warisan atau yang lainnya tidak akan menjadi masalah sama sekali. "
+“Tetapi jika situasi saat ini berlanjut, Pahlawan akan berhenti menjadi『 Pahlawan 』. Jika itu terjadi, warisan atau yang lainnya tidak akan menjadi masalah sama sekali.""
 
 “Itu…”
 
- 
-
 Sosok Shisandan bergoyang. Siluetnya berubah menjadi iblis dengan enam lengan.
 
- 
+“Setelah kamu menemukan warisan, dengan kecerdasanmu, kamu mungkin mengerti apa itu『 Pahlawan 』. Dan kamu mungkin bisa melakukan sesuatu dengan itu. Selanjutnya... ”
 
-“Setelah Anda menemukan warisan, dengan kecerdasan Anda, Anda mungkin mengerti apa itu『 Pahlawan 』. Dan Anda mungkin bisa melakukan sesuatu tentang itu. Selanjutnya… ”
-
- 
-
-Bisikan iblis itu perlahan meresap ke dalam roh Ares.
-
- 
+Bisikan iblis itu perlahan meresap ke dalam Ares.
 
 “Bahkan aku, seorang Asura, akan merasa sulit untuk maju. Aku butuh kekuatan 『Sage』, kekuatanmu. ”
-
- 
 
 Bagi Ares yang ditinggalkan oleh Ruti, kata-kata itu adalah titik lemahnya yang meruntuhkan tembok pertahanan di sekitar jiwanya.
