@@ -234,27 +234,19 @@ Namun, aku tidak bisa meninggalkan anak itu. Itu jeleknya dari Perlindungan Ilah
 
 Perlindungan Ilahi tidak takut mati dan memprioritaskan tindakan menjadi pahlawan daripada bertahan hidup.
 
-Jika aku memiliki tujuan besar di depan seperti menaklukkan Raja Iblis, saya akan memiliki pilihan untuk meninggalkan orang di depan saya tetapi ... pada saat itu, menyelamatkan gadis itu adalah tujuan utama saya dan saya harus membantunya bahkan jika itu membutuhkan biaya. saya hidup saya.
+Jika aku memiliki tujuan besar di depan seperti menaklukkan Raja Iblis, aku akan memiliki pilihan untuk meninggalkan orang di depanku tetapi ... pada saat itu, menyelamatkan gadis itu adalah tujuan utamaku dan aku harus membantunya bahkan jika itu akan membunuhku.
 
- 
+Terlebih lagi, pertama-tama, aku bahkan tidak punya waktu untuk memikirkan hal seperti itu.
 
-Terlebih lagi, pertama-tama, saya bahkan tidak punya waktu untuk memikirkan hal seperti itu.
-
-Setelah melihat sosok saya, anak itu dengan keras meneriakkan nama saya dan berlari keluar sambil menangis, mengingatkan Owlbear di dalam gua.
-
- 
+Setelah melihat sosokku, anak itu dengan keras meneriakkan namaku dan berlari keluar sambil menangis.
 
 “Guoooooo !!!!!”
-
- 
 
 Owlbear melolong dan menyerang.
 
 Aku menghunus pisauku dan memegangnya dengan posisi terbalik.
 
 Peluang menang bahkan lebih tipis dari es tipis. Tetapi hanya kematian yang menunggu jika saya tidak menang.
-
- 
 
 Saya hanya punya satu kesempatan.
 
