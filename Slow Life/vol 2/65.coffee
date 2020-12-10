@@ -1,104 +1,64 @@
 Bab 65: Reuni tak terduga
 
-Penerjemah: Tseirp
-
- 
-
 "Kamu terlambat dua hari tapi kurasa itu tidak masalah."
 
 "He-heh, maafkan aku."
-
- 
 
 Charter Mail, layanan yang mengangkut paket apa pun yang diminta dengan kecepatan tercepat.
 
 Kapten Blake, kapten Golden Road, sebuah dapur kelas ringan, menundukkan kepalanya dengan sopan.
 
-Namun, di dalam hatinya, dia merasa ingin meludah. Laut musim dingin di sana tidak mengalami badai tetapi ombaknya kuat dan mereka menghadapi kesulitan besar dalam mengemudi. Namun terkadang, angin berhenti tiba-tiba dan bahkan sebagai pelaut yang terampil, Blake tidak dapat menentukan kecepatan kapal mereka harus berlayar.
-
- 
+Namun, di dalam hatinya, dia merasa ingin meludah. musim dingin dilaut tidak ada badai tetapi ombaknya kuat dan mereka menghadapi kesulitan besar dalam mengemudi. Namun terkadang, angin berhenti tiba-tiba dan bahkan sebagai pelaut yang terampil, Blake tidak dapat menentukan kecepatan kapal mereka.
 
 (Orang-orang di darat bertindak tinggi dan perkasa.)
-
- 
 
 Namun, dia tidak pernah mengungkapkan sedikit pun perasaan itu.
 
 Dia hanya mengerutkan wajahnya yang kecokelatan menjadi senyum yang menyenangkan dan terus menundukkan kepalanya.
 
-Blake mungkin seorang pelaut tapi Perlindungan Ilahi yang dia tempatkan adalah 『Court Poet』.
+Blake mungkin seorang pelaut tapi Perlindungan Ilahinya adalah 『Penyair Pengadilan』.
 
 Dia bisa mempelajari keterampilan yang mampu memanipulasi emosi orang lain untuk membuat marah atau menenangkan mereka. Negosiasi juga merupakan keahlian mereka.
 
- 
-
 Namun, Blake tidak bisa memaksa dirinya untuk menggunakan skill tipe manipulasi emosi pada pria di depannya.
 
-Pria muda dengan senyuman yang tampak seperti itu di wajahnya melihat melalui katalog parsel sambil mengelus dagunya.
+Pria muda dengan senyuman yang tampak seperti itu di wajahnya yang melihat katalog parsel sambil mengelus dagunya.
 
- 
+"Bisakah Anda mengizinkanku melihat parsel itu?"
 
-"Bisakah Anda mengizinkan saya melihat parsel itu?"
+"Tentu."
 
-Tentu.
+Apakah kepercayaan dari yang kuat terpancar dari tubuh pria itu?
 
- 
-
-Apakah kepercayaan dari yang kuat yang terpancar dari tubuh pria itu?
-
-Pada saat yang sama Blake menyadari bahwa pria itu kuat, dia juga bertekad bahwa dia tidak dapat dipercaya dan diam-diam waspada terhadapnya.
-
- 
+Pada saat yang sama Blake menyadari bahwa pria itu kuat, dia juga sadar bahwa dia tidak dapat dipercaya dan diam-diam waspada terhadapnya.
 
 "Byuui-san, bungkusan itu telah diangkut ke gudang ke sisi kapal."
-
- 
 
 Pria bernama Byuui memegang inventaris dengan tangan kirinya sambil membelai dagunya dengan tangan kanannya.
 
 Tiba-tiba, ekspresi Byuui berubah muram seolah menyadari sesuatu.
 
- 
-
 "Apakah ada masalah?"
 
- 
-
-Ada seorang pria seperti petualang dengan pedang tembaga di pinggangnya di garis pandang Byuui.
+Ada seorang pria seperti petualang dengan pedang tembaga di pinggangnya di depan Byuui.
 
 Bagi Blake, dia tampak seperti petualang biasa yang bisa ditemukan di mana saja.
 
- 
-
-"Itu adalah seseorang yang sulit saya hadapi, saya tidak ingin bertemu dengannya jika memungkinkan."
-
- 
+"dia adalah seseorang yang sulit kuhadapi, aku tidak ingin bertemu dengannya kalau bisa."
 
 Byuui mengangkat bahunya dan merendahkan suaranya sedikit sebelum dia mulai menghitung barang yang datang.
 
- 
+(Banyak alat sihir ini sudah cukup. Semua hasil penyelidikanku sejauh ini mengarah pada para wood-elf yang menyegel senjata di gunung. Satu-satunya lokasi yang mungkin ada di sana adalah reruntuhan ancient-elf. wood-elf sepertinya telah menganalisis teknik Ancient-Elf sampai batas tertentu.)
 
-(Banyak alat sihir ini sudah cukup. Semua hasil penyelidikanku sejauh ini mengarah pada para Peri Hutan yang menyegel senjata di gunung. Satu-satunya lokasi yang mungkin ada di sana adalah reruntuhan Peri-Kuno. Peri-Hutan di sini sepertinya telah menganalisis teknik Ancient-Elf sampai batas tertentu.)
-
- 
-
-Byuui mengambil peralatan survei mutakhir dan membuat tekadnya.
-
- 
+Byuui mengambil peralatan survei mutakhir dan membulatkan tekadnya.
 
 ☆☆
-
- 
 
 Beberapa jam kemudian.
 
 Tiga pria dan wanita meregangkan tubuh mereka setelah bangkit dari perahu kecil yang mendarat di pantai.
 
- 
-
 Pelabuhan yang lusuh.
-
- 
 
 Sage Ares berkomentar pahit saat melihat pelabuhan Zoltan.
 
