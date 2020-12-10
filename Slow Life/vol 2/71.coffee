@@ -28,115 +28,83 @@ g"Ah, aku di sini bukan untuk bertarung.”
 
 "Itu ironis mengingat kamu memiliki pedang yang mengarah padaku!""
 
-“Yah, itu karena kamu melempar bom itu. Lagipula, jika aku berniat bertarung, pedang ini pasti sudah menembus lehermu. "
+g"Yah, itu karena kamu melempar bom itu. Lagipula, jika aku berniat bertarung, pedang ini pasti sudah menembus lehermu."
 
- 
+Godwin memegang granat perekat lain di tangannya.
 
-Godwin membawa granat berperekat lain di tangannya.
-
-Setelah pertandingan singkat yang mencolok, Godwin perlahan menurunkan tangannya.
+Setelah beberapa saat, Godwin perlahan menurunkan tangannya.
 
 Menyesuaikan gerakannya, aku perlahan mencabut pedangku dari leher Godwin.
 
- 
+g"Di mana gadis yang menangkapmu?"
 
-Di mana gadis yang menangkapmu?
+“Apoteker, apa kau punya urusan dengan gadis itu? Aku akan menyerah jika aku jadi kamu. Setelah ditebas olehmu, aku tahu kamu kuat tapi kamu tidak bisa menang melawan gadis itu.”
 
-“Apoteker, apa kau punya urusan dengan gadis itu? Aku akan menyerah jika aku jadi kamu. Setelah ditebas olehmu, aku tahu kamu kuat tapi kamu tidak bisa menang melawan gadis itu. ”
-
-“Jangan salah paham, saya kenal dia.”
-
- 
+g"Jangan salah paham, aku kenal dia."
 
 Godwin menunjukkan wajah terkejut.
 
  
 
-“Mengikuti Hero Lit, kamu juga kenal dengan gadis itu? Apoteker, siapa Anda sebenarnya? ”
+“Selain Pahlawan Lit, kamu juga kenal dengan gadis itu? Apoteker, siapa kamu sebenarnya? ”
 
-“Saya hanya apotek biasa. Lebih penting lagi, dimana dia? ”
+g"aku hanya apoteker biasa. Lebih penting lagi, dimana dia?"
 
-“Seperti aku tahu. Bukankah dia akan berada di suatu tempat di reruntuhan? "
+"aku tidak tahu. Bukankah dia akan berada di suatu tempat di reruntuhan ini? "
 
- 
+Mencari Ruti di reruntuhan ini akan menjadi tugas yang melelahkan.
 
-Mencari Ruti di reruntuhan ini akan menjadi tugas yang menghancurkan tulang.
+g"......"
 
- 
+Haruskah aku berteriak untuk Ruti?
 
-”……”
+aku ingin menghindari melakukannya jika aku punya pilihan lain. Aku berada di sini adalah sesuatu yang tidak terbayangkan oleh Ruti. Ruti mungkin akan sedih jika dia menyadari bahwa aku tahu tentang Perlindungan Ilahi Iblis dan tindakannya membebaskan Godwin dari penjara.
 
- 
+Jika memungkinkan, aku lebih suka berada di sana untuk memberi tahu dia bahwa itu tidak penting bagiku.
 
-Haruskah saya berteriak untuk Ruti?
-
-Saya ingin menghindari melakukannya jika saya punya pilihan. Aku berada di sini adalah sesuatu yang tidak terbayangkan oleh Ruti. Ruti mungkin akan sedih jika dia menyadari bahwa aku tahu tentang Perlindungan Ilahi Iblis dan tindakannya membebaskan Godwin dari penjara.
-
-Jika memungkinkan, saya lebih suka berada di sana untuk memberi tahu dia bahwa itu tidak penting bagi saya.
-
- 
-
-"Oi, Godwin."
+g"Oi, Godwin."
 
 "Apa."
 
-Panggil dia.
+g"Panggil dia."
 
 "A-aku?"
 
-“Jika kamu berteriak dengan keras, dia pasti bisa mendengarnya dengan skill Extrasensory-nya.”
+g"Jika kamu berteriak dengan keras, dia pasti bisa mendengarnya dengan skill Extrasensory-nya."
 
-“Kenapa kamu tidak meneleponnya? Saya tidak mempercayai Anda. Bagaimana Anda akan bertanggung jawab jika Anda benar-benar musuh gadis itu dan dia jadi berpikir bahwa saya telah mengkhianatinya. "
+"Kenapa kamu tidak memanggilnya? aku tidak mempercayaimu. Bagaimana aku akan bertanggung jawab jika kamu benar-benar musuh gadis itu dan dia jadi berpikir bahwa aku telah mengkhianatinya. "
 
-"Kemudian Anda dapat mengklaim bahwa saya menikam Anda dengan pedang ini dan mengancam akan membunuh Anda."
+g"kau bisa mengklaim bahwa aku menusukmu dengan pedang ini dan mengancam akan membunuhmu."
 
-"Tidak. Ketakutan saya terhadap gadis itu datang dari lubuk hati saya yang paling dalam. "
+"Tidak. Ketakutanku terhadap gadis itu datang dari lubuk hatiku yang paling dalam. "
 
- 
+merepotkan.
 
-Sangat merepotkan.
+g"Kamu tidak akan melakukannya apapun yang terjadi?"
 
- 
+"Tidak akan."
 
-“Kamu tidak akan melakukannya apapun yang terjadi?”
-
-Tidak peduli apa.
-
-"Tidak ada yang membantunya."
-
- 
+g"ya sudah..."
 
 Aku meraih tangan kiri Godwin yang memegang bom itu.
 
-Bom itu berbahaya jadi saya meletakkannya di lantai.
-
- 
+Bom itu berbahaya jadi aku meletakkannya di lantai.
 
 “A-apa yang kamu lakukan…”
 
- 
-
 Godwin dengan cemas mencoba membebaskan diri tetapi aku memegangnya dengan kuat dan tidak melepaskannya.
 
- 
+g"Jangan khawatir, aku tidak akan melukaimu."
 
-“Jangan khawatir, aku tidak akan melukaimu.”
+"W-luka… bajingan kau! Hentikan!"
 
-“W-luka… kau bajingan! Berhenti!"
+Godwin sepertinya sudah tahu apa yang akan terjadi karena dia panik dan berusaha melepaskan diri.
 
- 
+g"Lit-ku menghadapi bahaya karenamu."
 
-Godwin sepertinya sudah tahu apa yang akan terjadi saat dia panik dan berjuang.
+“Bukankah sudah adil setelah kamu memotongku!”
 
- 
-
-“Ada juga itu, Lit-ku menghadapi bahaya karenamu.”
-
-“K-kita bahkan setelah kamu memotongku!”
-
-"Itu demi Al."
-
- 
+g"Itu demi Al."
 
 Sebelumnya, karena granat berperekat milik orang ini, Lit hampir saja dibunuh oleh Stalker Demons. Ini adalah sedikit balasan untuk waktu itu.
 
