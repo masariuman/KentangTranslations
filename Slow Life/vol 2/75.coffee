@@ -176,19 +176,13 @@ Orang di sana adalah Sage Ares, orang yang mengusirku dari sisi Ruti.
 
 Tapi Ares saat ini tampak sangat berbeda dari Ares yang kuingat.
 
-Penampilan Ares yang biasanya populer di kalangan wanita di Kota Kekaisaran kini tampak lesu dengan pipi yang tidak dicukur dan rambut acak-acakan. Matanya merah dan membesar, membuatku teringat bola mata almarhum yang berbusa di lantai reruntuhan saat menghilang.
+Penampilan Ares yang biasanya populer di kalangan wanita di Kota Kekaisaran kini tampak lesu dengan pipi yang tidak dicukur dan rambut acak-acakan. Matanya merah dan membesar, membuatku teringat bola mata yang berbusa di lantai reruntuhan saat menghilang.
 
- 
+"Ruti, ayo kita berangkat untuk mengalahkan Raja Iblis bersama-sama. Hanya Ruti yang merupakan Pahlawan yang bisa menyelamatkan dunia. Dan aku harus berada di sisimu untuk itu. Pahlawan dan Sage. Dengan gabungan dua Perlindungan Ilahi terbesar, kita tidak perlu takut pada Raja Iblis."
 
-“Ruti, mari kita berangkat untuk mengalahkan Raja Iblis bersama-sama. Hanya Ruti yang merupakan Pahlawan yang bisa menyelamatkan dunia. Dan aku harus berada di sisimu untuk itu. Pahlawan dan Sage. Dengan gabungan dua Perlindungan Ilahi terbesar, kita tidak perlu takut pada Raja Iblis. "
-
-“Ah, Ares, apa yang terjadi? Kenapa kamu terlihat seperti itu… ”
-
- 
+g"Ah, Ares, apa yang terjadi? Kenapa kamu terlihat seperti itu... ”
 
 Aku memanggil Ares. Sebagai orang yang cerewet, Ares selalu menjaga penampilannya meski dalam perjalanan jadi saya cukup kaget melihat penampilan Ares yang tidak terawat.
-
- 
 
 “Sekarang, Ruti. Pegang tanganku. Apakah Anda berpikir bahwa Anda tidak membutuhkan teman lain? Tidak apa-apa, memang benar Danan dan Theodora dan Yarandorara dan Tise dan Gideon semuanya adalah pengganggu. Sampah yang hanya tahu bagaimana cara mengadu tetapi tidak berguna untuk apapun. Mari kita kalahkan Raja Iblis hanya dengan kita berdua. Masa depan yang gemilang menanti kita. ”
 
