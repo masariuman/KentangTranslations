@@ -150,40 +150,24 @@ aku mengeluarkan kompas dan memastikan arah sebelum melangkah lebih dalam ke rer
 
 Tapi kenapa para ancient-elf menciptakan fasilitas sebesar itu di bawah tanah?
 
-Setelah berjalan sebentar, di sepanjang jalan, saya perhatikan bahwa bahan bangunan berubah menjadi sesuatu yang sangat berbeda. Piring yang terbuat dari tanah liat ditempelkan di dinding.
-
- 
+Setelah berjalan sebentar, di sepanjang jalan, aku perhatikan bahwa bahan bangunan berubah menjadi sesuatu yang sangat berbeda. Piring yang terbuat dari tanah liat ditempelkan di dinding.
 
 Ini bukan tulisan Ancient-Elf tapi tulisan Wild-Elf. ”
 
- 
+dihancurkan oleh Demon Lord generasi sebelumnya, Half-Elf seperti Gonz dikatakan sebagai keturunan berdarah campuran dari para Wild-Elf yang bercampur dengan manusia. Oleh karena itu, tidak seperti tulisan Ancient-Elf, aku bisa membaca hampir semua tulisan Wild-Elf.
 
-Perlombaan dihancurkan oleh Demon Lord generasi sebelumnya. Half-Elf seperti Gonz dikatakan sebagai keturunan berdarah campuran dari para Wild-Elf yang bercampur dengan manusia. Oleh karena itu, tidak seperti tulisan Ancient-Elf, saya bisa membaca hampir semua tulisan Wild-Elf.
+g"Administrasi pahlawan?"
 
- 
+aku penasaran apa artinya. masih misteri juga bagaimana para wild-elf memasuki reruntuhan ancient-elf dan juga misteri mengapa mereka mengukir papan tanah liat dengan kata-kata itu.
 
-Administrasi pahlawan?
+g"lebih dalam lagi, bagian di depan mungkin menjadi tempat menginap?"
 
- 
-
-Saya bertanya-tanya apa artinya. Itu adalah misteri bagaimana para Peri-Liar memasuki reruntuhan Peri-Kuno dan juga misteri mengapa mereka mengukir papan tanah liat dengan kata-kata itu.
-
- 
-
-Selanjutnya, bagian di depan harus menjadi bagian penginapan?
-
- 
-
-Tise menyebutkan kalau tempat tidur ditempatkan di setiap kamar jadi bagian di depan adalah tempat para Peri Kuno tidur… mungkin. Meskipun saya tidak tahu tujuan dari reruntuhan ini, papan tanah liat itu seharusnya merujuk ke ruangan lain. Kamar-kamar di depan hanyalah kamar tidur umum.
+Tise menyebutkan kalau tempat tidur ditempatkan di setiap kamar jadi bagian di depan adalah tempat para ancient-elf tidur... mungkin. Meskipun aku tidak tahu tujuan dari reruntuhan ini, papan tanah liat itu seharusnya merujuk ke ruangan lain. Kamar-kamar di depan hanyalah kamar tidur umum.
 
 Apakah ada artinya sengaja menempatkan papan tanah liat di lokasi itu?
 
- 
+g"... Yah, aku tidak akan bisa mendapatkan jawaban hanya dengan memikirkannya."
 
-"... Yah, aku tidak akan bisa mendapatkan jawaban hanya dengan memikirkannya."
+Lebih penting lagi, prioritas utamaku sekarang adalah bertemu Ruti.
 
- 
-
-Lebih penting lagi, prioritas utama saya sekarang adalah bertemu Ruti.
-
-Untuk sementara saya mengabaikan keraguan dan keingintahuan saya yang meningkat dan bergegas menuju sisi Ruti.
+Untuk sementara aku mengabaikan keraguan dan keingintahuanku yang meningkat dan bergegas menuju sisi Ruti.
