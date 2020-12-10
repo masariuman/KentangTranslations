@@ -148,65 +148,43 @@ Albert menggelengkan kepalanya untuk menunjukkan bahwa dia tidak mempermasalahka
 
 “Itu… adalah masa lalu yang mengerikan.”
 
-“Lebih baik jika kamu tidak membicarakan hal ini di depan Ares, dia tidak bisa meletakkan fakta bahwa dia harus berjuang dalam hidup karena kejadian seperti itu.”
+“Lebih baik jika kamu tidak membicarakan hal ini di depan Ares, dia tidak bisa menerima fakta bahwa dia harus berjuang dalam hidup karena kejadian seperti itu.”
 
 "Tentu saja."
 
- 
-
 Albert mengangguk. Untuk orang seperti Ares dengan banyak kebanggaan, itu mungkin sejarah pribadi yang tak tertahankan. Sesuatu yang tidak boleh disentuh.
 
-Albert menyimpan apa yang dia dengar di belakang pikirannya dan membawa Theodora ke sebuah penginapan di distrik pelabuhan.
-
- 
+Albert menyimpan apa yang dia dengar di dalam pikirannya dan membawa Theodora ke sebuah penginapan di distrik pelabuhan.
 
 ☆☆
 
- 
-
-Sedikit memutar waktu.
-
 Setelah Byuui mengkonfirmasi bungkusan itu dan menginstruksikan berbagai peralatan untuk dibawa ke rumah yang disewanya.
 
-Saat Red sedang melihat-lihat pasar yang dibuka di dekat kapal dagang.
+Red sedang melihat-lihat pasar yang dibuka di dekat kapal dagang.
 
- 
+g"Ah, mereka benar-benar memilikinya."
 
-“Ah, mereka benar-benar memilikinya.”
+aku membayar dengan koin perak dan menerima beberapa alat.
 
- 
-
-Saya membayar dengan koin perak dan menerima beberapa alat.
-
-Meskipun saya tidak dapat memperoleh semuanya, saya dapat membeli beberapa alat alkimia ajaib yang kami cari seperti alat pengukur dan filter presisi tinggi.
-
- 
+Meskipun aku tidak dapat memperoleh semuanya, aku dapat membeli beberapa alat alkimia sihir yang kami cari seperti alat pengukur dan filter presisi tinggi.
 
 "Hanya ini yang harganya lebih dari seribu Peryl ya?"
 
- 
+Itu adalah jumlah yang dapat diabaikan ketika aku berada dengan ksatria ordo atau di tim Pahlawan tetapi itu adalah jumlah yang cukup besar bagiku sekarang.
 
-Itu adalah jumlah yang dapat diabaikan ketika saya berada dengan ordo ksatria atau di pesta Pahlawan tetapi itu adalah jumlah yang cukup besar bagi saya sekarang.
-
-Tentu, kapal dagang tidak menerima pinjaman atau kredit. Hanya pembayaran sekaligus.
+Tentu, kapal dagang tidak menerima pinjaman atau kredit. Hanya pembayaran tunai.
 
 Aku membungkus peralatan yang kubeli dengan hati-hati dan berdiri untuk mengejar Lit dan Tise.
 
- 
+"Gideon!"
 
-Gideon!
+Pada saat yang sama, sebuah suara keras memanggil namaku.
 
- 
-
-Pada saat itu, sebuah suara keras memanggil namaku.
-
-Saya tahu suara itu. Saya mengenalinya tetapi mengapa dia ada di sini?
+aku tahu suara itu. aku mengenalinya tetapi mengapa dia ada di sini?
 
 Bayangan besar melompati kepala orang dengan cahaya yang tak terbayangkan dari tubuh besar itu.
 
 Seorang pria bertubuh besar mendarat di depanku dengan bantingan keras.
-
- 
 
 “Ini benar-benar Gideon! Anda benar-benar dalam beberapa peralatan lusuh! ”
 
