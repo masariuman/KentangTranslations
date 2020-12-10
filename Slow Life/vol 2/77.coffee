@@ -130,11 +130,11 @@ senyuman licik muncul di mulut pemuda berkulit kecokelatan itu.
 
 Kecemasan memenuhi dada Ares.
 
-Mengapa para wood-elf menyembunyikan relik Pahlawan generasi sebelumnya? Relik 『Pahlawan』 harus menjadi simbol harapan. Apa arti di balik menyembunyikan keberadaannya secara ketat sehingga tidak ada satu kata pun yang tersisa tentangnya?
+Mengapa para wood-elf menyembunyikan relik Pahlawan generasi sebelumnya? Relik 『Pahlawan』 harus menjadi simbol harapan. Apa arti di balik menyembunyikan keberadaannya secara ketat sehingga tidak ada yang mengingatnya?
 
 Keduanya maju lebih dalam ke reruntuhan.
 
-Para Peri Hutan memelototi mereka berdua dengan tatapan hampa tapi Shisandan mencibir pada tindakan mereka sambil bersenandung pada dirinya sendiri.
+Para wood-elf memelototi mereka berdua dengan tatapan hampa tapi Shisandan mencibir pada tindakan mereka sambil bersenandung pada dirinya sendiri.
 
 Ruangan itu dipenuhi dengan permusuhan yang melingkari mereka. Itu sangat kuat sehingga Ares secara naluriah merasakan dinginnya.
 
