@@ -24,139 +24,97 @@ aku cukup yakin di sanalah Ruti menyembunyikan kapal terbang itu?
 
 Aku ingat Tise mengatakan itu padaku.
 
-Mereka rupanya telah menguncinya sedemikian rupa sehingga tidak dapat dipindahkan oleh siapa pun selain Tise tetapi masih banyak bagian tentangnya yang masih belum mereka ketahui.
+Mereka rupanya telah menguncinya sedemikian rupa sehingga tidak dapat dipindahkan oleh siapa pun selain Tise tetapi masih banyak yang masih belum mereka ketahui.
 
-Mungkin antek dari pasukan Raja Iblis yang memiliki kunci untuk menghilangkan kunci dan datang untuk mencuri kapal terbang.
+Mungkin iblis dari pasukan Raja Iblis yang memiliki kunci untuk menghilangkan kunci dan datang untuk mencuri kapal terbang.
 
- 
+g"Kapal terbang itu awalnya adalah produk dari teknologi Benua Kegelapan sehingga pasukan Raja Iblis secara alami akan tahu itu lebih baik dibandingkan dengan Tise."
 
-"Kapal terbang itu awalnya adalah produk dari teknologi Benua Kegelapan sehingga pasukan Raja Iblis secara alami akan tahu itu lebih baik dibandingkan dengan Tise."
+Haruskah aku pergi ke tempat Ruti berada atau haruskah aku pergi ke tempat kapal terbang itu tersembunyi di hutan?
 
- 
+Aku ragu sebentar tapi kuputuskan untuk tetap pergi ke sisi Ruti dulu.
 
-Haruskah saya pergi ke tempat Ruti berada atau haruskah saya pergi ke tempat kapal terbang itu tersembunyi di hutan?
-
-Aku ragu-ragu sebentar tapi kuputuskan untuk tetap pergi ke sisi Ruti dulu.
-
-Karena saya merasa masalah Ruti lebih penting daripada ada atau tidaknya kapal terbang.
+Karena aku merasa masalah Ruti lebih penting daripada ada atau tidaknya kapal terbang.
 
 Aku menuju ke reruntuhan Ancient-Elf yang ditemukan di dalam sarang Chimera di gunung.
 
- 
-
 ☆☆
 
- 
-
-“Bagaimana menurutmu Danan, bukankah itu kapal terbang yang bagus? Dengan ini, kita bisa menuju ke Benua Hitam tanpa mempedulikan blokade laut oleh pasukan Raja Iblis. Hari kemenangan kita sudah dekat. "
-
- 
+"Bagaimana menurutmu Danan, bukankah itu kapal terbang yang bagus? Dengan ini, kita bisa menuju ke Benua Hitam tanpa mempedulikan blokade laut oleh pasukan Raja Iblis. Hari kemenangan kita sudah dekat. "
 
 Ares membual tentang hasil petualangan mereka.
 
- 
+“sepertinya bagus tapi Ruti sepertinya tidak ada di sini.”
 
-“Itu sendiri bagus tapi Ruti sepertinya tidak ada di sini.”
-
-"Itu benar. Tetapi mengetahui bahwa kapal terbang ada di sini adalah panen yang bagus. Sementara saya di sini, saya akan membuat penghalang yang akan mencegah orang lain selain diri kita sendiri untuk mendekatinya. Akan menjadi masalah serius jika kapal terbang ini dicuri. Selanjutnya, dengan perisai, saya akan tahu apakah Ruti mendekati kapal terbang. "
-
- 
+"Itu benar. Tetapi mengetahui bahwa kapal terbang ada di sini adalah sesuatu bagus. Sementara aku di sini, aku akan membuat penghalang yang akan mencegah orang lain selain diri kita sendiri untuk mendekatinya. Akan menjadi masalah serius jika kapal terbang ini dicuri. Selanjutnya, dengan perisai, aku akan tahu apakah Ruti mendekati kapal terbang. "
 
 Terlepas dari bagaimana dia kelelahan karena merapal sihir selama beberapa hari berturut-turut, Ares segera mulai bersiap dan masih bisa memasang penghalang di seluruh kapal terbang bahkan setelah memanggil Spirit Drake hari ini.
 
-Itu seperti yang diharapkan dari Sage terkuat di dunia. Sejujurnya Shisandan terkesan dengan kekuatan magisnya yang bahkan iblis kelas senior pun tidak akan mampu melawannya.
-
- 
+seperti yang diharapkan dari Sage terkuat di dunia. Sejujurnya Shisandan terkesan dengan kekuatan magisnya yang bahkan iblis kelas senior pun tidak akan mampu melawannya.
 
 (Perlindungan Ilahi tidak memberikan pengetahuan dan penilaian. Itu mungkin kesalahan fatal bagi orang ini.)
 
- 
-
-Meskipun Ares mencapai gunung lebih cepat daripada Red, pilihannya di sana berarti kedatangannya di reruntuhan akan tertunda.
+Meskipun Ares mencapai gunung lebih cepat daripada Red, dia pergi ke kapal itu kedatangannya di reruntuhan akan tertunda.
 
 Perbedaan waktu itu akan berdampak pada hasilnya nanti.
 
- 
-
 ☆☆
 
- 
+Saat melewati gunung, aku segera mencapai sarang Chimera.
 
-Saat melewati gunung, saya segera mencapai sarang Chimera.
+Seperti biasa, para Chimera hanya mengawasi dan mengepungku dari kejauhan tanpa menyerang.
 
-Seperti biasa, para Chimera hanya mengawasi dan mengepung saya dari kejauhan tanpa menyerang.
+Tidak seperti sebelumnya ketika aku mendekati Chimera karena seorang petualang pemula terlibat dengan mereka, kali ini aku menuju reruntuhan.
 
- 
+aku memasuki reruntuhan yang telah dikonsumsi oleh hutan dan ditumbuhi akar dan tanaman merambat.
 
-Tidak seperti sebelumnya ketika saya mendekati Chimera karena seorang petualang pemula terlibat dengan mereka, kali ini saya menuju kehancuran.
+Hanya lantai dan langit-langit yang menunjukkan bahwa itu adalah reruntuhan ancient-elf, terbuat dari bahan kaku tapi halus yang tidak diketahui, bukan logam atau batu.
 
-Saya memasuki reruntuhan yang telah dikonsumsi oleh hutan dan ditumbuhi akar dan tanaman merambat.
+aku menyelidiki lokasi itu sebentar di masa lalu. Sistem pertahanan diaktifkan menuju bagian terdalam dari reruntuhan jadi aku tidak bisa menyelidikinya sepenuhnya tapi reruntuhan ini memberiku kesan bahwa itu jauh lebih aman dibandingkan dengan reruntuhan lain di wilayah tengah.
 
-Hanya lantai dan langit-langit yang menunjukkan bahwa itu adalah reruntuhan Peri Kuno, terbuat dari bahan kaku tapi halus yang tidak diketahui, bukan logam atau batu.
+aku juga telah melihat cukup banyak literatur tentang reruntuhan ancient-elf.
 
-Saya menyelidiki lokasi itu secara singkat di masa lalu. Sistem pertahanan diaktifkan menuju bagian terdalam dari reruntuhan jadi saya tidak bisa menyelidikinya sepenuhnya tapi reruntuhan ini memberi saya kesan bahwa itu jauh lebih aman dibandingkan dengan reruntuhan lain di wilayah tengah.
+Para sarjana berpendapat bahwa setiap reruntuhan Ancient-Elf memiliki tujuan yang jelas. Meskipun, dalam arti tertentu, jelas sekali maksudya.
 
- 
+aku pribadi melihat reruntuhan yang menyegel bukti pahlawan yang terletak di dekat Ibukota Kekaisaran. Ares dan Ruti mungkin menyadarinya juga ... bahwa itu bukan segel.
 
-Saya juga telah melihat cukup banyak literatur tentang reruntuhan Peri-Kuno.
-
-Para sarjana berpendapat bahwa setiap reruntuhan Ancient-Elf memiliki tujuan yang jelas. Meskipun, dalam arti tertentu, itu jelas akan terjadi.
-
-Saya pribadi melihat reruntuhan yang menyegel bukti pahlawan yang terletak di dekat Ibukota Kekaisaran. Ares dan Ruti mungkin menyadarinya juga ... bahwa itu bukan segel.
-
-Kehancuran itu 『menghasilkan』 bukti sang pahlawan. Buktinya hero yang didapat Ruti tidak sama dengan hero yang digunakan oleh hero generasi sebelumnya. Apalagi peninggalan yang konon sudah diwariskan sejak zaman dahulu kala.
+reruntuhan itu 『menghasilkan』 bukti sang pahlawan. Buktinya hero yang didapat Ruti tidak sama dengan hero yang digunakan oleh hero generasi sebelumnya. Apalagi peninggalan yang konon sudah diwariskan sejak zaman dahulu kala.
 
 Bukti pahlawan adalah alat baru yang diproduksi oleh reruntuhan yang sama yang membuat bukti pahlawan generasi sebelumnya.
 
- 
+aku tidak melihat satu pun Chimera yang biasanya aku lihat di dalam reruntuhan.
 
-Saya tidak melihat satu pun Chimera yang biasanya saya lihat di dalam reruntuhan.
+Ruti mungkin membunuh beberapa dari mereka sehingga Chimera menilai bahwa lokasi ini berbahaya.
 
-Ruti mungkin membuang beberapa dari mereka sehingga Chimera menilai bahwa lokasi ini berbahaya.
+Melanjutkan ke depan, aku menemukan sebuah pintu dengan lubang besar di dalamnya.
 
-Melanjutkan ke depan, saya menemukan sebuah pintu dengan lubang besar di dalamnya.
-
- 
-
-“Meski bisa dibuka dengan baik hanya dengan mengaktifkan perangkat.”
-
- 
+g"padahal dibuka dengan baik hanya dengan mengaktifkan perangkat."
 
 Ruti mungkin membukanya dengan paksa. Meskipun bagi Ruti, itu kemungkinan besar metode yang paling efisien, aku masih tersenyum pahit pada pendekatan brute force-nya.
 
-Ruti sama sekali tidak bodoh. Dia harus bisa memahami cara membuka pintu jika dia memeriksanya dengan serius. Tapi Ruti agak ceroboh dalam hal itu.
+Ruti sama sekali tidak bodoh. Dia bisa memahami cara membuka pintu jika dia memeriksanya dengan serius. Tapi Ruti agak ceroboh dalam hal itu.
 
- 
+Setelah memasuki pintu, aku segera menemukan lubang gelap yang menganga.
 
-Setelah memasuki pintu, saya segera menemukan lubang gelap yang menganga.
+Biasanya harus ada perangkat lift di sana tapi...
 
-Biasanya harus ada perangkat lift di sana tapi…
-
- 
-
-"Tidak ada apa-apa di sini."
-
- 
+g"Tidak ada apa-apa di sini."
 
 Sepertinya Ruti benar-benar menghancurkannya seperti yang dikatakan Tise.
 
-Saya tidak punya pilihan selain turun tanpanya.
+aku tidak punya pilihan selain turun tanpanya.
 
- 
+"yaah mau gimana lagi... skill akrobat: Jatuh Melambat."
 
-“Tidak ada yang membantunya… penguasaan skill akrobat: Slow Fall.”
+aku memanggil Perlindungan Ilahi dalam diriku dan mengaktifkan skill.
 
- 
+Dengan skill itu, selama aku memiliki dinding dalam jangkauan lengan dan kaki, aku dapat menggunakannya untuk mengurangi kecepatanku dan turun dengan kecepatan aman dari ketinggian berapa pun tingginya. aku menggunakan keterampilan yang sama di rumah Big Hawk juga.
 
-Saya menyentuh Perlindungan Ilahi dalam diri saya dan mengaktifkan keterampilan.
+Menatap ke bawah dari atas, interior tempat perangkat lift seharusnya berada berwarna hitam pekat. aku mengeluarkan tongkat cahaya dari kantong ikat pinggangku. Tongkat cahaya berbentuk silinder tipis dengan panjang sekitar 30 cm yang terbuat dari kuningan.
 
-Dengan keterampilan itu, selama saya memiliki dinding dalam jangkauan lengan dan kaki, saya dapat menggunakannya untuk mengurangi kecepatan saya dan turun dengan kecepatan aman dari ketinggian berapa pun. Saya menggunakan keterampilan yang sama di rumah Big Hawk juga.
+Aku menghantamkan ujung tongkat cahaya ke lantai. Saat aku melakukan itu, dengan suara pelan, kuningan mulai terbakar tanpa melepaskan panas apapun. Itu menerangi sekeliling dengan cahaya seperti obor biasa.
 
-Menatap ke bawah dari atas, interior tempat perangkat lift seharusnya berada berwarna hitam pekat. Saya mengeluarkan tongkat cahaya dari kantong ikat pinggang saya. Light stick adalah silinder tipis dengan panjang sekitar 30 cm yang terbuat dari kuningan.
-
-Aku menghantamkan ujung tongkat cahaya ke lantai. Saat saya melakukan itu, dengan suara pelan, kuningan mulai terbakar tanpa melepaskan panas apapun. Itu menerangi sekeliling dengan cahaya sebanyak obor biasa.
-
-Tongkat cahaya adalah item sihir murah yang harganya sekitar 2 Peryl dengan sihir khusus yang diterapkan padanya dan merupakan peralatan penerangan sekali pakai yang bisa memancarkan cahaya hingga 10 jam setelah disambar.
+Tongkat cahaya adalah item sihir murah yang harganya sekitar 2 Peryl dengan sihir khusus yang diterapkan padanya dan merupakan peralatan penerangan sekali pakai yang bisa memancarkan cahaya hingga 10 jam setelah dihidupkan.
 
 Orang mungkin mengatakan itu murah tapi itulah harga untuk satu jika Anda membelinya dalam bundel 100 batang. Namun, karena fakta bahwa itu dapat dinyalakan dengan mudah, bahwa itu tidak akan padam setelah dinyalakan dan tidak akan membuat apapun di sekitarnya terbakar, para petualang veteran selalu memiliki beberapa tongkat di tangan sebagai sumber cahaya darurat. Saya juga selalu membawa tiga tongkat di ikat pinggang saya.
 
