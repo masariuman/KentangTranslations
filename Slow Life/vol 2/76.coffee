@@ -142,25 +142,21 @@ Ares merasakan pembuluh darah di otaknya berdenyut karena amarahnya.
 
 Shisandan menegaskan.
 
-Ares tidak berharap dia setuju dengannya dan secara tidak sengaja menarik permusuhannya terhadapnya.
+Ares tidak berharap dia setuju dengannya dan secara tidak sengaja melonggarkan kewaspadaannya terhadapnya.
 
 “Jika Perlindungan Ilahi adalah peran yang ditugaskan kepada kita oleh Dewa Demis,『 Raja Iblis 』dan『 Pahlawan 』bertarung satu sama lain adalah takdir, itu adalah jalan yang benar. Kami, pasukan Raja Iblis, juga berharap bahwa 『Pahlawan』 akan berdiri dan bertarung dengan 『Raja Iblis』. ”
 
-"... Dengan kata lain,『 Demon Lord 』hanya memenuhi perannya sesuai dengan Divine Protection-nya."
+"... Dengan kata lain,『 raja iblis 』hanya memenuhi perannya sesuai dengan perlindungan ilahinyanya."
 
 "Itu benar. Saat keduanya bertarung, keseimbangan kekuatan yang stagnan antara dua benua besar akan bergeser ke satu sisi. Tetapi pada akhirnya, Pahlawan atau Raja Iblis baru akan muncul dan mengguncang keseimbangan kekuatan sekali lagi dan kedua benua akan berkembang melalui pertempuran itu. Ini berlaku untuk Perlindungan Ilahi serta peradaban, mereka tidak akan tumbuh di luar perang. Itu karena kemampuan manusia dan iblis yang bertanggung jawab atas peradaban ditentukan oleh tingkat Perlindungan Ilahi mereka. Perang berskala besar akan memusnahkan orang-orang dengan Perlindungan Ilahi yang lemah dan pengalaman akan diberikan kepada mereka yang memiliki Perlindungan Ilahi yang kuat. Orang-orang yang dipilih oleh Perlindungan Ilahi mereka akan memajukan dunia ke era baru. "
 
-“Perlindungan dan peradaban Ilahi adalah sama… yaitu… sesuatu yang belum pernah saya pertimbangkan sebelumnya.”
-
- 
+“Perlindungan ilahi dan peradaban adalah sama... itu... sesuatu yang belum pernah aku pertimbangkan sebelumnya.”
 
 Berbeda dengan ekspresi Ares yang bingung, Shisandan mengutuk di dalam hatinya tentang bagaimana itu adalah lelucon.
 
-Shisandan berbicara tentang cita-cita Raja Iblis tradisional. Bagi Asura Demons yang tidak memiliki Perlindungan Ilahi, itu tidak lebih dari lelucon yang tidak masuk akal.
+Shisandan berbicara tentang cita-cita Raja Iblis tradisional. Bagi iblis Asura yang tidak memiliki Perlindungan Ilahi, itu tidak lebih dari lelucon yang tidak masuk akal.
 
 Sungguh konyol untuk berpikir bahwa teknik yang tidak berhubungan dengan pertempuran seperti pertanian atau teknik tidak akan maju tanpa perang. Asura Demons merasa bahwa Perlindungan Ilahi adalah belenggu yang konyol.
-
- 
 
 Terlepas dari pikiran batin Shisandan, permusuhan Ares terhadapnya telah berkurang drastis. Shisandan memutuskan bahwa sudah waktunya dia pindah ke topik utama.
 
