@@ -56,91 +56,61 @@ Lit-san sepertinya sedang memikirkan tentang orang lain yang datang kemari saat 
 
 Ketika kami sampai di kamar Godwin, Godwin mundur ketakutan saat melihat Lit-san.
 
-"Tidak apa-apa. Aku memang akhirnya terluka karena kamu tapi aku tidak membencimu dan aku tidak berniat untuk membalas dendam. "
+l"Tidak apa-apa. Aku memang akhirnya terluka karena kamu tapi aku tidak membencimu dan aku tidak berniat untuk membalas dendam."
 
-"Sangat menyesal."
+"aku sangat menyesal."
 
- 
+Godwin gemetar ketakutan dan Lit-san tersenyum.
 
-Godwin gemetar ketakutan saat Lit-san menyeringai.
-
-Lit-san sepertinya menganggapnya menarik karena dia dengan sengaja membuatnya terlihat seperti akan menghunus pedangnya.
+Lit-san sepertinya menganggapnya menarik dan dia dengan sengaja membuatnya terlihat seperti akan menghunus pedangnya.
 
 Orang ini ternyata sangat kekanak-kanakan.
 
- 
-
 "Dimana Ruru-san?"
 
- 
+Kami telah memutuskan untuk menggunakan alias ketika di depan Godwin, aku adalah Tifa sedangkan Ruti-sama adalah Ruru.
 
-Kami telah memutuskan untuk menggunakan alias ketika di depan Godwin, saya adalah Tifa sedangkan Ruti-sama adalah Ruru.
+Mengesampingkan namaku, nama Pahlawan Ruti terlalu terkenal.
 
-Mengesampingkan nama saya, nama Pahlawan Ruti terlalu terkenal.
+"dia itu pergi ke suatu tempat dengan apoteker."
 
- 
-
-Sosok itu pergi ke suatu tempat dengan apoteker.
-
-"Saya melihat."
-
- 
+"begitu ya..."
 
 Kalau begitu, sepertinya akan lebih cepat jika aku mengikuti jejak mereka.
 
-Syukurlah, jejak kaki itu masih terlihat jelas. Meskipun jika aku tidak memiliki keahlianku, aku mungkin tidak akan bisa membedakan jejak kaki yang tertinggal di permukaan lantai yang keras dari reruntuhan Peri Kuno.
+Syukurlah, jejak kaki itu masih terlihat jelas. Meskipun jika aku tidak memiliki keahlianku, aku mungkin tidak akan bisa membedakan jejak kaki yang tertinggal di permukaan lantai yang keras dari reruntuhan ancient-elf.
 
 Saat kami hendak meninggalkan ruangan, Lit-san berbalik.
 
- 
+"ada Apa?"
 
-"Apa yang salah?"
-
- 
-
-Lit-san membuka tas item di pinggangnya dan dari dalam, meletakkan pisau ajaib di lantai yang akan memancarkan kegelapan yang menyelimuti cahaya di sekitarnya saat kata perintah diucapkan, kemeja rantai yang dijahit dengan bahan peredam suara yang sangat bagus, tongkat asap yang akan mengeluarkan asap saat rusak, dan petir yang akan mengeluarkan suara dan cahaya saat dipukul.
-
- 
+Lit-san membuka tas item di pinggangnya dan dari dalam, meletakkan pisau sihir di lantai yang akan memancarkan kegelapan yang menyelimuti cahaya di sekitarnya saat kata perintah diucapkan, kemeja rantai yang dijahit dengan bahan peredam suara yang sangat bagus, tongkat asap yang akan mengeluarkan asap saat rusak, dan petir yang akan mengeluarkan suara dan cahaya saat dipukul.
 
 “Lit-san !?”
 
-“Godwin, meskipun hidupmu tidak berarti apa-apa bagiku, kamu tampaknya orang penting di sini. Ada kemungkinan seseorang telah menyusup ke reruntuhan ini. Orang itu memiliki kemampuan yang sama atau lebih besar dibandingkan dengan kita. Anda mungkin tidak akan bisa menang jadi gunakan ini untuk melindungi diri Anda sendiri. ”
+l"Godwin, meskipun hidupmu tidak berarti apa-apa bagiku, kamu tampaknya orang penting di sini. Ada kemungkinan seseorang telah menyusup ke reruntuhan ini. Orang itu memiliki kemampuan yang sama atau lebih besar dibandingkan dengan kita. kamu mungkin tidak akan bisa menang jadi gunakan ini untuk melindungi dirimu sendiri."
 
 “Jadi-seseorang yang lebih kuat dari kalian !? Jangan bercanda denganku, ajak aku juga! ”
 
-“Kami sibuk dengan tugas masing-masing. Kami akan segera kembali setelah kami bertemu dengan mereka. "
-
- 
+l"Kami sibuk dengan urusan masing-masing. Kami akan segera kembali setelah kami bertemu dengan mereka. "
 
 Selain itu, Lit-san juga menempatkan ramuan ajaib yang berisi mantra tembus pandang.
 
- 
-
-“Aku akan meninggalkan ini di sini juga, tapi… itu hanya penghiburan. Itu mungkin tidak akan berhasil melawan level lawan seperti itu. "
-
- 
+l"Aku akan meninggalkan ini di sini juga, tapi... itu hanya hiburan. Itu mungkin tidak akan berhasil melawan level lawan seperti itu. "
 
 Godwin menggerutu saat mengambil berbagai barang yang diletakkan di lantai.
 
- 
+"Aku mohon, jangan menyeretku ke pertarungan kalian antara para pahlawan."
 
-"Aku mohon, jangan menyeretku ke pertarungan antara kalian para pahlawan."
-
-“Bukankah lebih baik daripada dieksekusi?”
-
- 
+l"Bukankah itu lebih baik daripada dieksekusi mati?"
 
 Godwin mengangkat bahunya ketika Lit-san mengatakan itu dan dia duduk di lantai seolah menyerah.
 
-Penampilannya tampak begitu menyedihkan sehingga saya akhirnya sedikit mengasihani dia.
+Penampilannya tampak begitu menyedihkan sehingga aku akhirnya sedikit mengasihani dia.
 
 Ugeuge-san juga mengangkat lengan kanannya untuk menghiburnya.
 
- 
-
 ☆☆
-
- 
 
 Jika Ares tidak berhenti di kapal terbang dan langsung memasuki gunung, dia akan melihat Red di dalam gunung dan mungkin bisa mengikutinya.
 
