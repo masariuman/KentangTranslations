@@ -152,9 +152,9 @@ Godwin cukup kaget karena tidak percaya setelah melihat kelakuan Ruti namun ia m
 
 r"Onii-chan… kenapa kamu disini?"
 
-Sepertinya Ruti menggunakan kamar ini sebagai tempat tidur di reruntuhan ini.
+Sepertinya Ruti menggunakan kamar ini sebagai tempat tidurnya di reruntuhan ini.
 
-Itu adalah kamar tidur yang sedikit lebih besar dibandingkan dengan kamar lain dan berjarak dua lorong dari kamar Godwin.
+ruangan Itu adalah kamar tidur yang sedikit lebih besar dibandingkan dengan kamar lain dan berjarak dua lorong dari kamar Godwin.
 
 Meski teknologi Ancient-Elf lebih maju dibandingkan zaman modern, perabotan di ruangan itu semuanya sudah tua dan lapuk.
 
@@ -162,73 +162,49 @@ Ruti dan Godwin sama-sama memindahkan sampah di kamar mereka ke kamar lain dan t
 
 Di kamar Godwin, ia juga memiliki peralatan masak serta tempat penyimpanan air dan makanan sehingga cukup untuk kebutuhan hidup.
 
-Juga, dengan beberapa prinsip yang tidak saya ketahui, fasilitas pasokan air Peri-Kuno masih berfungsi. Saya enggan meminum air yang tidak diketahui asalnya dan dari alam tetapi bisa digunakan untuk keperluan sehari-hari seperti untuk mandi.
+Juga, dengan beberapa prinsip yang tidak aku ketahui, fasilitas pasokan air ancient-elf masih berfungsi. aku enggan meminum air yang tidak diketahui asalnya dan dari alam tetapi ini bisa digunakan untuk keperluan sehari-hari seperti untuk mandi.
 
-Tiang cucian yang dipasang di sebelah kamar yang Godwin dan Ruti gunakan membentuk pemandangan yang memisahkan diri dari gaya hidup Peri-Kuno.
+Tiang cucian yang dipasang di sebelah kamar yang Godwin dan Ruti gunakan membentuk pemandangan yang memisahkan diri dari gaya hidup ancient-elf.
 
- 
+r"Onii Chan?"
 
-"Onii Chan?"
+g"Ah, maaf, sudah lama sekali sejak aku memasuki reruntuhan acient-elf. aku sedikit terkejut."
 
-“Ah, maaf, sudah lama sekali sejak aku memasuki reruntuhan Peri-Kuno. Saya sedikit terkejut. ”
+r"begitu...."
 
-"Saya melihat."
+Sekarang topik utamanya.
 
- 
+g"Ruti, aku mendengar semuanya dari Tise."
 
-Sekarang untuk topik utama.
-
- 
-
-“Ruti, saya mendengar tentang situasi dari Tise.”
-
- 
-
-Pundak Ruti gemetar karena shock. Saya melihat ke bawah dan memikirkan apa yang harus saya katakan.
+Pundak Ruti gemetar karena shock. aku melihat ke bawah dan memikirkan apa yang harus aku katakan.
 
 Dia mungkin mengira aku kesal.
 
-Mengambil Perlindungan Ilahi Iblis dan menjatuhkan narapidana dari penjara adalah tindakan yang tidak terpikirkan oleh Ruti yang telah hidup sebagai Pahlawan sampai sekarang.
+Mengambil Perlindungan Ilahi Iblis dan melepaskan narapidana dari penjara adalah tindakan yang tidak terpikirkan oleh Ruti yang telah hidup sebagai Pahlawan sampai sekarang.
 
-Selain itu, itu adalah tindakan yang bertentangan dengan ajaran Gereja Suci yang berkhotbah untuk menjalani hidup yang sesuai dengan Perlindungan Ilahi Anda.
+Selain itu, itu adalah tindakan yang bertentangan dengan ajaran Gereja Suci yang berkhotbah untuk menjalani hidup yang sesuai dengan Perlindungan Ilahimu.
 
- 
-
-"Maaf, karena tidak bisa melakukan apa pun selama ini."
-
- 
+g"Maaf, karena tidak bisa melakukan apa pun selama ini."
 
 Aku berkata dan menundukkan kepalaku dalam-dalam.
 
- 
+r"Eh?"
 
-“Eh?”
-
-“Saya selalu mencari cara untuk menekan dorongan dari Perlindungan Ilahi Ruti. Meskipun saya telah merahasiakannya dari semua orang. "
-
- 
+"aku selalu mencari cara untuk menekan dorongan dari Perlindungan Ilahi Ruti. tapi aku merahasiakannya dari semua orang. "
 
 Aku berkata sambil mengambil obat dari kantong ikat pinggangku.
 
-Itu adalah obat rahasia Wild-Elf yang aku minum Ademi waktu itu.
+Itu adalah obat rahasia Wild-Elf yang aku berikan ke Ademi waktu itu.
 
- 
+g"Ini juga merupakan obat yang dapat menekan impuls dari Perlindungan Ilahi. Ini memiliki efek menurunkan Perlindungan Ilahimu untuk sementara. Tapi ini menggunakan racun. Itu tidak akan bekerja pada Perlindungan Ilahi Pahlawan."
 
-“Ini juga merupakan obat yang dapat menekan impuls dari Perlindungan Ilahi. Ini memiliki efek menurunkan Perlindungan Ilahi Anda untuk sementara. Tapi ini menggunakan racun. Itu tidak akan bekerja pada Perlindungan Ilahi Pahlawan. "
-
-"Mengapa?"
-
- 
+r"Mengapa?"
 
 Ruti bingung.
 
- 
+r"Bukankah Onii-chan selalu bersikap untuk menyelamatkan dunia? Sejak kamu masih muda, kamu terus menjadi lebih kuat, memasuki ksatria ordo, dan menyelamatkan banyak orang. kamu bahkan ikut dalam perjalanan untuk menaklukkan Raja Iblis. Perjalanan tanpa harapan untuk melakukan perjalanan melalui berbagai negeri hanya dengan beberapa anggota untuk bertarung terus menerus dengan pasukan Raja Iblis. Tidak sepertiku, Onii-chan tidak dipaksa untuk membantu orang. Tapi kamu masih bertarung."
 
-“Bukankah Onii-chan selalu berakting untuk menyelamatkan dunia? Sejak Anda masih muda, Anda terus menjadi lebih kuat, memasuki ordo ksatria, dan menyelamatkan banyak orang. Selanjutnya, Anda bahkan datang dalam perjalanan untuk menaklukkan Raja Iblis. Perjalanan tanpa harapan untuk melakukan perjalanan melalui berbagai negeri hanya dengan beberapa anggota untuk bertarung terus menerus dengan pasukan Raja Iblis. Tidak sepertiku, Onii-chan tidak dipaksa untuk membantu orang. Tapi kamu masih bertengkar. "
-
-"... Kurasa aku tidak pernah benar-benar memberi tahu Ruti dengan benar."
-
- 
+g"... Kurasa aku tidak pernah benar-benar memberi tahu Ruti yang sebenarnya."
 
 Perjalanan penaklukan Raja Iblis yang dipilih Ruti.
 
