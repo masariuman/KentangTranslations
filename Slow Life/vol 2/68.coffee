@@ -86,99 +86,67 @@ Kata Danan sambil tertawa keras.
 
 Ada penjaga yang menunggang kuda di depan kami. Kami menghindari mereka dan berlari melewati tepat di samping mereka. Kami berada jauh di depan pada saat para penjaga dalam kesibukan mencoba menenangkan kuda-kuda yang berdiri karena terkejut.
 
-Meski begitu, saya sebenarnya sangat memperlambat kecepatan saya untuk menyamai Danan.
+Meski begitu, aku sebenarnya sangat memperlambat kecepatanku untuk menyamai Danan.
 
- 
+g"sepertinya Danan telah memperoleh skill tahan lelah juga."
 
-"Saya melihat bahwa Danan telah memperoleh keterampilan ketahanan kelelahan juga."
+"Tapi itu salah satu skill bela diri."
 
-"Tapi itu salah satu skill Martial Artist."
+tahan lelah adalah skill dari skill Umum yang tidak dapat diperoleh tanpa terlebih dahulu meningkatkannya menjadi tingkat master tapi dapat dengan mudah diperoleh secara langsung melalui skill Unik.
 
- 
+skill Unik memang kuat.
 
-Ketahanan kelelahan dari Keterampilan Umum yang tidak dapat diperoleh tanpa terlebih dahulu meningkatkannya menjadi penguasaan dapat dengan mudah diperoleh secara langsung melalui Keterampilan Unik.
+Kami terus berlari cepat yang akan menyebabkan orang biasa langsung kehabisan nafas.
 
-Keterampilan Unik memang kuat.
-
-Kami terus berlari sprint yang akan menyebabkan orang biasa langsung kehabisan nafas.
-
- 
-
-"Aneh."
+g"Aneh."
 
 "Apa itu?"
 
-“Dengan kecepatan seperti ini, kita seharusnya sudah bisa mengejar Lit dan Tise, jadi apakah dia menggunakan semacam Sihir Roh untuk memperkuat dan menyembuhkan drake yang sedang berlari saat berlari?”
+g"Dengan kecepatan seperti ini, kita seharusnya sudah bisa mengejar Lit dan Tise, jadi apakah dia menggunakan semacam Sihir Roh untuk memperkuat dan menyembuhkan drake yang sedang berlari saat berlari?"
 
- 
+aku tidak berpikir kita harus cepat tetapi ... kita harus cepat.
 
-Saya tidak berpikir ada kebutuhan untuk terburu-buru sejauh itu tetapi ... kita harus cepat.
+"Hei, Gideon!"
 
- 
+g".... !"
 
-Hei, Gideon!
-
-”…. ! ”
-
- 
-
-Saat itu, kami merasakan perasaan menindas dari langit.
+Saat itu, kami merasakan perasaan dari dari langit.
 
 Kami dengan cepat berbaring di bawah air di rawa-rawa dan melihat ke langit.
 
 Jauh di langit adalah sosok naga terbang.
 
- 
-
-"Itu Spirit Drake?"
+g"Itu Spirit Drake?"
 
 "Jika itu Spirit Drake, siapa yang memanggilnya?"
 
-"Aku tidak percaya ada pemegang Perlindungan Ilahi di Zoltan yang memiliki kemampuan sihir lebih tinggi yang bisa memanggil drake."
+g"Aku tidak percaya ada pemegang Perlindungan Ilahi di Zoltan yang memiliki kemampuan sihir lebih tinggi yang bisa memanggil drake."
 
- 
-
-Drake Summoning adalah sihir yang lebih tinggi yang berdiri di puncak sihir pemanggilan.
+pemanggilan Drake adalah sihir yang lebih tinggi yang berdiri di puncak sihir pemanggilan.
 
 Bahkan kota-kota besar di wilayah tengah tidak akan memiliki individu yang mampu melakukannya, belum lagi di Zoltan.
 
- 
+"Arah itu... oi, apakah itu menuju gunung yang kamu katakan bahwa pahlawan-sama disitu?"
 
-"Arah… oi, apakah itu menuju gunung yang kamu katakan bahwa Hero-sama sedang menuju?"
-
-“Ya, mungkin saja. Siapa itu? ”
-
- 
+g"Ya, mungkin saja. Siapa itu?"
 
 Lawan bepergian lewat udara.
 
 Sekalipun tujuan kami sama, perjalanan melalui udara dalam garis lurus berarti jarak yang ditempuh sangat berbeda jika dibandingkan dengan jalan bergelombang yang melewati rawa yang kami lalui.
 
- 
+"Gideon, jangan khawatirkan aku, larilah dengan kecepatan penuh. Aku akan menyusul secepat mungkin. "
 
-“Gideon, jangan khawatirkan aku, lanjutkan dengan kecepatan penuh. Aku akan menyusul secepat mungkin. "
+g"Maaf."
 
-"Maaf."
-
-“Hati-hati, berbahaya untuk berpikir bahwa tidak ada yang mampu bertarung dengan kita di daerah terpencil. Entah kenapa bagian belakang leherku kesemutan. Rasanya seperti itu sebelum aku melawan musuh yang kuat. "
-
- 
+"Hati-hati, berbahaya untuk berpikir bahwa tidak ada yang mampu bertarung dengan kita di daerah terpencil. Entah kenapa bagian belakang leherku merinding. Rasanya seperti sebelum aku melawan musuh yang kuat. "
 
 Aku menyentuh gagang pedang tembaga yang ada di pinggangku.
 
- 
+g"aku lemah jadi aku tidak memiliki pikiran seperti itu."
 
-"Saya lemah jadi saya tidak memiliki pikiran seperti itu."
+Hal-hal yang dapat ditebas oleh pedang tembaga berkualitas buruk itu tidak banyak.
 
- 
-
-Hal-hal yang dapat ditebas oleh pedang tembaga berkualitas buruk itu tidak seberapa.
-
- 
-
-“Saya hanya akan melakukan apa yang saya mampu. Aku akan bersembunyi jika ada musuh yang kuat jadi Danan harus segera menyusul. "
-
- 
+"aku hanya akan melakukan apa yang saya mampu. Aku akan bersembunyi jika ada musuh yang kuat jadi Danan harus segera menyusul. "
 
 Aku berkata sambil tersenyum sebelum aku mengerahkan kekuatan penuh ke kakiku dan berlari.
 
