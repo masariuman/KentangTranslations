@@ -66,25 +66,19 @@ aku tidak mengharapkan pengetahuanku tentang kedokteran berguna untuk situasi se
 
 aku merasa sedikit bangga ketika aku melihat Ruti memberi isyarat gembira.
 
-“Masalah berikutnya adalah bagaimana Zoltan menganggap Perlindungan Ilahi Iblis sebagai artikel berbahaya karena gangguan yang disebabkannya. Jika kami mencoba untuk mendapatkan bahan-bahan unik seperti Dwarven Black Fire Pepper, otoritas Zoltan akan segera menandai kami. "
+g"Masalah berikutnya adalah bagaimana Zoltan menganggap Perlindungan Ilahi Iblis sebagai artikel berbahaya karena gangguan yang disebabkannya. Jika kita mencoba untuk mendapatkan bahan-bahan unik seperti lada api hitam kurcaci, otoritas Zoltan akan segera menandai kita."
 
-“Mengapa kita tidak menanam ramuannya di gunung ini?”
-
- 
+l"Mengapa kita tidak menanamnya di gunung ini?"
 
 Kata Lit begitu terlintas di benaknya.
 
- 
+g"lebih mudah diucapkan daripada dilakukan karena menanam tanaman yang diimpor dari negeri lain sangatlah sulit. Yah, tidak ada salahnya mencoba."
 
-“Ini lebih mudah diucapkan daripada dilakukan karena menanam tanaman yang diimpor dari negeri lain sangatlah sulit. Yah, ada gunanya mencoba. "
+l"begitu ya..."
 
-"Saya melihat."
+g"Aku akan menyelidiki kemungkinan mengganti bahannya juga. Mungkin saja iblis dengan sengaja menggunakan bahan-bahan dengan sifat beracun. "
 
-“Aku akan menyelidiki kemungkinan mengganti bahannya juga. Mungkin saja iblis dengan sengaja menggunakan bahan-bahan dengan sifat beracun. "
-
- 
-
-Menurut cerita Ruti, para iblis itu tampaknya memiliki keyakinan yang taat pada Demis. Mengejutkan tetapi juga wajar jika iblis, yang dengan setia hidup sesuai dengan keinginan Perlindungan Ilahi mereka, menjadi pemuja Dewa Dewa Tertinggi.
+Menurut cerita Ruti, para iblis itu tampaknya memiliki keyakinan yang taat pada Demise. Mengejutkan tetapi juga wajar jika iblis, yang dengan setia hidup sesuai dengan keinginan Perlindungan Ilahi mereka, menjadi pemuja Dewa Dewa Tertinggi.
 
 Iblis-iblis itu memegang teknik peracikan untuk obat yang menciptakan Perlindungan Ilahi baru yang menentang kehendak Dewa Dewa Tertinggi. Terlepas dari apakah itu tentang efek Perlindungan Ilahi Iblis atau bahwa mereka mencoba untuk merahasiakan kemungkinan bahwa hal itu dapat meningkatkan pertumbuhan Perlindungan Ilahi bawaan seseorang, iblis juga mencoba yang terbaik untuk menghilangkan elemen dari Perlindungan Ilahi Iblis yang mana bertentangan dengan keinginan Dewa Agung Demis.
 
