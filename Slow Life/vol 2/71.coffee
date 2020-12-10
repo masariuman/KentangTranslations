@@ -20,13 +20,13 @@ Aku menunduk ke depan dan menghindari botol itu.
 
 Detik berikutnya, botol itu meledak.
 
-Itu memerciki larutan perekat hijau tetapi pada saat itu, aku sudah menyerbu ke dalam ruangan dengan gulungan depan, berdiri dan menusukkan pedangku ke leher Alchemist.
+Itu mengeluarkan larutan perekat hijau tetapi pada saat sama, aku sudah masuk ke dalam ruangan dengan berguling kedepan, berdiri dan mengarahkan pedangku ke leher Alchemist.
 
-“Ka- kau pria dari Apoteker itu! Anda di sini untuk menangkap saya! "
+"Ka- kau pria dari Apotek itu! kau di sini untuk menangkapku! "
 
-“Ah, aku di sini bukan untuk bertarung.”
+g"Ah, aku di sini bukan untuk bertarung.”
 
-“Itu ironis mengingat kamu memiliki pedang yang mengarah padaku!”
+"Itu ironis mengingat kamu memiliki pedang yang mengarah padaku!""
 
 “Yah, itu karena kamu melempar bom itu. Lagipula, jika aku berniat bertarung, pedang ini pasti sudah menembus lehermu. "
 
