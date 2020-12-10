@@ -222,39 +222,29 @@ Punggungku menghantam dinding di belakangku dengan suara yang keras.
 
 Dampaknya menyebabkanku memuntahkan udara di paru-paruku dan aku berhenti bernapas sesaat. aku jatuh berlutut tanpa bisa menahannya.
 
-“Sekarang Ruti! Semuanya baik-baik saja sekarang! Ayo kita kalahkan Raja Iblis! "
+"Sekarang Ruti! Semuanya baik-baik saja sekarang! Ayo kita kalahkan Raja Iblis! "
 
-Ares mengangkat kedua tangannya dengan megah ke arah Ruti. Seolah yakin Ruti sekarang akan melompat ke dadanya.
+Ares mengangkat kedua tangannya dengan ke arah Ruti. Seolah yakin Ruti sekarang akan melompat ke dadanya.
 
 Ruti memang melompat ke depan saat itu juga.
 
 Namun, itu bukan demi memeluknya.
 
- 
-
-“Pada akhirnya, kamu sama sekali tidak mengerti apa-apa tentang aku.”
+r"Pada akhirnya, kamu sama sekali tidak mengerti apa-apa tentangku."
 
 “Eh?”
 
- 
-
 Ares memandang pedang Ruti yang menembus perutnya sendiri karena shock.
-
- 
 
 “Ah, ahhhhhhh !!!!! ????”
 
- 
-
 Ares berteriak.
 
-Dia tampak bingung dengan apa yang terjadi saat dia menatap tercengang pada darahnya yang meluap.
+Dia tampak bingung dengan apa yang terjadi dan dia menatap tercengang pada darahnya yang meluap.
 
 Ruti mencabut pedangnya tanpa ragu.
 
- 
-
-"Saya tidak lembut."
+r"Saya tidak lembut."
 
 “U, uaaaaaaaah, ke-kenapa, apakah kamu salah, aku adalah Sage Ares, kenapa kamu menusukku…”
 
