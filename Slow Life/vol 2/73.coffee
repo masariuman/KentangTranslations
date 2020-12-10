@@ -98,13 +98,11 @@ Albert berbicara dan menundukkan kepalanya.
 
 “Aku tidak akan mengerti bahkan jika aku bertanya. pahlawan-sama ada di gunung dan dia membutuhkan kekuatan kita. Itu lebih dari cukup bagiku. ”
 
-“... Kamu benar-benar orang yang sederhana. Kamu membuatku iri. ”
+“... Kamu benar-benar orang yang sederhana. Kamu membuatku iri.”
 
 Theodora tersenyum pahit.
 
 Senyuman itu memiliki sedikit rasa iri di dalamnya tapi Danan, dengan kepribadian kasarnya, gagal menyadarinya.
-
- 
 
 "Aku menjemputmu karena apa pun hasil dari pilihan yang harus kita buat segera, aku ingin kamu juga ada di sana."
 
