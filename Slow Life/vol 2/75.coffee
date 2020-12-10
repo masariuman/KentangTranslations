@@ -188,7 +188,7 @@ Aku memanggil Ares. Sebagai orang yang cerewet, Ares selalu menjaga penampilanny
 
 Ares tidak bereaksi terhadap kata-kataku. Pipinya bergejolak dan terlihat seperti kram saat dia menunjukkan senyum dan mengulurkan tangannya ke Ruti.
 
-<gambar> vol
+<gambar> vol4 6.jpg
 
 r"Ares."
 
