@@ -138,13 +138,11 @@ Setelah mengenakan perlengkapan perjalanan, kami meninggalkan toko dan aku memas
 
 Distrik pelabuhan terletak di sisi barat Zoltan dan langsung terhubung ke sungai.
 
-Sesuai dengan namanya kabupaten tersebut, kabupaten tersebut dilengkapi dengan fasilitas pelabuhan dan meskipun terletak di dekat muara sungai, masih berupa sungai sehingga kapal-kapal besar tidak dapat masuk.
+Sesuai dengan namanya, distrik tersebut dilengkapi dengan fasilitas pelabuhan dan meskipun terletak di dekat muara sungai, masih berupa sungai sehingga kapal-kapal besar tidak dapat masuk.
 
-Itu pada dasarnya digunakan oleh perahu layar atau galai dengan lambung yang dangkal.
+biasanya yang digunakan adalah kapal layar.
 
 Meski begitu, karena Zoltan berada di jalur badai, sangat berbahaya bagi kapal semacam itu untuk melakukan perjalanan selama musim panas.
-
- 
 
 Meski dengan kondisi seperti itu, alasan kapal dagang tetap datang adalah karena Zoltan berada di garis depan.
 
