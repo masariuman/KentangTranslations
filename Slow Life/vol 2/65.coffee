@@ -98,63 +98,45 @@ Meskipun demikian, mereka mungkin tidak akan menemukan banyak hal di wilayah ter
 
 Meskipun Ares meminjam Sylpheed dengan kontrak bahwa mereka akan bepergian ke mana pun dia mau, menuju lokasi di luar Tembok di Ujung Dunia yang merupakan pegunungan terbesar di dunia masih di luar harapan mereka.
 
-Terus maju di mana tidak akan ada poin pasokan yang layak dengan hanya satu kapal cepat mungkin akan sulit. Dalam hal ini, rencana mereka adalah meminjam beberapa kapal lain untuk membentuk armada.
+tetap maju kalau pasokan kurang dengan hanya satu kapal cepat mungkin akan sulit. Dalam hal ini, rencana mereka adalah meminjam beberapa kapal lain untuk membentuk armada.
 
 Itu sampai mereka mendekati Zoltan dan menemukan bahwa Pahlawan Ruti tidak menuju ke Tembok di Ujung Dunia tetapi sebenarnya ada di Zoltan.
 
- 
-
 "Menyeberang ke sisi lain dapat dengan mudah dilakukan dengan kapal terbang, tetapi hal yang sama tidak berlaku untuk rute laut dan darat."
 
- 
+Jika Zoltan bisa berdagang dengan bagian Timur, wilayah ini tidak akan disebut wilayah terpencil lagi.
 
-Jika Zoltan bisa berdagang dengan Timur, wilayah ini tidak akan disebut wilayah terpencil.
-
-Saat ini, satu-satunya rute perdagangan melintasi Tembok di Ujung Dunia adalah jalur laut yang mengelilingi utara yang disebut Rute Mahkota atau jalan pegunungan yang disebut Jalan Naga. Keduanya dikatakan jalan yang keras di mana kurang dari setengahnya yang bertahan hidup.
-
- 
+Saat ini, satu-satunya rute perdagangan melintasi Tembok di Ujung Dunia adalah jalur laut yang mengelilingi bagian utara yang disebut Rute Mahkota atau jalan pegunungan yang disebut Jalan Naga. Keduanya dikatakan jalan yang keras di mana kurang dari setengah orang yang dapat bertahan hidup.
 
 "Seperti yang kubilang, sosok berlengan satu itu menghajar semua bajak laut!"
 
 "Berhenti berbohong! Bagaimana bisa satu orang mengalahkan lima kapal bajak laut. "
 
-Satu pukulannya membelah kapal menjadi dua!
+"Satu pukulannya membelah kapal menjadi dua!"
 
-“Ahahaha! Jika Anda ingin mengarang sesuatu, setidaknya membuatnya sedikit lebih bisa dipercaya, dasar pemabuk! "
+"Ahahaha! Jika kamu ingin mengarang sesuatu, setidaknya biatlah sedikit lebih bisa dipercaya, dasar pemabuk! "
 
-Apa yang kamu katakanyyyy!
+"Apa yang kau bilang!"
 
 “Apa kau memberitahuku bahwa dia menghancurkan perahu layar yang bisa membawa hingga seratus orang hanya dengan tinjunya!”
 
-"Dia melakukan!"
-
- 
+"Dia melakukannya!"
 
 Kerutan Ares semakin dalam ketika suara-suara dari kapal dagang semakin keras.
 
- 
+“Haaa. Ayo buruan cari penginapan. aku lebih suka tidak tinggal di kota yang suram. Wilayah tengah akan jauh lebih baik jadi mari cari penginapan kita di sana. ”
 
-“Haaa. Ayo buruan cari penginapan. Saya lebih suka tidak tinggal di kota yang suram. Wilayah tengah akan jauh lebih baik jadi mari cari penginapan kita di sana. ”
-
-“Saya akan mencari penginapan di sini. Untuk mengumpulkan informasi dari pelabuhan. "
+"aku akan mencari penginapan di sini. Untuk mengumpulkan informasi dari pelabuhan. "
 
 “Lakukan sesukamu. Kami sudah tahu keberadaan Ruti jadi apa gunanya mengumpulkan informasi sekarang. ”
 
- 
-
 Ares mendengus dan mengangkat bahu sebelum pergi.
 
- 
-
 "Dia biasanya tidak seburuk itu."
-
- 
 
 Theodora berkata kepada Albert dengan ekspresi bermasalah.
 
 Tidak berarti Ares memiliki kepribadian yang baik tetapi dia juga tidak pemarah.
-
- 
 
 "Alasan Ares bergabung dalam perjalanan ini adalah untuk menaklukkan Raja Iblis bersama dengan Pahlawan untuk menghidupkan kembali rumah Adipati Suroa yang telah kehilangan tidak hanya nama mereka tetapi juga tanah, prestise, dan aset mereka."
 
