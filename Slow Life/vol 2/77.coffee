@@ -16,17 +16,17 @@ Orang itu rupanya meninggalkan Ares dan bergerak lebih jauh ke bawah tanah. Gera
 
 Tise menyebutkan bahwa ada orang lain yang lebih baik dari Ares dalam kemampuan mereka untuk menghilangkan kehadiran mereka.
 
-Kami akan mendapat jawaban dengan mudah jika kami bisa bertanya kepada Ares tetapi saya menyerah pada gagasan itu karena tidak mungkin melakukannya ketika dia dalam kondisi seperti itu.
+Kami akan mendapat jawabannya dengan mudah jika kami bisa bertanya kepada Ares tetapi aku menyerah pada ide itu karena tidak mungkin melakukannya ketika dia dalam kondisi seperti itu.
 
-“Apa kemungkinan kalau itu Theodora?”
+l"Apa kemungkinan itu Theodora?"
 
-Lit membuat tebakan alami.
+Lit menebak.
 
-“Biasanya itu yang akan terjadi, tetapi membingungkan bahwa mereka akan bertindak secara terpisah. Theodora tidak akan pernah bertindak sendirian di area berbahaya seperti reruntuhan Peri-Kuno. Karena dia adalah tipe yang memprioritaskan alasan di atas perasaannya sendiri. "
+g"bisa saja itu yang akan terjadi, tetapi membingungkan bahwa mereka akan bertindak secara terpisah. Theodora tidak akan pernah bertindak sendirian di area berbahaya seperti reruntuhan ancient-elf. Karena dia adalah tipe yang memprioritaskan alasan di atas perasaannya sendiri."
 
-"Ah ~ itu benar, dia benar-benar mengeluarkan perasaan itu."
+l"Ah ~ itu benar, dia benar-benar membuang perasaan demi semuanya."
 
-Tindakan orang lain tidak cocok dengan proses berpikir Theodora yang saya kenal. Selain itu, saya belum pernah mendengar apa pun tentang Theodora yang memiliki pengetahuan tentang golem seperti Ular Besi.
+Tindakan orang tersebut tidak cocok dengan proses berpikir Theodora yang aku kenal. Selain itu, aku belum pernah mendengar apa pun tentang Theodora yang memiliki pengetahuan tentang golem seperti Ular Besi.
 
 Meskipun golem operasi tidak membutuhkan keterampilan apa pun, itu membutuhkan pengetahuan tingkat tinggi dan kontrol sihir yang bagus. Secara teori, semua pengguna mantra seharusnya bisa mengoperasikannya tetapi kenyataannya, tidak banyak yang benar-benar bisa mengoperasikannya.
 
