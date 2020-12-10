@@ -1,28 +1,18 @@
-Bab 75: Saya tidak akan membantu Anda lagi
-
-Penerjemah: Tseirp
-
- 
+Bab 75: aku tidak akan membantu Anda lagi
 
 "Hei, bukankah lebih baik jika Ruru melindungiku?"
 
-"Anda harus puas dengan saya sebagai pengawal Anda."
-
- 
+g"kamu harusnya puas denganku sebagai pengawal Anda."
 
 Godwin bertanya dengan sedih.
 
-Ruti dan Lit berjalan di depan, diikuti oleh Tise, diikuti oleh Godwin dan aku mengambil di belakang Godwin seolah-olah untuk melindunginya.
+Ruti dan Lit berjalan di depan, diikuti oleh Tise, diikuti oleh Godwin dan aku di belakang Godwin seolah-olah untuk melindunginya.
 
- 
+"Tapi di dalam kelompok ini Apoteker adalah yang paling tidak bisa diandalkan."
 
-Tapi di dalam kelompok ini Apoteker adalah yang paling tidak bisa diandalkan.
-
-"Anda tidak berbasa-basi ya."
+g"kamu benar-benar blak-blakan ya."
 
 “Karena ini melibatkan hidupku!”
-
- 
 
 Godwin sebenarnya adalah Alchemist level tertinggi di Zoltan tetapi dia tidak akan memiliki peluang melawan sekelas lawan yang dihadapi Pahlawan. Dia sendiri sangat menyadari hal itu.
 
