@@ -108,25 +108,17 @@ Senyuman itu memiliki sedikit rasa iri di dalamnya tapi Danan, dengan kepribadia
 
 "?"
 
-“Tidak apa-apa jika kamu tidak mengerti, kamu harus bertindak sesuai dengan cara yang kamu suka. Saya akan bertindak sesuai dengan keyakinan saya. "
+"Tidak apa-apa jika kamu tidak mengerti, kamu harus bertindak sesuai dengan cara yang kamu suka. aku akan bertindak sesuai dengan keyakinanku. "
 
-“Aduh, aku tidak begitu mengerti tapi tentu saja aku akan.”
-
- 
+“Aduh, aku tidak begitu mengerti tapi tentu saja aku akan melakukan yang kumau.”
 
 Danan tertawa keras.
 
 Albert benar-benar terkejut melihat bagaimana Ares, Theodora, dan Danan adalah tipe pahlawan yang sangat berbeda.
 
- 
-
 ☆☆
 
- 
-
 Setelah Ruti tenang, kami kembali ke koridor.
-
- 
 
 "Merah!"
 
