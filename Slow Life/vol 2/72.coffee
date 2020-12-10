@@ -56,8 +56,6 @@ Lit-san sepertinya sedang memikirkan tentang orang lain yang datang kemari saat 
 
 Ketika kami sampai di kamar Godwin, Godwin mundur ketakutan saat melihat Lit-san.
 
- 
-
 "Tidak apa-apa. Aku memang akhirnya terluka karena kamu tapi aku tidak membencimu dan aku tidak berniat untuk membalas dendam. "
 
 "Sangat menyesal."
