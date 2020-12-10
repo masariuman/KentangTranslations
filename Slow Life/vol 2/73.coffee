@@ -68,9 +68,9 @@ Itu adalah kedua kalinya dalam hidup Danan yang dia duduk di atas Naga Roh.
 
 “Ini pasti nyaman.”
 
-Sebelumnya dia duduk di atas Spirit Drake yang dipanggil Ares saat mereka terbang menuju kastil Gandor of the Wind.
+Sebelumnya dia duduk di atas Spirit Drake yang dipanggil Ares saat mereka terbang menuju istana Gandor si angin.
 
-Pada saat itu, mereka telah menggunakan bantuan Thunder Drakes untuk menerobos kavaleri wyvern Gandor of the Wind, tetapi Ares bersikeras untuk mengendarai Spirit Drake miliknya sendiri yang dapat dia kendalikan sehingga Danan harus menaikinya bersama dengannya untuk melindunginya.
+Pada saat itu, mereka menggunakan bantuan Drakes petir untuk menerobos kavaleri wyvern Gandor si angin, tetapi Ares bersikeras untuk mengendarai Spirit Drake miliknya sendiri yang dapat dia kendalikan sehingga Danan harus menaikinya bersama dengannya untuk melindunginya.
 
 Tapi pada saat itu, tak lama setelah memuji betapa nyamannya Spirit Drake, dia merasa ingin mengeluh kepada Ares setiap kali mereka menghadapi bahaya karena Ares tidak bisa mengendalikannya.
 
