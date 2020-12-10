@@ -78,51 +78,41 @@ Danan tersenyum pahit melihat ekspresi Ares.
 
 “Ya, dia tampaknya membuka apotek.”
 
-Apakah ini mungkin skema Gideon? Garis pemikiran itu terlintas di benak Ares untuk sesaat.
+Apakah ini mungkin skema Gideon? pemikiran itu terlintas di benak Ares untuk sesaat.
 
 Dia segera menyangkalnya sebagai kebodohan. Perlindungan Ilahi Gideon yang tidak kompeten tidak memiliki kemampuan untuk merencanakan konspirasi semacam itu.
 
-Namun, secara emosional, kebenciannya mendidih saat Gideon sepertinya menghalangi dia sekali lagi.
+Namun, secara emosional, kebenciannya mendidih dan Gideon sepertinya menghalangi dia sekali lagi.
 
 Danan menyipitkan matanya saat melihat reaksi itu.
 
- 
+"Jadi di mana pahlawan-sama."
 
-"Jadi di mana Hero-sama."
-
-" … Dia tidak disini."
+" ... Dia tidak disini."
 
 “Apa artinya itu.”
 
-"Saya tidak perlu menjelaskannya kepada Anda."
+"aku tidak perlu menjelaskannya kepadamu."
 
-“Namun, Gideon ada di sini. Saya harus melaporkan itu ke Hero-sama. "
-
- 
+"Namun, Gideon ada di sini. aku harus melaporkan itu ke pahlawan-sama."
 
 Tepi mulut Ares mengejang seolah dia peka dengan topik itu.
 
 Danan meletakkan tangannya di dagu dan mengerang.
 
- 
+"Hei, ceritakan apa yang terjadi. Aku bukan musuhmu. Bergantung pada situasinya, aku dapat memilih untuk tidak melaporkan lokasi Gideon ke pahlawan-sama. "
 
-“Hei, ceritakan apa yang terjadi. Aku bukan musuhmu. Bergantung pada situasinya, saya dapat memilih untuk tidak melaporkan lokasi Gideon ke Hero-sama. "
+"... Mengapa kamu mengubah pemikiranmu?"
 
-"... Mengapa Anda mengubah pendirian Anda?"
+“Tujuan kita adalah mengalahkan Raja Iblis. Bukan untuk menyatukan kembali pahlawan-sama dan Gideon. Gideon berencana untuk menetap disini. Dia tidak lagi berpikir untuk menaklukkan Raja Iblis. Hei, apa kamu ingat Lislet dari Logavia? Dia tinggal di kota ini dengan putri-sama itu. ”
 
-“Tujuan kami adalah mengalahkan Raja Iblis. Bukan untuk menyatukan kembali Hero-sama dan Gideon. Selanjutnya, Gideon berencana untuk menetap disini. Dia tidak lagi berpikir untuk menaklukkan Raja Iblis. Hei, apa kamu ingat Lislet dari Logavia? Dia tinggal di kota ini dengan putri-sama itu. ”
-
-“Hah, seperti yang diharapkan, Gideon adalah orang seperti itu. Meskipun aku terus bertarung, dia melarikan diri untuk menjalani kehidupan damai tanpa beban dan bertujuan untuk menikah dengan bangsawan! Sungguh pria yang kotor! "
-
- 
+"Hah, sudah kuduga, Gideon adalah orang seperti itu. Meskipun aku terus bertarung, dia melarikan diri untuk menjalani kehidupan damai tanpa beban dan bertujuan untuk menikah dengan bangsawan! Sungguh pria yang kotor! "
 
 Ares berteriak histeris.
 
 Danan jengkel. Kata-kata yang tidak masuk akal seperti itu meskipun dialah yang mengusirnya.
 
 Nah, itulah alasan mengapa dia melakukan kontak dengan orang ini. Asura, yang berwujud Danan, tertawa dalam dirinya.
-
- 
 
 “Jadi, akan membuang-buang waktu bagi Hero-sama untuk tetap di sini untuk meyakinkan Gideon agar kembali. Saya juga tidak ingin membuang waktu. Saya juga tidak berharap Pahlawan-sama berhenti di sini untuk membujuk Gideon. "
 
