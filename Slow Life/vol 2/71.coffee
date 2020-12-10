@@ -106,81 +106,51 @@ g"Lit-ku menghadapi bahaya karenamu."
 
 g"Itu demi Al."
 
-Sebelumnya, karena granat berperekat milik orang ini, Lit hampir saja dibunuh oleh Stalker Demons. Ini adalah sedikit balasan untuk waktu itu.
+Sebelumnya, karena granat berperekat milik orang ini, Lit hampir saja dibunuh oleh iblis penguntit. Ini adalah sedikit balasan untuk waktu itu.
 
- 
+"ini."
 
-"Sini."
-
- 
-
-Aku menarik lengan kiri Godwin dan memutarnya sedikit ke arah yang tidak dimaksudkan untuk ditekuk.
-
- 
+Aku menarik lengan kiri Godwin dan memutarnya sedikit ke arah yang berlawanan.
 
 “Gyaaaaaaaa !!!”
 
- 
-
 Tidak dapat menahan rasa sakit, jeritan yang keluar dari tenggorokan Godwin bergema di seluruh reruntuhan.
-
- 
 
 ☆☆
 
- 
-
-"Dasar iblis ..."
-
- 
+g"Dasar iblis ..."
 
 Godwin menggosok lengan kirinya sambil duduk di tanah.
 
 Dia memelototiku dengan mata penuh kebencian tapi aku mengabaikannya.
 
- 
+Lebih penting lagi, aku menyimak baik-baik seseorang yang seharusnya mendekat.
 
-Lebih penting lagi, saya menyimak baik-baik kehadiran yang seharusnya mendekat.
-
-Godwin adalah seorang Alkemis yang sangat penting untuk produksi Perlindungan Ilahi Iblis. Ia orang yang dibutuhkan Ruti.
+Godwin adalah seorang alchemist yang sangat penting untuk produksi Perlindungan Ilahi Iblis. Ia orang yang dibutuhkan Ruti.
 
 Jadi jika dia mendengar teriakan itu…
 
- 
-
 Pada saat itu, sebuah benturan menyebabkan pintu terbuka.
 
-Di bawah bayang-bayang pintu yang terbang di udara adalah bayangan seorang gadis muda yang sedang berlari seperti kilat.
+Di bawah bayang-bayang pintu yang terbang di udara terdapat bayangan seorang gadis muda yang sedang berlari seperti kilat.
 
 Dari postur berjongkok itu, pedangnya mengarah ke leherku dengan sangat akurat.
 
-Itu sedikit mirip dengan gerakanku sebelumnya yaitu menikamkan pedangku ke Godwin tapi kecepatan dan ketajaman itu tak tertandingi.
+sedikit mirip dengan gerakanku sebelumnya yaitu menikamkan pedangku ke Godwin tapi kecepatan dan ketajaman itu tak tertandingi.
 
 Namun, dorongan itu berhenti sebelum mencapai leherku.
 
- 
+r"Onii Chan!?"
 
-"Onii Chan!?"
-
- 
-
-Saya menyadari ketika saya melihatnya. Emosi yang muncul pada Ruti saat itu adalah 『ketakutan』 yang merupakan sesuatu yang tidak akan pernah muncul pada Pahlawan Ruti.
-
- 
+aku menyadari ketika aku melihatnya. Emosi yang muncul pada Ruti saat itu adalah 『ketakutan』 yang merupakan sesuatu yang tidak akan pernah muncul pada Pahlawan Ruti.
 
 ☆☆
 
- 
-
-Ruti dan saya pindah ke ruangan lain.
+Ruti dan aku pindah ke ruangan lain.
 
 Godwin cukup kaget karena tidak percaya setelah melihat kelakuan Ruti namun ia masih menyimpan rasa takut terhadap Ruti sehingga ia patuh mengikuti instruksi Ruti untuk beristirahat sejenak.
 
- 
-
-“Onii-chan… kenapa kamu disini?”
-
- 
+r"Onii-chan… kenapa kamu disini?"
 
 Sepertinya Ruti menggunakan kamar ini sebagai tempat tidur di reruntuhan ini.
 
