@@ -66,37 +66,27 @@ Biasanya dia tidak akan menyuarakan itu tetapi Ares saat ini tidak memiliki kete
 
 Dia harus menemukan Pahlawan Ruti dan berada di sisinya ketika dia menaklukkan Raja Iblis.
 
-Jika tidak, dia tidak akan bisa membenarkan mengapa dia melanjutkan perjalanan ini berlumuran darah dan lumpur. Ares frustrasi dengan situasi itu.
+Jika tidak, dia tidak akan memiliki alasan mengapa dia melanjutkan perjalanan ini berlumuran darah dan lumpur. Ares frustrasi dengan situasi itu.
 
- 
+Theodora sedikit mengerutkan kening setelah mendengar kata-kata Ares.
 
-Theodora sedikit mengernyit setelah mendengar kata-kata Ares.
-
-Namun demikian, mereka tidak akan dapat menemukan penginapan untuk menginap hari ini jika dia mencoba mengoreksi setiap kata yang diucapkan Ares.
-
- 
+mereka tidak akan dapat menemukan penginapan untuk menginap hari ini jika dia mencoba mengoreksi setiap kata yang diucapkan Ares.
 
 "Apakah kamu baik-baik saja?"
 
 "Ya."
 
- 
-
 Theodora bertanya pada Albert yang terhuyung-huyung di belakangnya.
 
 Sebagai buronan Zoltan, wajah Albert dibalut perban untuk menyembunyikan wajahnya.
 
-Perban itu adalah benda ajaib yang, ketika melilit wajah seseorang, akan menyebabkan orang lain tidak memperhatikannya.
+Perban itu adalah benda sihir yang, ketika melilit wajah seseorang, akan menyebabkan orang lain tidak memperhatikannya.
 
 Tentu saja, penghambat pengenalan seperti itu tidak akan berpengaruh pada orang-orang di tingkat kelompok Pahlawan seperti Ares dan Theodora tapi Theodora mengira bahwa penduduk di daerah terpencil Zoltan tidak akan bisa melihatnya untuk saat ini.
 
- 
+“Tapi kota ini cukup hidup walaupun terlihat seperti ini.”
 
-“Tapi itu cukup hidup meskipun terlihat.”
-
-“Ada kapal dagang yang ditambatkan jadi saya yakin pasarnya terbuka. Kudengar awak kapal Ares-san juga akan menjual barang selama mereka tinggal di pelabuhan. ”
-
- 
+“Ada kapal dagang yang datang jadi aku yakin pasarnya terbuka. Kudengar awak kapal Ares-san juga akan menjual barang selama mereka tinggal di pelabuhan. ”
 
 Kata Albert.
 
