@@ -4,217 +4,155 @@ Bab 61: Pahlawan berbicara tentang kenangan mandi
 
 tetesan air jatuh dari langit-langit.
 
-Saat saya melihat riak yang terus memancar ke luar, saya entah bagaimana merasa kedinginan meskipun saat ini saya sedang mandi air hangat.
+ketika aku melihat ombak kecil, entah bagaimana aku merasa kedinginan meskipun saat ini aku sedang mandi air hangat.
 
- 
+aku Tise.
 
-Saya Tise.
+Pemilik Perlindungan Ilahi dari pembunuh bayaran dan teman Pahlawan Ruti-sama.
 
-Pemilik Perlindungan Ilahi dari Assassin dan teman Pahlawan Ruti-sama.
+aku saat ini berada di bak mandi.
 
- 
+Faktanya, di antara teman-teman pembunuh bayaranku, aku dipanggil Tise Peninjau pemandian, seorang pecinta pemandian.
 
-Saya saat ini berada di bak mandi.
-
-Faktanya, di antara teman-teman assassin saya, saya disebut Tise Peninjau Mandi, seorang pecinta mandi.
-
-Buku ulasan saya yang direkam dengan pemandian umum di berbagai kota, mata air panas, dan fasilitas pemandian di kota pos yang saya kunjungi di antara pekerjaan saya sekarang dianggap sebagai yang harus dimiliki ketika anggota Guild Assassin kami berencana untuk jalan-jalan.
+Buku ulasanku mencatat semua pemandian umum di berbagai kota, mata air panas, dan fasilitas pemandian di kota pos yang aku kunjungi ketika aku bekerja sekarang dianggap sebagai yang harus dimiliki ketika anggota Guild pembunuh bayaran kami berencana untuk jalan-jalan.
 
 Kehangatan dibutuhkan dalam pekerjaan pembunuhan kami yang menuntut hati yang keras.
 
- 
+Yah, meski telanjang dan mandi adalah cara terbaik untuk bersenang-senang, buku itu juga adalah buku yang tepat yang ditulis dengan tujuan merinci lokasi untuk menyimpan senjata serta rute pelarian.
 
-Yah, meski telanjang dan mandi adalah cara terbaik untuk bersenang-senang, itu juga buku yang tepat yang ditulis dengan tujuan merinci lokasi untuk menyimpan senjata serta rute pelarian.
+Di mataku, dimata seorang pencinta mandi yang bahkan menulis buku tentang itu, mandi saat ini mendapat skor… sangat tinggi.
 
- 
+Pertama, memiliki dua bak mandi meskipun hanya untuk digunakan di rumah memberikan nilai yang tinggi.
 
-Di mataku, mata seorang pencinta mandi yang bahkan menulis buku tentang mereka, mandi ini akan mendapat skor… sangat tinggi.
+Bak mandi tipe pot yang aku tempati saat ini adalah bak mandi yang memungkinkan seseorang untuk menghargai jarak mandinya.
 
-Pertama, memiliki dua bak mandi meskipun untuk digunakan di rumah memberikan nilai yang tinggi.
+Masyarakat di luar sana adalah dunia yang membutuhkan komunikasi. Bahkan seorang pembunuh pun tidak bisa bebas dari itu. Sebaliknya, para pembunuh bayaran harus memerankan persona yang berbeda setiap memasuki kota dan justru memiliki pekerjaan yang lebih menekankan pada komunikasi.
 
-Bak mandi tipe pot yang saya tempati saat ini adalah bak mandi yang memungkinkan seseorang untuk menghargai ruang pribadinya.
-
- 
-
-Masyarakat di luar sana adalah dunia yang membutuhkan komunikasi. Bahkan seorang pembunuh pun tidak dibebaskan. Sebaliknya, para assassin yang harus memerankan persona yang berbeda setiap memasuki kota justru memiliki pekerjaan yang lebih menekankan pada komunikasi.
-
-Kita dilarang berbicara tanpa syarat pada waktu atau tempat tertentu. Kita harus selalu mengingat pengaruh kata-kata kita dan harus mengontrol komunikasi kita.
+kami dilarang berbicara tanpa syarat pada waktu atau tempat tertentu. kami harus selalu mengingat pengaruh kata-kata kami dan harus mengontrol komunikasi kita.
 
 Itu sangat melelahkan.
 
-Diantara para assassin, ada banyak senior yang gagal dipromosikan padahal mereka memiliki skill dalam assassin justru karena mereka kesulitan dalam kemampuan komunikasinya.
+Diantara para pembunuh bayaran, ada banyak senior yang gagal naik pangkat padahal mereka memiliki skill dalam pembunuh bayaran. itu semua karena mereka kesulitan dalam kemampuan komunikasinya.
 
- 
+guruku menerapkan seni mengenakan topeng ke dalam diriku sehingga aku mampu menjadi persona apa pun.
 
-Tuanku menerapkan seni mengenakan topeng ke dalam diriku sehingga aku mampu menjadi persona apa pun.
+Tapi itu tidak berarti bahwa aku suka menyamar.
 
-Tapi itu tidak berarti bahwa saya suka berpura-pura secara khusus.
-
-Singkatnya, saya merasakan kebahagiaan yang mengejutkan ketika saya, Tise‧Garland, berendam di dalam bak mandi pribadi seperti ini, di dalam ambang pot.
+Singkatnya, aku merasakan bahagia aku, Tise‧Garland, berendam di dalam bak mandi pribadi seperti ini, di dalam pot.
 
 Menghangatkan air dengan pipa juga merupakan ide yang bagus.
 
-Saya pasti akan menyadarinya jika ada orang di luar yang menyalakan api untuk mandi.
+aku pasti akan menyadarinya jika ada orang di luar yang menyalakan api untuk mandi.
 
 Sebaliknya, untuk bak mandi ini, suhu bak mandi bisa diatur hanya dengan menggunakan katup yang jaraknya cukup dekat dari bak mandi.
 
- 
+“Empat ☆. Sayang sekali bak mandi ini cukup dalam sehingga airnya sampai ke mulut kalau aku duduk. ”
 
-“Empat ☆. Sayang sekali bak mandi ini cukup dalam sehingga airnya sampai ke mulut kalau saya duduk. ”
+suaraku menjadi gelembung sehingga tidak terdengar siapa pun.
 
- 
+aku pendek. daripada mengandalkan kekuatan yang luar biasa, gaya bertarangku melibatkan penggunaan tusukan tajam dari belakang pada titik vital sehingga memiliki tubuh kecil memiliki keuntungan dalam itu tetapi juga memiliki banyak ketidaknyamanan dalam keseharianku.
 
-Kata-kataku menggelegak di permukaan air sehingga tidak tersampaikan kepada siapa pun.
-
-Saya pendek. Alih-alih mengandalkan kekuatan yang luar biasa, gaya bertarangku melibatkan penggunaan tusukan tajam dari belakang pada titik vital sehingga memiliki tubuh kecil memiliki kelebihannya tetapi juga memiliki banyak ketidaknyamanan dalam keseharianku.
-
- 
-
-Ugeuge-san sedang makan serangga yang tertarik pada kelembapan dari bak mandi.
+Ugeuge-san sedang makan serangga yang muncul pada kelembapan dari bak mandi.
 
 Aku merasa hangat dan lembut saat aku melihat pada Ugeuge-san yang memegang mangsanya dengan kaki depannya dan memakannya dengan nikmat.
 
- 
-
 Hah, lebih baik aku berhenti lari dari kenyataan dan menghadapi situasi di depanku.
-
- 
 
 Yah, ini tidak seolah-olah terjadi sesuatu.
 
 Hanya saja Pahlawan Ruti-sama dan Lit-san berada di dalam bak mandi bersama.
 
- 
+Kupikir akhirnya aku melihat Ruti-sama dari dekat setelah sekian lama tapi… Ruti-sama mencintai kakaknya Gideon-san. Dan itu bahkan pada level cinta yang dalam.
 
-Kupikir akhirnya aku melihat Ruti-sama dari dekat setelah sekian lama tapi… Ruti-sama mencintai kakaknya Gideon-san. Dan itu bahkan pada level jatuh cinta yang dalam.
-
-Tapi Gideon-san dan Lit-san saling mencintai. Sekilas saja sudah cukup untuk memberitahuku bahwa mereka benar-benar saling mencintai.
+Tapi Gideon-san dan Lit-san saling mencintai. dengan melihat Sekilas saja sudah cukup untuk memberitahuku bahwa mereka benar-benar saling mencintai.
 
 Dan bagi Gideon-san, Ruti-sama tidak lebih dari seorang adik perempuan tercinta. Aku percaya ini jenis cinta yang berbeda dibandingkan dengan cintanya pada Lit-san.
 
- 
+l"Ini pemandian yang bagus kan?"
 
-“Ini pemandian yang bagus kan?”
-
-"Ya."
-
- 
+r"Ya."
 
 Percakapan antara dua orang yang saling berhadapan tidak dimulai.
 
-Ruti-sama telah melihat langsung ke Lit-san selama ini dan menanggapi Lit-san dengan balasan singkat.
+Ruti-sama melihat langsung ke Lit-san selama ini dan membalas Lit-san dengan balasan singkat.
 
- 
-
-Aku terkesan karena Lit-san bisa bertahan dalam situasi seperti itu.
+Aku terkesan Lit-san bisa bertahan dalam situasi seperti itu.
 
 Bahkan jika Ruti-sama tidak memendam niat buruk, orang dengan keberanian biasa tidak akan mampu bertahan menghadapi pahlawan secara langsung.
 
 Bahkan aku, sebagai teman Ruti-sama, merasa jauh lebih mudah untuk berdiri di sampingnya dibandingkan di depannya.
 
- 
+dan juga, aku tidak bisa mengatakannya dengan pasti bahwa Ruti-sama tidak memiliki sedikit pun niat buruk terhadap Lit-san saat ini.
 
-Lebih jauh lagi, aku tidak bisa mengatakan dengan pasti bahwa Ruti-sama tidak memiliki sedikit pun niat buruk terhadap Lit-san saat ini.
+aku memilih untuk masuk ke kamar mandi juga untuk berjaga-jaga kalau-kalau terjadi masalah yang tidak terduga.
 
-Saya memilih untuk masuk ke kamar mandi juga untuk berjaga-jaga kalau-kalau terjadi masalah yang tidak terduga.
-
- 
-
-Lit-san.
-
- 
+r"Lit-san."
 
 Ruti-sama akhirnya berbicara lebih dulu!
 
-Jantung saya berdebar kencang saat saya mempersiapkan diri untuk melompat ke depan kapan saja.
+Jantungku berdebar kencang dan aku mempersiapkan diri untuk melompat ke depan kapan saja.
 
 Untuk berjaga-jaga!
 
- 
+l"ada apa?"
 
-"Apa itu?"
+r"Apa Lit-san sudah masuk ke kamar mandi dengan Onii-chan?"
 
-“Apa Lit-san sudah masuk ke kamar mandi dengan Onii-chan?”
+Dia langsung ke intinya! Mengerikan!
 
- 
+l"Ya, kami sudah melakukannya."
 
-Dia langsung melompat ke dalamnya! Mengerikan!
+Dia balas membalas tanpa ampun! Mengerikan!
 
- 
+aku tidak merasakan adanya gejolak di antara mereka berdua.
 
-Ya, kami punya.
+Meskipun tidak ada, sebagai seorang pembunuh bayaran, aku telah melihat bagaimana cinta dapat menjadi motif pembunuhan, bagi seseorang yang menginginkan kematian orang lain, aku cukup untuk mengetahuinya dengan sangat baik.
 
- 
+r"aku juga pernah mandi bersama. Meskipun itu sudah lama sekali."
 
-Dia balas menembak tanpa ampun! Mengerikan!
+l"Seperti apa Red… Gideon saat dia masih muda?"
 
- 
+r"Dia tidak berubah sama sekali."
 
-Saya tidak merasakan adanya gejolak di antara mereka berdua.
+g"Maksudmu dia tidak pernah tumbuh dewasa?"
 
-Meskipun tidak ada, sebagai seorang Assassin, saya telah melihat bagaimana cinta dapat menjadi motif pembunuhan, bagi seseorang yang menginginkan kematian orang lain, lebih dari cukup kali untuk mengetahuinya dengan sangat baik.
-
- 
-
-“Saya masuk bersama juga. Meskipun itu sudah lama sekali. "
-
-“Seperti apa Red… Gideon saat dia masih muda?”
-
-Dia tidak berubah sama sekali.
-
-Maksudmu dia tidak pernah tumbuh dewasa?
-
-"Tidak. Onii-chan selalu keren. ”
-
- 
+r"Tidak. Onii-chan selalu keren."
 
 Ruti-sama menunduk sedikit.
 
-Setelah diperiksa lebih dekat, pipinya diwarnai merah.
+Setelah dilihat lebih dekat, pipinya diwarnai merah.
 
- 
+r"Aku lemah di masa lalu."
 
-Aku lemah di masa lalu.
+l"benarkah? Aku tidak percaya saat melihat Ruti sekarang. "
 
-"Betulkah? Aku tidak percaya saat melihat Ruti sekarang. "
+r"Iya. Pertarungan pertamaku adalah melawan kelompok Orc yang menyerang desa, salah. Pertarungan pertamaku adalah ketika aku pergi mencari anak yang tersesat di gunung terdekat. "
 
-"Iya. Pertarungan pertamaku adalah melawan kelompok penyerang Orc yang menyerang desa, salah. Pertarungan pertamaku adalah ketika aku pergi mencari anak yang tersesat di gunung terdekat. "
+l"Anak yang hilang?"
 
-Anak yang hilang?
+r"aku berumur lima tahun. aku juga masih kecil. Tapi aku tidak bisa mengabaikannya sebagai Pahlawan."
 
-“Saya berumur lima tahun. Saya juga masih kecil. Tapi aku tidak bisa mengabaikannya sebagai Pahlawan. "
-
-"Dorongan Perlindungan Ilahi Anda ya ..."
-
- 
+l"Dorongan Perlindungan Ilahimu ya ..."
 
 Lit-san bergumam dengan serius.
 
 Impuls Perlindungan Ilahi adalah kekhawatiran umum bagi semua orang yang hidup di dunia ini.
 
- 
+Untuk menjalani hidupmu seperti yang diinginkan oleh Perlindungan Ilahimu atau untuk menentang Perlindungan Ilahimu dan menjalani hidupmu sendiri.
 
-Untuk menjalani hidup Anda seperti yang diinginkan oleh Perlindungan Ilahi Anda atau untuk menentang Perlindungan Ilahi Anda dan menjalani hidup Anda sendiri.
-
-Kebanyakan orang menjalani hidup mereka seperti yang diinginkan oleh Perlindungan Ilahi mereka. Terus menerus menentang Perlindungan Ilahi Anda akan menjadi sulit dan Perlindungan Ilahi akan memberikan keterampilan yang membantu menjalani kehidupan seperti yang diinginkan oleh Perlindungan Ilahi.
+Kebanyakan orang menjalani hidup mereka seperti yang diinginkan oleh Perlindungan Ilahi mereka. Terus menerus menentang Perlindungan Ilahimu akan menjadi sulit dan Perlindungan Ilahi akan memberikan keterampilan yang membantu menjalani kehidupan seperti yang diinginkan oleh Perlindungan Ilahi.
 
 Tapi itu tidak terbatas pada gaya hidup yang diinginkan orang tersebut.
 
-Kebetulan, saya mungkin tidak akan menjadi pembunuh jika bukan karena Perlindungan Ilahi dari Assassin saya tetapi di sisi lain, saya tidak mengalami kehidupan yang mengerikan sebagai budak jadi saya sebenarnya tidak membenci Perlindungan Ilahi saya.
+Kebetulan, aku mungkin tidak akan menjadi pembunuh jika bukan karena Perlindungan Ilahi dari pembunuh bayaranku tetapi di sisi lain, aku tidak mengalami kehidupan yang mengerikan sebagai budak jadi aku sebenarnya tidak membenci Perlindungan Ilahiku.
 
- 
+Sementara aku sibuk dalam pemikiran itu, Ruti-sama sangat tidak bisa berhenti menceritakan tentang petualangan pertamanya.
 
-Sementara aku tersesat dalam alur pemikiran itu, Ruti-sama sangat cerewet saat dia mulai menceritakan tentang petualangan pertamanya.
-
- 
+<gambar> vol3 5.jpg
 
 ☆☆
 
- 
-
 Hari itu, seorang anak yang bahkan bukan temanku masuk dan tersesat di sebuah gunung di mana hewan-hewan itu baru saja bangun dari hibernasi dan sedang mencari makan dengan perut kosong.
-
- 
 
 Pada dasarnya, anak-anak dilarang pergi ke gunung untuk bermain.
 
