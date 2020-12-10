@@ -44,43 +44,27 @@ Sebagai alternatif, ada banyak Penyembuh tingkat tinggi di kota-kota besar yang 
 
 aku kira aku akan mengabaikannya untuk saat ini. Meskipun aku berencana untuk menyelesaikannya suatu hari nanti.
 
-g"Mengacu kembali pada desakan pembantaian dari Perlindungan Ilahi Iblis, menurut Anda apa yang akan terjadi jika tingkat Perlindungan Ilahi tanpa nama melebihi tingkat Perlindungan Ilahi bawaan?"
+g"Mengacu kembali pada dorongan pembantaian dari Perlindungan Ilahi Iblis, menurutmu apa yang akan terjadi jika tingkat Perlindungan Ilahi tanpa nama melebihi tingkat Perlindungan Ilahi bawaan?"
 
-“Aku tidak bisa mengatakan dengan pasti tapi… karena dorongan Iblis Kapak adalah penyebabnya, aku percaya tidak apa-apa untuk berasumsi bahwa tidak ada yang akan terjadi untuk Perlindungan Ilahi tanpa dorongan.”
+“Aku tidak bisa mengatakan dengan pasti tapi... karena dorongan Iblis Kapak adalah penyebabnya, aku percaya tidak apa-apa untuk berasumsi bahwa tidak ada yang akan terjadi untuk Perlindungan Ilahi tanpa dorongan.”
 
- 
+aku juga memiliki pendapat yang sama.
 
-Saya juga memiliki pendapat yang sama.
-
- 
-
-Jadi apa kesimpulannya?
-
- 
+"Jadi apa kesimpulannya?"
 
 Tanya Tise.
 
- 
-
-“Coba saya lihat, risikonya tampaknya kecil untuk saat ini. Ada kebutuhan untuk waspada untuk tidak membiarkan level Perlindungan Ilahi Anda turun terlalu banyak, tetapi ada sedikit ketakutan bahwa Anda akan mengembangkan dorongan untuk membunuh. "
-
- 
+g"hmmmm... risikonya tampaknya kecil untuk saat ini. perlu untuk waspada untuk tidak membiarkan level Perlindungan Ilahimu turun terlalu banyak, tetapi ada sedikit ketakutan bahwa kamu akan mengembangkan dorongan untuk membunuh. "
 
 Mata Ruti sedikit melebar.
 
-Dia mungkin takut saya akan melarangnya menggunakan Perlindungan Ilahi Iblis.
+Dia mungkin takut aku akan melarangnya menggunakan Perlindungan Ilahi Iblis.
 
- 
+g"Pertama-tama, aspek berbahaya cukup banyak ditambahkan ke obat asli oleh iblis jadi aku berpikir untuk mencoba mengubah resep ke bentuk aslinya."
 
-“Pertama-tama, aspek berbahaya cukup banyak ditambahkan ke obat asli oleh iblis jadi saya berpikir untuk mencoba mengubah resep kembali ke bentuk aslinya.”
+aku tidak mengharapkan pengetahuanku tentang kedokteran berguna untuk situasi seperti ini.
 
- 
-
-Saya tidak mengharapkan pengetahuan saya tentang kedokteran berguna untuk situasi seperti ini.
-
-Saya merasa sedikit bangga ketika saya melihat Ruti memberi isyarat gembira.
-
- 
+aku merasa sedikit bangga ketika aku melihat Ruti memberi isyarat gembira.
 
 “Masalah berikutnya adalah bagaimana Zoltan menganggap Perlindungan Ilahi Iblis sebagai artikel berbahaya karena gangguan yang disebabkannya. Jika kami mencoba untuk mendapatkan bahan-bahan unik seperti Dwarven Black Fire Pepper, otoritas Zoltan akan segera menandai kami. "
 
