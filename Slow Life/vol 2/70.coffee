@@ -116,53 +116,39 @@ Aku menghantamkan ujung tongkat cahaya ke lantai. Saat aku melakukan itu, dengan
 
 Tongkat cahaya adalah item sihir murah yang harganya sekitar 2 Peryl dengan sihir khusus yang diterapkan padanya dan merupakan peralatan penerangan sekali pakai yang bisa memancarkan cahaya hingga 10 jam setelah dihidupkan.
 
-Orang mungkin mengatakan itu murah tapi itulah harga untuk satu jika Anda membelinya dalam bundel 100 batang. Namun, karena fakta bahwa itu dapat dinyalakan dengan mudah, bahwa itu tidak akan padam setelah dinyalakan dan tidak akan membuat apapun di sekitarnya terbakar, para petualang veteran selalu memiliki beberapa tongkat di tangan sebagai sumber cahaya darurat. Saya juga selalu membawa tiga tongkat di ikat pinggang saya.
+Orang mungkin mengatakan itu murah tapi itulah mahal jika kamu membelinya dalam bundel 100 batang. Namun, karena fakta bahwa itu dapat dinyalakan dengan mudah, bahwa itu tidak akan padam setelah dinyalakan dan tidak akan membuat apapun di sekitarnya terbakar, para petualang veteran selalu memiliki beberapa tongkat di tangan sebagai sumber cahaya darurat. aku juga selalu membawa tiga tongkat di ikat pinggangku.
 
- 
+aku menendang dinding beberapa kali untuk memperlambat penurunankku saat aku menuruni lubang vertikal hitam pekat.
 
-Saya menendang dinding beberapa kali untuk memperlambat penurunan saya saat saya menuruni lubang vertikal hitam pekat.
+Cahaya dari tongkat lampu di tangan kiriku tidak bisa mencapai dasar lubang vertikal. aku hanya bisa melihat hingga 20 meter ke depan dengan jelas. Yang bisa kulihat di depan adalah sesuatu yang remang-remang yang menyebabkan kegelapan gelap gulita.
 
-Cahaya dari tongkat lampu di tangan kiri saya tidak bisa mencapai dasar lubang vertikal. Saya hanya bisa melihat hingga 20 meter ke depan dengan jelas. Yang bisa saya lihat di depan adalah lingkungan yang remang-remang yang menyebabkan kegelapan gelap gulita.
+Meskipun aku berulang kali mengurangi kecepatanku, aku masih turun dengan kecepatan tinggi sehingga sangat menegangkan.
 
-Meskipun saya berulang kali mengurangi kecepatan saya, saya masih turun dengan kecepatan tinggi sehingga sangat menegangkan.
+aku merasa bahwa aku turun beberapa ratus meter. Tak lama kemudian, aku melihat sisa-sisa alat angkat di bawah kakiku.
 
-Saya merasa bahwa saya turun beberapa ratus meter. Tak lama kemudian, saya melihat sisa-sisa alat angkat di bawah kaki saya.
+aku menemukan tempat yang tampaknya aman untuk mendarat dan aku menendang dinding untuk mendarat.
 
-Saya menemukan tempat yang tampaknya aman untuk mendarat dan saya menendang dinding untuk mendarat.
+g"Fuuu."
 
- 
+Meskipun aku menggunakan skill, melompat setinggi itu sedikit melelahkan. walaupun aku memiliki ketahanan terhadap kelelahan, tindakan yang menguras mental masih akan membuatku lelah.
 
-Fuuu.
+Tapi aku menunda istirahatku ketika aku melihat sekeliling. Ruang bawah tanah dari reruntuhan itu agak terang di beberapa tempat tetapi sebagian besar diselimuti kegelapan.
 
- 
+aku mengangkat tongkat cahaya di tangan kiriku dan maju ke kedalaman.
 
-Meskipun saya menggunakan keterampilan, melompat setinggi itu sedikit melelahkan. Sementara saya memiliki ketahanan terhadap kelelahan, tindakan yang menguras mental masih akan membuat saya lelah.
+Di ruang bawah tanah, aku tidak bisa lagi melihat tanaman mirip ivy yang menutupi dinding.
 
-Tapi saya menunda istirahat ketika saya melihat sekeliling. Ruang bawah tanah dari reruntuhan itu menyala di beberapa tempat tetapi sebagian besar diselimuti kegelapan.
-
-Saya mengangkat light stick di tangan kiri saya dan maju ke kedalaman.
-
- 
-
-Di ruang bawah tanah, saya tidak bisa lagi melihat tanaman mirip ivy yang menutupi dinding.
-
-Sepanjang jalan, saya sesekali melihat sisa-sisa senjata pertahanan Peri-Kuno yang mungkin dihancurkan oleh Ruti. Hanya dengan membawa ini kembali dan menjualnya akan memberi saya keuntungan beberapa dekade dari pendapatan toko saya.
+Sepanjang jalan, aku sesekali melihat sisa-sisa senjata pertahanan ancient-elf yang mungkin dihancurkan oleh Ruti. Hanya dengan membawa ini kembali dan menjualnya akan memberiku keuntungan beberapa dekade dari pendapatan tokoku.
 
 Tapi pertama-tama, Zoltan tidak akan memiliki toko yang bisa membeli barang-barang berkualitas tinggi.
 
- 
-
-"Menurut Tise, mereka memproduksi Perlindungan Ilahi Iblis di bagian di wilayah barat daya."
-
- 
+g"Menurut Tise, mereka memproduksi Perlindungan Ilahi Iblis di bagian di wilayah barat daya."
 
 Ruti mungkin ada disana.
 
-Saya mengeluarkan kompas dan memastikan arah sebelum melangkah lebih dalam ke reruntuhan.
+aku mengeluarkan kompas dan memastikan arah sebelum melangkah lebih dalam ke reruntuhan.
 
- 
-
-Tapi kenapa para Peri Kuno menciptakan fasilitas sebesar itu di bawah tanah?
+Tapi kenapa para ancient-elf menciptakan fasilitas sebesar itu di bawah tanah?
 
 Setelah berjalan sebentar, di sepanjang jalan, saya perhatikan bahwa bahan bangunan berubah menjadi sesuatu yang sangat berbeda. Piring yang terbuat dari tanah liat ditempelkan di dinding.
 
