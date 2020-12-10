@@ -150,24 +150,14 @@ Dan yang mengejutkan, ada tiga kapal baru yang berlabuh di pelabuhan tersebut.
 
 g"biasanya hanya ada satu kapal."
 
-Kapal yang biasanya ditambatkan di Zoltan adalah perahu pekerja yang digunakan untuk menangkap ikan, perahu dayung yang dimaksudkan untuk melakukan perjalanan ke sungai untuk berdagang dengan desa-desa tetangga dan hanya tiga karavel, perahu layar kecil, yang masing-masing mampu membawa 20 orang.
+Kapal yang biasanya datang ke Zoltan adalah perahu pekerja yang digunakan untuk menangkap ikan, perahu dayung yang dimaksudkan untuk melakukan perjalanan di sungai untuk berdagang dengan desa-desa tetangga dan hanya tiga karavel, perahu layar kecil, yang masing-masing mampu membawa 20 orang.
 
-Sementara semua negara lain mengirimkan galleon baru atau galai besar yang kuat, itu benar-benar tidak dapat diandalkan untuk hanya memiliki armada tiga karavel tua kecil untuk mempertahankan ibu kota. Yah, ada juga fakta kalau tidak ada lawan yang mau berperang dengan Zoltan.
+Dengan keadaan seperti itu, aku dapat dengan mudah membedakan kapal yang baru saja masuk.
 
- 
+Saat ini, selain kapal dagang yang biasa datang ke pelabuhan, juga terdapat dua kapal cepat. Salah satunya adalah dapur kecil sementara yang lainnya adalah perahu layar sekoci berukuran sedang.
 
-Dengan keadaan seperti itu, saya dapat dengan mudah membedakan kapal yang baru saja masuk.
+g"Kapal yang lebih kecil seharusnya ada di sini untuk mengangkut barang yang dipesan oleh orang kaya di distrik Pusat? Sedangkan untuk kapal berukuran sedang, apakah itu berniat menuju ke timur menuju Tembok di Ujung Dunia?"
 
-Saat ini, selain kapal dagang yang biasa ditambatkan di pelabuhan, juga terdapat dua kapal cepat. Salah satunya adalah dapur kecil sementara yang lainnya adalah perahu layar sekoci berukuran sedang.
+Jika itu benar, mereka mungkin menjual barang yang tidak biasa untuk mendapatkan uang tambahan. aku tidak yakin apakah mereka memiliki alat alkimia tetapi mungkin aku bisa memiliki sedikit harapan.
 
-Perahu layar sekoci memiliki lambung yang dalam dan mereka mungkin takut kandas di pelabuhan karena mereka berlabuh di tengah sungai dan sepertinya bertransaksi dengan pelabuhan melalui perahu yang lebih kecil.
-
- 
-
-“Kapal yang lebih kecil seharusnya ada di sini untuk mengangkut barang yang dipesan oleh penduduk kaya di distrik Pusat? Sedangkan untuk kapal berukuran sedang, apakah itu berniat menuju ke timur menuju Tembok di Ujung Dunia? "
-
- 
-
-Jika itu benar, mereka mungkin menjual barang yang tidak biasa untuk mendapatkan uang tambahan. Saya tidak yakin apakah mereka memiliki alat alkimia tetapi mungkin saya bisa menahan beberapa harapan.
-
-Saya berjalan menuju kota pelabuhan sambil merasa sedikit bersemangat.
+aku berjalan menuju kota pelabuhan sambil merasa sedikit bersemangat.
