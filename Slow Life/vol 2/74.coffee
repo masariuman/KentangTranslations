@@ -140,30 +140,20 @@ g"Itu adalah jenis golem buatan dibandingkan dengan golem jarum jam yang terliha
 
 Kata Tise. Ugeuge-san keluar dari tasnya dan menyampaikan sesuatu kepada Tise.
 
-“Ugeuge-san mengatakan bahwa dua orang selain Ular Besi menginjak jaring itu dan menyebar.”
-
- 
+“Ugeuge-san mengatakan bahwa dua orang selain Ular Besi menginjak jaring yang dia sebarkan.”
 
 Ugeuge-san mengangguk untuk menunjukkan bahwa itu benar.
 
-Ugeuge-san, yang melakukan perjalanan bersama dengan Tise dan menaikkan level Divine Protection-nya, tampaknya bisa memahami ukuran dan bentuk orang-orang melalui gerakan jaringnya saat mereka menyentuhnya.
+Ugeuge-san, yang melakukan perjalanan bersama dengan Tise dan menaikkan level perlindungan ilahinya, tampaknya bisa memahami ukuran dan bentuk orang-orang melalui gerakan jaringnya saat mereka menyentuhnya.
 
- 
+g"Dua orang ya?"
 
-"Dua orang ya?"
+Itu mungkin tim dua orang yang memanggil Spirit Drake.
 
- 
-
-Itu mungkin pesta dua orang yang memanggil Spirit Drake.
-
-Itu dipertanyakan jika mereka melihat kami dari momen singkat itu tetapi lawan kemungkinan telah memperoleh informasi bahwa Ular Besi mereka dihancurkan.
+kami tidak tahu jika mereka melihat kami dari momen singkat itu tetapi lawan kemungkinan telah memperoleh informasi bahwa Ular Besi mereka dihancurkan.
 
 Kami sama sekali tidak tahu siapa lawannya.
 
- 
-
-”… Mungkin itu Shisandan.”
-
- 
+l"...Mungkin itu Shisandan.""
 
 Lit bergumam dengan ekspresi bercampur antisipasi gelap dan kegelisahan.
