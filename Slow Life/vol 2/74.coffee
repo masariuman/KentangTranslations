@@ -136,13 +136,9 @@ Lebih jauh lagi, menggunakan sihir, ia memiliki kemampuan untuk memetakan area d
 
 g"Itu adalah jenis golem buatan dibandingkan dengan golem jarum jam yang terlihat di reruntuhan ancient-elf. Tidak ada catatan bertemu Ular Besi di reruntuhan ancient-elf."
 
-“Sepertinya seseorang telah menyusup ke reruntuhan. Mereka mungkin telah menghilangkan kehadiran mereka dengan sihir tapi aku masih bisa merasakan kehadiran kecil jika aku berkonsentrasi. ”
-
- 
+“Sepertinya seseorang telah menyusup ke reruntuhan. Mereka mungkin telah menghilangkan keberadaan mereka dengan sihir tapi aku masih bisa merasakan kehadiran kecil jika aku berkonsentrasi. ”
 
 Kata Tise. Ugeuge-san keluar dari tasnya dan menyampaikan sesuatu kepada Tise.
-
- 
 
 “Ugeuge-san mengatakan bahwa dua orang selain Ular Besi menginjak jaring itu dan menyebar.”
 
