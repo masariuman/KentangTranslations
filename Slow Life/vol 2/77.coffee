@@ -4,7 +4,7 @@ Ruti dan aku kembali ke Lit dan yang lainnya.
 
 Kami dapat dengan cepat bertemu kembali dengan empat orang yang mencoba mengejar kami dari belakang. Setelah memberi tahu mereka tentang pertemuan kami dan berpisah dengan Ares, Lit sangat gembira, Tise menunjukkan ekspresi yang sedikit terkejut sementara Godwin sepertinya tidak bisa menangkap apa yang sedang terjadi.
 
-“Wajar jika Ares memanggil Naga Roh.”
+r“Wajar jika Ares memanggil Naga Roh.”
 
 Tise mengangguk pada kata-kata Ruti.
 
