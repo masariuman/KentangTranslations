@@ -308,70 +308,44 @@ Bahkan jika aku hidup, aku akan mengalami rasa sakit seperti itu demi orang-oran
 
 Bahkan jika aku hidup, aku akan disebut anak menyeramkan di belakangku oleh mereka yang membuatku kesakitan.
 
-Bahkan jika saya masih hidup, mereka akan meminta bantuan saya, bantuan dari seorang anak yang menyeramkan, hanya jika mereka merasa nyaman dan tidak akan membalas budi setelah semuanya selesai.
-
- 
+Bahkan jika aku masih hidup, mereka akan meminta bantuanku, bantuan dari seorang anak yang menyeramkan, hanya jika mereka merasa nyaman dan tidak akan membalas budi setelah semuanya selesai.
 
 Aku sudah cukup. Hidup selama lima tahun.
 
-Itu bahkan lebih pendek jika saya menghitung sejak saya mulai menyadari lingkungan saya.
+Itu bahkan lebih pendek jika aku menghitung sejak aku mulai menyadari lingkunganku.
 
- 
-
-Saat itu, ketika saya masih belum memiliki Resistensi terhadap keputusasaan, adalah saat saya merasakan banyak keputusasaan dalam kemanusiaan.
-
- 
+Saat itu, ketika aku masih belum memiliki Resistensi terhadap keputusasaan, adalah saat aku merasakan banyak keputusasaan dalam kemanusiaan.
 
 Namun, ada satu.
 
-Seseorang yang tidak meminta bantuan saya.
+Seseorang yang tidak meminta bantuanku.
 
-Seseorang yang akan selalu membantu saya ketika saya mencari bantuan.
+Seseorang yang akan selalu membantuku ketika aku mencari bantuan.
 
 Seseorang yang mencintaiku sebagai adik perempuan tercintanya.
 
- 
+aku tidak akan menyesal membuang yang lainnya, Orang tuaku, rumahku, bahkan dunia.
 
-Saya tidak akan menyesal membuang yang lainnya. Orang tua saya, rumah saya, bahkan dunia.
-
- 
-
-Tapi pikiran tidak bisa melihat Onii-chan… Aku membencinya.
+Tapi pikiranku tidak bisa melihat Onii-chan... Aku membencinya.
 
 Saat aku memikirkan itu, kata-kata keluar dari mulutku secara alami bahkan sebelum terlintas dalam pikiranku.
 
- 
-
-“Onii-chan, bantu aku !!”
-
- 
+r"Onii-chan, tolong aku !!"
 
 Pedang yang terhunus itu menyala seperti sambaran petir.
 
-Pedang yang berasal dari titik buta di sisi kiri Owlbear bermata tunggal menembus armor tebal ototnya untuk mencapai jantungnya dan monster seberat 700 kilogram itu terbunuh dengan satu pukulan pedang.
+Pedang yang berasal dari titik buta di sisi kiri Owlbear menembus armor tebal ototnya dan mencapai jantungnya dan monster seberat 700 kilogram itu terbunuh dengan satu pukulan pedang.
 
- 
+g"Ruti! Apakah kamu baik-baik saja!"
 
-“Ruti! Apakah kamu baik-baik saja!"
+Orang itu tidak membanggakan kemenangannya melawan Owlbear dan tidak peduli dengan yang dia lakukan karena dia menunjukkan ekspresi yang bahkan lebih menyedihkan daripada ekspresiku saat dia melihat tubuhku yang terluka.
 
- 
+r"Aku baik-baik saja, bagaimanapun juga, Onii-chan datang untuk menyelamatkanku."
 
-Orang itu tidak membanggakan kekalahannya atas Owlbear dan tidak melihat sekilas prestasinya saat dia menunjukkan ekspresi yang bahkan lebih menyedihkan daripada ekspresi saya saat dia melihat tubuh saya yang terluka.
+Tapi aku tidak peduli dengan rasa sakit yang aku rasakan.
 
- 
+Karena orang di depanku selalu ada di sisiku ketika aku menderita.
 
-“Aku baik-baik saja, bagaimanapun juga, Onii-chan datang untuk menyelamatkanku.”
-
- 
-
-Tapi saya tidak peduli dengan rasa sakit yang saya rasakan.
-
-Karena orang di depan saya selalu ada di sisi saya ketika saya menderita.
-
- 
-
-Setelah itu, saya digendong di bahu Onii-chan dan kami dengan aman menuruni gunung.
-
- 
+Setelah itu, aku digendong di bahu Onii-chan dan kami dengan aman menuruni gunung.
 
 Aku baru tahu lama setelah itu bahwa alasan Onii-chan memperoleh penguasaan skill umumnya adalah karena dia memprioritaskan meningkatkan Swift Skill-nya sehingga dia bisa meningkatkan kecepatan dia bisa bergegas ke arahku kapan pun dia perlu.
