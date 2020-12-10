@@ -4,35 +4,25 @@ Ruti-sama menatap langit-langit setelah dia menyelesaikan ceritanya.
 
 Pipi merahnya kemungkinan besar bukan karena dia berendam di bak mandi air panas.
 
- 
-
-“Jadi Ruti juga seperti itu.”
-
- 
+l"Jadi Ruti juga seperti itu."
 
 Lit-san juga melihat ke langit-langit.
 
 Dia tampak seperti sedang mengingat sesuatu juga.
 
- 
+l"aku putus asa setelah Shisandan membunuh mentorku serta Pengawal Istana dan Petualang yang aku percayai dan timku. Apalagi setelah pertengkaran sengit dengan kalian tentang bagaimana kami akan melindungi negara kami dengan tubuh kami sendiri. Saat itu, aku merasa akan lebih baik jika aku tidak selamat. Bahwa itu semua terjadi karena aku. "
 
-“Saya putus asa setelah Shisandan membunuh mentor saya serta Pengawal Istana dan Petualang yang saya percayai dan berpesta. Apalagi setelah pertengkaran sengit dengan kalian tentang bagaimana kami akan melindungi negara kami dengan tubuh kami sendiri. Saat itu, saya merasa akan lebih baik jika saya tidak selamat. Bahwa itu terjadi karena aku. "
+r"begitu..."
 
-"Saya melihat."
-
-“Red menyelamatkanku selama waktu itu. Dia tiba sebelum Ruti dan yang lainnya dan bergegas menghadapi Shisandan dalam pertempuran demi diriku. Dia mendorong saya untuk membantai musuh saya daripada berkubang dalam penyesalan. "
-
- 
+l"Red menyelamatkanku waktu itu. Dia tiba sebelum Ruti dan yang lainnya dan bergegas menghadapi Shisandan demi diriku. Dia mendorongku untuk melawan musuhku daripada berkubang dalam penyesalan."
 
 Kedengarannya seperti gangguan di Kerajaan Logavia.
 
-Principality of Logavia, yang memiliki kekuatan militer yang sangat besar, telah bertempur dalam pertempuran kecil dengan negara tetangganya mengenai hak untuk menggunakan sungai yang membentang di sepanjang perbatasan mereka dan juga terus berperang melawan pasukan Raja Iblis sendiri bahkan sebelum invasi. dimulai.
+kerajaan Logavia, yang memiliki kekuatan militer yang sangat besar, telah bertempur dalam pertempuran kecil dengan negara tetangganya mengenai hak untuk menggunakan sungai yang membentang di sepanjang perbatasan mereka dan juga terus berperang melawan pasukan Raja Iblis sendiri bahkan sebelum invasi dimulai.
 
-Namun, pasukan Raja Iblis yang dipimpin oleh Asura Demon Shisandan menyerang dan menyebabkan kerusakan parah pada penduduk pegunungan yang memasok bahan bakar dalam jumlah besar yang mendukung kekuatan militer Logavia, memutus pasokan mereka.
+Namun, pasukan Raja Iblis yang dipimpin oleh iblis Asura Shisandan menyerang dan menyebabkan kerusakan parah pada penduduk pegunungan yang memasok bahan bakar dalam jumlah besar yang mendukung kekuatan militer Logavia dan memutus pasokan mereka.
 
 Kekuatan prajurit Logavia berasal dari peralatan berkualitas tinggi mereka. Bahan bakar dalam jumlah besar dibutuhkan untuk mengoperasikan pabrik produksi untuk produksi peralatan tersebut.
-
- 
 
 Pasukan Logavia kehilangan momentum dan kastil mereka dikepung.
 
