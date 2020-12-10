@@ -74,47 +74,31 @@ Pada saat itu, mereka menggunakan bantuan Drakes petir untuk menerobos kavaleri 
 
 Tapi pada saat itu, tak lama setelah memuji betapa nyamannya Spirit Drake, dia merasa ingin mengeluh kepada Ares setiap kali mereka menghadapi bahaya karena Ares tidak bisa mengendalikannya.
 
- 
-
-"Mengapa Anda tidak menggunakannya secara teratur jika ini nyaman?"
-
- 
+"Mengapa kamu tidak menggunakannya secara teratur jika ini nyaman?"
 
 Danan duduk di belakang Theodora dan melontarkan pertanyaan padanya saat dia mengendalikan Spirit Drake.
 
- 
+"Karena terlalu banyak menarik perhatian. Orang yang mampu memanggil Spirit Drakes terbatas. Bahkan pasukan Raja Iblis akan berjaga-jaga jika mereka melihat ini. "
 
-“Karena terlalu banyak menarik perhatian. Orang yang mampu memanggil Spirit Drakes terbatas. Bahkan pasukan Raja Iblis akan berjaga-jaga jika mereka melihat mereka. "
+"begitu ya..."
 
-"Saya melihat."
-
- 
-
-Danan yakin dan mengangguk. Roh Drake terbang di langit dengan mudah terlihat dari tanah. Tepat sebelumnya Gideon meningkatkan kecepatannya dan berlari ke depan karena mereka juga melihatnya.
-
- 
+Danan yakin dan mengangguk. spirit drake terbang di langit dengan mudah terlihat dari tanah. Tepat sebelumnya Gideon meningkatkan kecepatannya dan berlari ke depan karena mereka juga melihatnya.
 
 “Ngomong-ngomong, siapa ini?”
 
-“Saya Albert. Senang bertemu denganmu, Danan-san. Bahkan di Zoltan, saya telah mendengar tentang peran aktif Anda dalam berperang melawan pasukan Raja Iblis. Ceritanya panjang tapi saya seorang petualang yang saat ini berpesta dengan Theodora-san. ”
+“aku Albert. Senang bertemu denganmu, Danan-san. Bahkan di Zoltan, aku telah mendengar tentang peran aktifmu dalam berperang melawan pasukan Raja Iblis. Ceritanya panjang tapi aku seorang petualang yang saat ini setim dengan Theodora-san.”
 
- 
-
-Albert berkata dan menundukkan kepalanya.
+Albert berbicara dan menundukkan kepalanya.
 
 "Hmm" Danan mengangguk dan langsung terlihat kehilangan minat.
 
- 
+"tapi, kalian menyelamatkanku dari masalah di sini. Aku bisa mencapai gunung dengan cepat juga dengan ini. "
 
-“Namun demikian, Anda menyelamatkan saya dari masalah di sini. Aku akan bisa mencapai gunung dengan cepat juga dengan ini. "
+“Apakah kamu tidak akan bertanya lebih jauh mengapa aku ada di sini?”
 
-“Apakah kamu tidak akan bertanya lebih jauh mengapa saya ada di sini?”
+“Aku tidak akan mengerti bahkan jika aku bertanya. pahlawan-sama ada di gunung dan dia membutuhkan kekuatan kita. Itu lebih dari cukup bagiku. ”
 
-“Aku tidak akan mengerti bahkan jika aku bertanya. Hero-sama ada di gunung dan dia membutuhkan kekuatan kita. Itu lebih dari cukup bagiku. ”
-
-“… Kamu benar-benar orang yang sederhana. Kamu membuatku iri. ”
-
- 
+“... Kamu benar-benar orang yang sederhana. Kamu membuatku iri. ”
 
 Theodora tersenyum pahit.
 
