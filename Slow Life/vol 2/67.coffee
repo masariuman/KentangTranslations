@@ -126,49 +126,31 @@ Ares tertawa seolah membodohinya.
 
 Bagaimanapun, Danan lebih rendah dari dirinya sendiri. Ares diam-diam merasa lebih unggul dari pria yang tidak bisa mengendalikan emosinya.
 
- 
+"Nah, begitulah adanya. Jadi mengapa pahlawan-sama ada di sini? Mungkinkah pahlawan-sama mengetahui tentang lokasi Gideon? "
 
-“Nah, begitulah adanya. Jadi mengapa Hero-sama ada di sini? Mungkinkah Hero-sama mengetahui tentang lokasi Gideon? "
+”......”
 
-”……”
-
-"Apa yang salah?"
-
- 
+"Apa ada yang salah?"
 
 Ares tampaknya ragu-ragu apakah akan mengatakannya.
 
- 
-
-(Apakah orang ini pernah gagal dalam hal apa pun? Saya enggan membicarakan kegagalan saya sendiri.)
-
- 
+(Apakah orang ini pernah gagal dalam hal apa pun? aku enggan membicarakan kegagalanku sendiri.)
 
 Danan kagum dengan kebodohannya meskipun itu tidak akan membantunya untuk menyembunyikan fakta saat dia mengubah cara dia mengajukan pertanyaan.
 
- 
-
-“Yah, bagaimanapun, kita harus bertindak selagi kita masih punya kesempatan. Gideon menggunakan alias Red di sini tapi dia cukup terkenal di Zoltan. ”
+“Yah, bagaimanapun, kita harus bertindak selagi kita masih punya kesempatan. Gideon menggunakan nama Red di sini tapi dia cukup terkenal di Zoltan. ”
 
 "Hmph, jadi orang itu masih ingin berpura-pura menjadi pahlawan di tempat yang levelnya rendah."
 
- 
+Faktanya, Red terkenal hidup bersama dengan pahlawan Lit tapi Danan tidak harus mengoreksi setiap kesalahpahaman yang dimilikinya.
 
-Faktanya, Red terkenal hidup bersama dengan Hero Lit tapi Danan tidak harus mengoreksi setiap kesalahpahaman yang dimilikinya.
+“Bagaimanapun juga, ada kemungkinan besar pahlawan-sama akan menyadari bahwa Red dan Gideon adalah orang yang sama. Jika kamu memiliki urusan di Zoltan, kamu harus menyelesaikannya secepat mungkin. Mengingat bagaimana aku dulu pernah ke Zoltan, aku tahu sedikit tentang tempat itu jadi aku dapat membantu Anda. ”
 
- 
+Danan... itu Shisandan yang menyamar, memberi saran ke Ares.
 
-“Bagaimanapun juga, ada kemungkinan besar Hero-sama akan menyadari bahwa Red dan Gideon adalah orang yang sama. Jika Anda memiliki bisnis di Zoltan, Anda harus menyelesaikannya secepat mungkin. Mengingat bagaimana saya dulu pernah ke Zoltan, saya tahu sedikit tentang tempat itu sehingga saya dapat membantu Anda. ”
-
- 
-
-Danan… itu Shisandan yang menyamar, usul Ares.
-
-Tujuannya adalah untuk menemukan 『objek tertentu』 yang disegel para Peri Hutan sebelum kehancuran mereka dan membawanya kembali.
+Tujuannya adalah untuk menemukan 『objek tertentu』 yang disegel para wood-elf sebelum objek itu hancur dan mengambilnya.
 
 Bahkan pilihannya untuk mengambil risiko bahaya dan melakukan kontak dengan Ares adalah untuk memastikan tujuannya dan jika itu tidak terkait dengan 『objek tertentu』 itu, dia akan membuat mereka meninggalkan Zoltan bahkan jika dia harus membantu mereka.
-
- 
 
 Shisandan memiliki dua kekhawatiran.
 
