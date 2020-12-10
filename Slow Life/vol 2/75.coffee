@@ -180,35 +180,25 @@ Penampilan Ares yang biasanya populer di kalangan wanita di Kota Kekaisaran kini
 
 "Ruti, ayo kita berangkat untuk mengalahkan Raja Iblis bersama-sama. Hanya Ruti yang merupakan Pahlawan yang bisa menyelamatkan dunia. Dan aku harus berada di sisimu untuk itu. Pahlawan dan Sage. Dengan gabungan dua Perlindungan Ilahi terbesar, kita tidak perlu takut pada Raja Iblis."
 
-g"Ah, Ares, apa yang terjadi? Kenapa kamu terlihat seperti itu... ”
+g"Ah, Ares, apa yang terjadi? Kenapa kamu terlihat seperti itu... "
 
-Aku memanggil Ares. Sebagai orang yang cerewet, Ares selalu menjaga penampilannya meski dalam perjalanan jadi saya cukup kaget melihat penampilan Ares yang tidak terawat.
+Aku memanggil Ares. Sebagai orang yang cerewet, Ares selalu menjaga penampilannya meski dalam perjalanan jadi aku cukup kaget melihat penampilan Ares yang tidak terawat.
 
-“Sekarang, Ruti. Pegang tanganku. Apakah Anda berpikir bahwa Anda tidak membutuhkan teman lain? Tidak apa-apa, memang benar Danan dan Theodora dan Yarandorara dan Tise dan Gideon semuanya adalah pengganggu. Sampah yang hanya tahu bagaimana cara mengadu tetapi tidak berguna untuk apapun. Mari kita kalahkan Raja Iblis hanya dengan kita berdua. Masa depan yang gemilang menanti kita. ”
+“Sekarang, Ruti. Pegang tanganku. Apakah kamu berpikir bahwa kamu tidak membutuhkan teman lain? Tidak apa-apa, memang benar Danan dan Theodora dan Yarandorara dan Tise dan Gideon semuanya adalah pengganggu. Sampah yang hanya tahu bagaimana cara mengadu tetapi tidak berguna untuk apapun. Mari kita kalahkan Raja Iblis hanya dengan kita berdua. Masa depan yang gemilang menanti kita. ”
 
- 
+Ares tidak bereaksi terhadap kata-kataku. Pipinya bergejolak dan terlihat seperti kram saat dia menunjukkan senyum dan mengulurkan tangannya ke Ruti.
 
-Ares tidak bereaksi terhadap kata-kataku. Pipinya bergejolak dan terlihat seperti kram saat dia menunjukkan senyum dengan wajah penuh dan mengulurkan tangannya ke Ruti.
-
- 
-
-"Ares."
-
- 
+r"Ares."
 
 Ruti dengan lembut memanggil nama Ares sambil menatapnya dengan sedikit tatapan kasihan.
 
- 
-
 “Ruti…”
 
-"Aku tidak akan bepergian lagi denganmu."
+r"Aku tidak akan bepergian lagi denganmu."
 
 “Eh?”
 
-“Saya tidak tahu apa yang ada di depan saya. Tapi perjalananku denganmu sudah berakhir. Karena saya tidak akan lagi maju sebagai Pahlawan tetapi sebagai Ruti. ”
-
- 
+r"aku tidak tahu apa yang ada di depanku. Tapi perjalananku denganmu sudah berakhir. Karena aku tidak akan lagi maju sebagai Pahlawan tetapi sebagai Ruti."
 
 Ares membutuhkan Pahlawan, bukan Ruti.
 
