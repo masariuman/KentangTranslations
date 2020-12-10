@@ -130,7 +130,7 @@ senyuman licik muncul di mulut pemuda berkulit kecokelatan itu.
 
 Kecemasan memenuhi dada Ares.
 
-Mengapa para Peri Hutan menyembunyikan relik Pahlawan generasi sebelumnya? Relik 『Hero』 harus menjadi simbol harapan. Apa arti di balik menyembunyikan keberadaannya secara ketat sehingga tidak ada satu kata pun yang tersisa tentangnya?
+Mengapa para wood-elf menyembunyikan relik Pahlawan generasi sebelumnya? Relik 『Pahlawan』 harus menjadi simbol harapan. Apa arti di balik menyembunyikan keberadaannya secara ketat sehingga tidak ada satu kata pun yang tersisa tentangnya?
 
 Keduanya maju lebih dalam ke reruntuhan.
 
