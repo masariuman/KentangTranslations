@@ -218,61 +218,41 @@ g"Ya."
 
 ”… aku tidak mengerti. aku tidak mengerti sama sekali. ”
 
-Danan pada dasarnya berada di sisi manusia yang tidak dapat memahami perasaan menderita karena dorongan Perlindungan Ilahi mereka. Di antara semua orang yang saya temui, Danan adalah orang yang paling mencintai Perlindungan Ketuhanannya sendiri.
+Danan pada dasarnya berada di sisi manusia yang tidak dapat memahami perasaan menderita karena dorongan Perlindungan Ilahi mereka. Di antara semua orang yang aku temui, Danan adalah orang yang paling mencintai Perlindungan ilahinya sendiri.
 
-Fakta bahwa ia memiliki kekuatan yang lebih besar dengan 『Seniman Bela Diri his Perlindungan Ilahi yang tidak dapat dianggap sebagai Perlindungan Ilahi yang lebih tinggi daripada rekan-rekannya dengan Perlindungan Ilahi yang superior dari『 Tentara Salib 』dan『 Sage 』adalah buktinya.
+Fakta bahwa ia memiliki kekuatan yang lebih besar dengan perlindungan ilahi『Seniman Bela Diri』 yang tidak dapat dianggap sebagai Perlindungan Ilahi yang lebih tinggi daripada rekan-rekannya dengan Perlindungan Ilahi yang superior dari『 Tentara Salib 』dan『 Sage 』adalah buktinya.
 
- 
+"aku tidak mengerti. Tapi aku mengerti bahwa aku tidak mengerti apa-apa! Satu-satunya hal yang bisa saakuya lakukan adalah bertarung! "
 
-“Saya tidak mengerti. Tapi saya mengerti bahwa saya tidak mengerti apa-apa! Satu-satunya hal yang bisa saya lakukan adalah bertarung! "
+g"Dasar kepala otot."
 
-"Dasar otot kepala."
-
-“Itu sebabnya, untuk saat ini, aku akan bertarung demi apapun yang Pahlawan-sama coba lakukan! Jika Pahlawan-sama berhenti menjadi Pahlawan-sama, saya akan memikirkannya ketika saatnya tiba! "
-
- 
+"Itu sebabnya, untuk saat ini, aku akan bertarung demi apapun yang Pahlawan-sama coba lakukan! Jika Pahlawan-sama berhenti menjadi Pahlawan-sama, aku akan memikirkannya ketika saatnya tiba! "
 
 Ahh sheesh. Danan benar-benar Danan.
 
- 
+“Jika sudah diputuskan, kita tidak punya waktu untuk bermalas-malasan di sini! Ayo pergi Gideon, itu adalah peran kita untuk membantu Pahlawan-sama jika dia mengalami masalah! ”
 
-“Jika kita sudah memutuskan itu, kita tidak punya waktu untuk bermalas-malasan di sini! Ayo pergi Gideon, itu adalah peran kita untuk membantu Pahlawan-sama jika dia mengalami masalah! ”
-
-“Tunggu, tunggu, ceritaku sudah selesai tapi bagaimana denganmu?”
+g"Tunggu, tunggu, ceritaku sudah selesai tapi bagaimana denganmu?"
 
 “Kita bisa membicarakannya sambil jalan, apa yang terjadi padaku bukanlah masalah besar!”
 
- 
-
-Saya merasa kehilangan tangan kanan Anda adalah masalah yang cukup besar.
+aku merasa kehilangan tangan kananmu adalah masalah yang cukup besar.
 
 Ekspresi Danan dengan jelas menunjukkan bahwa dia tidak bisa duduk diam.
 
- 
+g"Baiklah."
 
-"Baiklah."
+Sudah lama sekali aku tidak melihat danan seperti itu.
 
- 
+pecinta otot ini selalu mementingkan tindakan daripada pikiran. Tidak peduli situasi apa yang dia hadapi, dia adalah tipe pria yang tidak akan pernah berhenti bergerak maju karena khawatir.
 
-Sudah lama sekali saya tidak melihat aspek Danan itu.
-
-Otot otot yang menyenangkan ini selalu mempraktikkan tindakan di atas pikiran. Tidak peduli situasi apa yang dia hadapi, dia adalah tipe pria yang tidak akan pernah berhenti bergerak maju karena khawatir.
-
-Kadang-kadang saya terpesona oleh kesederhanaan Danan.
-
- 
+Kadang-kadang aku terpesona oleh kesederhanaan Danan.
 
 ☆☆
 
- 
-
 Pintu terbuka dan Red serta Danan meninggalkan toko dengan penuh semangat.
 
- 
-
 “Apa kamu yakin kita tidak perlu mengejar mereka?”
-
- 
 
 Kata pria dengan perban melilit kepalanya duduk beberapa kursi dari tempat Danan dan Red duduk… Albert.
 
