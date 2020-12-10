@@ -80,77 +80,51 @@ g"Aku akan menyelidiki kemungkinan mengganti bahannya juga. Mungkin saja iblis d
 
 Menurut cerita Ruti, para iblis itu tampaknya memiliki keyakinan yang taat pada Demise. Mengejutkan tetapi juga wajar jika iblis, yang dengan setia hidup sesuai dengan keinginan Perlindungan Ilahi mereka, menjadi pemuja Dewa Dewa Tertinggi.
 
-Iblis-iblis itu memegang teknik peracikan untuk obat yang menciptakan Perlindungan Ilahi baru yang menentang kehendak Dewa Dewa Tertinggi. Terlepas dari apakah itu tentang efek Perlindungan Ilahi Iblis atau bahwa mereka mencoba untuk merahasiakan kemungkinan bahwa hal itu dapat meningkatkan pertumbuhan Perlindungan Ilahi bawaan seseorang, iblis juga mencoba yang terbaik untuk menghilangkan elemen dari Perlindungan Ilahi Iblis yang mana bertentangan dengan keinginan Dewa Agung Demis.
+Iblis-iblis itu memegang teknik peracikan untuk obat yang menciptakan Perlindungan Ilahi baru yang menentang kehendak Dewa Dewa Tertinggi. Terlepas dari apakah itu tentang efek Perlindungan Ilahi Iblis atau bahwa mereka mencoba untuk merahasiakan kemungkinan bahwa hal itu dapat meningkatkan pertumbuhan Perlindungan Ilahi bawaan seseorang, iblis juga mencoba yang terbaik untuk menghilangkan elemen dari Perlindungan Ilahi Iblis yang mana bertentangan dengan keinginan Dewa Agung Demise.
 
 Mungkin pilihan mereka untuk menggunakan bahan yang mengandung toksisitas tinggi dan bahan langka juga untuk mencegah penyebaran obat ini secara tidak sengaja?
 
 Karena memiliki toksisitas, selain dari yang mampu melakukan sihir tingkat lanjut, itu akan berdampak fatal pada orang biasa.
 
- 
-
 Meski begitu, untuk mengira bahwa iblis itu menyembah Demis.
 
-Saya ingin berdiskusi panjang lebar dengan Ruti suatu saat nanti. Ketika saya di pesta Pahlawan, saya biasa berdiskusi sampai larut malam dengan Ruti, karena dia tidak butuh tidur, berbagai fakta tentang dunia ini yang kami temukan selama perjalanan kami. Karena sudah lama, mungkin saya akan berbicara dengan Ruti sampai saya merasa mengantuk setelah kami kembali.
+aku ingin berdiskusi panjang lebar dengan Ruti suatu saat nanti. Ketika aku di tim Pahlawan, aku biasa berdiskusi sampai larut malam dengan Ruti, karena dia tidak butuh tidur, berbagai fakta tentang dunia ini yang kami temukan selama perjalanan kami. Karena sudah lama, mungkin aku akan berbicara dengan Ruti sampai aku merasa mengantuk setelah kami kembali.
 
-Saya sangat menantikannya.
+aku sangat menantikannya.
 
- 
-
-"Onii-chan, apakah ada masalah?"
-
- 
+r"Onii-chan, apakah ada masalah?"
 
 Ruti memperhatikan tatapanku dan memiringkan kepalanya.
 
-Saya mengatakan itu bukan apa-apa dengan senyuman.
+aku mengatakan itu bukan apa-apa dengan senyuman.
 
- 
-
-"Saya melihat."
-
- 
+r"begitu..."
 
 Dia mengangguk sedikit.
 
- 
-
-Ada sesuatu di sini!
-
- 
+"Ada sesuatu di mendekat!"
 
 Tiba-tiba, Tise berseru pelan tapi tajam dengan cara yang hanya bisa kami dengar.
 
-Selain Godwin, kami semua dengan cepat mencabut senjata dan memusatkan saraf. Godwin mundur ketakutan setelah melihat isyaratku padanya untuk mundur.
-
- 
+Selain Godwin, kami semua dengan cepat mencabut senjata dan fokus. Godwin mundur ketakutan setelah melihat isyaratku padanya untuk mundur.
 
 "Aku-aku yakin aku aman jika kalian ada di sini."
 
- 
-
 Godwin berkata dengan gelisah.
 
-Ruti tidak menunjukkan tanda-tanda memperhatikan komentar Godwin saat dia perlahan mendekati pintu.
+Ruti tidak menunjukkan tanda-tanda memperhatikan Godwin saat dia perlahan mendekati pintu.
 
 Dengan keterampilan ekstra-sensorik 『Pahlawan』 Perlindungan Ilahi, kelima indra Ruti seperti getaran, suhu, bau, dan lainnya memiliki kemampuan persepsi yang sama dengan penglihatannya.
 
-Itu lebih rendah dari kemampuan persepsi jangkauan luas 『Assassin Tise tetapi dalam jarak dekat, keterampilan Ruti yang bahkan bisa melihat di balik dinding lebih unggul.
+Itu lebih rendah dari kemampuan persepsi jangkauan luas Pembunuh bayaran Tise tetapi dalam jarak dekat, keterampilan Ruti yang bahkan bisa melihat di balik dinding lebih unggul.
 
- 
-
-Ular Besi.
-
- 
+r"Ular Besi."
 
 Ruti bergumam pelan.
 
-Sesuatu yang kecil keluar dari pintu masuk yang gelap. Namun, pedang Ruti terayun ke bawah di depan Ular Besi begitu ia ditembakkan dan terbelah menjadi dua bahkan sebelum ia sempat menggunakan taringnya.
+Sesuatu yang kecil keluar dari pintu masuk yang gelap. Namun, pedang Ruti terayun ke bawah di depan Ular Besi dan terbelah menjadi dua bahkan sebelum ia sempat menggunakan taringnya.
 
- 
-
-“Ular Besi? Kenapa mereka disini?"
-
- 
+r"Ular Besi? Kenapa mereka disini?"
 
 Ekspresi Ruti menjadi keruh.
 
@@ -160,9 +134,7 @@ Itu adalah Golem Besi yang meniru ular kecil dengan panjang sekitar 30 cm sehing
 
 Lebih jauh lagi, menggunakan sihir, ia memiliki kemampuan untuk memetakan area dan menyampaikan informasi yang dilihatnya melalui matanya kepada pengguna. Itu adalah golem yang digunakan untuk mengumpulkan informasi di wilayah musuh.
 
- 
-
-“Itu adalah jenis golem buatan yang terpisah dibandingkan dengan golem jarum jam yang terlihat di reruntuhan Peri-Kuno. Tidak ada catatan bertemu Ular Besi di reruntuhan Peri-Kuno. "
+g"Itu adalah jenis golem buatan dibandingkan dengan golem jarum jam yang terlihat di reruntuhan ancient-elf. Tidak ada catatan bertemu Ular Besi di reruntuhan ancient-elf."
 
 “Sepertinya seseorang telah menyusup ke reruntuhan. Mereka mungkin telah menghilangkan kehadiran mereka dengan sihir tapi aku masih bisa merasakan kehadiran kecil jika aku berkonsentrasi. ”
 
