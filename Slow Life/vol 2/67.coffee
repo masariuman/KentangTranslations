@@ -114,15 +114,13 @@ Danan jengkel. Kata-kata yang tidak masuk akal seperti itu meskipun dialah yang 
 
 Nah, itulah alasan mengapa dia melakukan kontak dengan orang ini. Asura, yang berwujud Danan, tertawa dalam dirinya.
 
-“Jadi, akan membuang-buang waktu bagi Hero-sama untuk tetap di sini untuk meyakinkan Gideon agar kembali. Saya juga tidak ingin membuang waktu. Saya juga tidak berharap Pahlawan-sama berhenti di sini untuk membujuk Gideon. "
+"Jadi, akan membuang-buang waktu bagi pahlawan-sama untuk tetap di sini untuk meyakinkan Gideon agar kembali. aku juga tidak ingin membuang waktu. aku juga tidak berharap Pahlawan-sama berhenti di sini untuk membujuk Gideon. "
 
-"Begitu ... itu sangat perseptif datang dari Anda."
+"Begitu ... itu sangat perseptif datang dari dirimu."
 
-“Saya tipe orang yang mengatakan emosi apa pun yang muncul di pikiran saat itu juga. Saya orang yang berbeda sama sekali ketika saya merasa santai untuk memikirkan kata-kata saya dan menggunakan kepalaku. "
+"aku tipe orang yang mengatakan apa pun yang muncul di pikiranku saat itu juga. aku orang yang berbeda sama sekali ketika aku merasa santai untuk memikirkan kata-kataku dan menggunakan kepalaku. "
 
 “Hmph, sangat mirip denganmu.”
-
- 
 
 Ares tertawa seolah membodohinya.
 
