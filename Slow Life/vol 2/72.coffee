@@ -116,11 +116,7 @@ Jika Ares tidak berhenti di kapal terbang dan langsung memasuki gunung, dia akan
 
 Namun, tanpa bantuan itu, Ares harus mengandalkan sihirnya sendiri untuk mengitari gunung dan mencari.
 
- 
-
 “Dia seharusnya berada di sekitar sini.”
-
- 
 
 Ares menggaruk lengannya karena frustrasi saat mengatakan itu.
 
