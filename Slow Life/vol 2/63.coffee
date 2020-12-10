@@ -62,157 +62,105 @@ Obat yang kuberikan pada Ademi untuk menekan impuls dari Perlindungan Ilahi-nya 
 
 Itu tidak akan berpengaruh pada Ruti yang memiliki ketahanan penuh terhadap racun.
 
-Saya bereksperimen dengan obat itu karena saya ingin melepaskan Ruti untuk sementara dari tekanan yang dia hadapi dari Perlindungan Ilahi tapi tidak mungkin dengan obat itu.
-
- 
+aku bereksperimen dengan obat itu karena aku ingin melepaskan Ruti walau sementara dari tekanan yang dia hadapi dari Perlindungan Ilahinya tapi tidak mungkin bisa dengan obat itu.
 
 “Menurutmu apa yang akan terjadi jika dia terus mengkonsumsi Perlindungan Ilahi Iblis untuk menekan Perlindungan Ilahi Pahlawannya?”
 
- 
-
 Tise bertanya sambil memikirkannya.
 
-Kalau terus ditelan… sosok pecandu narkoba yang menderita tumpang tindih dengan sosok Ruti di benak saya.
+Kalau terus dikonsumsi... sosok pecandu narkoba yang menderita dengan sosok Ruti di benakku.
 
- 
-
-“Saya tidak memiliki gagasan yang jelas tentang prinsip di mana Perlindungan Ilahi Iblis bekerja tetapi itu akan baik-baik saja selama dia mempertahankan perlawanannya dari Perlindungan Ilahi Pahlawan. Namun, Perlindungan Ilahi Iblis seharusnya memiliki efek menurunkan tingkat Perlindungan Ilahi bawaan seseorang. "
+g"aku tidak memiliki gagasan yang jelas tentang prinsip di mana Perlindungan Ilahi Iblis bekerja tetapi itu akan baik-baik saja selama dia mempertahankan perlawanannya dari Perlindungan Ilahi Pahlawan. Namun, Perlindungan Ilahi Iblis seharusnya memiliki efek menurunkan tingkat Perlindungan Ilahi bawaan seseorang."
 
 “Jadi maksudmu dia akan menunjukkan gejala kecanduan jika levelnya turun sampai dia kehilangan daya tahan mutlaknya?”
 
-“Kemungkinannya tinggi.”
-
- 
+g"emungkinannya tingginya itu."
 
 Tempat Newman telah melihat banyak pasien dengan sindrom kecanduan karena Perlindungan Ilahi Iblis.
 
 Ini menyebabkan ketergantungan yang tinggi dan, ketika overdosis, gejala seperti migrain yang menyiksa dan kelumpuhan sistem kardiopulmoner. Namun, gejala tersebut terbatas pada pasien dengan tingkat Perlindungan Ilahi yang rendah.
 
-Perlindungan Ilahi Iblis bekerja sama seperti narkotika biasa, meskipun overdosis dapat menyebabkan kelainan pada fungsi tubuh, dalam kasus di mana tingkat Perlindungan Ilahi cukup, vitalitas dan ketahanan tubuh sendiri yang ditimbulkan oleh Perlindungan Ilahi akan lebih kuat daripada pengaruh dari narkotika.
+Perlindungan Ilahi Iblis bekerja sama seperti narkotika biasa, meskipun overdosis dapat menyebabkan kelainan pada fungsi tubuh, dalam kasus di mana tingkat Perlindungan Ilahi cukup tinggi, vitalitas dan ketahanan tubuh sendiri yang ditimbulkan oleh Perlindungan Ilahi akan lebih kuat daripada pengaruh dari narkotika.
 
 Dalam kasus Perlindungan Ilahi Iblis, situasinya menjadi sedikit rumit karena itu menurunkan tingkat Perlindungan Ilahi seseorang tetapi saat itu menurun, peningkatan berikutnya dalam Perlindungan Ilahi Iblis Kapak juga akan mengimbangi untuk menahan gejala kecanduan.
 
- 
+Masalah ketergantungan dan dorongan dominan perlindungan ilahi iblis kapak untuk melakukan pembantaian seharusnya tidak menjadi masalah dalam kasus Ruti.
 
-Masalah ketergantungan dan dorongan dominan Axe Demon Divine Protection untuk melakukan pembantaian seharusnya tidak menjadi masalah dalam kasus Ruti.
+g"Tidak, tunggu sebentar."
 
- 
-
-“Tidak, tunggu sebentar.”
-
-"Apa itu?"
-
- 
+l"Apa itu?"
 
 Lit bertanya cemas setelah melihat ekspresiku berubah.
 
- 
-
-"Saya tidak menyelidiki resep peracikan tetapi saya ingat bahwa itu harus membutuhkan hati iblis sebagai bahan bakunya."
+g"aku tidak menyelidiki resepnya tetapi aku ingat bahwa itu harus membutuhkan hati iblis sebagai bahan bakunya."
 
 Itu pasti sulit didapat tapi seharusnya itu tidak menjadi masalah bagi Ruti?
-
- 
 
 Pastinya, dengan kekuatan Ruti, dia bisa mendapatkan lusinan hati iblis hanya dengan menyerang kamp tentara Raja Iblis.
 
 Namun, ini Zoltan. Wilayah terpencil yang jauh dari garis depan melawan pasukan Raja Iblis.
 
- 
-
 “Sepertinya obat yang Ruti-sama rencanakan tidak membutuhkan hati iblis.”
 
- 
+Tise berkata.
 
-Tise menambahkan.
+Apa maksudnya? aku percaya Perlindungan Ilahi Iblis harusnya menjadi obat yang menekan Perlindungan Ilahi bawaan seseorang dengan meningkatkan tingkat Perlindungan Ilahi iblis?
 
-Apa maksudnya Saya percaya Perlindungan Ilahi Iblis harus menjadi obat yang menekan Perlindungan Ilahi bawaan seseorang dengan meningkatkan tingkat Perlindungan Ilahi iblis?
-
- 
-
-"Bagaimana cara menekan impuls Perlindungan Ilahi tanpa hati iblis?"
-
- 
+g"Bagaimana cara menekan impuls Perlindungan Ilahi tanpa hati iblis?"
 
 Kami bertiga terdiam menghadapi pertanyaan itu.
 
-Kita semua, sebagai petualang dan pembunuh, memiliki tingkat pengetahuan tertentu dalam bidang kedokteran.
+kami semua, sebagai petualang dan pembunuh, memiliki tingkat pengetahuan tertentu dalam bidang kedokteran.
 
-Meski hanya saya yang membuat obat, Lit dan Tise sama-sama di sisi yang menggunakan obat dan memiliki pengetahuan yang lebih besar jika dibandingkan dengan apoteker biasa. Dan mereka mungkin menerapkan pengetahuan itu ke tubuh mereka sendiri untuk menghindari jatuh dalam pertempuran.
+Meski hanya aku yang membuat obat, Lit dan Tise sama-sama di sisi yang menggunakan obat dan memiliki pengetahuan yang lebih besar jika dibandingkan dengan apoteker biasa. Dan mereka mungkin menerapkan pengetahuan itu ke tubuh mereka sendiri untuk menghindari jatuh dalam pertempuran.
 
 Oleh karena itu, mereka menyadari bahwa kontradiksi dalam obat yang diminum Ruti bukanlah hal yang sepele.
 
- 
+g"Apa artinya ini? Obat itu diciptakan oleh Iblis. Bagaimana mungkin tidak membutuhkan hati iblis jika mereka benar-benar membunuh sesama ras untuk mendapatkan bahannya. "
 
-“Apa artinya ini? Obat itu diciptakan oleh Iblis. Bagaimana mungkin tidak membutuhkan hati iblis jika mereka benar-benar membunuh sesama ras untuk mendapatkan bahan mentah. "
-
-“Itu tidak wajar. Maaf, saya seharusnya lebih memperhatikan. "
-
- 
+"Itu tidak wajar. Maaf, aku seharusnya lebih memperhatikannya. "
 
 Namun, bukan tidak masuk akal bagi Tise untuk tidak menyadarinya pada saat itu.
 
-Bagaimanapun, sampai dia datang ke rumah saya, dia percaya bahwa Perlindungan Ilahi Iblis diperlukan untuk menaklukkan Raja Iblis.
+Bagaimanapun juga, sampai dia datang ke rumahku, dia percaya bahwa Perlindungan Ilahi Iblis diperlukan untuk menaklukkan Raja Iblis.
 
 Dia tidak tahu bahwa Perlindungan Ilahi Iblis dimaksudkan untuk menekan impuls dari Perlindungan Ilahi Pahlawan.
 
- 
+g"... Tise adalah seorang pembunuh bayaran yang bepergian dengan tim Pahlawan karena permintaan Ares. Apakah kamu yakin ingin melakukan ini?"
 
-”... Tise adalah seorang assassin yang bepergian dengan party Pahlawan karena permintaan Ares. Apakah kamu yakin ingin melakukan ini? ”
-
- 
-
-Permintaan Ares adalah untuk melapor padanya dan menemani pesta Pahlawan.
+Permintaan Ares adalah untuk melapor padanya dan menemani tim Pahlawan.
 
 Ares, yang buruk dalam menjaga hubungan dengan teman-temannya, mungkin menginginkan teman yang mematuhinya.
 
- 
+“aku memenuhi permintaan dengan menemani Ruti-sama.”
 
-“Saya memenuhi permintaan dengan menemani Ruti-sama.”
-
- 
-
-Tampaknya Tise tidak memiliki pendapat apa pun terhadap kemungkinan bahwa Pahlawan Ruti akan menyerah untuk menaklukkan Raja Iblis.
+Tampaknya Tise tidak memiliki pemikiran terhadap kemungkinan bahwa Pahlawan Ruti akan menyerah untuk menaklukkan Raja Iblis.
 
 Mungkin itu bukan masalah besar bagi Tise, mengingat bagaimana menaklukkan Raja Iblis bukanlah tujuannya.
 
- 
-
-"Aku juga percaya bahwa salah jika hanya satu Pahlawan yang memikul nasib jutaan orang yang hidup di dunia ini."
-
- 
+l"Aku juga percaya bahwa salah jika hanya satu Pahlawan yang memikul nasib jutaan orang yang hidup di dunia ini."
 
 Kata Lit. Lit mengucapkan kata-kata yang sama saat pertama kali bertemu dengan kami.
 
 Keyakinan itu adalah alasan dia menolak kami dan mencoba melindungi Logavia dengan kekuatannya sendiri.
 
- 
-
-"Tapi itu tidak berguna."
-
- 
+l"Tapi itu tidak berguna."
 
 Lit menunjukkan ekspresi yang kompleks.
 
 Pada akhirnya, Pahlawan Ruti yang menyelamatkan Logavia. Tanpa Ruti, Logavia akan mengalami nasib tragis yang sama seperti banyak kota lain yang diduduki oleh pasukan Raja Iblis.
 
- 
-
 “Terlepas dari apakah itu untuk terus melawan Raja Iblis atau menyerah, itu adalah sesuatu yang Ruti-sama harus pilih atas kemauannya sendiri.”
 
-"Tise ... benar, pikiran Ruti tentang masalah ini harus muncul sebelum kita berbicara tentang nasib dunia."
+g"Tise ... benar, pendapat Ruti tentang masalah ini harus ada sebelum kita berbicara tentang nasib dunia."
 
- 
+"Betul sekali. Semua orang di tim Pahlawan berkumpul atas keinginan mereka sendiri. Baik aku maupun Ares tidak menerima dekrit kerajaan untuk melakukannya. Aku bertarung demi tetap bersama Ruti, Ares bertarung demi kejayaan kembali keluarganya yang jatuh. Theodora berjuang untuk menyelamatkan dunia dengan seni bela dirinya dan berhenti dari posisinya sebagai instruktur seni bela diri dari Ksatria Katedral. Danan bergabung demi balas dendam terhadap pasukan Raja Iblis yang membakar kampung halaman dan dojo miliknya. Yarandorara bergabung karena rasa keadilannya. Semua orang tidak diperintahkan, mereka berpartisipasi dengan sukarela ... selain dari Pahlawan Ruti yang dipaksa oleh Perlindungan Ilahi-nya. "
 
-"Betul sekali. Semua orang di pesta Pahlawan berkumpul atas keinginan mereka sendiri. Baik saya maupun Ares tidak menerima dekrit kerajaan untuk melakukannya. Aku bertarung demi tetap bersama Ruti, Ares bertarung demi kejayaan kembali rumahnya yang roboh. Theodora berjuang untuk menyelamatkan dunia dengan seni bela dirinya dan berhenti dari posisinya sebagai instruktur seni bela diri dari Ksatria Katedral. Danan bergabung demi balas dendam terhadap pasukan Raja Iblis yang membakar kampung halaman dan dojo miliknya. Yarandorara bergabung karena rasa keadilannya. Semua orang tidak diperintahkan, mereka berpartisipasi dengan sukarela ... selain dari Pahlawan Ruti yang dipaksa oleh Perlindungan Ilahi-nya. "
-
- 
-
-Saya teringat wajah teman-teman yang pernah saya lawan.
+aku teringat wajah teman-teman yang pernah bersama denganku.
 
 Ada juga pendamping sementara lainnya. Dua prajurit yang menemani kami karena perintah dari tuan mereka, biksu dari Gereja Suci yang menemani kami sebagai pengawas.
 
-Tapi teman seperti itu tidak pernah menemani kita sampai akhir.
+Tapi teman seperti itu tidak pernah menemani kami sampai akhir.
 
 Tidak peduli berapa banyak otoritas di balik perintah, sulit untuk terus mempertaruhkan nyawa mereka berperang melawan pasukan Raja Iblis yang telah menguasai benua hanya demi perintah. Terlebih lagi setelah memperoleh, beberapa kali untuk boot, cukup banyak kekayaan dalam pertempuran untuk menghabiskan sisa hidup mereka di waktu luang.
 
