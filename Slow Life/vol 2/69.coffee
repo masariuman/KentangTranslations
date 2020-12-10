@@ -174,17 +174,13 @@ g"Aku akan bertarung bersamamu jika itu Shisandan. Bahkan jika itu adalah orang 
 
 l"Tapi red..."
 
-“Benar, aku sudah memutuskan untuk tidak lagi bertarung demi dunia.”
+g"Benar, aku sudah memutuskan untuk tidak lagi bertarung demi dunia."
 
- 
+Itulah alasan wajah pahit di wajah Lit.
 
-Itulah alasan ekspresi pahit di wajah Lit.
-
-Saya memilih untuk hidup dengan Lit daripada bepergian untuk menyelamatkan dunia.
+aku memilih untuk hidup dengan Lit daripada bepergian untuk menyelamatkan dunia.
 
 Lit merasa jika aku memutuskan untuk melakukan itu, dia juga harus mengesampingkan dendamnya pada Shisandan dan perjuangannya untuk hidup bersamaku. Itu adalah pikiran Lit dan dia menderita karena dia tidak bisa membuat pilihan itu.
-
- 
 
 “Jika Lit punya alasan untuk bertarung, aku akan bertarung bersamamu. Gaya hidup kita bukanlah kutukan yang mengikat. Tidak, kami tidak akan membiarkannya mengikat kami. Tidak ada alasan untuk menghindari pertengkaran dan meninggalkan penyesalan pahit. "
 
