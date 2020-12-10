@@ -60,55 +60,35 @@ Hanya itu yang dia pikirkan. Terlepas dari seberapa besar dia membenci Ares, dia
 
 "Apa !? Ares! keparat kau!?"
 
-Itu adalah tombak awan hitam yang merupakan kondensasi dari badai besar yang dapat menutupi seluruh negeri. Mantra tingkat lanjut yang hanya bisa digunakan oleh Perlindungan Ilahi pengguna mantra yang unggul.
+Itu adalah tombak awan hitam yang merupakan kondensasi dari badai besar yang dapat menutupi seluruh negeri. sihir tingkat lanjut yang hanya bisa digunakan oleh Perlindungan Ilahi pengguna sihir yang unggul.
 
 Dalam sekejap, Danan yang reaksinya tertunda, secara refleks membungkukkan badannya agar tidak terkena serangan langsung.
 
 Namun, sengatan listrik yang sangat besar dari kekuatan petir yang melilit tombak yang bisa membelah pohon berusia seratus tahun mengalir melalui tubuh Danan.
 
- 
-
 “Ugaaaaaaa !!!!”
-
- 
 
 Tubuh Danan menegang karena sambaran petir. Penglihatan Danan pingsan sesaat karena rasa sakit dan kilatan cahaya.
 
 Selama momen singkat itu, darah segar berceceran di udara.
 
- 
-
 “Gu….”
-
- 
 
 Talwar Shisandan membelah sisi tubuh Danan.
 
- 
+"Meledak." 
 
-"Meledak."
+Saat Shisandan mengatakan itu, talwarnya meledak.
 
- 
-
-Saat Shisandan menggumamkan itu, talwarnya meledak.
-
-Ledakan itu merobek lukanya dan panas serta guncangan menghancurkan tubuh Danan dari dalam.
-
- 
+Ledakan itu merobek luka dan panas serta guncangan menghancurkan tubuh Danan dari dalam.
 
 “Aku percaya bahkan kamu tidak akan bisa bertahan hidup karena isi perutmu hancur.”
-
- 
 
 Meski demikian, Danan tidak roboh.
 
 Mengabaikan darah yang tumpah ke lantai dari lukanya, Danan tanpa berkata-kata menyiapkan kepalan tangan kirinya.
 
- 
-
-“Manusia itu sangat menarik. Saya belum pernah melihat 『Artis Bela Diri』 seperti Anda. Kekuatan Anda melampaui Perlindungan Ilahi Anda. "
-
- 
+"Manusia itu sangat menarik. aku belum pernah melihat 『Ahli Bela Diri』 sepertimu. Kekuatanmu melampaui Perlindungan Ilahimu. "
 
 Shisandan perlahan berdiri dan membentuk segel dengan tangan kirinya. Tubuhnya membengkak dan kembali ke bentuk aslinya yang besar dengan tinggi sekitar dua setengah meter.
 
