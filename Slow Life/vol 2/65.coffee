@@ -182,60 +182,44 @@ Pada saat yang sama, sebuah suara keras memanggil namaku.
 
 aku tahu suara itu. aku mengenalinya tetapi mengapa dia ada di sini?
 
-Bayangan besar melompati kepala orang dengan cahaya yang tak terbayangkan dari tubuh besar itu.
+Bayangan besar melompati kepala orang dengan ringannya yang tak terbayangkan dari tubuh besar itu.
 
-Seorang pria bertubuh besar mendarat di depanku dengan bantingan keras.
+Seorang pria bertubuh besar mendarat di depanku dengan keras.
 
-“Ini benar-benar Gideon! Anda benar-benar dalam beberapa peralatan lusuh! ”
+“Ini benar-benar Gideon! kamu benar-benar menggunakan equip yang lusuh!”
 
- 
-
-Pria itu meraih pundak saya tanpa mengetahui apapun tentang keadaaan saya.
+Pria itu meraih pundakku tanpa mengetahui apapun tentang keadaaanku.
 
 Mengapa dia muncul pada saat ini…
 
- 
+g"Danan, tenanglah, tempat ini terlalu mencolok jadi ayo ganti lokasi. Kita mungkin punya banyak hal untuk dibicarakan."
 
-“Danan, tenanglah, tempat ini terlalu mencolok jadi ayo ganti lokasi. Kita mungkin punya banyak hal untuk dibicarakan. ”
+aku sudah lama tidak melihat Danan dan dia telah kehilangan lengan kanannya dari bawah siku tetapi dia menertawakannya.
 
- 
+“Aku senang bertemu denganmu lagi, kawan!”
 
-Saya sudah lama tidak melihat Danan dan dia telah kehilangan lengan kanannya dari bawah siku tetapi dia menertawakannya.
+Sepertinya itu akan merepotkan. aku tidak membayangkan bertemu kembali dengan Danan di tempat dan waktu seperti itu.
 
- 
-
-“Aku senang bertemu denganmu lagi, kawan (teman)!”
-
- 
-
-Sepertinya itu akan merepotkan. Saya tidak membayangkan bertemu kembali dengan Danan di tempat dan waktu seperti itu.
-
-Itu mungkin kesalahan saya.
-
- 
+Itu mungkin kesalahanku.
 
 Namun, melihat Danan tersenyum bahagia setelah melihatku lagi, aku tidak dapat menghindari reuni ini.
 
- 
+g"Yeah, itu benar… aku juga senang."
 
-“Yeah, well, itu benar… aku juga senang.”
+Dalam hati, aku merasa terganggu dengan apa yang akan terjadi tetapi… pada saat yang sama, aku tersenyum dari lubuk hati yang paling dalam karena aku dapat bertemu kembali dengan Danan.
 
- 
+ ---------------------------
 
-Dalam hati, saya merasa terganggu dengan apa yang akan terjadi tetapi… pada saat yang sama, saya tersenyum dari lubuk hati yang paling dalam karena saya dapat bersatu kembali dengan Danan.
+Situasi saat ini :
 
- 
+Ruti: Memeriksa status produksi perlindungan ilahi iblis di reruntuhan Ancient-Elf.
 
-Situasi saat ini
+Lit, Tise, Ugeuge-san: Bergerak menuju reruntuhan ancient-elf untuk menjelaskan situasinya kepada Ruti dan menyelidiki Perlindungan Ilahi Iblis.
 
-Ruti: Memeriksa status produksi Devil's Divine Protection di reruntuhan Ancient-Elf.
-
-Lit, Tise, Ugeuge-san: Bergerak menuju reruntuhan Peri-Kuno untuk menjelaskan situasinya kepada Ruti dan menyelidiki Perlindungan Ilahi Iblis.
-
-Merah, Danan: Bertemu kembali di pelabuhan, saat ini saling menjelaskan keadaan satu sama lain di bar yang tenang di distrik pelabuhan.
+red, Danan: Bertemu kembali di pelabuhan, saat ini saling menjelaskan keadaan satu sama lain di bar yang tenang di distrik pelabuhan.
 
 Theodora, Albert: Mengumpulkan informasi setelah menemukan penginapan di distrik pelabuhan.
 
 Ares: Mencari penginapan di distrik pusat.
 
-Byuui (Shisandan): Di rumahnya sendiri di distrik pusat dalam persiapan untuk menuju ke reruntuhan Peri Kuno.
+Byuui (Shisandan): Di rumahnya sendiri di distrik pusat dalam persiapan untuk menuju ke reruntuhan ancient-elf.
