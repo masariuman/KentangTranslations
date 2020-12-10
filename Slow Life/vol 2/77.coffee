@@ -124,11 +124,11 @@ Mayat mumi Wood-Elf yang telah dikeringkan dibungkus sepenuhnya dengan baju besi
 
 "Wood-Elf menekankan pentingnya kembali ke alam. Kebiasaan mereka adalah menempatkan jenazah mereka di hutan setelah upacara agar hewan memakannya, tetapi aku mengerti, ada sesuatu di depan yang ingin mereka lindungi bahkan dengan mengorbankan lingkaran kehidupan dan terikat selamanya. "
 
-Seringai muncul di mulut pemuda berkulit kecokelatan itu.
+senyuman licik muncul di mulut pemuda berkulit kecokelatan itu.
 
-Kita berada di dekat relik Pahlawan.
+"Kita berada di dekat relik Pahlawan."
 
-Kecemasan samar memenuhi dada Ares.
+Kecemasan memenuhi dada Ares.
 
 Mengapa para Peri Hutan menyembunyikan relik Pahlawan generasi sebelumnya? Relik 『Hero』 harus menjadi simbol harapan. Apa arti di balik menyembunyikan keberadaannya secara ketat sehingga tidak ada satu kata pun yang tersisa tentangnya?
 
