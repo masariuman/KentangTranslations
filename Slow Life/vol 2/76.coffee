@@ -100,67 +100,49 @@ Ares segera mempertahankan postur yang memungkinkannya mengeluarkan sihir kapan 
 
 Namun, seorang pengguna sihir yang bertarung sendiri adalah situasi yang sangat tidak menguntungkan.
 
-(Pertama, saya harus memanggil.)
+(Pertama, saya harus memanggil sesuatu.)
 
 Membiarkan binatang spiritual melindungi diri mereka sendiri adalah permainan yang ada di buku. Namun, Ares sudah berada dalam jangkauan Shisandan.
 
 Ares merasakan hawa dingin menjalar di punggungnya.
 
- 
-
 (Ini semua salah Gideon!)
-
- 
 
 Tapi hanya kebencian yang terus berkobar di dalam hatinya.
 
 Shisandan mundur selangkah atas kemauannya sendiri seolah telah melihat menembus hati Ares.
 
- 
-
 "Aku tidak berencana untuk melawanmu,『 Sage 』."
 
-"Apa yang sebenarnya Anda rencanakan?"
+"Apa yang sebenarnya kamu rencanakan?"
 
-"Aku harus melihatmu dibuang oleh Pahlawan."
+"Aku melihatmu dibuang oleh Pahlawan."
 
-"Anda bajingan!!!"
-
- 
+"bajingan!!!"
 
 Ares marah dan secara refleks mengaktifkan Sihir Pemanggilannya.
 
-Seekor Spirit Dire Tiger terbang dengan taringnya yang terbuka tapi Shisandan membelahnya dengan rapi menjadi dua dengan jentikan pedangnya yang sederhana.
+Seekor harimai Spirit menakutkan terbang dengan taringnya yang terbuka tapi Shisandan membelahnya dengan rapi menjadi dua dengan jentikan pedangnya yang sederhana.
 
- 
+"Tenang. aku di sini bukan untuk menertawakanmu. Bagaimana, apakah kamu ingin setim denganku untuk sementara waktu?"
 
-"Tenang. Saya di sini bukan untuk menertawakan Anda. Bagaimana, apakah Anda ingin mengadakan pesta dengan saya untuk sementara waktu? ”
+"Ha? Omong kosong. Aku, anggota dari kelompok pahlawan, setim dengan iblis? "
 
-"Ha? Omong kosong apa. Aku, anggota dari kelompok pahlawan, berpesta dengan iblis? "
+"tim pahlawan ya?"
 
-Pesta pahlawan ya?
-
- 
-
-Wajah muda Shisandan menyeringai
+Wajah muda Shisandan tersenyum licik.
 
 Ares merasakan pembuluh darah di otaknya berdenyut karena amarahnya.
 
- 
-
-“Apa kau tahu kenapa kau diusir dari pesta Pahlawan?”
+“Apa kau tahu kenapa kau diusir dari tim Pahlawan?”
 
 "Karena ada orang bodoh bernama Gideon yang menyesatkan Pahlawan."
 
 "Itu benar."
 
- 
-
 Shisandan menegaskan.
 
 Ares tidak berharap dia setuju dengannya dan secara tidak sengaja menarik permusuhannya terhadapnya.
-
- 
 
 “Jika Perlindungan Ilahi adalah peran yang ditugaskan kepada kita oleh Dewa Demis,『 Raja Iblis 』dan『 Pahlawan 』bertarung satu sama lain adalah takdir, itu adalah jalan yang benar. Kami, pasukan Raja Iblis, juga berharap bahwa 『Pahlawan』 akan berdiri dan bertarung dengan 『Raja Iblis』. ”
 
