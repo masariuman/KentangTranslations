@@ -206,33 +206,23 @@ Karena itulah Ruti mengakhiri perjalanannya bersama Ares. Itu adalah kata-kata p
 
 Ares tertelungkup sembari mempertahankan senyum di wajahnya.
 
-"Ruti lembut. Karena Gideon ada di sini, kamu tidak tega membuang bobot mati dan memilih pemegang Perlindungan Ilahi sampah daripada aku?"
+"Ruti lembut. Karena Gideon ada di sini, kamu tidak tega membuang beban dan memilih pemegang Perlindungan Ilahi sampah daripada aku?"
 
-“Kamu salah Ares, Ruti…”
+g"Kamu salah Ares, Ruti..."
 
 "Diam!!"
 
- 
-
 Ares membuat segel dengan tangan kirinya.
 
- 
+g"Ares !? Apa… guh !!"
 
-“Ares !? Apa… guh !! ”
-
- 
-
-Tinju kekuatan yang dibuat dari mantra Force Hammer menghantam tubuhku dan meledakkan kakiku.
+kekuatan Tinju yang dibuat dari mantra Force Hammer menghantam tubuhku dan meledakkan kakiku.
 
 Punggungku menghantam dinding di belakangku dengan suara yang keras.
 
-Dampaknya menyebabkan saya memuntahkan nafas di paru-paru saya dan saya berhenti bernapas sesaat. Saya jatuh berlutut tanpa bisa menahannya.
-
- 
+Dampaknya menyebabkanku memuntahkan udara di paru-paruku dan aku berhenti bernapas sesaat. aku jatuh berlutut tanpa bisa menahannya.
 
 “Sekarang Ruti! Semuanya baik-baik saja sekarang! Ayo kita kalahkan Raja Iblis! "
-
- 
 
 Ares mengangkat kedua tangannya dengan megah ke arah Ruti. Seolah yakin Ruti sekarang akan melompat ke dadanya.
 
