@@ -42,63 +42,43 @@ Aku tidak percaya Ares tahu sedikitpun tentang memasak. Dia mungkin mencoba mela
 
 Itu disebut tidak masuk akal.
 
-“Menyerahkannya pada seseorang yang tidak bisa melakukannya mungkin akan menyebabkan ketidakpuasan menumpuk. Untuk contoh seperti itu, pekerjaan itu harus berganti-ganti sehingga semua orang dapat berbagi keyakinan bahwa itu tidak mudah. Setelah melakukan itu, semua anggota dapat mendiskusikan tindakan terbaik dan Anda juga dapat menemukan orang yang paling cocok untuk tugas tersebut. ”
+g"Menyerahkannya pada seseorang yang tidak bisa melakukannya mungkin akan menyebabkan ketidakpuasan. Untuk contoh seperti itu, pekerjaan itu harus dilakukan bergantian sehingga semua orang paham bahwa itu tidak mudah. Setelah melakukan itu, semua anggota dapat mendiskusikan tindakan terbaik dan kamu juga dapat menemukan orang yang paling cocok untuk tugas tersebut."
 
-“Lagipula kita semua adalah ahli yang berorientasi pada pertempuran.”
-
- 
+“Lagipula kami semua adalah ahli yang berorientasi pada pertempuran.”
 
 Danan menggaruk kepalanya.
 
- 
+"ini semua karena kamu pergi dengan egois."
 
-"Pertama-tama, ini semua karena kamu pergi dengan egois."
-
- 
-
-Lengan Danan di atas kepalanya kabur.
+Lengan Danan di atas kepalanya.
 
 Dan detik berikutnya, jari Danan berada tepat di sebelah keningku.
 
-Aku memutar kepalaku dan menghindari jentikan dahi Danan selebar rambut.
-
- 
+Aku memutar kepalaku dan menghindari jentikan Danan.
 
 “Sepertinya keahlianmu belum berkurang.”
 
- 
+Danan tertawa kecil sambil menarik lengannya.
 
-Danan menyeringai sambil menarik lengannya.
-
-Beri aku istirahat.
+tolonglah...
 
 Rasa sakit akibat jentikan jari yang tebal itu tidak akan mereda bahkan setelah tiga hari.
 
-Saya menghindarinya karena keberuntungan, tetapi gerakan Danan lebih tajam di masa lalu. Dia hanya bermain-main sekarang tetapi akan menakutkan betapa cepatnya jika dia serius.
+aku menghindarinya karena beruntung, tetapi gerakan Danan lebih tajam di masa lalu. Dia hanya bermain-main sekarang tetapi akan menakutkan jika dia serius.
 
- 
+“Kamu tahu, aku bisa menghitung hanya dengan dua tangan jumlah orang di dunia yang mampu menghindari jentikan dahiku.”
 
-“Kamu tahu, aku bisa menghitung hanya dengan dua tangan jumlah orang di dunia yang mampu menghindari jentikan dahi saya.”
+g"Tidak, tidak, aku masih merasakan perbedaan kekuatan kita. Danan kuat. "
 
-“Tidak, tidak, aku masih merasakan perbedaan kekuatan. Danan kuat. "
-
- 
-
-Dia menyalip saya di masa lalu tetapi sekarang, perbedaan antara Danan dan kemampuan saya tidak dapat diatasi.
+Dia menyalipku di masa lalu tetapi sekarang, perbedaan antara Danan dan kemampuanku tidak dapat dibandingkan.
 
 Saat aku menghabiskan waktuku dengan santai di Zoltan, Danan mempertaruhkan nyawanya untuk bertarung melawan pasukan Raja Iblis di garis depan.
 
-Begitu dia menyalip level saya yang merupakan satu-satunya kelebihan saya, tidak ada lagi aspek yang bisa saya menangkan darinya.
+Begitu dia menyalip levelku yang merupakan satu-satunya kelebihanku, tidak ada lagi aspek yang bisa aku menangkan darinya.
 
- 
-
-“… Tapi aku tidak merasa seperti itu. Gideon, kamu adalah pria yang bisa aku hormati. "
-
- 
+"... Tapi aku tidak merasa seperti itu. Gideon, kamu adalah pria yang bisa aku hormati."
 
 Danan berkata sedikit sedih setelah mendengar kata-kataku.
-
- 
 
 Danan dan aku bersuara serak saat kami minum sup.
 
