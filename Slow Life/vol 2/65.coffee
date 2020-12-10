@@ -86,19 +86,15 @@ Tentu saja, penghambat pengenalan seperti itu tidak akan berpengaruh pada orang-
 
 “Tapi kota ini cukup hidup walaupun terlihat seperti ini.”
 
-“Ada kapal dagang yang datang jadi aku yakin pasarnya terbuka. Kudengar awak kapal Ares-san juga akan menjual barang selama mereka tinggal di pelabuhan. ”
+“Ada kapal dagang yang datang jadi aku yakin pasarnya terbuka. Kudengar awak kapal Ares-san juga akan menjual barang selama mereka tinggal di pelabuhan.”
 
 Kata Albert.
 
-Kapal Sylpheed yang dibayar Ares dalam jumlah besar untuk dipinjam pada dasarnya hanya berisi air dan makanan. Namun, para pelaut membeli barang-barang kecil tapi mahal seperti logam mulia dan kerajinan menggunakan uang saku mereka sendiri untuk dijual di pelabuhan mana pun mereka akan tinggal.
+Kapal Sylpheed yang dibayar Ares dalam jumlah besar untuk dipinjam pada dasarnya hanya berisi air dan makanan. Namun, para pelaut membeli barang-barang kecil tapi mahal seperti logam mulia dan benda seni menggunakan uang saku mereka sendiri untuk dijual di pelabuhan mana pun mereka akan tinggal.
 
 Meskipun demikian, mereka mungkin tidak akan menemukan banyak hal di wilayah terpencil Zoltan.
 
- 
-
-“Namun, saya senang kita tidak harus pergi ke Tembok di Ujung Dunia. Anggota kru Sylpheed juga tidak antusias dengan prospek itu. "
-
- 
+"Namun, aku senang kita tidak harus pergi ke Tembok di Ujung Dunia. Anggota kru Sylpheed juga tidak antusias dengan prospek itu."
 
 Meskipun Ares meminjam Sylpheed dengan kontrak bahwa mereka akan bepergian ke mana pun dia mau, menuju lokasi di luar Tembok di Ujung Dunia yang merupakan pegunungan terbesar di dunia masih di luar harapan mereka.
 
