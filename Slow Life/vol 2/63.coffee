@@ -162,70 +162,44 @@ Ada juga pendamping sementara lainnya. Dua prajurit yang menemani kami karena pe
 
 Tapi teman seperti itu tidak pernah menemani kami sampai akhir.
 
-Tidak peduli berapa banyak otoritas di balik perintah, sulit untuk terus mempertaruhkan nyawa mereka berperang melawan pasukan Raja Iblis yang telah menguasai benua hanya demi perintah. Terlebih lagi setelah memperoleh, beberapa kali untuk boot, cukup banyak kekayaan dalam pertempuran untuk menghabiskan sisa hidup mereka di waktu luang.
+Tidak peduli berapa banyak otoritas di balik perintah, sulit untuk terus mempertaruhkan nyawa mereka berperang melawan pasukan Raja Iblis yang telah menguasai benua hanya demi perintah. Terlebih lagi setelah memperoleh cukup banyak kekayaan dalam pertempuran untuk menghabiskan sisa hidup mereka di waktu luang.
 
- 
+"aku bukan rekan menurut definisi itu. Bagaimanapun juga, aku berpartisipasi karena ini adalah pekerjaan dari Guild pembunuh bayaran. "
 
-“Saya bukan rekan menurut definisi itu. Bagaimanapun juga, saya berpartisipasi karena ini adalah pekerjaan dari Assassin's Guild. "
+g"Itu tidak benar."
 
-"Itu tidak benar."
+aku langsung membantah kata-kata Tise.
 
- 
-
-Saya langsung membantah kata-kata Tise.
-
- 
-
-“Tise tidak akan duduk di sini jika itu hanya untuk sebuah pekerjaan. Bukankah kau di sini, atas kemauanmu sendiri, mendiskusikan apa yang harus kita lakukan untuk menyelamatkan Pahlawan? ”
-
- 
+g"Tise tidak akan duduk di sini jika itu hanya untuk sebuah pekerjaan. Bukankah kau di sini, atas kemauanmu sendiri, mendiskusikan apa yang harus kita lakukan untuk menyelamatkan Pahlawan?"
 
 Ugeuge-san mengangkat lengannya dengan sekejap.
 
- 
-
 "Benar, Ugeuge-san ada di sini bukan karena aku yang memerintahkannya juga."
-
- 
 
 Tise tersenyum lembut dan mengangguk pada Ugeuge-san.
 
- 
-
-“Untuk menyelamatkan Pahlawan… sejujurnya, aku telah mencari cara sejak dulu.”
-
- 
+g"Untuk menyelamatkan Pahlawan… sejujurnya, aku telah mencari cara sejak dulu."
 
 Kata-kataku membuat Lit dan Tise kembali ke tampang serius.
 
-Saya mencari metode untuk menekan impuls Perlindungan Ilahi selama waktu luang saya di antara perjalanan.
+aku mencari metode untuk menekan impuls Perlindungan Ilahi selama waktu luangku di antara perjalanan.
 
-Saya menemukan obat yang saya berikan kepada Ademi melalui itu dan juga, nasihat yang saya berikan kepada Al yang bermasalah tentang Perlindungan Ilahi-nya.
-
- 
+aku menemukan obat yang aku berikan kepada Ademi melalui itu dan juga, nasihat yang aku berikan kepada Al yang bermasalah tentang Perlindungan Ilahi-nya.
 
 Namun, Perlindungan Ilahi dari Pahlawan menyebabkan impuls yang luar biasa dengan imbalan kekuatan terbesar.
 
 Aku bahkan berkonsultasi dengan tetua Wild-Elf ketika aku menyusup ke desa Wild-Elf di masa lalu.
 
-Saya masih ingat dengan jelas kata-kata yang kami tukarkan selama waktu itu.
+aku masih ingat dengan jelas percakapan kami waktu itu.
 
- 
-
-"Jika Anda ingin menekan dorongan dari Perlindungan Ilahi Pahlawan, satu-satunya pilihan adalah mati."
-
- 
+g"Jika aku ingin menekan dorongan dari Perlindungan Ilahi Pahlawan, satu-satunya pilihan adalah mati."
 
 Bahkan Wild-Elf yang, sejauh yang aku tahu, memiliki pengetahuan terbesar tentang Perlindungan Ilahi di Benua Avalon, merasa mustahil untuk menekan dorongan dari Perlindungan Ilahi Pahlawan.
 
- 
-
-"Aku akan menyeduh teh baru."
-
- 
+l"Aku akan menyeduh teh baru."
 
 Itu adalah masalah tanpa jalan keluar yang terlihat. Satu-satunya pilihan adalah meluangkan waktu untuk bertukar pikiran.
 
-Namun, untuk masalah yang dulu tidak bisa saya selesaikan sendiri, sekarang saya memiliki Lit, Tise, dan Ugeuge-san.
+Namun, untuk masalah yang dulu tidak bisa aku selesaikan sendiri, sekarang aku memiliki Lit, Tise, dan Ugeuge-san.
 
-Saya yakin kami pasti akan menemukan cara untuk menyelamatkan Ruti.
+aku yakin kami pasti akan menemukan cara untuk menyelamatkan Ruti.
