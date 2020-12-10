@@ -180,63 +180,43 @@ Dia pasti salah satu faktornya. Jika Ares hanya mengakui bahwa itu terlalu berat
 
 Tapi itu bukan satu-satunya alasan. Bahkan jika Ares tidak bersuara, tidak apa-apa jika mereka membantu ketika mereka menyadari bahwa Ares tidak dapat mengatasinya sendiri.
 
-Alasan lain bisa jadi adalah ketidakpercayaan terhadap Ares karena telah mengejarku. Toh, Yarandorara dan Danan keluar dari pesta karena tak bisa mempercayai Ares.
+Alasan lain bisa jadi adalah ketidakpercayaan terhadap Ares karena telah mengusirku. Toh, Yarandorara dan Danan keluar dari tim karena tak bisa mempercayai Ares.
 
- 
+g"rekan sejati ya?"
 
-"Teman sejati ya?"
+Itu mungkin kata-kata yang diucapkan oleh Ares tapi ironisnya, itulah alasan runtuhnya tim.
 
- 
+"Aku menganggapmu sebagai teman sejati."
 
-Itu mungkin kata-kata yang diucapkan oleh Ares tapi ironisnya, itulah alasan runtuhnya party.
+Danan bereaksi terhadap kata-kataku dan menjawab seperti itu.
 
- 
+aku senang, senang dia mengatakan itu tapi... itu berbeda.
 
-Aku menganggapmu sebagai teman sejati.
+aku mulai bercerita pada Danan tentang Ruti.
 
- 
-
-Danan bereaksi terhadap kata-kataku dan menjawab.
-
-Saya senang, senang dia mengatakan itu tapi… itu berbeda.
-
- 
-
-Saya mulai bercerita pada Danan tentang Ruti.
-
-Tentang bagaimana dia telah menderita selama ini karena bagaimana Pahlawan Divine Protection memanipulasinya.
+Tentang bagaimana dia telah menderita selama ini karena bagaimana perlindungan ilahi Pahlawan yang memanipulasinya.
 
 Tentang bagaimana dia kehilangan sebagian besar kemanusiaannya dengan imbalan kekebalan penuh.
 
-Dan tentang bagaimana dia menekan impuls Perlindungan Ilahi dengan menggunakan Perlindungan Ilahi Iblis… dan bahwa dia mungkin berhenti menjadi Pahlawan.
+Dan tentang bagaimana dia menekan impuls Perlindungan Ilahi dengan menggunakan Perlindungan Ilahi Iblis... dan bahwa dia mungkin berhenti menjadi Pahlawan.
 
- 
+Para rekan yang selama ini menemani Ruti tidak memahami kesedihan Ruti.
 
-Para sahabat yang selama ini menemani Ruti tidak memahami kesedihan Ruti.
+Ruti adalah Pahlawan dengan peran untuk memajukan tim. Karena itu ditentukan oleh Perlindungan Ilahi-nya.
 
-Ruti adalah Pahlawan dengan peran untuk memajukan pesta. Karena itu ditentukan oleh Perlindungan Ilahi-nya.
+Jika semua anggota melakukan peran mereka dengan benar sesuai dengan Perlindungan Ilahi mereka, tim akan melakukannya dengan baik. Itu mungkin definisi Ares tentang rekan sejati.
 
-Jika semua anggota melakukan peran mereka dengan benar sesuai dengan Perlindungan Ilahi mereka, party akan melakukannya dengan baik. Itu mungkin definisi Ares tentang pendamping sejati.
+Namun, itu tidak berjalan dengan baik. Karena aku bukan budak Perlindungan Ilahiku.
 
-Namun, itu tidak berjalan dengan baik. Karena saya bukan budak Perlindungan Ilahi saya.
-
- 
-
-“Bermasalah karena Perlindungan Ilahi-nya? Saya tidak pernah membayangkannya. "
-
- 
+"Bermasalah karena Perlindungan Ilahi-nya? aku tidak pernah membayangkannya. "
 
 Danan kaget dengan kata-kataku.
 
- 
+"Perlindungan Dewa Bela Diri melengkapiku dengan baik. aku menikmati melatih tubuhku dan melawan musuh yang kuat membuatku bersemangat. Tidak ada yang membuatku lebih bahagia daripada melihat diriku menjadi lebih kuat. Untuk itu, aku akan menanggung kesulitan apa pun yang mungkin datang ... aku orang seperti itu. "
 
-“Perlindungan Dewa Bela Diri melengkapi saya dengan baik. Saya menikmati melatih tubuh saya dan melawan musuh yang kuat membuat saya bersemangat. Tidak ada yang membuat saya lebih bahagia daripada melihat diri saya menjadi lebih kuat. Untuk itu, saya akan menanggung kesulitan apa pun yang mungkin datang ... Saya orang seperti itu. "
+g"Ya."
 
-"Ya."
-
-”… Saya tidak mengerti. Saya tidak mengerti sama sekali. ”
-
- 
+”… aku tidak mengerti. aku tidak mengerti sama sekali. ”
 
 Danan pada dasarnya berada di sisi manusia yang tidak dapat memahami perasaan menderita karena dorongan Perlindungan Ilahi mereka. Di antara semua orang yang saya temui, Danan adalah orang yang paling mencintai Perlindungan Ketuhanannya sendiri.
 
