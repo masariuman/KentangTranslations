@@ -1,8 +1,4 @@
-Bab 66: Hal-hal untuk diputuskan; Hal-hal yang perlu dikhawatirkan
-
-Penerjemah: Tseirp
-
- 
+Bab 66: Hal-hal yang diputuskan; Hal-hal yang perlu dikhawatirkan
 
 Badai sering mempengaruhi distrik pelabuhan.
 
@@ -10,61 +6,41 @@ Lantai yang banjir karena naiknya permukaan sungai merupakan kejadian tahunan da
 
 Penduduk distrik pelabuhan telah menyerah untuk menaklukkan badai dan teknologi konstruksi mereka berkembang ke arah bangunan yang mudah dibangun yang tidak harus bertahan lama sehingga akan baik-baik saja bahkan jika mereka hancur dalam badai.
 
- 
-
 Di bagian dari distrik pelabuhan yang jarang dilalui pejalan kaki, terdapat sebuah toko yang setengah hancur oleh badai tiga tahun lalu. Dinding tua dan dinding baru disatukan seperti kain perca dan angin bertiup melalui celah di antara dinding.
 
 Penjaga toko adalah seorang wanita tua dengan punggung bungkuk yang menerima pelanggannya dengan senyum ramah.
 
- 
+"Ini dia, sup ikan putih."
 
-Ini dia, sup ikan putih.
+g"Terima kasih."
 
-"Terima kasih."
-
- 
-
-Saya membawa dua piring sup dengan fillet ikan terapung yang disajikan di atas meja di meja saya.
+aku membawa dua piring sup dengan fillet ikan terapung yang disajikan di atas meja di mejaku.
 
 Karena saat ini masih sedikit pagi untuk makan siang, kami adalah satu-satunya pelanggan di toko.
 
- 
-
 "Terlihat enak!"
-
- 
 
 Kata Danan dengan mata berbinar.
 
- 
-
-"Kamu selalu mengatakan itu."
-
- 
+g"Kamu selalu mengatakan itu."
 
 Aku tertawa saat melihat Danan.
 
 Itulah ungkapan Danan setiap kali ada makanan di hadapannya. Jika masakannya enak maka Danan akan mengatakannya dengan mata berbinar.
 
-Saya tanpa sadar merasakan nostalgia setelah melihat kebiasaan rekan saya setelah sekian lama.
+aku tanpa sadar merasakan nostalgia setelah melihat kebiasaan rekanku setelah sekian lama.
 
- 
+"Tidak mungkin, kesempatan bagiku untuk mengatakan 'terlihat enak' berkurang setelah kamu pergi. Makanan yang kami makan di jalan menjadi tidak enak. "
 
-“Tidak mungkin, kesempatan bagiku untuk mengatakan 'terlihat enak' berkurang setelah kamu pergi. Makanan yang kami makan di jalan menjadi tidak enak. "
+g"Jangan bicara aneh di meja makan. Apakah kalian mengganti tugas memasak?"
 
-“Jangan bicara apa-apa di meja makan. Apakah kalian mengganti tugas memasak? ”
+"Nah, Ares bilang dia akan melakukannya jadi kami biarkan dia melakukannya."
 
-"Nah, Ares bilang dia akan melakukannya jadi kita biarkan dia melakukannya."
+g"Ah ~, itu tidak mungkin."
 
-“Ah ~, itu tidak mungkin.”
-
- 
-
-Aku tidak percaya Ares tahu sedikitpun tentang memasak. Dia mungkin mencoba melakukan semua yang saya lakukan untuk menjaga penampilan karena mengusir saya dari pesta.
+Aku tidak percaya Ares tahu sedikitpun tentang memasak. Dia mungkin mencoba melakukan semua yang aku lakukan untuk menjaga pandangannya karena mengusirku dari tim.
 
 Itu disebut tidak masuk akal.
-
- 
 
 “Menyerahkannya pada seseorang yang tidak bisa melakukannya mungkin akan menyebabkan ketidakpuasan menumpuk. Untuk contoh seperti itu, pekerjaan itu harus berganti-ganti sehingga semua orang dapat berbagi keyakinan bahwa itu tidak mudah. Setelah melakukan itu, semua anggota dapat mendiskusikan tindakan terbaik dan Anda juga dapat menemukan orang yang paling cocok untuk tugas tersebut. ”
 
