@@ -28,63 +28,63 @@ l"Ah ~ itu benar, dia benar-benar membuang perasaan demi semuanya."
 
 Tindakan orang tersebut tidak cocok dengan proses berpikir Theodora yang aku kenal. Selain itu, aku belum pernah mendengar apa pun tentang Theodora yang memiliki pengetahuan tentang golem seperti Ular Besi.
 
-Meskipun golem operasi tidak membutuhkan keterampilan apa pun, itu membutuhkan pengetahuan tingkat tinggi dan kontrol sihir yang bagus. Secara teori, semua pengguna mantra seharusnya bisa mengoperasikannya tetapi kenyataannya, tidak banyak yang benar-benar bisa mengoperasikannya.
+Meskipun golem tidak membutuhkan skill apa pun, itu membutuhkan pengetahuan tingkat tinggi dan kontrol sihir yang bagus. Secara teori, semua pengguna sihir seharusnya bisa mengoperasikannya tetapi kenyataannya, tidak banyak yang benar-benar bisa mengoperasikannya.
 
 Alasan mengapa meskipun biayanya tinggi, namun golem yang praktis, yang tidak mengalami kelelahan dan dapat diproduksi secara massal, tidak dapat menggantikan tenaga kerja adalah karena sulitnya mengoperasikannya.
 
-"Kalau begitu, apakah itu teman baru yang ditemukan Ares setelah Ruti keluar dari pesta?"
+g"Kalau begitu, apakah itu orang baru yang ditemukan Ares setelah Ruti keluar dari tim?"
 
-"Mungkin itu masalahnya."
+l"Mungkin itu masalahnya."
 
 Kami telah kembali ke ruangan tempat Godwin meletakkan alat alkemisnya saat kami berbicara.
 
-Saya menyalakan api dan membuat teh herbal di dalam panci. Baik Ruti dan saya membutuhkan waktu untuk menenangkan diri. Kami terdiam beberapa menit saja.
+aku menyalakan api dan membuat teh herbal di dalam panci. Baik Ruti dan aku membutuhkan waktu untuk menenangkan diri. Kami terdiam beberapa menit saja.
 
-“Hei, sampai kapan aku akan terkurung di reruntuhan ini? Saya bisa meracik obat di kota lain jika hanya itu yang Anda ingin saya lakukan. "
+"Hei, sampai kapan aku akan terkurung di reruntuhan ini? aku bisa meracik obat di kota lain jika hanya itu yang kamu ingin aku lakukan. "
 
 Godwin mengeluh pelan pada ramuan teh yang mengeluarkan uap putih.
 
 Namun, ketika Ruti menoleh untuk melihatnya, dia buru-buru mengoreksi dirinya dengan “T-tidak, bahkan belum sebulan berlalu sejak kita datang ke sini jadi tidak apa-apa.”. Sepertinya dia takut pada Ruti.
 
-"Saya akan berpikir tentang hal ini."
+r"Saya akan berpikir tentang hal ini."
 
-Ruti menyimpulkan dengan itu dan bermaksud bahwa dia merasa kasihan dengan kondisi Godwin tetapi perasaan itu tidak tersampaikan sama sekali kepada Godwin.
+Ruti menyimpulkan  dan bermaksud bahwa dia merasa kasihan dengan kondisi Godwin tetapi perasaan itu tidak tersampaikan sama sekali kepada Godwin.
 
 Godwin menjadi semakin cemas karena berpikir bahwa dia salah paham dan meminta maaf sebanyak-banyaknya.
 
-Tise dan aku melihat tindakannya dengan hangat saat,
+Tise dan aku melihat tindakannya dengan hangat kemudian,
 
-“Kalau begitu… ini tidak ada hubungannya dengan Shisandan?”
+l"Kalau begitu… ini tidak ada hubungannya dengan Shisandan?"
 
 Lit berbisik pada dirinya sendiri.
 
-“Shisandan ya.”
+g"Shisandan ya."
 
-Kehadirannya benar-benar melompati pikiranku dari keterkejutan karena bersatu kembali dengan Ares.
+Kehadirannya benar-benar hilang dari pikiranku dari keterkejutan karena bertemu kembali dengan Ares.
 
-“Tapi Ares-sama memiliki Perlindungan Ilahi dari Sage. Dia akan melihat iblis tanpa Perlindungan Ilahi. "
+"Tapi Ares-sama memiliki Perlindungan Ilahi dari Sage. Dia akan menyadari iblis tanpa Perlindungan Ilahi. "
 
-“Tidak, Ares tidak akan 'Menilai' orang yang dia temui sebelumnya. Di Logavia juga, dia tidak menyadari bahwa Shisandan menyusup sebagai Gayus di tengah jalan. ”
+g"Tidak, Ares tidak akan 'Menilai' orang yang dia temui sebelumnya. Di Logavia juga, dia tidak menyadari bahwa Shisandan menyusup sebagai Gaius."
 
-“Saat ini Shisandan mirip dengan Danan, kan?”
+l"Saat ini Shisandan menyerupai Danan, kan?"
 
 Jika itu masalahnya, mungkin tidak aneh jika dia tertipu.
 
-“Berarti Shisandan menyiapkan Ular Besi. Untuk tujuan apa?"
+g"Berarti Shisandan menyiapkan Ular Besi. Untuk tujuan apa?"
 
-Awalnya saya mengira dia mencari Ruti. Sangat mudah untuk berasumsi bahwa pasukan Raja Iblis mengincar Pahlawan.
+Awalnya aku mengira dia mencari Ruti. Sangat mudah untuk berasumsi bahwa pasukan Raja Iblis mengincar Pahlawan.
 
-Tapi Shisandan melanjutkan lebih jauh ke dalam reruntuhan meski mendapat pengetahuan bahwa kita ada di sini melalui Ular Besi.
+Tapi Shisandan melanjutkan lebih jauh ke dalam reruntuhan meski tahu bahwa kita ada di sini melalui Ular Besi.
 
 Jika dia merencanakan serangan mendadak menggunakan penampilan Danan, daripada menggunakan Ular Besi, akan lebih baik jika dia mencari kita bersama Ares.
 
-“Kalau begitu, dia punya tujuan terpisah. Bukan kita, Ular Besi dimaksudkan untuk menyelidiki sesuatu di dalam kehancuran ini. "
+r"Kalau begitu, dia punya tujuan berbeda. Bukan kita, Ular Besi dimaksudkan untuk menyelidiki sesuatu di dalam reruntuhan ini."
 
 Kata Ruti.
 
-Saya mengangguk dan setuju juga.
+aku mengangguk dan setuju juga.
 
-“Itu benar, regu yang dipimpin oleh salah satu dari Empat Raja Surgawi, Dreadna Api, telah mengumpulkan senjata dan harta karun dari reruntuhan di seluruh negeri. Merampok reruntuhan dapat dianggap sebagai salah satu strategi Pasukan Raja Iblis. Ada kemungkinan Shisandan datang ke sini demi itu. "
+g"Itu benar, regu yang dipimpin oleh salah satu dari Empat Raja Surgawi, Dreadna Api, telah mengumpulkan senjata dan harta karun dari reruntuhan di seluruh negeri. menjarah reruntuhan dapat dianggap sebagai salah satu strategi Pasukan Raja Iblis. Ada kemungkinan Shisandan datang ke sini demi itu."
 
 Namun, pasukan Dreadna hanya melakukan serangan mereka di wilayah yang dikendalikan oleh Tentara Raja Iblis. Meskipun Zoltan tidak memiliki kekuatan pertahanan yang besar, belum ada preseden dari pasukan Raja Iblis yang menyerang reruntuhan sejauh ini dari garis depan.
 
@@ -92,19 +92,19 @@ Misteri itu masih ada.
 
 "Tunggu sebentar."
 
-"Ada apa, Tise?"
+g"Ada apa, Tise?"
 
-“Aku merasakan kehadiran Ares-sama bergerak. Saya sedikit merasakan kehadiran orang lain juga. "
+"Aku merasakan keberadaan Ares-sama bergerak. aku sedikit merasakan kehadiran orang lain juga. "
 
-"Apa? Apakah mereka kembali dari bagian reruntuhan yang lebih dalam? "
+g"Apa? Apakah mereka berjalan ke bagian reruntuhan yang lebih dalam? "
 
 Lit berdiri.
 
-“Jika ada kemungkinan itu adalah Shisandan, saya tidak bisa membiarkannya begitu saja.”
+l"Jika ada kemungkinan itu adalah Shisandan, aku tidak bisa membiarkannya begitu saja."
 
-"Ya, aku kesal karena harus bertemu Ares lagi, tapi kita harus memberi tahu dia jika dia ditipu."
+g"Ya, aku kesal karena harus bertemu Ares lagi, tapi kita harus memberi tahu dia jika dia ditipu."
 
-Bahkan jika kita telah berpisah, kita tidak bisa meninggalkannya jika dia ditipu oleh Asura Demon.
+Bahkan jika kita telah berpisah, kita tidak bisa meninggalkannya jika dia ditipu oleh iblis Asura.
 
 Kami berangkat mencari Ares.
 
