@@ -94,47 +94,31 @@ Shisandan perlahan berdiri dan membentuk segel dengan tangan kirinya. Tubuhnya m
 
 Enam lengan terlatih. Wajahnya yang kecokelatan kembali ke wajah iblis dengan taring.
 
-Shisandan menghunus lima pedang yang ada di pinggangnya satu demi satu dan menampilkan gaya seni bela diri enam pedang asli dari Asura Demon.
-
- 
+Shisandan menghunus lima pedang yang ada di pinggangnya satu demi satu dan menunjukkan gaya seni bela diri enam pedang asli dari iblis Asura.
 
 Danan menurunkan posturnya untuk menghadapi serangannya. Matanya kosong tapi dia tidak kehilangan keinginannya untuk bertarung.
 
-Keenam pedang itu menyerangnya secara berurutan seperti tornado. Setiap pukulan diisi dengan kekuatan yang cukup dan niat membunuh untuk membelah gajah besar menjadi dua.
+Keenam pedang itu menyerangnya secara berurutan seperti tornado. Setiap pukulan diisi dengan kekuatan yang cukup dan niat membunuh untuk membelah menjadi dua.
 
-Namun, meski memiliki luka di sekujur tubuhnya dan kehilangan kesadaran sebagian, Danan masih bisa menanggapi tornado mematikan hanya dengan tangan kirinya saat dia mematahkan pedang satu per satu.
+Namun, meski memiliki luka di sekujur tubuhnya dan kehilangan setengah kesadarannya, Danan masih bisa menanggapi tornado mematikan hanya dengan tangan kirinya dan dia mematahkan pedang satu per satu.
 
 Danan masih mampu mengeksekusi seni bela diri dengan terampil yang dikatakan mampu memotong baja hanya dengan jari-jarinya bahkan dalam keadaan setengah mati saat ini.
 
- 
-
-“Kamu seniman bela diri yang aneh. Tapi."
-
- 
+"Kamu ahli bela diri yang aneh. Tapi."
 
 Kaki kanan Shisandan membelit seperti ular.
 
-Semua usaha Danan dilakukan untuk bertahan dari serangan pedang sehingga kaki kanan Shisandan menghantam dada Danan.
-
- 
+Danan fokus untuk bertahan dari serangan pedang jadi kaki kanan Shisandan menghantam dada Danan.
 
 “Gah, bu….”
-
- 
 
 Danan merasakan nyeri hebat di dadanya.
 
 Saat Shisandan menarik kembali kaki kanannya, ujung pedang yang patah terlihat menonjol dari dada Danan.
 
- 
-
-“Saya juga ahli dalam seni bela diri. Meskipun Anda mungkin hanya melihatnya sebagai akrobat. ”
-
- 
+“aku juga ahli dalam seni bela diri. Meskipun aku mungkin hanya melihatnya sebagai akrobat. ”
 
 Kata Shisandan sambil tertawa. Sebelum dia menendang, dia meraih ujung pedang patah yang berada di udara dengan jari kakinya dan menusukkannya ke dada Danan menggunakan momentum tendangannya.
-
- 
 
 “Na… h… itu… seni bela diri…”
 
