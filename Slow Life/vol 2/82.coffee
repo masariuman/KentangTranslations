@@ -336,7 +336,7 @@ Pedang tembaga jelas merupakan produk murah yang tidak bisa dibandingkan dengan 
 
 Ruti perlahan mengayunkan pedangnya ke bawah.
 
-Saya mempertajam semangat saya. Pertandingan akan diputuskan dalam hitungan detik.
+aku mempertajam semangatku. Pertandingan akan diputuskan dalam hitungan detik.
 
 Pedang Tembaga itu rapuh dan tumpul. Itu berarti Pedang Tembaga lebih lembut dibandingkan dengan pedang baja.
 
