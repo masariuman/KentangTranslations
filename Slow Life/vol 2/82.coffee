@@ -1,8 +1,4 @@
-Bab 82: Pedang tembaga
-
-Penerjemah: Tseirp
-
-Asisten: Piggy.C
+Bab 82: Pedang Tembaga
 
 Tubuh lelah Danan bergetar.
 
@@ -10,47 +6,47 @@ Albert yang sedang menunggu di luar lift buru-buru bergegas mendukung Danan.
 
 "Apakah kamu baik-baik saja?"
 
-Setelah menerima Ramuan Extra Cure terakhir yang diulurkan Albert, Danan segera menghabiskan seluruh isinya.
+Setelah menerima Ramuan Extra Cure terakhir yang diberikan Albert, Danan segera menghabiskan seluruh isinya.
 
 Lukanya yang terbuka tersegel sekali lagi tetapi masih banyak bagian yang telah menjadi hitam karena pendarahan internal yang tidak mendapatkan kembali warna aslinya. Danan telah menderita luka dalam yang begitu menyedihkan sehingga bahkan Sihir Penyembuhan tidak dapat mengobatinya.
 
 "Aku hanya sedikit lelah."
 
-“Orang normal akan mati. Selain itu, Ramuan Cure tidak akan menggantikan darah yang telah hilang. "
+"Orang normal akan mati. Selain itu, Ramuan Cure tidak akan menggantikan darah yang telah hilang. "
 
-Sesuatu seperti darah bisa diisi ulang dengan makan daging.
+"Sesuatu seperti darah bisa diisi ulang dengan makan daging."
 
 Danan berkata sambil mengeluarkan beberapa daging kering dari saku dadanya dan mencoba mengkonsumsinya tetapi Albert dengan panik menghentikannya.
 
-“Organ dalammu berantakan jadi kamu tidak bisa! Lebih penting lagi, lift sudah datang jadi kita harus naik juga. ”
+“Organ dalammu berantakan jadi kamu tidak boleh memakannya! dan juga, lift sudah datang jadi kita harus naik juga. ”
 
 Lift tengah hancur tapi lift di kiri dan kanan masih oke.
 
-Yang Danan menyelamatkan Merah dan Lit, Albert berjuang untuk mengoperasikan panel kontrol dan berhasil memanggil lift lainnya.
+lift dimana Danan menyelamatkan red dan Lit, Albert berusaa untuk mengoperasikan panel kontrol dan berhasil memanggil lift lainnya.
 
 "Cih, biasanya aku bisa melewati lubang vertikal seperti ini."
 
-“Tanpa sihir sama sekali? … ”
+“Tanpa sihir sama sekali? ... ”
 
 Albert dan Danan naik lift.
 
-“Tapi aku juga tidak mengerti Theodora itu. Dia bergandengan tangan dengan Ares dan Shisandan tapi memintamu untuk membantuku. Bukankah tindakannya berantakan? Pada awalnya, saya pikir dia hanya melakukan tindakan untuk membantu saya karena saya masih bernapas, tetapi tampaknya saya salah. "
+"Tapi aku juga tidak mengerti Theodora itu. Dia bersekutu dengan Ares dan Shisandan tapi memintamu untuk membantuku. Bukankah tindakannya berantakan? Pada awalnya, aku pikir dia hanya melakukan tindakan untuk membantuku karena aku masih bernapas, tetapi tampaknya saya salah. "
 
 Setelah Theodora memastikan keselamatan Danan, dia berjanji untuk bekerja sama dengan Shisandan dan Ares di ruangan dengan peti mati. Ares terkejut tapi senang dengan perilaku tak terduga Theodora dan dengan rela pindah ke aula sesuai sarannya.
 
 Sementara itu, Albert yang bersembunyi di bawah sihir penyembunyian Theodora membantu Danan meminum Ramuan Cure dan memberinya pertolongan pertama setelah semua yang lain meninggalkan ruangan.
 
-“Yah… kurasa Theodora-san mungkin tidak memahaminya sendiri. Dia tidak bisa mengerti jadi dia mengambil tindakan yang kontradiktif. "
+"Yah... kurasa Theodora-san mungkin tidak memahaminya sendiri. Dia tidak bisa mengerti jadi dia mengambil tindakan yang kontradiktif. "
 
-“Saya tidak mengerti!”
+“aku tidak mengerti!”
 
-Kata Danan kesal. Wajahnya dipenuhi dengan ekspresi ketidakpuasan yang kuat.
+Kata Danan kesal. Wajahnya dipenuhi dengan ekspresi ketidakpuasan.
 
-“Jika Theodora melawan Hero-sama, maka Theodora sudah mati. Sungguh, apa yang terjadi… ”
+“Jika Theodora melawan pahlawan-sama, maka Theodora sudah mati. serius, apa yang terjadi... ”
 
-"Betulkah? Theodora-san juga kuat. ”
+"Betulkah? Theodora-san juga kuat."
 
-“Itu benar, diriku, Theodora, dan Ares semuanya cukup kuat untuk mengalahkan ribuan orc sendiri. Tapi Hero-sama adalah masalah yang berbeda sama sekali. "
+"Itu benar, diriku, Theodora, dan Ares semuanya cukup kuat untuk mengalahkan ribuan orc sendiri. Tapi pahlawan-sama adalah masalah yang berbeda sama sekali. "
 
 "... Perbedaannya begitu signifikan?"
 
