@@ -122,171 +122,107 @@ Kata Shisandan sambil tertawa. Sebelum dia menendang, dia meraih ujung pedang pa
 
 “Na… h… itu… seni bela diri…”
 
- 
+Danan sepertinya tidak peduli dengan tombak Ares dan dia memelototi Shisandan dengan sedikit senyum di bibirnya.
 
-Danan sepertinya tidak peduli dengan tombak Ares saat dia memelototi Shisandan dengan sedikit senyum di bibirnya.
-
-Dan akhirnya, Danan habis energinya dan ambruk ke lantai.
-
- 
+Dan akhirnya, Danan kehabisan energinya dan ambruk ke lantai.
 
 ☆☆
-
- 
 
 Ares menemukan bahwa dia sangat tenang saat melihat Danan pingsan.
 
 Ares merasa bahwa psikologinya sendiri aneh karena dia membayangkan bahwa dia akan jauh lebih terguncang dan dilanda rasa bersalah karena menyerang rekannya dan mengkhianatinya.
 
- 
-
-(Tidak, bukan itu, itu karena saya sudah terbiasa. Ini bukan pertama kalinya saya mengkhianati seorang teman.)
-
- 
+(Tidak, bukan itu, itu karena aku sudah terbiasa. Ini bukan pertama kalinya aku mengkhianati seorang teman.)
 
 Wajah Gideon muncul di kepala Ares.
 
- 
+(Kami sudah mundur terlalu jauh.)
 
-(Kami mundur jauh.)
-
- 
-
-Ares bergabung dengan pesta ketika Ruti datang ke Ibukota Kekaisaran. Di partai saat ini, dia adalah anggota paling senior setelah Gideon. Dia juga berpetualang dengan Gideon paling lama jika dia mengecualikan Ruti.
+Ares bergabung dengan tim ketika Ruti datang ke Ibukota Kekaisaran. Di tim saat ini, dia adalah anggota paling senior setelah Gideon. Dia juga adalah orang yang berpetualang dengan Gideon paling lama jika dia mengecualikan Ruti.
 
 Keduanya selamat melalui pertempuran hidup dan mati berkali-kali dan telah menyelamatkan satu sama lain dari kematian berkali-kali.
 
-Sementara Ares membenci Gideon, dia mempercayai kemampuan Gideon. Ares kemungkinan besar adalah orang yang paling memahami kebesaran Gideon.
-
- 
+Sementara Ares membenci Gideon, dia mempercayai kemampuan Gideon. Ares kemungkinan besar adalah orang yang paling memahami Gideon.
 
 (Itulah mengapa aku mengusir Gideon.)
-
- 
 
 Dengan adanya Gideon, Ares tidak bisa menjadi 『Sage』. Ruti tidak akan pernah mempercayainya dan teman-temannya tidak akan pernah bergantung padanya. Bahkan tanpa keterampilan, Gideon masih jauh lebih cerdas darinya.
 
 Ares akhirnya mengerti alasan dia mengusir Gideon.
 
- 
-
 "Ares, terima kasih."
-
- 
 
 Asura Demon yang besar berterima kasih pada Ares.
 
 Pilihan, sekali dibuat, tidak akan pernah bisa dibatalkan. Ares memilih jalur pengkhianatan untuk melanjutkan dengan Shisandan dan mendapatkan kembali 『Pahlawan』 yang direnggut darinya.
 
- 
+"Ayo lanjutkan. Ada di depan, bukan? Peninggalan Pahlawan. "
 
-“Ayo lanjutkan. Ada di depan, bukan? Peninggalan Pahlawan. "
+“Ya, aku yakin begitu.”
 
-“Ya, saya yakin begitu.”
-
- 
-
-Ares mengabaikan Danan yang runtuh dan terus masuk lebih dalam ke reruntuhan bersama Shisandan.
-
- 
+Ares mengabaikan Danan yang tumbang dan terus masuk lebih dalam ke reruntuhan bersama Shisandan.
 
 ☆☆
 
- 
-
-Perangkap yang rumit dipasang tepat di depan ruangan di bagian paling dalam dari reruntuhan tapi mereka dengan mudah dilucuti saat Shisandan menyalurkan kekuatan magis ke panel kendali Peri-Kuno di sebelahnya.
+Perangkap yang rumit dipasang tepat di depan ruangan di bagian paling dalam dari reruntuhan tapi mereka dengan mudah dilucuti ketika Shisandan menyalurkan kekuatan magis ke panel kendali ancient-elf di sebelahnya.
 
 Tidak terpikirkan bahwa panel kontrol untuk perangkap sekuat itu dapat dioperasikan dengan begitu mudah. Hanya mengoperasikan panel kontrol reruntuhan Ancient-Elf membutuhkan manipulasi kekuatan magis yang sangat halus.
 
- 
-
-Namun, item yang ditempatkan di dalam kotak emas yang kemungkinan besar dibuat oleh Peri Hutan meniup semua pikiran lain dari benak Ares.
-
- 
+Namun, item yang ditempatkan di dalam kotak emas yang kemungkinan besar dibuat oleh ancient-elf meniup semua pikiran lain dari benak Ares.
 
 “A-ini !?”
 
- 
-
 Ada lima pedang panjang. Ares mengenali pedang panjang itu.
-
- 
 
 “Pedang Suci Penakluk Iblis! T-tapi ini. ”
 
- 
-
-Pedang panjang kelas artefak yang Ruti pegang, Pedang Suci Penaklukan Iblis. Sebuah pedang yang diturunkan dari Tuhan ke generasi Pahlawan berturut-turut, pedang suci dan tak terkalahkan yang telah membunuh banyak Raja Iblis.
+Pedang panjang kelas artefak yang Ruti pegang, Pedang Suci Penakluk Iblis. Sebuah pedang yang diturunkan dari dewa ke generasi Pahlawan berturut-turut, pedang suci dan tak terkalahkan yang telah membunuh banyak Raja Iblis.
 
 Ada lima pedang seperti itu meskipun seharusnya hanya ada satu Pedang Suci seperti itu di dunia.
 
- 
-
 “Tidak, bukan itu. Ini bukanlah Pedang Suci Penakluk Iblis. ”
-
- 
 
 Shisandan membantah klaimnya.
 
- 
-
-“Pedang Suci Penaklukan Iblis saat ini adalah pemalsuan dari pedang Pahlawan generasi sebelumnya yang diambil dari kuburnya. Ini adalah yang asli yang dianugerahkan oleh Tuhan. "
+"Pedang Suci Penakluk Iblis saat ini adalah pemalsuan dari pedang Pahlawan generasi sebelumnya yang diambil dari kuburnya. Ini adalah yang asli yang dianugerahkan oleh dewa. "
 
 “Lalu, ini pedang asli?”
 
-"Iya. Untuk membedakan, sebut saja mereka True Avenger, bukan, Sacred Avenger. ” (TLN: Pedang Suci Penaklukan Iblis = Pembalas)
-
- 
+"Iya. Untuk membedakan, sebut saja mereka True Avenger, bukan, Sacred Avenger."
 
 Shisandan membuang sarung kosong di pinggangnya dan mengeluarkan Sacred Avengers satu per satu dari kotak dan menggantungkan empat pedang di pinggangnya.
 
 Kemudian, dia memberikan yang terakhir ke Ares.
 
- 
+"Pada dasarnya, Perlindungan ilahi Pahlawan mirip dengan Imitasi avenger yang dibawa Pahlawan sekarang. Dengan kata lain, itu adalah replika jiwa Pahlawan generasi pertama yang dibuat oleh dewa."
 
-“Pertama-tama, Perlindungan Dewa Pahlawan mirip dengan Penuntut Imitasi yang dibawa Pahlawan sekarang. Dengan kata lain, itu adalah replika jiwa Pahlawan generasi pertama yang dibuat oleh Tuhan. "
+"Jiwa? Replika?"
 
-"Jiwa? Replika? ”
-
-Ada dua tugas untuk membuat Pahlawan generasi saat ini menjadi 『Pahlawan』. ”
+"Ada dua tugas untuk membuat Pahlawan generasi saat ini menjadi 『Pahlawan』."
 
 “Dua…“
 
- 
+Itu adalah tujuan Ares. Ares mencengkeram pegangan Sacred Avenger.
 
-Itu adalah gol Ares. Ares mencengkeram pegangan Sacred Avenger.
-
- 
-
-“Yang pertama adalah memberikan Sacred Avenger ini kepada Pahlawan generasi ini. Pembalas dendam mirip dengan Bukti Pahlawan karena memiliki kekuatan untuk memperkuat Perlindungan Ilahi Pahlawan. Begitu Perlindungan Ilahi diperkuat, impulsnya juga akan diperkuat. Dorongan yang dilemahkan oleh Perlindungan Ilahi Iblis mungkin akan pulih juga. "
+"Yang pertama adalah memberikan Sacred Avenger ini kepada Pahlawan generasi ini. avenger mirip dengan Bukti Pahlawan karena memiliki kekuatan untuk memperkuat Perlindungan Ilahi Pahlawan. Begitu Perlindungan Ilahi diperkuat, impulsnya juga akan diperkuat. Dorongan yang dilemahkan oleh Perlindungan Ilahi Iblis mungkin akan pulih juga. "
 
 “L-lalu, itu berarti Ruti akan kembali ke sisiku !?”
 
-“Tidak, itu saja tidak cukup. Awalnya, 『Hero』 adalah alat yang mewujudkan keadilan. Tidak ada rasa takut, tidak ada kebingungan, tidak ada keraguan. Untuk itu, diberikan dorongan kuat yang akan mengalahkan ego tuan rumah. "
+"Tidak, itu saja tidak cukup. Awalnya, 『Pahlawan』 adalah alat yang mewujudkan keadilan. Tidak ada rasa takut, tidak ada kebingungan, tidak ada keraguan. Untuk itu, diberikan dorongan kuat yang akan mengalahkan ego orangnya."
 
-Lalu apa tugas kedua?
+"Lalu apa tugas kedua?"
 
-“Mengapa Pahlawan generasi saat ini bukan『 Pahlawan 』tapi Ruti? Hal tersebut dikarenakan Ruti memiliki perasaan yang tidak dapat ia penuhi. Itu karena dia memiliki keinginan yang ingin dia capai bahkan dengan mengorbankan rasa sakit dari dorongan hatinya. "
+"Mengapa Pahlawan generasi saat ini bukan『 Pahlawan 』tapi Ruti? Hal tersebut dikarenakan Ruti memiliki perasaan yang tidak dapat ia penuhi. Itu karena dia memiliki keinginan yang ingin dia capai bahkan dengan mengorbankan rasa sakit dari dorongan hatinya."
 
 ”... Dengan kata lain, Gideon.”
 
- 
-
 Shisandan mendengar gumaman Ares dan mengangguk puas.
-
- 
 
 ☆☆
 
- 
+tidak lama dari waktu itu, Gideon, atau lebih tepatnya Red dan teman-temannya maju ke depan untuk mengejar Ares.
 
-Sekitar waktu itu, Gideon, atau lebih tepatnya Red dan teman-temannya maju ke depan untuk mengejar Ares.
-
- 
-
-"Saya merasakan seseorang berjuang jauh."
-
- 
+"Saya merasakan seseorang berkelahi disana."
 
 Red dan party mempercepat langkah mereka setelah menerima peringatan dari Tise.
 
