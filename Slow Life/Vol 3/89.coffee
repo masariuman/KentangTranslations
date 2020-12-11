@@ -148,15 +148,15 @@ Biasanya penduduk Zoltan akan berkumpul dan bersembunyi di rumah mereka untuk me
 
 Ketika para penjaga yang memegang terompet memamerkan kinerja yang luar biasa, pencuri di Rawa Selatan akan menanggapinya dengan langkah-langkah ringan.
 
-Ketika para penyihir Guild Magician menyalakan kembang api naga yang melintasi langit, anak-anak yang tidak suka belajar akan mengganggu mereka untuk mengajari mereka cara melakukannya.
+Ketika para penyihir Guild Magician menyalakan kembang api naga yang melintasi langit, anak-anak yang tidak suka belajar akan mengganggu mereka dan meminta mereka untuk mengajari mereka cara melakukannya.
 
-Half-Orc akan berbaris sambil menabuh drum besar. Dengan drum yang berasal dari Benua Hitam dan biola tiga senar, mereka memainkan lagu yang ceria.
+Half-Orc akan berbaris sambil memukul drum besar. Dengan drum yang berasal dari Benua kegelapan dan biola tiga senar, mereka memainkan lagu yang ceria.
 
 Mengikuti di belakang mereka, anak-anak manusia yang biasanya mengolok-olok para Half-Orc sedang menari dengan gembira saat mereka mengikuti mereka.
 
 Di tikungan, para Half-Elf memainkan lagu yang menyegarkan dengan seruling kayu Elf mereka. Bahkan bangsawan pusat akan berhenti dan jatuh cinta dengan warna nada yang indah.
 
-Di depan mereka ada kapal terbalik. Itu menunjukkan bahwa mereka tidak membutuhkan pembayaran hari ini.
+Di depan mereka ada mangkuk terbalik. Itu menunjukkan bahwa mereka tidak perlu dibayar hari ini.
 
 Karena itu, para penonton mengucapkan terima kasih dengan tepuk tangan meriah.
 
