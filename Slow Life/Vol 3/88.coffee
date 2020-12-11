@@ -88,51 +88,51 @@ Mata Tanta berbinar setelah mendengar pernyataan gagah dari Gonz yang tak bergun
 
 Ini buruk, kalau terus begini, Tanta akan menjadi orang dewasa yang tidak berguna juga.
 
-“Tanta, aku akan bekerja dengan baik besok, begitulah seharusnya.”
+g"Tanta, aku akan bekerja dengan baik besok, begitulah seharusnya."
 
 “Eh ~ istirahatlah ~ Aku ingin pergi memancing di sungai bersama semua orang.”
 
-“Ah, kedengarannya bagus.”
+l"Ah, kedengarannya bagus."
 
-"Baik?"
+"benarkan?"
 
-“Oi Lit…”
+g"Oi Lit..."
 
-Bahkan Lit menjadi termotivasi untuk itu dan mereka bertiga mulai menyanyikan 'Istirahatlah ♪' bersama-sama.
+Bahkan Lit menjadi termotivasi untuk itu dan mereka bertiga mulai menyanyikan 'Bersantailah ♪' bersama-sama.
 
-Hentikan, orang-orang di sekitar sedang melihat kami!
+Hentikan, orang-orang di sekitar sedang melihat kita!
 
-"Baiklah, bagaimanapun juga karena seluruh Zoltan akan bermalas-malasan besok, ayo istirahat dan pergi memancing di sungai."
+g"Baiklah, bagaimanapun juga karena seluruh Zoltan akan bermalas-malasan besok, ayo istirahat dan pergi memancing di sungai."
 
 “” ”Yay ~!” ””
-
+l""
 Mengesampingkan Tanta, bahkan Gonz dan Lit pun mengangkat tangan seperti anak kecil.
 
-Serius…
+Serius...
 
-“Yay ​​~”
+r"Yay ​​~"
 
 Lalu, aku mendengar suara-suara tenang, yang menirukan suara riang yang dibuat Lit dan yang lainnya, dari belakangku.
 
-Saat berbalik, saya melihat Ruti dan Tise tanpa ekspresi mengangkat tangan mereka di udara.
+Saat berbalik, aku melihat Ruti dan Tise tanpa ekspresi mengangkat tangan mereka di udara.
 
-“Eh, Ruti dan Tise akan istirahat juga?”
+g"Eh, Ruti dan Tise akan istirahat juga?"
 
-"Onii-chan sedang istirahat."
+r"Onii-chan sedang istirahat."
 
-"Menurutku tidak adil jika kita bekerja."
+"Menurutku tidak adil jika kami saja yang bekerja."
 
 Ya ampun, bahkan Ruti dan Tise menjadi orang dewasa yang tidak berguna.
 
-Aku juga menantikan hari esok.
+l"Aku juga menantikan hari esok."
 
 Kata Lit dan aku merilekskan bahuku dan tersenyum.
 
 Baiklah. Ini adalah kota malas Zoltan.
 
-"Ya."
+g"Ya."
 
-Ketika mereka melihat saya mengangguk, orang dewasa yang tidak berguna sekali lagi mengangkat suara mereka untuk berseru 'Yay ~!'.
+Ketika mereka melihatku mengangguk, orang dewasa yang tidak berguna sekali lagi mengangkat suara mereka untuk berseru 'Yay ~!'.
 
 ☆☆
 
