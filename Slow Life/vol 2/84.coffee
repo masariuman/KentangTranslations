@@ -44,15 +44,15 @@ pendeta kemudian menyemprotkan parfum ke wajah Ares yang terbaring di peti mati.
 
 Ini memiliki bau yang menyenangkan tetapi karena digunakan untuk pemakaman, parfum mawar salju selalu membawa citra kematian. Karena gereja menggunakannya setiap hari, semua gereja memiliki hamparan bunga mawar salju sendiri yang mungkin juga menjadi salah satu faktor yang memperkuat citra yang mengikuti aroma bunga itu.
 
-Berbicara tentang mawar salju, para penyair Benua Avalon akan, tanpa gagal, membuat setidaknya satu puisi di atas mawar salju dalam hidup mereka. Saya tidak memiliki bakat dalam membaca puisi tetapi saya masih merasakan sesuatu yang tertinggal di pikiran saya.
+Berbicara tentang mawar salju, para penyair Benua Avalon akan, tanpa gagal, membuat setidaknya satu puisi di atas mawar salju dalam hidup mereka. aku tidak memiliki bakat dalam membaca puisi tetapi aku masih merasakan sesuatu yang tertinggal di pikiranku.
 
-Ada empat dari kami yang hadir sementara dua orang membantu pastor.
+Ada empat dari kami yang hadir sementara dua orang membantu pendeta.
 
 Ini mungkin keberangkatan yang sangat sepi untuk pemakaman pahlawan.
 
 Tapi Ares yang terbaring di peti mati tidak memiliki suara mengeluh dan hanya berbaring diam dengan mata tertutup.
 
-Menurut ajaran Gereja Suci, kejahatan yang dilakukan dalam hidup dicatat dalam 『Perlindungan Ilahi』 Anda. Ketika 『Perlindungan Ilahi』 dikembalikan ke Dewa Demis, kejahatan tersebut akan dihapus dari orang tersebut dan di kehidupan berikutnya, mereka terlahir kembali sebagai jiwa yang tidak bersalah setelah menerima 『Perlindungan Ilahi』 baru.
+Menurut ajaran Gereja Suci, kejahatan yang dilakukan dalam hidup dicatat dalam 『Perlindungan Ilahi』 mereka. Ketika 『Perlindungan Ilahi』 dikembalikan ke Dewa Demis, kejahatan tersebut akan dihapus dari orang tersebut dan di kehidupan berikutnya, mereka terlahir kembali sebagai jiwa yang tidak bersalah setelah menerima 『Perlindungan Ilahi』 baru.
 
 Tetapi bagi mereka yang tidak mengikuti ajaran Dewa Demis ', dengan kata lain doktrin Gereja Suci, 『Perlindungan Ilahi』 tidak diambil kembali oleh Dewa Demis, jiwa yang dibebani dengan dosa tampaknya akan menderita keabadian sebagai budak 'Demon Overlords' di tujuh lapisan neraka yang disebut Tujuh Neraka.
 
