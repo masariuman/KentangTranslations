@@ -404,13 +404,13 @@ Ugeuge-san tidak terburu-buru tanpa rencana. Ia menahan langkah yang menghancurk
 
 “T-tapi, tidak mungkin aku tidak menyadarinya!”
 
-Namun demikian, jika dalam keadaan normal, Ares akan merasakan gerakan Ugeuge-san karena kemampuannya yang lebih rendah.
+jika dalam keadaan normal, Ares akan merasakan gerakan Ugeuge-san karena kemampuannya yang lebih rendah.
 
 "Hehehe."
 
 Godwin tertawa tak bernyawa dari tanah.
 
-”Menempatkan hidupku untuk… sp-spider-san… Aku juga benar-benar jatuh.”
+”Menempatkan hidupku untuk… la-laba-laba-san… Aku juga benar-benar sudah rendah.”
 
 Guntur yang dilemparkan Godwin, bom asap, dan serangannya yang mempertaruhkan nyawanya. Itu semua dimaksudkan untuk mengalihkan perhatian Ares dari gerakan Ugeuge-san.
 
