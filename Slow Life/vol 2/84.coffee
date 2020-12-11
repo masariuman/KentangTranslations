@@ -36,11 +36,11 @@ Mereka adalah teman bertempurku yang bertarung bersama kami.
 
 Sore hari.
 
-Ruti, Tise, Danan dan saya tiba di gereja di Distrik Pusat Zoltan.
+Ruti, Tise, Danan dan aku tiba di gereja di Distrik Pusat Zoltan.
 
-“O Dewa Agung Demis. Hari ini, anak Anda yang setia telah datang untuk ziarah pertama dan terakhirnya. Jalan yang dilalui seorang anak terukir di 『Perlindungan Ilahi』 mereka dan dosa mereka akan kembali ke sisi Anda di samping 『Perlindungan Ilahi』 mereka. Jika 『Perlindungan Ilahi anak Anda dipenuhi dengan kebajikan, tolong bimbing dia ke Nirwana. Jika anak tersebut belum memperoleh kualifikasi untuk melewati gerbang Nirvana, sampai hari Anda memberinya hadiah dengan 『Perlindungan Ilahi』, berikan penghargaan kepada anak Anda yang setia, Ares, jiwa dengan tidur yang nyenyak. ”
+“O Dewa Agung Demis. Hari ini, anakmu yang setia telah datang untuk ziarah pertama dan terakhirnya. Jalan yang dilalui seorang anak terukir di 『Perlindungan Ilahi』 mereka dan dosa mereka akan kembali ke sisimu di samping 『Perlindungan Ilahi』 mereka. Jika 『Perlindungan Ilahi』 anakmu dipenuhi dengan kebajikan, tolong bimbing dia ke surga. Jika anak tersebut belum memperoleh kualifikasi untuk melewati gerbang surga, sampai hari Anda memberinya hadiah dengan 『Perlindungan Ilahi』 baru, berikan penghargaan kepada anak Anda yang setia, Ares, jiwa dengan tidur yang nyenyak. ”
 
-Kata pendeta itu sebelum dia menyemprotkan parfum ke wajah Ares yang terbaring di peti mati. Aroma parfum mawar salju yang universal ke Benua Avalon menyebar tipis di udara.
+pendeta kemudian menyemprotkan parfum ke wajah Ares yang terbaring di peti mati. Aroma parfum mawar salju yang universal ke Benua Avalon menyebar tipis di udara.
 
 Ini memiliki bau yang menyenangkan tetapi karena digunakan untuk pemakaman, parfum mawar salju selalu membawa citra lewat. Karena gereja menggunakannya setiap hari, semua gereja memiliki hamparan bunga mawar salju sendiri yang mungkin juga menjadi salah satu faktor yang memperkuat citra yang mengikuti aroma bunga itu.
 
