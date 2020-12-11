@@ -224,11 +224,11 @@ Mempercayakan Ruti-sama pada pria seperti itu? Itu di luar pertanyaan.
 
 Bahkan jika dunia dan Dewa Demis-sama yang memberikan Perlindungan Ilahi mengizinkannya, aku tidak akan pernah mengizinkannya.
 
-Ruti-sama adalah temanku sebelum dia menjadi Pahlawan. Dia pasti kuat. Tapi dia juga canggung, bertindak tidak tepat… dan jatuh cinta.
+Ruti-sama adalah temanku. Dia pasti kuat. Tapi dia juga canggung, bertindak tidak tepat... dan jatuh cinta.
 
-Ruti-sama adalah gadis biasa! Saya tidak akan pernah mempercayakan teman saya kepada seorang pria yang tidak mengerti itu!
+Ruti-sama adalah gadis biasa! aku tidak akan pernah mempercayakan temanku kepada seorang pria yang tidak mengerti itu!
 
-Tapi tubuh Tise mengabaikan keinginannya dan pingsan. Ares tertawa saat melihat penampilannya.
+Tapi tubuh Tise mengabaikan keinginannya dan terjatuh. Ares tertawa saat melihat penampilannya.
 
 Air mata mengalir dari kedua mata Tise karena frustasi.
 
@@ -236,7 +236,7 @@ Karena Tise menangis, 'dia' berdiri di tempatnya dan melangkah di depan Ares.
 
 "Ha?"
 
-Laba-laba kecil itu melompat keluar dari tas dan mengangkat kedua tangannya saat berdiri di depan Ares.
+Laba-laba kecil itu melompat keluar dari tas dan mengangkat kedua tangannya dan berdiri di depan Ares.
 
 Lawannya perkasa, tidak memiliki sekutu, peluangnya untuk menang tidak ada.
 
@@ -244,25 +244,27 @@ Tapi bagaimana dengan itu! Ugeuge-san menghadapi 'penjahat' yang melukai temanny
 
 Setelah melihat sosok kecil itu, orang terakhir yang tersisa juga berdiri.
 
-“Ku, uooooo! Anjing kampung!!"
+"Ku, uooooo! dasar Anjing kampung!!"
 
-Godwin menangis saat melemparkan badai petir dan bom asap. Suara menderu dan asap menyerang Ares.
+<gambar> vol4 8.jpg
 
-Godwin tidak mengerti arti dibalik pertarungan ini. Pertama-tama, dia diseret secara paksa ke sini, dikurung di tempat ini dan telah mengumpulkan banyak ketidakpuasan. Beberapa saat yang lalu, dia memutuskan bahwa ini tidak ada hubungannya dengan dia dan mencoba melarikan diri jadi sekarang dia merenungkan secara mendalam alasan dia melakukan ini.
+Godwin menangis dan melemparkan badai petir dan bom asap. Suara menderu dan asap menyerang Ares.
 
-Lebih jauh, Godwin adalah seorang penjahat. Dia adalah tangan kanan Big Hawk dan telah melakukan tindakan yang sangat dibenci orang lain berkali-kali. Dia adalah penjahat utama yang bekerja sama dengan iblis untuk mendistribusikan analgesik berbahaya.
+Godwin tidak mengerti arti dibalik pertarungan ini. Pertama-tama, dia diseret secara paksa ke sini, dikurung di tempat ini dan telah mengumpulkan banyak ketidakpuasan. Beberapa saat yang lalu, dia memutuskan bahwa ini tidak ada hubungannya dengannya dan mencoba melarikan diri jadi sekarang dia merenungkan secara mendalam alasan dia melakukan ini.
+
+dan juga, Godwin adalah seorang penjahat. Dia adalah tangan kanan Big Hawk dan telah melakukan tindakan yang sangat dibenci orang lain berkali-kali. Dia adalah penjahat utama yang bekerja sama dengan iblis untuk mendistribusikan analgesik berbahaya.
 
 Namun demikian, ia memegang keyakinan bahwa seorang penjahat memiliki cara berpikir yang jahat. Ada kalimat yang menurutnya tidak bisa dimaafkan.
 
-“Aku juga seorang penjahat! Tapi bahkan aku tidak bisa memaafkan penjahat yang tidak menganggap dirinya penjahat !! Itulah satu-satunya hal yang saya tidak tahan! "
+"Aku juga seorang penjahat! Tapi bahkan aku tidak bisa memaafkan penjahat yang tidak menganggap dirinya penjahat !! Itulah satu-satunya hal yang tidak bisa kutahan! "
 
-Gigi Godwin bergemerincing karena ketakutan, tapi bagaimanapun, dia masih mencabut belati yang mampu mengeluarkan mantra kegelapan dan menyalak.
+Gigi Godwin bergemerincing karena ketakutan, tapi bagaimanapun juga, dia masih mencabut belati yang mampu mengeluarkan sihir kegelapan dan menyalak.
 
 Ares jengkel saat melihat itu.
 
-“Sampah tidak berharga. Inilah kenapa aku benci orang bodoh yang tidak punya otak. Tembakan Paksa. "
+"Sampah tidak berharga. Inilah kenapa aku benci orang bodoh yang tidak punya otak. Tembakan Paksa. "
 
-Pukulan kuat itu menghempaskan Godwin bersama dengan asap dan kegelapan magis, membantingnya ke dinding dan dia menjadi diam saat dia berdarah.
+Pukulan kuat itu menghempaskan Godwin bersama dengan asap dan sihir kegelapan, membantingnya ke dinding dan dia menjadi diam berdarah.
 
 Ares membenarkan dengan matanya bahwa Godwin adalah seekor ikan kecil dan mengangkat kakinya.
 
