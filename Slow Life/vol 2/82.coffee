@@ -274,7 +274,7 @@ Bau darah keluar.
 
 “Tise !!!”
 
-Saya mendengar percikan.
+aku mendengar percikan.
 
 Darah mengalir dari Avenger.
 
@@ -282,7 +282,7 @@ Tubuh Tise hancur. Aku menopang tubuh Tise dengan tangan kiriku.
 
 Pakaian gadis muda itu langsung berubah warna menjadi merah.
 
-“Kamu .. tidak bisa melakukan itu… Ruti-sama, orang ini adalah orang pentingmu… jadi kamu tidak bisa… menyakiti… dia…”
+“Kamu .. tidak bisa melakukan itu... Ruti-sama, orang ini adalah orang pentingmu... jadi kamu tidak bisa... menyakiti... nya...”
 
 Ruti-lah yang memotong Tise.
 
