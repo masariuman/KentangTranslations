@@ -284,55 +284,55 @@ Lift hampir mencapai lantai tingkat yang lebih rendah. Red dan Lit akan mati han
 
 Pria besar dengan luka di sekujur tubuhnya memusatkan semua keinginannya ke lengan kirinya yang tersisa.
 
-Dia tidak melihat lift yang mendekati di atas kepala saat dia membentuk gambaran ledakan energi yang dia transfer dari kedua kakinya keluar melalui lengan kirinya.
+Dia tidak melihat lift yang mendekati di atas kepalanya dan dia membentuk gambaran energi ledakan yang dia transfer dari kedua kakinya keluar melalui lengan kirinya.
 
-“Saya tidak terlalu mendapatkan masalah yang sulit. Apa yang Gideon pikirkan, apa yang Pahlawan-sama pikirkan, apa yang benar dan apa yang salah, hanya saja saya mungkin tidak akan mengerti sama sekali. ”
+“aku tidak terlalu mengerti masalah yang sulit. Apa yang Gideon pikirkan, apa yang Pahlawan-sama pikirkan, apa yang benar dan apa yang salah, aku mungkin tidak akan mengerti sama sekali. ”
 
-Danan mengepalkan tinjunya. Luka yang tersegel oleh Ramuan Cure terbuka sekali lagi dan menyebabkan dia berdarah.
+Danan mengepalkan tinjunya. Luka yang terobati oleh Ramuan Cure terbuka sekali lagi dan menyebabkan dia berdarah.
 
-“Tapi, hanya dalam aspek ini, saya dengan bangga dapat mengatakan bahwa saya memiliki kepercayaan!”
+“Tapi, hanya dalam aspek ini, aku dengan bangga dapat mengatakan bahwa aku percaya diri akan hal ini!”
 
 Danan memfokuskan semua seni bela diri yang telah dia kembangkan hingga sekarang dan mengayunkan tinjunya ke udara.
 
-Seni Bela Diri: Rising Dragon Howl !!
+Seni Bela Diri: lolongan naga !!
 
-Seekor naga bangkit dari lengan kirinya. Ini adalah seni bela diri terbaik Danan yang dia gunakan untuk menembus lubang besar dan menenggelamkan kapal dapur Bajak Laut hanya dengan menggunakan tinjunya.
+Seekor naga mucul dari lengan kirinya. Ini adalah seni bela diri terbaik Danan yang dia gunakan untuk menembus lubang besar dan menenggelamkan kapal Bajak Laut hanya dengan menggunakan tinjunya.
 
-Naga itu menerobos lift dan menghancurkan gumpalan baja yang tebal saat ia terus naik lebih jauh ke atas.
+Naga itu menerobos lift dan menghancurkan gumpalan baja yang tebal dan itu terus naik lebih jauh ke atas.
 
-“Gideon! Dan Lit! Kalian adalah temanku! Itu sebabnya saya akan membantu Anda! Itu sebabnya aku tidak akan membiarkanmu mati! Hanya itu yang mutlak! Aku tidak akan membiarkan siapa pun memberitahuku sebaliknya !! ”
+“Gideon! Dan Lit! Kalian adalah temanku! Itu sebabnya aku akan membantumu! Itu sebabnya aku tidak akan membiarkanmu mati! Hanya itu yang mutlak! Aku tidak akan membiarkan siapa pun memberitahuku sebaliknya !! ”
 
 ☆☆
 
-“Ini… Danan? !!”
+g"Ini… Danan? !!"
 
-Mungkin karena Theodora kehilangan kesadaran, rantai suci yang mengikat Lit terhapus, tetapi dengan keterampilan yang kami miliki, kami tidak memiliki cara untuk menangani massa besar di atas kepala kami sementara kami jatuh bebas dalam lift tanpa tempat untuk melarikan diri.
+Mungkin karena Theodora kehilangan kesadaran, rantai suci yang mengikat Lit terhapus, tetapi dengan keterampilan yang kami miliki, kami tidak memiliki cara untuk menangani benda besar di atas kepala kami sementara kami jatuh bebas dalam lift tanpa tempat untuk melarikan diri.
 
-Saya hampir yakin bahwa itu adalah akhir dan menyerah tetapi naga yang terbuat dari 'Ki' menembus dari bawah dan menghancurkan baja besar di atas kepala kami.
+aku hampir yakin bahwa itu adalah akhirnya dan menyerah tetapi naga yang terbuat dari 'Ki' menembus dari bawah dan menghancurkan baja besar di atas kepala kami.
 
-"Lit, pegang!"
+g"Lit, berpeganglah!"
 
-"Iya!"
+l"Iya!"
 
-Kami menunggangi naga itu dan berdiri saling membelakangi saat kami menangkis pecahan baja yang jatuh bersama dengan pedang kami.
+Kami menunggangi naga itu dan berdiri saling membelakangi dan kami menangkis pecahan baja yang jatuh bersama dengan pedang kami.
 
-“Danan! Orang itu selalu muncul jika diperlukan! "
+g"Danan! Orang itu selalu muncul jika diperlukan!"
 
-Kami meraih naga Danan dan kembali ke tingkat atas sekaligus.
+Kami meraih naga Danan dan kembali ke atas.
 
 ☆☆
 
 Sekali lagi, Lit dan aku menghadapi Ares.
 
-“Ares !!”
+g"Ares !!"
 
 Situasi di aula telah berubah total pada saat kami kembali.
 
 Shisandan dan Ruti tidak terlihat. Ada lubang di ruangan itu. Keduanya mungkin jatuh di bawah.
 
-Theodora roboh di dekat lift. Dia sepertinya pingsan.
+Theodora jatuh di dekat lift. Dia sepertinya pingsan.
 
-Tise dan Godwin juga berada di tanah. Mereka mengalami luka berat.
+Tise dan Godwin juga berada di lantai. Mereka mengalami luka berat.
 
 Ugeuge-san juga terluka, nampaknya diinjak oleh Ares. Dia telah bertarung juga.
 
