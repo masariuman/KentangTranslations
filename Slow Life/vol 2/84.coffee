@@ -82,117 +82,117 @@ Pendeta itu tersenyum tipis dan membunyikan bel sekali lagi. Dengan demikian, pe
 
 Setelah meninggalkan gereja, matahari sudah mulai merah dan di cakrawala.
 
-"Fiuh."
+g"Fiuh."
 
-Terakhir kali saya meminjam pakaian resmi dari toko persewaan baju adalah pada saat pesta pembukaan toko saya.
+Terakhir kali aku meminjam pakaian resmi dari toko persewaan baju adalah pada saat pesta pembukaan tokoku.
 
-Kali ini untuk pemakaman seorang pendamping.
+Kali ini untuk pemakaman seorang rekanku.
 
 Itu terasa agak aneh bagiku.
 
-"Onii Chan."
+r"Onii-Chan."
 
-"Apa itu?"
+g"ada apa?"
 
-“Maaf, saya selalu membebani Onii-chan.”
+r"Maaf, aku selalu membebani Onii-chan."
 
-Saya menepuk kepala Ruti.
+aku menepuk kepala Ruti.
 
-“Terima kasih telah mengkhawatirkanku.”
+g"Terima kasih telah mengkhawatirkanku."
 
-Saya tidak menyesal menebang Ares. Saya tidak menyesalinya tetapi bahkan sekarang, saya dengan jujur ​​merasa bahwa saya tidak ingin melakukannya lagi.
+aku tidak menyesal membelah Ares. aku tidak menyesalinya tetapi sekarang, jujur ​​aku merasa bahwa aku tidak ingin melakukannya lagi.
 
 Seperti yang diharapkan, kehidupan tanpa beban di Zoltan lebih cocok untukku.
 
-Saya bahkan belum membeli pedang untuk menggantikan pedang tembaga saya yang patah. Pada saat itu, saya tidak memiliki satu senjata pun di pinggang saya. Saya tidak bisa membeli pengganti sampai pemakaman Ares selesai.
+aku bahkan belum membeli pedang untuk menggantikan pedang tembagaku yang patah. Pada saat itu, aku tidak memiliki satu senjata pun di pinggangku. aku tidak bisa membeli pedang sampai pemakaman Ares selesai.
 
-"Saya akhirnya berubah juga."
+g"aku akhirnya berubah juga."
 
-Ketika saya baru saja memulai hidup saya yang lambat di Zoltan, saya menghindari pertempuran tetapi saya tidak dapat merasa tenang tanpa membawa senjata setiap saat.
+Ketika aku baru saja memulai hidupku yang santai di Zoltan, aku menghindari pertempuran tetapi aku tidak dapat merasa tenang tanpa membawa senjata setiap saat.
 
-Ketika Gonz datang untuk mencari pertolonganku untuk penyakit mata putih Tanta, aku juga membawa pedang di pinggangku ketika aku meninggalkan rumah. Saya memilih untuk membawa pedang tembaga daripada pedang baja karena saya mencoba yang terbaik untuk menahan kebiasaan bertarung saya yang sepertinya tidak dapat saya hilangkan.
+Ketika Gonz datang untuk mencari pertolonganku untuk penyakit mata putih Tanta, aku juga membawa pedang di pinggangku ketika aku meninggalkan rumah. aku memilih untuk membawa pedang tembaga daripada pedang baja karena aku mencoba yang terbaik untuk menahan kebiasaan bertarungku yang sepertinya tidak dapat aku hilangkan.
 
-"Mari kita pulang."
+r"ayo kita pulang."
 
-Ruti memegangi lenganku dan tersenyum. Ruti juga tidak membawa pedang di pinggangnya.
+Ruti memegangi lenganku dan tersenyum. Ruti juga tidak membawa pedang juga di pinggangnya.
 
-Saya menjawab sambil tersenyum juga dan kami tampak seperti sepasang saudara laki-laki dan perempuan biasa yang berjalan di jalanan Zoltan.
+aku menjawab sambil tersenyum juga dan kami tampak seperti sepasang saudara laki-laki dan perempuan biasa yang berjalan di jalanan Zoltan.
 
-Di dunia yang penuh dengan pertempuran ini, mungkin akan sulit mencoba hidup tanpa senjata di tangan. Bahkan saya punya rencana untuk membeli pedang tembaga baru keesokan harinya.
+Di dunia yang penuh dengan pertempuran ini, mungkin akan sulit mencoba hidup tanpa senjata di tangan. Bahkan aku punya rencana untuk membeli pedang tembaga baru keesokan harinya.
 
-Tapi, saya tidak ingin membawa senjata demi 『Perlindungan Ilahi』 saya tetapi dengan rela membawanya untuk melindungi mereka yang penting bagi saya. Saya juga ingin mengayunkan pedang dan menggunakan skill dari 『Divine Protection』 saya atas keinginan saya sendiri.
+Tapi, saakuya tidak ingin membawa senjata demi 『Perlindungan Ilahi』ku tetapi dengan rela membawanya untuk melindungi mereka yang penting bagiku. aku juga ingin mengayunkan pedang dan menggunakan skill dari 『Perlindungan Ilahi』ku atas keinginanku sendiri.
 
-Saya berpikir saat berjalan dengan Ruti.
+aku memikirkannya saat berjalan dengan Ruti.
 
 ☆☆
 
-Malam.
+Malam hari.
 
-Itu setelah Ruti, Tise, dan Danan makan malam. Saya meminta Lit untuk membantu membersihkan piring dan melihat ke langit malam.
+setelah Ruti, Tise, dan Danan makan malam, aku meminta Lit untuk membantu membersihkan piring dan melihat ke langit malam.
 
 "Yo."
 
-Saya mendengar suara dari belakang. Itu Danan.
+aku mendengar suara dari belakang. Itu Danan.
 
 "Itu lezat. Makananmu adalah yang terbaik. "
 
-"Terima kasih."
+g"Terima kasih."
 
-“Saya tidak akan bisa memakannya begitu saya kembali dalam perjalanan saya. Sangat disesalkan."
+"aku tidak akan bisa memakannya begitu aku kembali dalam perjalananku. Sangat disayangkan."
 
-"Seperti yang diharapkan, Anda akan pergi setelah perawatan medis Anda selesai?"
+g"Sudah Kuduga, kamu akan pergi setelah perawatanmu selesai?"
 
 "Ya, aku telah bersumpah untuk tidak pernah memaafkan Raja Iblis yang menghancurkan kampung halamanku."
 
-"Saya melihat."
+g"begitu ya..."
 
-Saya mungkin masih akan melihat Danan untuk sementara waktu, tetapi itu mungkin hanya sekitar setengah tahun.
+aku mungkin masih akan melihat Danan untuk sementara waktu, tetapi itu mungkin hanya sekitar setengah tahun.
 
-Jalan yang dilalui Martial Artist 』Danan berbeda dengan saya karena saya telah berhenti bertarung.
+Jalan yang dilalui Danan berbeda denganku karena aku telah berhenti bertarung.
 
-“Hei, Red. Saya membosankan jadi saya tidak begitu mengerti tapi… kejadian ini, bagaimana saya mengatakannya, saya merasa masih banyak bagian yang mengkhawatirkan. Kamu seharusnya menyadarinya juga, kan? ”
+“Hei, Red. aku Bodoh jadi aku tidak begitu mengerti tapi... kejadian ini, bagaimana bilangnya, aku merasa masih banyak bagian yang mengkhawatirkan. Kamu seharusnya menyadarinya juga, kan? ”
 
-“… Itu benar, seperti mengapa Shisandan masih hidup? Bagaimana Shisandan mengetahui keberadaan Sacred Avenger dan mengapa dia mencarinya? "
+g"Itu benar, seperti mengapa Shisandan masih hidup? Bagaimana Shisandan mengetahui keberadaan Sacred Avenger dan mengapa dia mencarinya?"
 
 Aku mendengar dari Theodora bahwa pedang yang dipegang Shisandan adalah warisan dari Pahlawan generasi pertama. Mirip dengan Danan, Theodora juga pernah mengingatkanku bahwa kejadian ini terasa aneh baginya.
 
-Dan di atas segalanya,
+Dan juga,
 
-“Mengapa ada lima Avengers Suci?”
+"Mengapa ada lima Avengers Suci?"
 
-"Ya."
+g"Ya."
 
 The Sacred Avenger adalah pedang panjang dengan panjang total sekitar satu meter.
 
-Tak perlu dikatakan, manusia dan Peri hanya memiliki dua tangan. Dua pedang akan lebih dari cukup untuk penggunaan ganda.
+Tak perlu dikatakan, manusia dan elf hanya memiliki dua tangan. Dua pedang akan lebih dari cukup untuk penggunaan ganda.
 
 Jadi kenapa ada lima pedang itu?
 
-"... Kurasa mereka tidak dimaksudkan sebagai suku cadang."
+g"... tidak mungkin itu untuk cadangan."
 
-"Menurutku Tuhan tidak akan begitu murah hati."
+"Menurutku dewa tidak akan begitu murah hati."
 
-Pedang legendaris yang dianugerahkan oleh Tuhan. Selain Sacred Avenger, ada senjata lain yang muncul di legenda dan mitos tapi semuanya adalah item tunggal. Saya belum pernah mendengar tentang suku cadang.
+Pedang legendaris yang dianugerahkan oleh dewa. Selain Sacred Avenger, ada senjata lain yang muncul di legenda dan mitos tapi semuanya adalah item tunggal. aku belum pernah mendengar tentang cadangan.
 
-“Dari apa yang Ruti dengar dari Shisandan… kemungkinan besar.”
+r"dari apa yang Ruti dengar dari Shisandan....itu kemungkinan besarnya."
 
 Kemungkinan besar, kelima Sacred Avengers itu tidak terlalu banyak tapi sebenarnya 'kurang'. Karena Pahlawan generasi kedua memegang satu.
 
-“Saya yakin awalnya ada enam orang. Jika demikian, angkanya akan cocok. ”
+g"aku yakin awalnya ada enam orang. kalau begitu, angkanya akan cocok."
 
 Ya, enam pedang sudah cukup.
 
 ☆☆
 
-Benua Gelap. Dunia bawah tanah, Underdeep. Di dalamnya, negara Asura 'Asura Cuchetra', Kastil Raja Iblis yang merupakan ibu kotanya.
+Benua Gelap. Dunia bawah tanah, Underdeep. Di dalamnya, negara Asura 'Asura Cuchetra', istana Raja Iblis dan merupakan ibu kotanya.
 
 Sosok besar duduk di singgasana. Dia adalah raksasa yang akan melampaui lima meter jika dia berdiri.
 
 Keenam lengan dan tubuhnya terdiri dari tubuh pejuang yang dilatih untuk mencapai kondisi ideal, wajahnya menunjukkan kemarahan sementara mata ketiga di dahinya terbuka, menyimpan nyala api.
 
-Demon Lord of Fury, Taraxon. Dia adalah raja dari Tentara Raja Iblis yang menyerang Kerajaan Avalon dan dia memiliki sosok prajurit hebat dari Asura Demons.
+Raja Iblis Kemarahan, Taraxon. Dia adalah raja dari Tentara Raja Iblis yang menyerang Kerajaan Avalon dan dia memiliki sosok prajurit hebat dari iblis Asura.
 
-Taraxon adalah perampas yang menghancurkan ras Demon Lord of Fury asli, Ras Demons, dan merebut posisi itu.
+Taraxon adalah penjarah yang menghancurkan ras raja iblis kemarahan yang asli, dan merebut posisi itu.
 
 Taraxon menggerakkan empat lengannya seolah mencari sesuatu. Dua lengannya yang tersisa membentuk segel di depan dadanya dan tidak bergerak.
 
@@ -202,17 +202,17 @@ Intensitas cahaya tumbuh dan menjadi gumpalan besar.
 
 Kemudian, cahaya itu membentuk dan memperoleh massa.
 
-Cahaya akhirnya berubah menjadi bentuk Asura Demon Shisandan.
+Cahaya akhirnya berubah menjadi bentuk iblis Asura Shisandan.
 
 Shisandan berlutut dengan gerakan terlatih dan menundukkan kepala.
 
 Sambil melihat ke arah sosoknya, Raja Iblis berhenti menggerakkan lengannya dan berbicara.
 
-“Ooo, O Pahlawan. Sangat mengecewakan melihat Anda mati. "
+"Ooo, O Pahlawan. Sangat mengecewakan melihatmu mati. "
 
-Jiwa Asura Demon yang bukan ciptaan Dewa Demis ada di luar sirkulasi besar jiwa.
+Jiwa iblis Asura yang bukan ciptaan Dewa Demis ada di luar sirkulasi jiwa.
 
-Jiwa Asura akan selalu kembali ke Asura King dan mereka akan terlahir kembali sebagai Asura yang sama.
+Jiwa Asura akan selalu kembali ke raja Asura dan mereka akan terlahir kembali sebagai Asura yang sama.
 
 Asura sama sekali bukan ras yang kuat sejak awal. Ketika dunia dipenuhi dengan 『Shin』, Pahlawan Asura dikalahkan berkali-kali dan dibunuh.
 
@@ -226,24 +226,26 @@ Keinginan gigih itulah yang membuat 'Pahlawan'. Itulah filosofi Asura.
 
 Shisandan mengangguk dengan kuat. Meskipun dia adalah Asura, begitu dia mati, dia akan kehilangan kekuatan magisnya dan sebagian besar kekuatan tubuhnya yang terlatih.
 
-Namun, kekalahan memberi mereka keberanian untuk mendapatkan kekuatan melebihi apa yang mereka miliki semula. Oleh karena itu, tidak ada Asura yang takut mati atau kalah.
+Namun, kekalahan memberi mereka keberanian untuk mendapatkan kekuatan melebihi apa yang mereka miliki sebelumnya. Oleh karena itu, tidak ada Asura yang takut mati atau kalah.
 
-(Jika saya berlatih lebih lanjut.)
+(Jika aku berlatih lebih banyak.)
 
 Shisandan mengingat serangan tunggal dari Ruti. Dia terpesona oleh kekuatan penghancur itu.
 
 Apakah dia bisa mencapai alam itu? Jalannya panjang tapi itulah yang membuat Asura abadi di atas segalanya.
 
-Shisandan menyeringai dengan kepala menunduk.
+Shisandan tersenyum licik dengan kepala menunduk.
+
+------------------------
 
 Catatan penulis:
 
 Bab selanjutnya akan menjadi bab terakhir untuk arc Ruti!
 
-Plot yang saya rencanakan dari awal akan berakhir dengan chapter berikutnya tetapi berkat begitu banyak pembaca yang diberkati, saya ingin menulis lebih banyak.
+Plot yang aku rencanakan dari awal akan berakhir dengan chapter berikutnya tetapi berkat begitu banyak pembaca yang diberkati, aku ingin menulis lebih banyak.
 
-Arc selanjutnya akan bercerita tentang kehidupan seorang gadis muda normal yang bekerja keras di Zoltan dengan tema kehidupan lambat Tise, Red, dan Lit, 'Hero's Slow Life Arc'.
+Arc selanjutnya akan bercerita tentang kehidupan seorang gadis muda normal yang bekerja keras di Zoltan dengan tema kehidupan santai Tise, Red, dan Lit, 'arc kehidupan santai pahlawan'.
 
-Saya sudah merencanakan plotnya jadi saya akan terus menulis tanpa jeda!
+aku sudah merencanakan plotnya jadi aku akan terus menulis tanpa jeda!
 
-Jadi saya akan terus melakukan yang terbaik untuk menulis cerita yang menyenangkan untuk Anda semua dan terima kasih banyak!
+Jadi aku akan terus melakukan yang terbaik untuk menulis cerita yang menyenangkan untuk kalian semua dan terima kasih banyak!
