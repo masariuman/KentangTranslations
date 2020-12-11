@@ -148,8 +148,8 @@ Catatan penulis:
 
 Ini menandai akhir dari Arc Pahlawan Ruti!
 
-Arc Ruti adalah cerita tentang pahlawan yang dikendalikan oleh Perlindungan Ilahi yang berubah menjadi seseorang yang bisa menjalani kehidupan yang lambat dengan kehendak bebasnya sendiri.
+Arc Ruti adalah cerita tentang pahlawan yang dikendalikan oleh Perlindungan Ilahi yang berubah menjadi seseorang yang bisa menjalani kehidupan yang santai dengan kehendak bebasnya sendiri.
 
-Tise dan Ugeuge-san awalnya adalah karakter yang dijadwalkan tetapi mereka menjadi karakter dengan lebih banyak kehadiran yang saya bayangkan. Saya awalnya merencanakan mereka untuk berpisah di sini tetapi mereka bergaul dengan Ruti jauh lebih baik daripada yang diharapkan sehingga mereka tetap di Zoltan dan saya juga bisa menikmati menulis cerita!
+Tise dan Ugeuge-san awalnya adalah karakter yang direncanakan hanya sementara tetapi mereka menjadi karakter yang paling berperan dan lebih dari yang kubayangkan. aku awalnya merencanakan mereka untuk berpisah di sini tetapi mereka berteman dengan Ruti jauh lebih baik daripada yang diharapkan sehingga mereka tetap di Zoltan dan aku juga bisa menikmati menulis cerita bersama mereka!
 
-Sebagai seorang penulis, tidak ada yang membuat saya lebih bahagia daripada jika ini adalah cerita yang menyenangkan bagi pembaca saya juga.
+Sebagai seorang penulis, tidak ada yang membuatku lebih bahagia daripada jika ini adalah cerita yang menyenangkan bagi pembacaku juga.
