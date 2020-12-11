@@ -120,36 +120,36 @@ Ruti menggunakan kekuatan herculean yang diberikan oleh perlindungan ilahinya da
 
 <gambar> vol4 2.jpg
 
-Gelombang kejut berdenyut di udara. Meninggalkan bekas luka yang dalam di dinding reruntuhan yang kokoh.
+Gelombang kejut berdenyut di udara. Meninggalkan bekas yang dalam di dinding reruntuhan yang kokoh.
 
-Mungkin itu adalah kemampuan dari Perlindungan Dewa Pahlawan tapi tebasan dari senjata Ruti tidak mempengaruhi kami sama sekali.
+Mungkin itu adalah kemampuan dari Perlindungan ilahi Pahlawan tapi tebasan dari senjata Ruti tidak mempengaruhi kami sama sekali.
 
 Tapi lawannya akan dihajar tanpa ampun oleh angin puyuh yang terbentuk dari tebasan pedangnya.
 
-“Hai, haiiiii.”
+“Hii, hiiiiii.”
 
 Suara itu datang dari Godwin.
 
 Kepala Spirit Drake berguling ke tanah di depan matanya dan melepaskan cahaya saat menghilang.
 
-“Kekuatan sejauh ini…”
+"Kekuatan sekuat ini..."
 
 Suara berikutnya datang dari Shisandan.
 
-Keenam pedang Wood-Elf yang dia gunakan untuk pertahanan benar-benar hancur. Selanjutnya, darah mengalir dari kedua lengan bawahnya dan itu menggantung lemah di sampingnya.
+Keenam pedang Wood-Elf yang dia gunakan untuk bertahan benar-benar hancur. darah mengalir dari kedua lengan bawahnya dan itu bergantung lemah di sampingnya.
 
-"Ah ah …"
+"Ah ah..."
 
 Suara terakhir datang dari Ares.
 
 Dia tampaknya telah menggunakan pedang yang ada di pinggangnya untuk membela diri secara mendadak sehingga dia tidak terluka.
 
-Namun, tubuh pedang itu hancur dan hancur.
+Namun, pedang itu hancur.
 
 "Aku-tidak mungkin."
 
 Ares gemetar ketakutan.
 
-Saya kira itu kartu truf yang dimaksudkan untuk menangani Ruti?
+aku kira itu benda andalan untuk menangani Ruti?
 
-Shisandan, yang selama ini menunjukkan ekspresi puas diri, menunjukkan ekspresi kaku juga.
+Shisandan, yang selama ini menunjukkan ekspresi puas, menunjukkan ekspresi kaku juga.
