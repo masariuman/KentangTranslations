@@ -362,17 +362,17 @@ Badai lembing yang sangat besar menusuk kami dan kami dihadapkan pada badai peti
 
 g"Guuuuu !!!!"
 
-Sihir Roh Lit tidak dapat sepenuhnya meniadakan kekuatan dari mantra Sage yang paling kuat tetapi mampu menguranginya ke tingkat di mana aku bisa menahannya tanpa kehilangan kesadaran.
+Sihir Roh Lit tidak dapat sepenuhnya meniadakan kekuatan dari sihir Sage yang paling kuat tetapi mampu menguranginya ke tingkat di mana aku bisa menahannya tanpa kehilangan kesadaran.
 
 Di belakangku, Lit terlempar dan aku mendengar dia jatuh ke lantai. Aku tidak bisa merasakan tanda-tanda dia berdiri kembali.
 
-Lit memfokuskan semua energinya untuk melindungiku dan tidak membela diri.
+Lit memfokuskan semua energinya untuk melindungiku dan tidak melindungi dirinya sendiri.
 
 Aku mengatupkan gigi dan menekan keinginan untuk melihat ke belakang. Waktu yang dihabiskan untuk melihat ke belakang akan terbuang percuma. Tindakan itu akan menyia-nyiakan pengorbanan Lit.
 
-Itu akan jauh lebih menyakitkan daripada mantra Ares.
+Itu akan jauh lebih menyakitkan daripada sihir Ares.
 
-Ares sudah ada di depan mataku. Tiga langkah lagi. Dan kemudian dia akan berada dalam jangkauan pedangku! Dia tidak punya kesempatan lagi untuk menggunakan mantra! Aku akan menebasnya sebelum dia membentuk segel!
+Ares sudah ada di depan mataku. Tiga langkah lagi. Dan kemudian dia akan berada dalam jangkauan pedangku! Dia tidak punya kesempatan lagi untuk menggunakan sihir! Aku akan menebasnya sebelum dia membentuk segel!
 
 ☆☆
 
@@ -380,7 +380,7 @@ Ares sudah ada di depan mataku. Tiga langkah lagi. Dan kemudian dia akan berada 
 
 Sage Ares yakin akan kemenangannya kali ini.
 
-(Gideon, setelah kamu pergi, aku memperoleh keterampilan yang lebih kuat. Persiapan untuk keterampilan yang hanya mungkin untuk Sage, 'Life Death', 'aktivasi bersamaan' dari Secret Arts dan Covenant Magic dengan kedua tangan yang sudah bisa disebut sebagai teknik kematian instan, telah selesai.Tanpa Sihir Roh Lit, orang sepertimu yang tidak memiliki perlawanan terhadap teknik kematian instan dari Perlindungan Ilahi-mu pasti tidak akan dapat bertahan melawan mantra kematian instanku! Aku akan menangani otakmu yang menjijikkan menggunakan Keterampilan yang tidak kamu ketahui! Ini kemenanganku! Kali ini, kamu akan mati!)
+(Gideon, setelah kau pergi, aku memperoleh skill yang lebih kuat. Persiapan untuk skill yang hanya mungkin untuk Sage, 'hidup kematian', 'aktivasi bersamaan' dari sihir rahasia dan sihir perjanjian dengan kedua tangan yang sudah bisa disebut sebagai teknik kematian instan, telah selesai. Tanpa Sihir Roh Lit, orang sepertimu yang tidak memiliki perlawanan terhadap teknik kematian instan dari Perlindungan Ilahi-mu pasti tidak akan dapat bertahan melawan sihir kematian instanku! Aku akan menangani otakmu yang menjijikkan menggunakan skill yang tidak kau ketahui! Ini kemenanganku! Kali ini, kau akan mati!)
 
 Sage Ares berusaha mengaktifkan mantera dengan tangan kirinya yang tertusuk pisau Tise.
 
