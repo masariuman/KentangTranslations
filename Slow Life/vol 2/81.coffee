@@ -348,25 +348,25 @@ Kami hanya bisa mengandalkan pertarungan jarak dekat jika kami ingin memiliki ke
 
 Ares membentuk segel dengan tangan kanannya. Tombak badai ditembakkan ke arah kami.
 
-“Ku !?”
+g"Ku !?"
 
-Itu terlalu cepat, saya tidak akan bisa mengelak!
+Itu terlalu cepat, aku tidak akan bisa mengelak!
 
-Saya mengatupkan gigi dan mempersiapkan diri untuk menanggungnya.
+aku mengatupkan gigi dan mempersiapkan diri untuk menerimanya.
 
-O roh angin!
+l"O roh angin!"
 
-Lit bernyanyi dan roh angin menari-nari di sekitarku.
+Lit membaca mantra dan roh angin menari-nari di sekitarku.
 
 Badai lembing yang sangat besar menusuk kami dan kami dihadapkan pada badai petir yang hebat dan angin kencang yang kencang.
 
-“Guuuuu !!!!”
+g"Guuuuu !!!!"
 
 Sihir Roh Lit tidak dapat sepenuhnya meniadakan kekuatan dari mantra Sage yang paling kuat tetapi mampu menguranginya ke tingkat di mana aku bisa menahannya tanpa kehilangan kesadaran.
 
-Di belakangku, Lit terlempar dari kakinya dan aku mendengar dia jatuh ke tanah. Aku tidak bisa merasakan tanda-tanda dia berdiri kembali.
+Di belakangku, Lit terlempar dan aku mendengar dia jatuh ke lantai. Aku tidak bisa merasakan tanda-tanda dia berdiri kembali.
 
-Lit memfokuskan semua energinya untuk melindungi saya dan tidak membela diri.
+Lit memfokuskan semua energinya untuk melindungiku dan tidak membela diri.
 
 Aku mengatupkan gigi dan menekan keinginan untuk melihat ke belakang. Waktu yang dihabiskan untuk melihat ke belakang akan terbuang percuma. Tindakan itu akan menyia-nyiakan pengorbanan Lit.
 
