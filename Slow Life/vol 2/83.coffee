@@ -48,47 +48,47 @@ aku dipanggil dari belakang.
 
 Melihat ke belakang, aku melihat Ruti dengan pakaian one-piece putih seperti salju dan topi putih yang sangat serasi dengan pakaiannya.
 
-Satu potong adalah pakaian biasa yang dia beli bersamaku di Pusat Kota. Itu bukan baju besi ajaib.
+one-piece adalah pakaian biasa yang dia beli bersamaku di Pusat Kota. Itu bukan baju magic besi.
 
-Selanjutnya, tidak ada pedang yang tergantung di pinggang Ruti. Aksesoris ajaibnya seperti cincin dan jimat yang biasanya dia kenakan sekarang semuanya telah dilepas.
+tidak ada pedang yang tergantung di pinggang Ruti. Aksesoris magicnya seperti cincin dan jimat yang biasanya dia kenakan sekarang semuanya telah dilepas.
 
 Dia tampak seperti gadis biasa yang bisa dilihat di mana-mana.
 
 Namun,
 
-"Achoo."
+r"Achoo."
 
-“Tentu saja kamu akan merasa kedinginan.”
+g"Tentu saja kamu akan merasa kedinginan."
 
 Terlepas dari apakah itu Zoltan, dia secara alami akan merasa kedinginan jika dia hanya mengenakan one-piece tanpa mantel pada hari bersalju.
 
-Ehehe.
+r"Ehehe."
 
 Ruti sempat bersin tapi dia terlihat senang.
 
-"Aku senang bisa merasa kedinginan untuk pertama kalinya dalam waktu yang begitu lama."
+r"Aku senang bisa merasa kedinginan untuk pertama kalinya dalam waktu yang begitu lama."
 
-"Kamu akan masuk angin, tahu?"
+g"Kamu akan masuk angin lho..."
 
-“Saya tidak pernah masuk angin sebelumnya. Saya menantikan pilek pertama saya. "
+"aku tidak pernah masuk angin sebelumnya. aku menantikan pilek pertamaku. "
 
-Saya segera kembali ke kamar dan kembali dengan jubah yang biasa saya gunakan.
+aku segera kembali ke kamar dan kembali dengan jubah yang biasa kugunakan.
 
-"Ini, maaf karena ini pakaian pria."
+g"Ini, maaf karena ini pakaian pria."
 
-" … Ini hangat."
+r" ... Ini hangat."
 
 Ruti bergumam seperti gadis biasa dan tersenyum lebar.
 
 Ruti tidak kehilangan Perlindungan Ilahi dari Pahlawan. Bahkan sekarang, Perlindungan Ilahi dari Pahlawan masih dalam Ruti.
 
-Namun, Perlindungan Ilahi yang tidak disebutkan namanya yang lahir di dalam Ruti telah mengubah namanya menjadi 『Shin』. Menurut Ruti, itu sebenarnya bukan Perlindungan Ilahi. (TLN: Shin ditulis dalam katakana jadi itu bisa berarti Benar, Baru, atau Hati dll. Saya hanya akan tahu di masa depan jika penulis menjelaskannya.)
+Namun, Perlindungan Ilahi yang tidak disebutkan namanya yang lahir di dalam Ruti telah mengubah namanya menjadi 『Shin』. Menurut Ruti, itu sebenarnya bukan Perlindungan Ilahi. (Shin ditulis dalam katakana jadi itu bisa berarti Benar, Baru, atau Hati dll.)
 
-Dengan kata lain, itu bukanlah 'Perlindungan Ilahi' yang diberikan oleh Tuhan. Mungkin akan menjadi masalah besar jika Gereja Suci mengetahuinya.
+Dengan kata lain, itu bukanlah 'Perlindungan Ilahi' yang diberikan oleh dewa. Mungkin akan menjadi masalah besar jika Gereja Suci mengetahuinya.
 
-Tidak ada impuls yang datang dari 『Shin』. Artinya, 『Shin』 tidak memiliki peran untuk dimainkan.
+Tidak ada impuls yang datang dari 『Shin』. Artinya, 『Shin』 tidak memiliki peran di dunia ini.
 
-Terlepas dari aspek-aspek itu, 『Shin』 pada dasarnya sama dengan Perlindungan Ilahi. Itu memiliki level dan keterampilan. Untuk membesarkan mereka, dia hanya harus mengalahkan lawan yang memiliki Perlindungan Ilahi.
+Terlepas dari aspek-aspek itu, 『Shin』 pada dasarnya sama dengan Perlindungan Ilahi. Itu memiliki level dan skill. Untuk meningkatkannya, dia hanya harus mengalahkan lawan yang memiliki Perlindungan Ilahi.
 
 Aspek khusus tentang 『Shin』 adalah bahwa keterampilan darinya tidak dapat dipilih secara bebas hanya dengan menaikkan level tetapi dia tampaknya harus memenuhi kriteria tertentu juga sebelum dia bisa mendapatkannya.
 
@@ -98,13 +98,15 @@ Namun, bagi Ruti aspek yang paling menyenangkan lebih dari apapun adalah titik d
 
 Sekarang, Ruti sedang mengatur Perlindungan Ilahi dari Pahlawannya sendiri dan sebagian besar telah membatalkan kekebalan dan dorongan penuhnya.
 
-"Achoo."
+r"Achoo."
 
-"Lagipula ini dingin, aku akan membuat sarapan jadi harap tunggu sebentar di dalam."
+g"Lagipula ini dingin, aku akan membuat sarapan jadi harap tunggu sebentar di dalam."
 
-"Mmm, oke."
+r"Mmm, oke."
 
 Kami berjalan kembali ke rumah. Sebelum memasuki pintu masuk, Ruti dan Lit melihat ke belakang sekali lagi dan memandangi salju putih yang menari-nari di langit, enggan untuk menjauh dari pemandangan itu.
+
+<gambar> vol4 3.jpg
 
 ☆☆
 
