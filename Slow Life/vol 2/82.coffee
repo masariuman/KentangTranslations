@@ -240,27 +240,27 @@ g"Itu sudah cukup dengan luka yang Lit-san miliki. Terima kasih."
 
 Cedera Lit mungkin yang paling parah. Setelah menerima skill berkekuatan penuh dari Ares, dia masih mengalami luka bakar dan luka yang menyakitkan di sekujur tubuhnya. Kakinya sepertinya sakit karena dia duduk dalam posisi yang tidak wajar.
 
-“Ini akan menjadi akhir setelah kita mengalahkan Shisandan. Kita bisa bertemu dengan Danan dan pulang setelah itu. ”
+g"Ini akan berakhir setelah kita mengalahkan Shisandan. Kita bisa bertemu dengan Danan dan pulang setelah itu."
 
 Aku memberi tahu Lit dan tersenyum padanya untuk meyakinkannya.
 
 Pada saat itu, teriakan bergema dari lubang di tanah. Suara benturan yang luar biasa mengikutinya.
 
-“Ruti !?”
+g"Ruti !?"
 
 Itu suara Ruti!
 
-Tapi, Ruti berteriak saat pertarungan !?
+Tapi, Ruti berteriak saat bertarung !?
 
-Saya memegang Thunderwaker dengan tangan kiri saya dan hendak melompat ke dalam lubang.
+aku memegang Thunderwaker dengan tangan kiriku dan hendak melompat ke dalam lubang.
 
 Tapi satu bayangan terbang keluar dari lubang dan menghalangi jalanku.
 
-“Ruti! Jadi kamu baik-baik saja. ”
+g"Ruti! Jadi kamu baik-baik saja."
 
-Ruti tidak menunjukkan ekspresi apapun saat tangan kanannya tergantung dengan lemas di sampingnya sambil memegang Avenger yang Shisandan pegang sebelumnya dan dia hanya berdiri diam disana.
+Ruti tidak menunjukkan ekspresi apapun dan tangan kanannya tergantung dengan lemas di sampingnya sambil memegang Avenger yang Shisandan pegang sebelumnya dan dia hanya berdiri diam disana.
 
-“Ruti? Apakah kamu baik-baik saja?"
+g"Ruti? Apakah kamu baik-baik saja?"
 
 Kondisi Ruti memang aneh. Aku dengan cemas mendekati Ruti.
 
