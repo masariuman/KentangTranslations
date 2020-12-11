@@ -458,7 +458,7 @@ aku menyalurkan semua kekuatanku ke Thunderwaker dan mengayunkannya ke atas sihi
 
 Pedang itu menembus bahu Ares sampai ke sisinya dan membelah tubuh Ares sepenuhnya.
 
-<gambar> vol 9.jpg
+<gambar> vol4 9.jpg
 
 Darah mengalir dari mulut Ares.
 
