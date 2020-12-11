@@ -158,7 +158,7 @@ Itulah jeritan ketakutan pertama yang datang dari Ruti sejak lahir.
 
 Orang yang paling dicintainya meninggal. Dia meninggal di depan matanya. Dia tidak akan pernah bisa melihatnya lagi. Dia tidak akan pernah memanggil namanya lagi. Dia tidak akan pernah bisa menyentuh tubuh hangatnya lagi.
 
-Dan ini terjadi setelah dia berpikir bahwa dia akhirnya bisa menyampaikan perasaannya kepadanya. Meskipun hari-hari yang akan datang seharusnya menjadi kehidupan yang santai di mana tidak ada yang terjadi dan dia akan dapat menghabiskan waktu bersama kekasihnya.
+Dan ini terjadi setelah dia berpikir bahwa dia akhirnya bisa menyampaikan perasaannya kepadanya. Meskipun hari-hari yang akan datang seharusnya menjadi kehidupan yang santai di mana tidak ada yang terjadi dan dia akan dapat menghabiskan waktu bersama orang yang dicintainya.
 
 Sesuatu di dalam Ruti pecah. Ruti telah kehilangan sesuatu yang mendukungnya untuk terus hidup di neraka yang disebut kehidupan.
 
@@ -166,7 +166,7 @@ Sesuatu di dalam Ruti pecah. Ruti telah kehilangan sesuatu yang mendukungnya unt
 
 Shisandan mengangkat keempat Sacred Avenger dan menatap Ruti yang kebingungan.
 
-“Kamu, yang bukan lagi Pahlawan, akan diguncang oleh pengkhianatan Theodora dan kematian saudaramu. Hanya pada saat itulah kekuatanku melampaui kekuatanmu. Semua dasar adalah untuk saat yang tepat ini! "
+"Kamu, yang bukan lagi Pahlawan, yang diguncang oleh pengkhianatan Theodora dan kematian saudaramu. Hanya pada saat itulah kekuatanku melampaui kekuatanmu."
 
 Bahkan dalam kondisi seperti itu, Ruti masih mencegat Shisandan dengan Avenger. Dia menangkis serangan Shisandan dengan sangat akurat.
 
