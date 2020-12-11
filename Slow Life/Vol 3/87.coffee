@@ -142,14 +142,14 @@ kamu mungkin menganggap Ruti agak buruk karena mengambil boneka dari anak-anak t
 
 Lawannya mungkin anak-anak tetapi mereka memiliki kesepakatan bersama dan sensasi sebenarnya dari ras wyvern adalah ketika mereka melempar dadu tempat mereka mempertaruhkan boneka wyvern mereka. Ruti tidak melakukan kesalahan apapun dengan mendapatkan boneka wyvern melalui kemenangan.
 
-Saya tersenyum kepada Ruti untuk meyakinkannya.
+aku tersenyum kepada Ruti untuk meyakinkannya.
 
-"Aku bermain sedikit juga ketika aku masih seorang ksatria magang."
+g"Aku bermain sebentar juga ketika aku masih seorang ksatria."
 
-“Onii-chan melakukannya?”
+r"Onii-chan memainkannya?"
 
-“Mengapa lain kali kita tidak bermain dengan semua orang?”
+g"Mengapa lain kali kita tidak bermain dengan semuanya?"
 
-"Baik."
+r"Okeeee."
 
 Ruti mengangguk senang setelah mendengar kata-kataku.
