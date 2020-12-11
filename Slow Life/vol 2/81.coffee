@@ -170,7 +170,7 @@ Shisandan mengangkat keempat Sacred Avenger dan menatap Ruti yang kebingungan.
 
 Bahkan dalam kondisi seperti itu, Ruti masih mencegat Shisandan dengan Avenger. Dia menangkis serangan Shisandan dengan sangat akurat.
 
-… Teriakan Pedang Suci yang sekarat bergema di dalam ruangan.
+... Teriakan Pedang Suci yang sekarat bergema di dalam ruangan.
 
 “Sungguh patut dipuji bahwa kamu bisa menghancurkan Sacred Avenger yang dipegang Ares sambil menggunakan tiruan itu. Anda benar-benar telah melampaui ranah Pahlawan. Tapi Anda harus membayar harga yang setara. "
 
