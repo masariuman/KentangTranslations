@@ -290,43 +290,43 @@ Ruti menatap kami dengan ekspresi transparan.
 
 "I-itu dorongan pembantaian!"
 
-Godwin berteriak. Itulah efek samping dari Perlindungan Ilahi Iblis. Kejadian yang terjadi di Zoltan masih segar dalam ingatan saya.
+Godwin berteriak. Itulah efek samping dari Perlindungan Ilahi Iblis. Kejadian yang terjadi di Zoltan masih segar dalam ingatanku.
 
-Itu juga terwujud dalam Ruti !?
+Itu juga terwujud kepada Ruti !?
 
 Teriakan pedang yang bentrok satu sama lain bergema di aula.
 
-“Menyala! Godwin! Tolong jaga Tise !! ”
+g"Lit! Godwin! Tolong jaga Tise !!"
 
 Aku menurunkan Tise ke lantai, memfokuskan kekuatanku ke kedua lenganku dan mengunci pedang dengan Ruti untuk menahannya.
 
 Selama waktu itu, Godwin dengan sigap meraih tubuh Tise dan mundur.
 
-“Gu !?”
+g"Gu !?"
 
 Saat perhatianku beralih ke punggungku untuk sesaat, Ruti menendang perutku.
 
-Tubuh saya menjerit karena menerima pukulan berat.
+Tubuhku menjerit karena menerima pukulan berat.
 
-Ruti menindaklanjuti dengan tebasan menggunakan pedangnya dan saya menerimanya dengan Thunderwaker.
+Ruti melanjutkan dengan tebasan menggunakan pedangnya dan aku menerimanya dengan Thunderwaker.
 
 Itu menghasilkan suara metalik yang tidak menyenangkan.
 
-Saya melompat mundur beberapa langkah untuk menciptakan jarak.
+aku melompat mundur beberapa langkah untuk menciptakan jarak.
 
-Dan kemudian, saya melihat ke Thunderwaker.
+Dan kemudian, aku melihat ke Thunderwaker.
 
-”… Terima kasih untuk semuanya sampai sekarang.”
+g"... Terima kasih untuk semuanya sampai sekarang."
 
 Retakan yang tak terhitung jumlahnya mengalir melalui tubuh Thunderwaker. Satu pukulan dari Ruti menyebabkan sekitar setengah bilahnya retak.
 
-Thunderwaker mungkin tidak akan pernah melihat pertempuran lain.
+Thunderwaker mungkin tidak akan pernah melihat pertempuran lagi.
 
-Tetapi jika Thunderwaker membentak, saya mungkin akan dipotong menjadi dua. Pedang ini adalah pedang yang sangat bagus sampai akhir.
+Tetapi jika Thunderwaker hancur, aku mungkin akan dipotong menjadi dua. Pedang ini adalah pedang yang sangat bagus sampai akhir.
 
 Aku meletakkan Thunderwaker di tanah dan meletakkan tanganku di pegangan 'Pedang Tembaga' yang tergantung di pinggangku.
 
-Aku menghadapi Ruti secara langsung saat dalam posisi menggambar pedang.
+Aku menghadapi Ruti secara langsung saat dalam posisi menarik pedang.
 
 “Jangan-jangan sembrono! Kamu tidak berencana untuk bertarung dengan senjata yang buruk !? ”
 
