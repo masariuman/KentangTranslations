@@ -16,13 +16,13 @@ aku mengambil obat dari rak dan membungkusnya dengan plastik.
 
 g"Ya, sekarang tidak apa-apa."
 
-Gonz menunjukkan senyum lega setelah aku mengatakan itu dan memberikan paket itu padanya.
+Gonz menunjukkan senyum lega setelah aku mengatakan itu dan memberikan plastik itu padanya.
 
-"Itu terdengar baik. Perkenalkan dia padaku dengan benar suatu hari nanti. ”
+"Itu terdengar bagus. Perkenalkan dia padaku dengan benar suatu hari nanti."
 
 Gonz mengkhawatirkanku meskipun aku tidak menjelaskan situasinya kepadanya.
 
-Sama seperti semua penghuni Zoltan, dia tidak mencoba mengorek masa lalu kami. Dia memiliki lidah yang longgar tetapi dia mampu membedakan di mana harus menarik garis.
+Sama seperti semua penghuni Zoltan, dia tidak mencoba mengorek masa lalu kami. Dia orangnya ember(tdak bisa menjaga rahasia) tetapi dia mampu membedakan di mana yang tidak harus digali dan disebarkan.
 
 Namun demikian, saya ingin memperkenalkan adik perempuan saya dengan benar. Meskipun dia sedang berbaring untuk saat ini, saya ingin memberi tahu teman-teman Downtown saya bahwa saya memiliki seorang adik perempuan bernama Ruti.
 
