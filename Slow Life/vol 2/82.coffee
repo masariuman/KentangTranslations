@@ -156,29 +156,29 @@ Shisandan segera mengambil posisi bertahan.
 
 Shisandan menyilangkan pedangnya dan membuat posisi bertahan di depan Ruti yang langsung menyerangnya.
 
-“Kuaaaaaaaaaaaaaaaaaaa !!!!!!!!!!!!!!!!!!!!!”
+r"Kuaaaaaaaaaaaaaaaaaaa !!!!!!!!!!!!!!!!!!!!!"
 
 Itu adalah teriakan pertempuran pertama Pahlawan Ruti.
 
-Sosok Pahlawan yang selalu tenang dan terkumpul tidak terlihat di mana pun. Saat itu, Ruti bukan bertarung sebagai Pahlawan melainkan sebagai Ruti.
+Sosok Pahlawan yang selalu tenang tidak terlihat di mana pun. Saat itu, Ruti bukan bertarung sebagai Pahlawan melainkan sebagai Ruti.
 
 "... Tidak mungkin."
 
 Pertarungan diselesaikan dalam satu pukulan.
 
-Shisandan kehilangan perasaan di pelukannya dan pedangnya jatuh ke tanah.
+Shisandan tidak dapat merasakan tangannya dan pedangnya jatuh ke tanah.
 
-Tiga dari pedang suci yang diterima Pahlawan generasi pertama dari Tuhan hancur menjadi debu.
+Tiga dari pedang suci yang diterima Pahlawan generasi pertama dari dewa hancur menjadi debu.
 
-"Batuk …"
+"uhuk uhuk..."
 
 Darah segar mengucur dari mulut Shisandan. Shisandan menahan mulutnya dengan tangan gemetar.
 
-(Saya kira ini adalah luka yang fatal.)
+(ini adalah luka yang fatal.)
 
-Biasanya seseorang akan menekan lukanya tetapi… bahkan dengan enam lengan, dia tidak akan bisa menekan lubang menganga di tubuhnya.
+Biasanya seseorang akan menekan lukanya tetapi... bahkan dengan enam lengan, dia tidak akan bisa menekan lubang menganga di tubuhnya.
 
-(Tapi Pahlawan telah menyentuh Pembalas Suci ... itu berarti saya telah mencapai tujuan minimal.)
+(Tapi Pahlawan telah menyentuh sacred avenger ... itu berarti aku telah mencapai tujuan minimal.)
 
 Shisandan pingsan dengan senyum puas di wajahnya. Asura itu roboh dan tidak lagi menggerakkan satu jari pun.
 
@@ -186,59 +186,59 @@ Jelas bagi siapa pun bahwa dia sudah mati.
 
 ☆☆
 
-“Dengan ini, dia akan baik-baik saja.”
+g"Dengan ini, dia akan baik-baik saja."
 
 Setelah melepaskan pecahan armor di dalam luka Theodora dan membuatnya meminum Ramuan Penyembuhan, kondisinya menjadi stabil.
 
-“Mengapa Anda membantunya?”
+“Mengapa kamu membantunya?”
 
 Godwin bertanya dengan ketidakpuasan.
 
-Karena Theodora adalah seorang teman.
+g"Karena Theodora adalah temanku."
 
 "Ha? Wanita ini secara tidak langsung mencoba membunuhmu. "
 
-“Mungkin itu masalahnya. Tapi dia tetaplah temanku. "
+g"Mungkin itu masalah. Tapi dia tetaplah temanku. "
 
-"Meskipun aku benci mereka yang tidak sadar bahwa mereka sendiri adalah penjahat, aku juga membenci orang sepertimu yang memakai topeng suci."
+"Meskipun aku benci mereka yang tidak sadar bahwa mereka sendiri adalah penjahat, aku juga membenci orang sepertimu yang sok suci."
 
 Aku tertawa kecut ketika aku melihat Godwin yang marah.
 
-"Anda salah. Apa yang Theodora lakukan adalah tindakan bermusuhan. Tapi."
+g"kamu salah. Apa yang Theodora lakukan adalah tindakan sebagai. Tapi..."
 
-Saya melihat tangan saya sendiri. Mereka masih gemetar.
+aku melihat tanganku sendiri. Mereka masih gemetar.
 
-“Saya tidak ingin adik perempuan saya mengalami perasaan membunuh rekan yang bepergian dengan Anda, bahkan jika mereka telah menjadi musuh.”
+g"aku tidak ingin adik perempuanku mengalami perasaan membunuh rekan yang bepergian dengannya, bahkan jika mereka telah menjadi musuh."
 
-Ares adalah musuhnya. Saya tidak menyesal membunuhnya.
+Ares adalah musuhnya. aku tidak menyesal membunuhnya.
 
 Namun, masih ada emosi yang tertinggal.
 
-"Tidak apa-apa jika karena alasan itu ..."
+g"Tidak apa-apa jika karena alasan itu ..."
 
 Godwin membuat ekspresi tidak nyaman dan tidak mengatakan apa-apa lagi.
 
-Lebih penting lagi, saya harus membantu Ruti selanjutnya.
+Lebih penting lagi, aku harus membantu Ruti.
 
-Aku menyuruh semua anggota meminum Cure Potions dan memiliki Lit menyembuhkan Ugeuge-san yang tidak bisa minum ramuan dengan Sihir Rohnya tetapi jujur ​​saja, mereka semua dipukuli.
+Aku menyuruh semua anggota meminum Cure Potions dan menyuruh Lit menyembuhkan Ugeuge-san yang tidak bisa minum ramuan dengan Sihir Rohnya tetapi jujur ​​saja, mereka semua sekarat.
 
 Hanya Godwin yang relatif tidak terluka tetapi secara alami, aku tidak bisa membawanya untuk melawan Shisandan.
 
 “Red-san, kamu akan pergi?”
 
-"Tentu saja."
+g"Tentu saja."
 
 "Kalau begitu aku akan pergi juga."
 
 Tise berkata sambil berdiri. Ugeuge-san sedang mengistirahatkan tubuhnya di telapak tangan Lit tapi dia juga mengangkat lengannya dan mencoba ikut saat Tise berdiri.
 
-“Jangan khawatir, Ugeuge-san harus berkonsentrasi pada penyembuhan.”
+g"Jangan khawatir, Ugeuge-san harus berkonsentrasi pada penyembuhanyan."
 
-"Maaf, akan lebih cepat jika aku bisa berkonsentrasi lebih baik."
+l"Maaf, akan lebih cepat jika aku bisa berkonsentrasi lebih baik."
 
-“Itu sudah cukup dengan luka yang Lit-san miliki. Terima kasih."
+g"Itu sudah cukup dengan luka yang Lit-san miliki. Terima kasih."
 
-Cedera Lit mungkin yang paling parah. Setelah menerima mantra berkekuatan penuh dari Ares, dia masih mengalami luka bakar dan luka yang menyakitkan di sekujur tubuhnya. Kakinya sepertinya sakit karena dia duduk dalam posisi yang tidak wajar.
+Cedera Lit mungkin yang paling parah. Setelah menerima skill berkekuatan penuh dari Ares, dia masih mengalami luka bakar dan luka yang menyakitkan di sekujur tubuhnya. Kakinya sepertinya sakit karena dia duduk dalam posisi yang tidak wajar.
 
 “Ini akan menjadi akhir setelah kita mengalahkan Shisandan. Kita bisa bertemu dengan Danan dan pulang setelah itu. ”
 
