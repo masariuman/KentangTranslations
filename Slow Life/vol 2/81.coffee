@@ -384,7 +384,7 @@ Sage Ares yakin akan kemenangannya kali ini.
 
 Sage Ares berusaha mengaktifkan mantera dengan tangan kirinya yang tertusuk pisau Tise.
 
-Namun, pada saat itu, jari telunjuk di tangan kiri Ares bergerak berlawanan arah dengan keinginannya.
+Namun, pada saat itu, jari telunjuk di tangan kiri Ares bergerak berlawanan arah yang diinginkannya.
 
 Segel tangan kirinya rusak dan aktivasi mantra gagal.
 
@@ -392,13 +392,13 @@ Segel tangan kirinya rusak dan aktivasi mantra gagal.
 
 Ares berbalik untuk melihat dan melihat Tise tenggelam dalam lautan darahnya tetapi dengan senyum kemenangan yang seharusnya dimiliki Ares di wajahnya.
 
-“Jangan meremehkan teman saya.”
+“Jangan meremehkan temanku.”
 
-Tise menarik benang yang dililitkan Ugeuge-san di sekitar jari telunjuk Ares. Tise tahu bahwa Ares bisa menggunakan skill aktivasi bersamaan. Dia membidik saat itu sambil berbaring di lantai.
+Tise menarik benang yang dililitkan Ugeuge-san di sekitar jari telunjuk Ares. Tise tahu bahwa Ares bisa menggunakan skill aktivasi bersamaan. Dia menunggu saat itu sambil berbaring di lantai.
 
 Ugeuge-san bukanlah laba-laba biasa. Itu adalah laba-laba yang tumbuh bersama Tise.
 
-Itu Perlindungan Ilahi adalah 『Prajurit』. Itu adalah Perlindungan Ilahi tingkat terendah yang hanya mampu memperkuat kemampuan fisik mereka tetapi masih memiliki kemampuan untuk menahan hantaman kaki tanpa sekarat.
+ugeuge-san memiliki Perlindungan Ilahi 『Prajurit』. Itu adalah Perlindungan Ilahi tingkat terendah yang hanya mampu memperkuat kemampuan fisik mereka tetapi masih memiliki kemampuan untuk menahan hantaman kaki tanpa sekarat.
 
 Ugeuge-san tidak terburu-buru tanpa rencana. Ia menahan langkah yang menghancurkan dan menempatkan benang di sekitar jari Ares.
 
