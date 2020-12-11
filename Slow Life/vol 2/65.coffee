@@ -52,6 +52,8 @@ Byuui mengangkat bahunya dan merendahkan suaranya sedikit sebelum dia mulai meng
 
 Byuui mengambil peralatan survei mutakhir dan membulatkan tekadnya.
 
+<gambar> vol3 11.jpg
+
 ☆☆
 
 Beberapa jam kemudian.
