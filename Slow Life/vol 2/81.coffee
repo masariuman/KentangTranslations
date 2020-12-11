@@ -420,43 +420,45 @@ Red mendekat. Ares mati-matian mencoba mengucapkan mantra.
 
 Tindakan yang dipertaruhkan oleh dua orang dan satu arakhnida dalam hidup mereka bahkan tidak mencapai 30 detik Theodora. Itu hanya sedetik, gangguan yang merampas kebebasan jari Ares hanya untuk sesaat.
 
-Tapi dua orang dan satu arakhnida percaya pada satu detik itu. Si Merah akan menang dengan itu sendirian.
+Tapi dua orang dan satu arakhnida percaya pada satu detik itu. bahwa red akan menang dengan itu.
 
 ☆☆
 
-Aku memotong tangan kanan Ares yang dia coba gunakan untuk sihir dengan menggunakan Thunderwaker.
+Aku memotong tangan kanan Ares yang ia coba gunakan untuk sihir dengan menggunakan Thunderwaker.
 
 “U-uaaaaa !!!”
 
 Aku mengabaikan teriakannya dan mengikutinya dengan memotong tangan kirinya.
 
-“Segel tangan sangat diperlukan untuk aktivasi sihir! Sekarang kamu tidak bisa lagi menggunakan sihir! "
+g"Segel tangan sangat diperlukan untuk aktivasi sihir! Sekarang kamu tidak bisa lagi menggunakan sihir! "
 
 “A, ahh, ahhhhhhh !!!!!!”
 
 Ares kehilangan kedua tangannya. Bagi Ares, seorang 『Sage』, itu mirip dengan merampok segalanya. Dia telah kehilangan sihirnya.
 
-“Ares, inilah akhirnya.”
+g"Ares, inilah akhirnya."
 
 Aku mengangkat pedangku untuk memberikan serangan terakhir ke Ares. Thunderwaker memantulkan cahaya di ruangan itu dan bersinar.
 
-“Dia-tolong! Shisandan! Saya akan dibunuh! Theodora! Kembalikan lenganku! Siapapun, tolong! Siapa saja! Tolong aku!!"
+"to-tolong! Shisandan! aku akan dibunuh! Theodora! Kembalikan lenganku! Siapapun, tolong! Siapa saja! Tolong aku!!"
 
-Ares jatuh ke tanah dan memohon bantuan saat dia berjuang. Tapi tidak ada orang yang menanggapi suaranya.
+Ares jatuh ke tanah dan memohon bantuan. Tapi tidak ada orang yang menanggapi suaranya.
 
-“Ke-kenapa, kenapa selalu kamu? Ketika saya lebih kuat, ketika saya lebih bijaksana, mengapa semua orang berbondong-bondong kepada Anda !! ”
+“Ke-kenapa, kenapa selalu kamu? Ketika aku lebih kuat, ketika aku lebih bijaksana, mengapa semua orang berbondong-bondong kepadamu !! ”
 
-"Kamu tidak mengerti?"
+g"Kamu tidak mengerti?"
 
 Ares menatapku. Mata itu penuh dengan keputusasaan.
 
-"Dia-bantu aku, A-aku hanya melakukan apa yang harus aku lakukan sebagai『 Sage 』, Gideon, aku ... aku hanya ..."
+"to-tolong aku, A-aku hanya melakukan apa yang harus aku lakukan sebagai『 Sage 』, Gideon, aku ... aku hanya ..."
 
-"Tidak."
+g"Tidak."
 
-Saya menyalurkan semua kekuatan saya ke Thunderwaker dan mengayunkannya ke atas mantan rekan saya.
+aku menyalurkan semua kekuatanku ke Thunderwaker dan mengayunkannya ke atas sihir rekanku.
 
 Pedang itu menembus bahu Ares sampai ke sisinya dan membelah tubuh Ares sepenuhnya.
+
+<gambar> vol 9.jpg
 
 Darah mengalir dari mulut Ares.
 
