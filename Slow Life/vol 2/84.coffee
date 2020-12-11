@@ -24,17 +24,17 @@ Gonz mengkhawatirkanku meskipun aku tidak menjelaskan situasinya kepadanya.
 
 Sama seperti semua penghuni Zoltan, dia tidak mencoba mengorek masa lalu kami. Dia orangnya ember(tdak bisa menjaga rahasia) tetapi dia mampu membedakan di mana yang tidak harus digali dan disebarkan.
 
-Namun demikian, saya ingin memperkenalkan adik perempuan saya dengan benar. Meskipun dia sedang berbaring untuk saat ini, saya ingin memberi tahu teman-teman Downtown saya bahwa saya memiliki seorang adik perempuan bernama Ruti.
+Namun demikian, aku ingin memperkenalkan adik perempuanku dengan benar. Meskipun dia sedang berbaring untuk saat ini, aku ingin memberi tahu teman-temanku bahwa aku memiliki seorang adik perempuan bernama Ruti.
 
-“Baiklah, aku akan mengajak semua orang lain kali.”
+g"Baiklah, aku akan mengajak semua orang juga nanti."
 
-Bukan hanya Ruti. Saya ingin memperkenalkan Tise dan Danan juga.
+Bukan hanya Ruti. aku ingin memperkenalkan Tise dan Danan juga.
 
 Mereka adalah teman bertempurku yang bertarung bersama kami.
 
 ☆☆
 
-Sore.
+Sore hari.
 
 Ruti, Tise, Danan dan saya tiba di gereja di Distrik Pusat Zoltan.
 
