@@ -1,7 +1,5 @@
 Bab 88: Awal dari festival titik balik matahari musim dingin
 
-Penerjemah: Tseirp
-
 Pada hari itu, langit musim dingin yang cerah tampak biru sejauh mata memandang.
 
 Hari ini adalah festival titik balik matahari musim dingin di Benua Avalon.
