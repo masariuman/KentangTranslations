@@ -158,10 +158,10 @@ tabrakan antara Sage dan Pahlawan, dua dari pengguna mantra terkuat, memaksa Shi
 
 Hantaman dahsyat itu menyebabkan retakan menembus struktur Ancient-Elf yang seharusnya memiliki ketangguhan tak tertandingi.
 
-“Kami setara dalam hal sihir.”
+r"Kami setara dalam hal sihir."
 
 Ruti bergumam. Pada saat yang sama, sihir mereka berjuang untuk mengalahkan satu sama lain dan menyebar.
 
-Dalam hal ini, saya bertanya-tanya apakah saya harus terkesan dengan Ares yang bisa menggunakan sihir pada level yang sama dengan Pahlawan atau kagum dengan Ruti yang bisa menggunakan sihir yang bisa melawan pengguna mantra terkuat umat manusia meskipun menjadi pelopor.
+Dalam hal ini, aku penasaran apakah aku harus terkesan dengan Ares yang bisa menggunakan sihir pada level yang sama dengan Pahlawan atau kagum dengan Ruti yang bisa menggunakan sihir yang bisa melawan pengguna mantra terkuat umat manusia meskipun.
 
 Para pengguna mantra dunia mungkin akan meratapi Perlindungan Ilahi mereka jika keberadaan seperti Ruti adalah hal yang lumrah di dunia.
