@@ -140,30 +140,30 @@ Meski semuanya berada di dalam Zoltan, komposisi penduduknya sangat bervariasi u
 
 Oleh karena itu, setiap distrik merayakan festival titik balik matahari musim dingin secara berbeda.
 
-Di pusat kota, kios-kios akan berbaris untuk menjual tusuk sate daging, ikan dan kentang goreng, sandwich bacon dan selada, roti penganan gula manis, mainan kayu berukir, dan barang-barang bekas tetapi harganya tidak terlalu murah.
+Di pusat kota, kios-kios akan berbaris untuk menjual sate daging, ikan dan kentang goreng, sandwich bacon dan selada, roti penganan gula manis, mainan kayu berukir, dan barang-barang bekas tetapi harganya tidak terlalu murah.
 
-“Bye, kita akan mencari ibu.”
+“sampai jumpa, kami akan mencari ibu.”
 
 Tanta dan Gonz akan pergi menemui Mido dan Nao.
 
-“Selamat tinggal, Red-oniichan. Hanya untuk hari ini, aku tidak akan menertawakanmu karena menggoda. "
+"Sampai jumpa, Red-oniichan. Hanya untuk hari ini, aku tidak akan menertawakanmu karena ngebucin."
 
-“Sangat kasar, kapan aku main mata.”
+g"Kasar Sekali, sejak kapan aku ngebucin."
 
-"Selalu!"
+"Setiap Hari!"
 
-Tanta dan Gonz tertawa saat mereka berjalan menuju alun-alun di mana suara kecapi bisa terdengar.
+Tanta dan Gonz tertawa dan mereka berjalan menuju alun-alun di mana suara kecapi bisa terdengar.
 
-“Fuu, kalau begitu, haruskah kita mencari sesuatu untuk dimakan?”
+g"Fuu, kalau begitu, haruskah kita mencari sesuatu untuk dimakan?"
 
 "Mm."
 
 Ruti yang sedang berjalan cepat di sebelah kananku meraih tanganku.
 
-"Saya ingin berpegangan tangan juga."
+r"aku ingin berpegangan tangan juga."
 
 Kata Ruti dengan wajah agak merah.
 
-“Ah, tentu. Oke, ayo jalan seperti ini. ”
+g"Ah, tentu. Oke, ayo jalan seperti ini."
 
-Dengan lengan kiri saya melingkari lengan Lit dan tangan kanan saya memegang tangan Ruti, kami berjalan ke festival saat saya menahan rasa malu dari semua tatapan di sekitar kami.
+Dengan lengan kiriku dipegang Lit dan tangan kananku dipegang tangan Ruti, kami berjalan ke festival sambil aku menahan rasa malu dari semua tatapan di sekitar kami.
