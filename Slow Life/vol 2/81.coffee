@@ -152,13 +152,13 @@ Hidup dengan Perlindungan Ilahi dari Pahlawan, sebagian besar emosi Ruti telah d
 
 Secara khusus, dia memiliki kekebalan penuh terhadap 'ketakutan' sejak Perlindungan Ilahi level 1 sehingga Ruti sama sekali tidak tahu seperti apa rasa takut itu.
 
-“Ahhhhhhhhhh !!!!!!!!”
+r"Ahhhhhhhhhh !!!!!!!!"
 
 Itulah jeritan ketakutan pertama yang datang dari Ruti sejak lahir.
 
 Orang yang paling dicintainya meninggal. Dia meninggal di depan matanya. Dia tidak akan pernah bisa melihatnya lagi. Dia tidak akan pernah memanggil namanya lagi. Dia tidak akan pernah bisa menyentuh tubuh hangatnya lagi.
 
-Dan ini terjadi setelah dia berpikir bahwa dia akhirnya bisa menyampaikan perasaannya kepadanya. Meskipun hari-hari yang akan datang seharusnya menjadi kehidupan yang lambat di mana tidak ada yang terjadi dan dia akan dapat menghabiskan waktu bersama kekasihnya.
+Dan ini terjadi setelah dia berpikir bahwa dia akhirnya bisa menyampaikan perasaannya kepadanya. Meskipun hari-hari yang akan datang seharusnya menjadi kehidupan yang santai di mana tidak ada yang terjadi dan dia akan dapat menghabiskan waktu bersama kekasihnya.
 
 Sesuatu di dalam Ruti pecah. Ruti telah kehilangan sesuatu yang mendukungnya untuk terus hidup di neraka yang disebut kehidupan.
 
