@@ -272,4 +272,4 @@ Theodora hanya mengangguk dalam diam setelah dia mendengar kata-kata itu.
 
 Dengan itu, pertempuran di dalam reruntuhan ancient-elef berakhir.
 
-Kami beristirahat sendiri hari ini dan memutuskan untuk kembali ke Zoltan keesokan paginya.
+Kami beristirahat disini hari ini dan memutuskan untuk kembali ke Zoltan keesokan paginya.
