@@ -404,6 +404,8 @@ Aku bahkan tidak bisa membayangkan betapa sakit hatinya Ruti di dalam. Dia telah
 
 Wajah Ruti berubah karena dia menangis keras dengan amarah, kesedihan, penyesalan, lega...... segudang emosi bercampur dalam suaranya saat dia tetap di pelukanku.
 
+----------
+
 Catatan penulis:
 
 Pertarungan di arc Ruti dengan ini selesai.
