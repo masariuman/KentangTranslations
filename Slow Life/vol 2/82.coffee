@@ -344,11 +344,11 @@ Lebih lembut berarti tidak sekokoh baja. Tapi!
 
 Menyesuaikan pukulan Ruti, aku melilitkan jariku, bukan gagangnya tetapi di bawah pelindung pedang berbentuk salib dan menghunus pedangku seolah-olah meraih bilahnya secara langsung.
 
-Gaya Bahamut Knight Order, penghitung lintas penjaga.
+Gaya ksatria order Bahamut, penghitung lintas penjaga.
 
 Itu bukanlah seni bela diri yang berasal dari Perlindungan Ilahi. Itu adalah teknik pedang.
 
-Dengan menarik pedang sambil memegang bilahnya, itu adalah teknik pertahanan yang dimaksudkan untuk menerima pedang lawan menggunakan pelindung pedang dan pegangan yang membentuk salib. Itu adalah teknik yang dimaksudkan untuk senjata seperti pedang panjang Ordo Ksatria Bahamut atau pedang tembaga yang aku pegang sekarang di mana bilah, pelindung, dan gagangnya terbuat dari satu bagian logam.
+Dengan menarik pedang sambil memegang bilahnya, itu adalah teknik pertahanan yang dimaksudkan untuk menerima pedang lawan menggunakan pelindung pedang dan pegangan yang membentuk salib. Itu adalah teknik yang dimaksudkan untuk senjata seperti pedang panjang Ksatria Ordo Bahamut atau pedang tembaga yang aku pegang sekarang di mana bilah, pelindung, dan gagangnya terbuat dari satu bagian logam.
 
 Biasanya aku akan menggunakannya saat memakai sarung tangan tapi dengan pedang tembaga tumpul, itu tidak akan memotong jariku bahkan ketika digenggam dengan tangan kosong.
 
@@ -358,11 +358,11 @@ Itu adalah Avenger yang bahkan bisa mematahkan pedang yang sangat bagus. Tidak m
 
 Namun karena perbedaan kekerasan, pedang tembaga itu tidak patah melainkan sobek seperti mentega dari pelindung hingga bilahnya.
 
-“!!”
+g"!!"
 
-Pada saat itu, saya memberikan kekuatan pada jari yang memegang pedang tembaga dan memutarnya.
+Pada saat itu, aku memberikan kekuatan pada jari yang memegang pedang tembaga dan memutarnya.
 
-Pedang suci diapit oleh pedang tembaga yang robek. Saat aku memutar pedang tembaga, itu secara alami menerapkan gaya rotasi pada pedang suci juga. Pedang suci itu direbut dari tangan Ruti.
+Pedang suci diapit oleh pedang tembaga yang robek. Saat aku memutar pedang tembaga, itu secara alami menerapkan gaya rotasi pada pedang suci juga. Pedang suci itu terlepas dari tangan Ruti.
 
 Dentang terdengar dan pedang suci jatuh ke tanah bersama dengan pedang tembaga.
 
