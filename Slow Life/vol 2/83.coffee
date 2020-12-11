@@ -136,30 +136,30 @@ Godwin menatapku dan berkata sambil tertawa.
 
 ☆☆
 
-"Pagi ini, kami memiliki sup tomat dengan bacon dan kacang putih, pizza yang dibuat dengan sisa tomat dan jus jeruk segar."
+g"Pagi ini, kita memiliki sup tomat dengan bacon dan kacang putih, pizza yang dibuat dengan sisa tomat dan jus jeruk segar."
 
-"" Terima kasih untuk makanannya! ""
+lr"" Terima kasih untuk makanannya! ""
+r""
+Meja sarapan menjadi lebih ramai dari sebelumnya.
 
-Meja sarapan menjadi lebih semarak dari sebelumnya.
-
-“Makanan yang dibuat onii-chan selalu enak.”
+r"Makanan yang dibuat onii-chan selalu enak."
 
 Ruti tersenyum cerah sambil makan.
 
-Ruti menikmati setiap hari seolah-olah semua kebahagiaan yang telah ditekan oleh Divine Protection of the Hero-nya telah dilepaskan.
+Ruti menikmati setiap hari seolah-olah semua kebahagiaan yang telah ditekan oleh perlindungan ilahi pahlawan-nya telah dilepaskan.
 
-“Kamu juga akan bersama Tise hari ini?”
+g"Kamu juga akan bersama Tise hari ini?"
 
-"Ya."
+r"Ya."
 
-Ruti dan Tise membeli sebuah pertanian di Distrik Utara dan sekarang menanam rumput obat di sana.
+Ruti dan Tise membeli sebuah pertanian di Distrik Utara dan sekarang menanam tanaman obat di sana.
 
-Ada permintaan untuk rumput obat tetapi itu untuk berbagai jenis rumput obat dan hasil panen mereka biasanya kecil. Seorang petani biasa tidak akan mencoba menanamnya karena efisiensinya yang buruk tetapi Ruti ingin menerima tantangan dan memelihara rumput obat.
+Ada permintaan untuk tanaman obat tetapi itu untuk berbagai jenis tanaman obat dan hasil panen mereka biasanya kecil. Seorang petani biasa tidak akan mencoba menanamnya karena efisiensinya yang buruk tetapi Ruti ingin menerima tantangan dan memelihara tanaman obat.
 
-“Kami akan segera menabur benih. Kami juga telah menyiapkan kayu gelondongan untuk menumbuhkan jamur. Aku akan melakukan yang terbaik."
+r"Kami akan segera menabur benih. Kami juga telah menyiapkan kayu gelondongan untuk menumbuhkan jamur. Aku akan melakukan yang terbaik."
 
-Saya tidak pernah membayangkan suatu hari akan tiba di mana Ruti akan menunjukkan ekspresi seperti itu kepada saya.
+aku tidak pernah membayangkan suatu hari akan tiba di mana Ruti akan menunjukkan ekspresi seperti itu kepadaku.
 
-Ruti yang selama ini menjalani hidupnya dikendalikan sebagai Pahlawan, akan untuk pertama kalinya menantang sesuatu yang secara pribadi ingin dilakukannya.
+Ruti yang selama ini menjalani hidupnya dikendalikan sebagai Pahlawan, untuk pertama kalinya menantang sesuatu yang secara pribadi ingin dilakukannya.
 
-Sebagai seorang kakak, saya sangat senang dari lubuk hati yang paling dalam dengan perubahan yang saya lihat di Ruti sekarang.
+Sebagai seorang kakak, aku sangat senang dari lubuk hati yang paling dalam dengan perubahan yang aku lihat di Ruti sekarang.
