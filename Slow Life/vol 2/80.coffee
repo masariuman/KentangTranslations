@@ -68,15 +68,15 @@ Seperti yang direncanakan Ares, Ruti bertempur sendiri.
 
 Ruti telah menjauh dari teman-temannya dan berurusan dengan Ares sendirian.
 
-Perasaan permusuhan Ruti yang ditujukan hanya pada dirinya sendiri membuat Ares merasakan teror yang mengguncangnya hingga ke tulang-tulangnya tetapi pada saat yang sama, perasaan gembira yang aneh.
+Perasaan permusuhan Ruti yang ditujukan hanya pada dirinya sendiri membuat Ares merasakan teror yang mengguncangnya hingga ke tulang-tulangnya tetapi pada saat yang sama, perasaan gembira yang aneh muncul.
 
-(Meskipun Ruti tidak berdaya dengan pria Alchemist di sekitarnya, dia bergerak menuju pintu keluar bersama dengan Tise. Melanjutkan untuk bertahan melawan mantraku dalam formasi menyebar ini akan menjadi beban yang terlalu besar bahkan untuk Pahlawan. Dalam hal ini, dia harus memilih untuk melakukan serangan cepat dengan pedangnya. Aku akan bisa menggunakan sihir pada Gideon sebelum dia bisa menghubungiku tapi aku tidak akan bisa melindungi diriku jika melakukannya. Ruti akan bergerak dengan asumsi bahwa aku akan melindungi diri.)
+(Meskipun Ruti tidak peduli dengan pria Alchemist itu, dia bergerak menuju pintu keluar bersama dengan Tise. Melanjutkan untuk bertahan melawan sihirku dalam formasi berpencar ini akan menjadi beban yang terlalu besar bahkan untuk Pahlawan. Dalam hal ini, dia harus memilih untuk melakukan serangan cepat dengan pedangnya. Aku akan bisa menggunakan sihir pada Gideon sebelum dia bisa menyerangku tapi aku tidak akan bisa melindungi diriku jika melakukannya. Ruti akan bergerak dengan asumsi bahwa aku akan melindungi diri.)
 
 Ares menyentuh Sacred Avenger di pinggangnya dengan tangan kanannya.
 
-(Itulah tujuan sejatiku. Menurut Shisandan, selama aku menghunus pedang ini dan menyentuh bagian mana pun dari tubuh Ruti dengannya, Perlindungan Dewa Pahlawan akan diperkuat. Ruti akan dilumpuhkan dalam pertarungan ini begitu dia kembali menjadi Pahlawan. . Karena jika seseorang mempertimbangkan efisiensi, bermitra dengan saya harus menjadi pilihan terbaik. Sebagai Pahlawan, dia tidak boleh memusuhi saya!)
+(Itulah tujuanku. Menurut Shisandan, selama aku menghunus pedang ini dan menyentuh bagian mana pun dari tubuh Ruti dengannya, Perlindungan ilahi Pahlawan akan diperkuat. Ruti akan dilumpuhkan dalam pertarungan ini begitu dia kembali menjadi Pahlawan. . Karena jika seseorang mempertimbangkan efisiensi, bermitra denganku harusnya menjadi pilihan terbaik. Sebagai Pahlawan, dia tidak boleh memusuhiku!)
 
-Yang lainnya adalah ikan-ikan kecil asalkan Ruti tidak bertindak. Ares akan waspada jika itu adalah Danan, Theodora atau Yarandorara tetapi anggota di sini hanya Gideon dan Lit serta Tise yang menjadi pengisi.
+semuanya adalah ikan-ikan kecil selama Ruti tidak bertindak. Ares akan waspada jika itu adalah Danan, Theodora atau Yarandorara tetapi anggota di sini hanya Gideon dan Lit serta Tise yang menjadi pengisi.
 
 Ares yakin akan kemenangannya.
 
