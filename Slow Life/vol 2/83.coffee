@@ -1,146 +1,88 @@
 Bab 83: Akhir pertarungan
 
-Penerjemah: Tseirp
-
-Asisten: Piggy.C
-
- 
-
 Rem lift dijepit ke rel dengan dentang.
 
- 
-
 "Hn, seperti yang diharapkan, ini sudah berakhir."
-
- 
 
 Danan dan Albert keluar dari lift.
 
 Hm, kenapa Albert ada di sana?
 
- 
-
-Theodora!
+"Theodora!"
 
  
 
 Pertanyaanku terjawab ketika warna wajah Albert berubah setelah dia melihat Theodora di lantai dan dia berlari.
 
- 
+"Dia baik-baik saja. Lukanya sangat dalam tapi tidak fatal. "
 
-“Dia baik-baik saja. Lukanya sangat dalam tapi tidak fatal. "
-
-" … Terima kasih Tuhan."
-
- 
+" ... Terima kasih Tuhan."
 
 Tampaknya Albert datang bersama Theodora.
 
-Saya harus meminta mereka menjelaskan kepada saya secara detail apa yang terjadi termasuk insiden dengan Ares ini.
+aku harus meminta mereka menjelaskan kepadaku secara detail apa yang terjadi termasuk insiden dengan Ares ini.
 
 Danan kaget melihat penampilan sang Pahlawan yang menangis.
 
- 
-
-“Danan, kamu menyelamatkan kami sebelumnya. Terima kasih."
+g"Danan, kamu menyelamatkan kami sebelumnya. Terima kasih."
 
 “Kamu tidak perlu berterima kasih padaku, yang lebih penting, maaf aku datang terlambat.”
 
-“Tidak perlu minta maaf, Shisandan dan… Ares sudah mati. Pertarungan selesai. "
+g"Tidak perlu minta maaf, Shisandan dan... Ares sudah mati. Pertarungan selesai. "
 
-"Saya melihat."
+"begitu ya..."
 
- 
+Danan dan aku melihat ke arah Ares yang tidak bergerak tapi kami tidak bisa membuat senyum kemenangan.
 
-Danan dan aku melihat ke arah Ares yang tidak bergerak tapi kami tidak bisa mengungkapkan senyum kemenangan.
-
- 
-
-"Merah! Ruti! Kemari!"
-
- 
+l"red! Ruti! Kemari!"
 
 Saat itu, seruan Lit bergema di aula.
 
- 
-
-“Kekuatanku tidak bisa mencapai luka Tise! Cepat! "
-
- 
+l"Kekuatanku tidak bisa menyembuhkan luka Tise! Cepat!"
 
 Ruti yang menangis di pelukanku kaget dan berlari ke arah Tise bahkan tanpa menyeka air matanya.
 
 Tentu saja, aku dan Danan mengejarnya juga.
 
- 
-
-“Tise…. ! ”
-
- 
+r"Tise…. !"
 
 Ekspresi Tise pucat dan dia kehilangan kesadaran. Pakaiannya yang diwarnai merah darah menyakitkan untuk dilihat.
 
- 
-
 Napas dan denyut nadinya telah berhenti!
-
- 
 
 Air mata mengalir di mata Lit. Dia mengerti bahwa sihirnya tidak bisa menyelamatkannya.
 
- 
-
-"Serahkan padaku."
-
- 
+r"Serahkan padaku."
 
 Ruti memegang tangan kanannya di atas Tise dan berkonsentrasi.
 
-Keterampilan Pahlawan "Healing Hands" bisa 'meregenerasi' seseorang bahkan di ambang kematian. Tidak seperti mantra "Cure" biasa, itu adalah skill abnormal yang setara dengan Covenant Magic tingkat lanjut bahkan pada level 1.
+skill Pahlawan "tangan penyembuh" bisa 'meregenerasi' seseorang bahkan di ambang kematian. Tidak seperti sihir "Cure" biasa, itu adalah skill abnormal yang setara dengan sihir perjanjian tingkat lanjut bahkan pada level 1.
 
 Selain itu, efek dari skill akan meningkat tajam seiring dengan peningkatan level. Meski kondisi Tise tidak bisa diobati dengan Sihir Roh Lit, Ruti seharusnya bisa menyembuhkannya.
 
- 
-
 Namun tangan Ruti tetap terangkat namun tak bisa berbuat apa-apa.
 
- 
+r"Kenapa... aku tidak bisa berinteraksi dengan Perlindungan Ilahiku !!"
 
-“Kenapa… aku tidak bisa berinteraksi dengan Perlindungan Ilahi !!”
+g"Perlindungan Ilahimu? Apakah Perlindungan Ilahimu berhenti berfungsi sementara karena kondisi mengamukmu barusan !?"
 
-“Perlindungan Ilahi Anda? Apakah Perlindungan Ilahi Anda berhenti berfungsi sementara karena kondisi mengamuk Anda barusan !? ”
+aku teringat mendengar dari para wild-elf ketika aku berbicara dengan mereka mengenai obat rahasia bahwa penggunaan obat secara intensif yang mempengaruhi Perlindungan Ilahi akan menyebabkan Perlindungan Ilahi menjadi tidak aktif. Keadaan tidak aktif mungkin berarti bahwa orang tersebut akan kehilangan kekuatan Perlindungan Ilahi mereka untuk sementara.
 
- 
+Itu berbeda dari situasi saat ini tetapi Ruti mungkin telah kehilangan kekuatan 『Pahlawan』 untuk sementara.
 
-Saya teringat mendengar dari para Peri Liar ketika saya berbicara dengan mereka mengenai obat rahasia bahwa penggunaan obat secara intensif yang mempengaruhi Perlindungan Ilahi akan menyebabkan Perlindungan Ilahi menjadi tidak aktif. Keadaan tidak aktif mungkin berarti bahwa orang tersebut akan kehilangan kekuatan Perlindungan Ilahi mereka untuk sementara.
-
-Itu berbeda dari situasi saat ini tetapi Ruti mungkin telah kehilangan kekuatan 『Hero』 untuk sementara.
-
- 
-
-“Kenapa, kenapa… selama ini kamu telah menarikku, menyeretku ke dalam pertarungan yang tidak ingin aku lawan dan kamu bahkan yang menyakiti Tise… jadi kenapa kamu tetap diam ketika aku ingin meminjam kekuatanmu! ! ”
-
- 
+r"Kenapa, kenapa... selama ini kamu telah menarikku, menyeretku ke dalam pertarungan yang tidak ingin aku lakukan dan kamu bahkan yang menyakiti Tise... jadi kenapa kamu tetap diam ketika aku ingin meminjam kekuatanmu! !"
 
 Ruti berteriak. Namun, tidak peduli berapa banyak Ruti meminta kekuatan 『Pahlawan』, tidak peduli bagaimana dia memohon dengan air mata, Perlindungan Ilahi-nya tidak merespon.
 
- 
+g"Ruti..."
 
-“Ruti…“
+Kami tidak berdaya ketika kami menyaksikan kehidupan Tise mengering di depan mata kami.
 
- 
-
-Kami tidak berdaya saat kami menyaksikan kehidupan Tise mengering di depan mata kami.
-
-Ugeuge-san memiringkan kepalanya saat ia menepuk lengan Tise dengan kedua tangannya seolah ingin membangunkannya.
+Ugeuge-san memiringkan kepalanya dan ia menepuk lengan Tise dengan kedua tangannya seolah ingin membangunkannya.
 
 Namun, Tise tidak melihat ke arah Ugeuge-san dengan senyumnya yang biasa.
 
- 
-
 “He-hei, kalian para Pahlawan, kan? Kalian pasti bisa melakukan sesuatu! ”
-
- 
 
 Godwin berteriak ketika dia melihat keadaan kami. Namun, baik Danan maupun saya tidak memiliki kemampuan untuk menyelamatkan Tise.
 
