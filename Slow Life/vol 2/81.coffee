@@ -462,9 +462,9 @@ Pedang itu menembus bahu Ares sampai ke sisinya dan membelah tubuh Ares sepenuhn
 
 Darah mengalir dari mulut Ares.
 
-“Dr-mimpi, mimpiku… dr…”
+“mi-mimpi, mimpiku... mi...”
 
-Ares menggumamkan kata-kata gemericik dari mulutnya yang diwarnai merah dan jantungnya akhirnya berhenti berdetak.
+Ares mengatakan kata-kata dari mulutnya yang diwarnai merah dan jantungnya akhirnya berhenti berdetak.
 
 Akhir hidupnya disaksikan oleh Lit, Tise, Ugeuge-san, Godwin dan saya sendiri.
 
