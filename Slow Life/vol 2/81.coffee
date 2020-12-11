@@ -280,7 +280,7 @@ Yang tersisa hanyalah mendengarkan akhir menyedihkan Gideon yang hancur yang tak
 
 Lift hampir mencapai lantai tingkat yang lebih rendah. Red dan Lit akan mati hanya dalam beberapa detik.
 
-Fuuuuu.
+"Fuuuuu."
 
 Pria besar dengan luka di sekujur tubuhnya memusatkan semua keinginannya ke lengan kirinya yang tersisa.
 
