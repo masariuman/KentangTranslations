@@ -172,7 +172,7 @@ Bahkan dalam kondisi seperti itu, Ruti masih mencegat Shisandan dengan Avenger. 
 
 ... Teriakan Pedang Suci yang sekarat bergema di dalam ruangan.
 
-“Sungguh patut dipuji bahwa kamu bisa menghancurkan Sacred Avenger yang dipegang Ares sambil menggunakan tiruan itu. Anda benar-benar telah melampaui ranah Pahlawan. Tapi Anda harus membayar harga yang setara. "
+"Sungguh patut dipuji bahwa kamu bisa menghancurkan Sacred Avenger yang dipegang Ares sambil menggunakan tiruan itu. kamu benar-benar telah melampaui ranah Pahlawan. Tapi kamu harus membayar harga yang setara."
 
 Sebuah retakan terbentuk di tengah bilah Avenger yang dipegang Ruti.
 
