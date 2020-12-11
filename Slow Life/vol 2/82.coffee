@@ -388,24 +388,24 @@ Dalam hal ini, dia seharusnya tidak memiliki dorongan untuk membantai. Karena Ru
 
 Dengan demikian, dalam proses eliminasi, hanya ada satu sumber dorongan pembantaian yang menguasai Ruti.
 
-“Ada satu Perlindungan Ilahi lainnya yang tersisa. Itu akan menjadi 『Pahlawan』 Perlindungan Ilahi. "
+g"Ada satu Perlindungan Ilahi lainnya yang tersisa. Itu perlindungan ilahi 『Pahlawan."
 
 Dalam perjalanan Ruti untuk mengendalikan hidupnya sendiri, Perlindungan Ilahi menjadi penghalang terakhirnya.
 
 Itu mungkin disebabkan oleh pedang yang dipegang Shisandan. Ia ingin memusnahkan kita semua yang membantunya berhenti menjadi Pahlawan.
 
-Saya mendengar suara tetesan jatuh dengan cepat ke tanah.
+aku mendengar suara tetesan air jatuh dengan cepat ke tanah.
 
-Saya mendekati Ruti. Kemudian, saya merangkul bahunya dan memeluknya.
+aku mendekati Ruti. Kemudian, aku merangkul bahunya dan memeluknya.
 
-“Ku, u, uaaaaaaaa !!”
+r"Ku, u, uaaaaaaaa !!"
 
 Aku bahkan tidak bisa membayangkan betapa sakit hatinya Ruti di dalam. Dia telah memukul Tise, sahabatnya, dan mengayunkan pedangnya dengan maksud untuk membunuhku.
 
-Wajah Ruti berubah saat dia menangis keras dengan amarah, kesedihan, penyesalan, lega… segudang emosi bercampur dalam suaranya saat dia tetap di pelukanku.
+Wajah Ruti berubah karena dia menangis keras dengan amarah, kesedihan, penyesalan, lega...... segudang emosi bercampur dalam suaranya saat dia tetap di pelukanku.
 
 Catatan penulis:
 
-Pertarungan di arc Ruti selesai dengan ini.
+Pertarungan di arc Ruti dengan ini selesai.
 
-Sedikit lagi dan kita akan kembali ke kehidupan yang lambat!
+tinggal Sedikit lagi dan kita akan kembali ke kehidupan yang santai!
