@@ -144,23 +144,19 @@ Theodora, setelah selesai menggunakan sihir perjanjian, menghembuskan napas dala
 
 <gambar> Vol4 10.jpg
 
-Tapi Theodora tidak mengobati luka-lukanya sendiri saat dia menatap Ruti dengan mata bingung.
+Tapi Theodora tidak mengobati luka-lukanya sendiri dan dia menatap Ruti dengan mata bingung.
 
- 
+"aku tidak akan meminta maaf. Bahkan sekarang, aku hanya bisa berpikir untuk melakukan apa yang aku lakukan."
 
-“Saya tidak akan meminta maaf. Bahkan sekarang, saya hanya bisa berpikir untuk melakukan apa yang saya lakukan. "
+r"Mengapa."
 
-"Mengapa."
+"... Apakah kamu akan terus menjadi sebagai Pahlawan setelah kehilangan impuls dari Perlindungan Ilahimu?"
 
-"... Apakah Anda akan terus melayani sebagai Pahlawan setelah kehilangan impuls dari Perlindungan Ilahi Anda?"
+r”......“
 
-”……“
+"aku tidak bermaksud mengkritikmu, bagaimanapun juga itu adalah tindakan yang wajar. Di antara kami, kamu adalah satu-satunya orang yang dipaksa bertempur melawan keinginanmu. Jika kamu ingin menghentikan perjalanan, tidak ada yang bisa mengkritikmu."
 
-“Saya tidak bermaksud mengkritik Anda, bagaimanapun juga itu adalah tindakan yang wajar. Di antara kami, Anda adalah satu-satunya orang yang dipaksa bertempur melawan keinginan Anda. Jika Anda ingin menghentikan perjalanan, tidak ada yang bisa mengkritik Anda. "
-
-"Aku tidak menyangka Theodora akan mengatakan itu."
-
- 
+r"Aku tidak menyangka Theodora akan mengatakan itu."
 
 Theodora melihat ke bawah dengan lemah.
 
@@ -168,115 +164,73 @@ Theodora melihat ke bawah dengan lemah.
 
 “Setelah Gideon pergi, aku memikirkan mengapa kamu tidak mengejar Gideon.”
 
-”……“
+r"......"
 
-“Karena tidak masalah perjalanan Pahlawan? Itu pasti salah. Setelah Gideon pergi, pesta kami menjadi berantakan. Pestanya mungkin akan bubar dalam waktu dekat. Anda seharusnya memahami fakta itu juga, kan? "
+"Karena bukanlah masalah untuk Pahlawan? Itu pasti salah. Setelah Gideon pergi, tim kita menjadi berantakan. timnya mungkin akan bubar dalam waktu dekat. kamu seharusnya memahami fakta itu juga, kan?"
 
-"Iya."
+r"Iya."
 
-“Kalau begitu, kamu seharusnya bisa mengejar Gideon dengan alasan itu menghalangi perjalanan. Tetapi Anda tidak dapat ... Saya memikirkan mengapa untuk jangka waktu tertentu. "
-
- 
+"Kalau begitu, kamu seharusnya bisa mengejar Gideon dengan alasan itu. Tetapi kamu tidak bisa melakukannya ... aku memikirkan selama ini."
 
 Theodora menunjukkan senyum mengejek diri sendiri.
 
- 
+“Alasannya adalah『 Pahlawan 』tidak lagi membutuhkan Ares, Danan, aku, atau bahkan Gideon, tidak seorang pun. Bahkan jika kami mencoba untuk membubarkan tim, 『Pahlawan』 akan terus maju tanpa makanan, tanpa air, tanpa tidur dan tanpa kelelahan. Bahkan membiarkan pilihan kami untuk bergabung denganmu dalam perjalanan hanyalah tindakan kebajikan dari Perlindungan Ilahi『Pahlawan. Benar kan?”
 
-“Alasannya adalah『 Pahlawan 』tidak lagi membutuhkan Ares, Danan, aku, atau bahkan Gideon, tidak seorang pun. Bahkan jika kami mencoba untuk membubarkan party, 『Hero』 akan terus maju tanpa makanan, tanpa air, tanpa tidur dan tanpa kelelahan. Bahkan membiarkan pilihan kami untuk bergabung denganmu dalam perjalanan hanyalah tindakan kebajikan dari 『Hero』 Divine Protection. Benar kan? ”
-
-" … Iya."
-
- 
+r" ... Iya."
 
 Jawab Ruti lirih tapi mengangguk dengan kepala.
 
-Apakah begitu. Saya percaya bahwa saya telah menjadi penghalang ke pesta Pahlawan tetapi ... bagi Ruti, semua anggota sudah menjadi penghalang yang mirip dengannya ...
+begitu ya. aku percaya bahwa aku telah menjadi penghalang untuk tim Pahlawan tetapi ... bagi Ruti, semua anggota sudah menjadi penghalang ...
 
- 
+“Jika kita melanjutkan perjalanan, akan ada saatnya『 Pahlawan 』akan terus maju sendiri tanpa istirahat. Tidak ada yang menginginkan perjalanan seperti itu. Siapapun akan putus asa jika mereka harus terus maju setiap hari tanpa ditemani di padang gurun yang dingin di Benua Hitam. Tapi 『Pahlawan』 tidak merasa takut atau putus asa ... Dirimu yang bodoh akhirnya menyadari betapa kejamnya takdir yang dimiliki 『Pahlawan』.”
 
-“Jika kita melanjutkan perjalanan, akan ada saatnya『 Pahlawan 』akan terus maju sendiri tanpa istirahat. Tidak ada yang menginginkan perjalanan seperti itu. Siapapun akan putus asa jika mereka harus terus maju setiap hari tanpa ditemani di padang gurun yang dingin di Benua Hitam. Tapi 『Hero』 tidak merasa takut atau putus asa ... Dirimu yang bodoh akhirnya menyadari betapa kejamnya takdir yang dimiliki 『Hero』. ”
+r"Lalu mengapa."
 
-"Lalu mengapa."
-
-“Itulah mengapa tepatnya. Anda pasti tidak akan melanjutkan perjalanan Pahlawan. Itu alami. Anda tidak punya alasan untuk melindungi dunia yang memaksa Anda melakukan perjalanan seperti itu. Pemikiran itu wajar… tapi aku masih percaya bahwa 『Pahlawan』 adalah satu-satunya orang yang bisa menyelamatkan dunia. Untuk melindungi dunia bahkan dengan mengorbankan seorang gadis muda, itulah mengapa Demis-sama menciptakan Perlindungan Ilahi dari 『Pahlawan』. Itulah kesimpulan yang saya capai sebagai seorang pendeta. Saya memutuskan bahwa Anda harus hidup sebagai 『Pahlawan』 bahkan dengan biaya membunuh perasaan diri Anda. "
-
- 
+"Itulah mengapa tepatnya. kamu pasti tidak akan melanjutkan perjalanan Pahlawan. Itu pasti. kamu tidak punya alasan untuk melindungi dunia yang memaksamu melakukan perjalanan seperti itu. Pemikiran itu wajar... tapi aku masih percaya bahwa 『Pahlawan』 adalah satu-satunya orang yang bisa menyelamatkan dunia. Untuk melindungi dunia bahkan dengan mengorbankan seorang gadis muda, itulah mengapa Demis-sama menciptakan Perlindungan Ilahi dari 『Pahlawan』. Itulah kesimpulan yang aku capai sebagai seorang pendeta. aku memutuskan bahwa kamu harus hidup sebagai 『Pahlawan』 bahkan dengan biaya membunuh perasaanmu sendiri. "
 
 Bertentangan dengan kata-katanya, ekspresi Theodora dipenuhi dengan rasa sakit. Dia menyakiti dirinya sendiri dengan kata-katanya sendiri.
 
- 
+r"Theodora, meski begitu, aku."
 
-Theodora, meski begitu, aku.
-
-"Aku tersesat. Jadi sekarang baik-baik saja. Saya tidak akan lagi memaksa Anda untuk melakukan apa pun. Saya berharap Anda akan hidup bebas dan bahagia. "
-
- 
+"Aku tersesat. Jadi sekarang baik-baik saja. aku tidak akan lagi memaksamu untuk melakukan apa pun. aku berharap kamu akan hidup bebas dan bahagia."
 
 Kata Theodora sambil menutup matanya.
 
- 
-
-“Jika kamu tidak bisa memaafkanku, kamu bisa menebasku sekarang. Saya telah mempersiapkan diri untuk itu ketika saya membuat pilihan ini. Aku telah mengkhianatimu. Aku mencoba merebut nyawa orang penting bagimu, yang, pada saat yang sama, juga temanku yang berharga. Itu bukanlah sesuatu yang bisa dimaafkan. "
-
- 
+"Jika kamu tidak bisa memaafkanku, kamu bisa menebasku sekarang. aku telah mempersiapkan diri untuk itu ketika aku membuat pilihan ini. Aku telah mengkhianatimu. Aku mencoba merebut nyawa orang penting bagimu, yang, pada saat yang sama, juga temanku yang berharga. Itu bukanlah sesuatu yang bisa dimaafkan."
 
 Tise bergerak sedikit di pelukan Ruti. Itu adalah bukti bahwa dia masih hidup.
 
 Bibir Theodora menunjukkan senyum tipis.
 
- 
-
-"Saya senang bahwa saya menyelamatkan teman Anda pada akhirnya ... Saya selalu menjadi penghalang, tetapi saya harap saya bisa sedikit membantu."
-
- 
+"aku senang bahwa aku menyelamatkan temanmu pada akhirnya ... aku selalu menjadi penghalang, tetapi aku harap aku bisa sedikit membantu."
 
 Ruti tetap diam sepanjang waktu.
 
- 
+“T-tunggu dulu!”
 
-“T-tolong tunggu!”
+Pada saat itu, Albert berbicara.
 
- 
+“I-ini mungkin bukan tempat bagiku untuk berbicara tapi! red dan Lit selamat karena Theodora-san membantu Danan-san! Aku mohon, maafkan Theodora-san! ”
 
-Pada saat itu, Albert memanggil.
-
- 
-
-“I-ini mungkin bukan tempat bagiku untuk berbicara tapi! Merah dan Lit diselamatkan karena Theodora-san membantu Danan-san! Aku mohon, maafkan Theodora-san! ”
-
-“Albert…”
-
- 
+g"Albert..."
 
 Albert yang sombong menundukkan kepalanya demi orang lain. Itu benar-benar pemandangan yang tidak terduga.
 
- 
-
-“Saya selalu ingin menjadi Pahlawan. Pahlawan yang pilihannya akan menentukan nasib dunia. Aku mengagumi kalian semua. Tapi saya tidak akan pernah membayangkan bahwa pilihan yang menentukan nasib dunia akan sekeras ini. "
-
- 
+"aku selalu ingin menjadi Pahlawan. Pahlawan yang pilihannya akan menentukan nasib dunia. Aku mengagumi kalian semua. Tapi aku tidak akan pernah membayangkan bahwa pilihan yang menentukan nasib dunia akan sekeras ini. "
 
 Albert terus berbicara dengan kepala menunduk.
 
- 
+"Theodora sudah lama memikirkan tindakan terbaik yang harus diambil. Dia membantah tindakannya sendiri dengan menyelamatkan Danan-san... tapi dengan yakin aku bisa mengatakan bahwa Theodora-san tidak bertindak demi dirinya sendiri. Dia menderita dan kacau karena memilih antara dunia, keyakinannya, dan persahabatannya. Jika Theodora-san bertindak demi dirinya sendiri, apakah dia akan menyakiti Pahlawan-sama atau Red yang dia hormati !? Tidak ada yang mau memilih pilihan yang begitu sulit !? aku tidak memintamu untuk memaafkannya, tetapi aku harap kamu memahami penderitaan yang harus dia tanggung untuk membuat keputusan itu!"
 
-“Theodora terpecah untuk waktu yang lama memikirkan tindakan terbaik yang harus diambil. Dia membantah tindakannya sendiri dengan menyelamatkan Danan-san… tapi dengan yakin aku bisa mengatakan bahwa Theodora-san tidak bertindak demi dirinya sendiri. Dia menderita dan terpecah karena memilih antara dunia, keyakinannya, dan persahabatannya. Jika Theodora-san bertindak demi dirinya sendiri, apakah dia akan menyakiti Pahlawan-sama atau Red yang dia hormati !? Tidak ada yang mau memilih pilihan yang begitu sulit !? Saya tidak meminta Anda untuk memaafkannya, tetapi saya harap Anda memahami penderitaan yang harus dia tanggung untuk membuat keputusan itu! "
-
- 
-
-Albert dengan putus asa mengimbau Ruti. Itu mungkin kata-kata yang hanya bisa diucapkan Albert, yang ingin menjadi Pahlawan lebih dari siapa pun tetapi bukan Pahlawan.
+Albert dengan putus asa membujuk Ruti. Itu mungkin kata-kata yang hanya bisa diucapkan Albert, yang ingin menjadi Pahlawan lebih dari siapa pun tetapi bukan Pahlawan.
 
 Ruti hanya menatap Albert tanpa mengucapkan sepatah kata pun.
 
 Saat itu, Tise yang berada di pelukan Ruti membuka matanya.
 
- 
+“Ruti-sama... jadi kamu baik-baik saja.”
 
-“Ruti-sama… jadi kamu baik-baik saja.”
-
-“Tise !? Kamu sudah bangun? ”
-
- 
+r"Tise !? Kamu sudah bangun?"
 
 Tise tampaknya tidak kembali ke kondisi biasanya tetapi kulitnya baik-baik saja dan dia mungkin akan bisa bergerak setelah dia beristirahat sebentar.
 
@@ -284,64 +238,38 @@ Melihat Tise membuka matanya, Ugeuge-san dengan senang melompat ke bahu Tise.
 
 Tise tersenyum lebar saat dia melihat Ugeuge-san menari di bahunya.
 
- 
+"Maaf sudah membuatmu khawatir."
 
-Maaf sudah membuatmu khawatir.
-
-"Apa yang salah dengan saya mengkhawatirkan Anda, tolong jangan minta maaf ... Saya senang Anda aman, saya minta maaf karena telah menyakiti Anda."
-
- 
+r"Apa yang salah dengan aku mengkhawatirkanmu, tolong jangan minta maaf ... aku senang kamu selamat, aku minta maaf karena telah menyakitimu."
 
 Ruti memeluk Tise dengan lembut dan senang karena dia baik-baik saja.
 
-Tentu saja, saya juga sangat senang. Lit juga meraih tanganku dan tersenyum.
+Tentu saja, aku juga sangat senang. Lit juga meraih tanganku dan tersenyum.
 
- 
-
-" … Baiklah."
-
- 
+r" ... Baiklah."
 
 Ekspresi Ruti melembut dan dia tersenyum ringan kepada Albert dan Theodora.
 
- 
+r"Tise selamat karena Theodora. Terima kasih. Itulah mengapa aku tidak akan mempermasalahkan semua itu."
 
-“Tise aman karena Theodora. Terima kasih. Itulah mengapa saya baik-baik saja dengan itu juga. "
+Ruti berkata seperti itu sebelum dia melihatku dan Lit.
 
- 
+l"Bagiku, Tise adalah teman yang penting juga. Terima kasih telah menyelamatkannya."
 
-Ruti berkata sebelum dia melihatku dan Lit.
-
- 
-
-“Bagiku, Tise adalah teman yang penting juga. Terima kasih telah membantunya. ”
-
-“Dia juga bagiku. Apalagi Tise terluka karena dia melindungi saya. Saya sangat senang dia baik-baik saja. ”
-
- 
+g"Dia juga penting bagiku. Apalagi Tise terluka karena dia melindungiku. Saakuya sangat senang dia baik-baik saja."
 
 Ruti mengangguk pada kata-kata kami.
 
- 
+r"Tidak ada yang menaruh dendam padamu. Jadi aku juga tidak akan menyakitimu lebih jauh lagi... tapi."
 
-“Tidak ada yang menaruh dendam padamu. Jadi aku juga tidak akan menyakitimu lebih jauh… tapi. ”
+Ruti melihat kebawah dan melanjutkan dengan nada meminta maaf namun dengan kemauan yang tegas.
 
- 
-
-Ruti tertelungkup dan melanjutkan dengan nada meminta maaf namun dengan kemauan yang tegas.
-
- 
-
-“Setidaknya untuk saat ini, saya tidak berniat untuk melanjutkan sebagai『 Pahlawan 』.”
-
- 
+“Setidaknya untuk saat ini, aku tidak berniat untuk lanjut sebagai『 Pahlawan 』.”
 
 Dia dengan jelas menyatakan penolakannya.
 
 Theodora hanya mengangguk dalam diam setelah dia mendengar kata-kata itu.
 
- 
-
-Dengan itu, pertempuran di dalam reruntuhan Peri Kuno hampir berakhir.
+Dengan itu, pertempuran di dalam reruntuhan ancient-elef berakhir.
 
 Kami beristirahat sendiri hari ini dan memutuskan untuk kembali ke Zoltan keesokan paginya.
