@@ -70,27 +70,27 @@ Tapi itu bukan Ares.
 
 Itu adalah orang dengan penampilan Kapten Pengawal Kerajaan Logavia, Gayus, mentor Lit, yang berbicara dengan suara yang sangat dikenal Lit.
 
-“Kamu tidak akan mencemari penampilan ituuu !!!!!”
+l"Kamu tidak akan mencemari penampilan ituuu !!!!!"
 
 Lit menjerit dan menyerang ke depan sambil mengayunkan shotelnya.
 
-"Tunggu! Bukan itu !! ”
+r"Tunggu! Jangan !!"
 
-Ruti memperingatkannya dengan tajam.
+Ruti memperingatkannya.
 
-Tapi saat itu, Lit sudah memotong Shisandan yang berada di dalam lift device.
+Tapi saat itu, Lit sudah memotong Shisandan yang berada di dalam lift.
 
-"!?"
+l"!?"
 
-Shisandan yang mengambil wujud Gayus tidak gemetar sama sekali saat menerima serangan Lit. Lit tidak merasakan umpan balik dari pedangnya seolah-olah telah menembus udara.
+Shisandan yang memakai wujud Gayus tidak gemetar sama sekali saat menerima serangan Lit. Lit tidak merasakan apa-apa dari pedangnya seolah-olah telah menebas udara.
 
-“Itu adalah Umpan Ilusi! Tubuh asli… ”
+r"Itu adalah Umpan Ilusi! Tubuh aslinya..."
 
 Shisandan, dalam keadaan tak terlihat, mengayunkan pedangnya ke punggung Lit.
 
-Namun, Lit dengan cepat berbalik dan menangkis pedang yang seharusnya tidak bisa dia lihat. Lagipula, Lit juga menawarkan kemampuan untuk disebut Pahlawan Lit.
+Namun, Lit dengan cepat berbalik dan menangkis pedang yang seharusnya tidak bisa dia lihat. Lagipula, Lit juga memiliki kemampuan untuk disebut Pahlawan Lit.
 
-Tabrakan antara pedang membuat Shisandan tidak terlihat dan dia terlihat.
+Tabrakan antara pedang membuat Shisandan yang tidak terlihat menjadi dia terlihat.
 
 "Cih."
 
