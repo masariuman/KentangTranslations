@@ -142,6 +142,8 @@ Setelah mengatakan itu, adik perempuanku menunjukkan senyuman yang sangat alami 
 
 <gambar> vol4 12.jpg 16++weosslh.jpg
 
+--------------------
+
 Catatan penulis:
 
 Ini menandai akhir dari Arc Pahlawan Ruti!
