@@ -114,7 +114,7 @@ Setelah pertarungan berakhir, Theodora dan Albert dengan cepat mengucapkan selam
 
 Mereka berdua mungkin bermaksud untuk bergabung dengan garis depan dalam pertempuran melawan pasukan Raja Iblis.
 
-"Pamitan."
+"sampai jumpa."
 
 Theodora hanya mengatakan satu kata perpisahan sebelum dia pergi tanpa melihat ke belakang.
 
@@ -122,15 +122,15 @@ Dia mencoba mengembalikan peralatan yang dia peroleh dari perjalanan ke Ruti tet
 
 Theodora mungkin tidak akan pernah kembali ke Zoltan lagi.
 
-Danan akan berkonsentrasi untuk memulihkan diri di sanatorium Zoltan selama setengah tahun. Danan telah mendorong tubuhnya dengan sangat berlebihan sehingga dia mungkin harus istirahat dengan patuh untuk beberapa waktu.
+Danan berkonsentrasi untuk memulihkan diri di sanatorium Zoltan selama setengah tahun. Danan telah mendorong tubuhnya dengan sangat berlebihan sehingga dia mungkin harus istirahat dengan patuh untuk beberapa waktu.
 
-Godwin diberi kebebasan. Ruti tidak lagi membutuhkan Perlindungan Ilahi dari Iblis. Apalagi di babak pertarungan ini, Godwin memainkan peran krusial dalam kemenangan. Ruti menutup mata atas kejahatan Godwin untuk membalas perbuatannya.
+Godwin diberi kebebasan. Ruti tidak lagi membutuhkan Perlindungan Ilahi dari Iblis. Apalagi di pertarungan ini, Godwin memainkan peran krusial dalam kemenangan. Ruti menutup mata atas kejahatan Godwin untuk membalas perbuatannya.
 
 Itu mungkin pilihan yang tidak mungkin bagi Ruti ketika dia menjadi Pahlawan.
 
 Setelah menerima banyak koin untuk perjalanan itu, Godwin berangkat ke Kerajaan Kepulauan ke selatan di mana pengaruh Gereja Suci tipis.
 
-“Jika itu di Kerajaan Kepulauan, bahkan aku harus bisa mencari nafkah setelah membuat musuh Gereja Suci dengan insiden Perlindungan Ilahi Iblis. Oh ya, mungkin saya akan membuka apotek di sana. "
+"Jika itu di Kerajaan Kepulauan, aku mungkin bisa mencari uang setelah bermusuhan Gereja Suci dengan insiden Perlindungan Ilahi Iblis. Oh ya, mungkin aku akan membuka apotek di sana. "
 
 Godwin menatapku dan berkata sambil tertawa.
 
