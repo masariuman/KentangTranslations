@@ -52,33 +52,33 @@ Lit melepaskan tangannya di pinggangku dan mengikat lengan kanannya dengan lenga
 
 g"Hn... baiklah, ayo pergi!"
 
-Saya sedikit ragu-ragu tetapi saya rasa tidak apa-apa selama perayaan.
+aku sedikit ragu-ragu tetapi aku rasa tidak apa-apa selama perayaan.
 
-Kami berjalan ke pusat kota tempat festival itu berlangsung dengan tangan terjalin.
+Kami berjalan ke pusat kota tempat festival itu berlangsung dengan tangan saling berpegangan.
 
 ☆☆
 
-Jika 『Winter Demon』 tidak diusir, musim dingin tahun ini akan lebih lama dan panen musim semi akan mengalami panen yang buruk. 『Saint』 dan 『Drake Rider』 yang menerima perlindungan ilahi dari Rarael bertugas mengusir iblis musim dingin.
+Jika 『Iblis musim dingin』 tidak diusir, musim dingin tahun ini akan menjadi lebih lama dan panen musim semi akan menjadi panen yang buruk. 『Orang Suci』 dan 『pengendara Drike』 yang menerima perlindungan ilahi dari Rarael bertugas mengusir iblis musim dingin.
 
-Program di mana warga kota atau penduduk desa akan bertindak sebagai 『Drake Rider』 mengendarai pelampung dengan sisik emas meniru Drake Emas dan 『Saint』 memegang simbol Rarael, tombak trisula, untuk mengusir 『Demon Musim Dingin』 mengenakan kepala kambing gunung akan terus berlanjut sepanjang hari.
+Program di mana warga kota atau penduduk desa akan bertindak sebagai 『Pengendara Drake』 mengendarai pelampung dengan sisik emas meniru Drake Emas dan 『Orang Suci』 memegang simbol Rarael, tombak trisula, untuk mengusir 『Iblis Musim Dingin』 mengenakan kepala kambing gunung akan terus berlanjut sepanjang hari.
 
-Pada saat itu, 『Drake Rider』 dan 『Saint』 bertukar dengan penduduk lain tetapi orang yang sama akan terus berperan sebagai 『Winter Demon』. Mengenakan pakaian berat itu, aktor itu akan berjalan sepanjang hari, menari dalam hiruk-pikuk dan berperilaku liar sampai, pada akhirnya, dia akan sangat lelah sehingga dia bahkan tidak bisa berjalan dengan baik.
+Pada saat itu, 『Pengendara Drake』 dan 『Orang Suci』 bertukar dengan penduduk lain tetapi orang yang sama akan terus berperan sebagai 『Iblis Musim DIngin』. Mengenakan pakaian berat itu, aktor itu akan berjalan sepanjang hari, menari dalam hiruk-pikuk dan berperilaku liar sampai, pada akhirnya, dia akan sangat lelah sehingga dia bahkan tidak bisa berjalan dengan baik.
 
-Saat itulah 『Drake Rider』 akan menusukkan pedangnya ke arahnya dan 『Winter Demon』 akan terhuyung-huyung keluar kota dan melarikan diri. Begitulah alur acara utama festival.
+Saat itulah 『Pengendara Drake』 akan menusukkan pedangnya ke arahnya dan 『Iblis Musim Dingin』 akan terhuyung-huyung keluar kota dan melarikan diri. Begitulah alur acara utama festival.
 
-Dengan kata lain, untuk melelahkan 『Winter Demon』, disarankan untuk bernyanyi, menari, dan bermain-main dengan sekuat tenaga selama festival titik balik matahari musim dingin.
+Dengan kata lain, untuk melelahkan 『Iblis Musim Dingin』, disarankan untuk bernyanyi, menari, dan bermain-main dengan sekuat tenaga selama festival titik balik matahari musim dingin.
 
-“Hei Red! Apakah kamu menikmati dirimu sendiri! ”
+“Hei Red! Apakah kamu menikmatinya sendiri! ”
 
-Half-Elf Gonz, yang nampaknya sudah mabuk dengan wajah merah, memanggilku. Di sampingnya, Tanta tengah menikmati roti gula berukuran besar dengan ekspresi berkilauan.
+Half-Elf Gonz, yang nampaknya sudah mabuk dengan wajah red, memanggilku. Di sampingnya, Tanta tengah menikmati roti gula berukuran besar dengan ekspresi berkilauan.
 
-“Hei Gonz. Kamu sedang dalam mood yang baik. ”
+g"Hei Gonz. Kamu sedang dalam mood yang baik."
 
-“Itu wajar. Hari ini adalah festival. Aku juga sedang libur kerja. Dan saya akan mengalami mabuk besok jadi ini akan menjadi hari istirahat juga! "
+"Itu wajar. Hari ini adalah festival. Aku juga sedang libur kerja. Dan aku akan mabuk sampai besok jadi ini akan menjadi hari istirahat juga! "
 
-“Kamu berencana untuk istirahat besok juga?”
+g"Kamu berencana untuk istirahat besok juga?"
 
-“Tidak seperti mungkin bekerja dalam cuaca dingin seperti itu.”
+“Tidak mungkin bekerja dalam cuaca dingin seperti ini.”
 
 Half-Elf dikatakan orang yang rajin, tetapi hal itu sepertinya tidak berlaku untuk Half-Elf di Zoltan.
 
