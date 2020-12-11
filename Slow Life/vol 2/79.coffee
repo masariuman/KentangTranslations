@@ -162,6 +162,6 @@ r"Kami setara dalam hal sihir."
 
 Ruti bergumam. Pada saat yang sama, sihir mereka berjuang untuk mengalahkan satu sama lain dan menyebar.
 
-Dalam hal ini, aku penasaran apakah aku harus terkesan dengan Ares yang bisa menggunakan sihir pada level yang sama dengan Pahlawan atau kagum dengan Ruti yang bisa menggunakan sihir yang bisa melawan pengguna mantra terkuat umat manusia meskipun.
+Dalam hal ini, aku penasaran apakah aku harus terkesan dengan Ares yang bisa menggunakan sihir pada level yang sama dengan Pahlawan atau kagum dengan Ruti yang bisa menggunakan sihir yang bisa melawan pengguna sihir terkuat umat manusia meskipun.
 
-Para pengguna mantra dunia mungkin akan meratapi Perlindungan Ilahi mereka jika keberadaan seperti Ruti adalah hal yang lumrah di dunia.
+Para pengguna sihir dunia mungkin akan meratapi Perlindungan Ilahi mereka jika keberadaan seperti Ruti adalah hal yang lumrah di dunia.
