@@ -76,7 +76,7 @@ Ares menyentuh Sacred Avenger di pinggangnya dengan tangan kanannya.
 
 (Itulah tujuanku. Menurut Shisandan, selama aku menghunus pedang ini dan menyentuh bagian mana pun dari tubuh Ruti dengannya, Perlindungan ilahi Pahlawan akan diperkuat. Ruti akan dilumpuhkan dalam pertarungan ini begitu dia kembali menjadi Pahlawan. . Karena jika seseorang mempertimbangkan efisiensi, bermitra denganku harusnya menjadi pilihan terbaik. Sebagai Pahlawan, dia tidak boleh memusuhiku!)
 
-semuanya adalah ikan-ikan kecil selama Ruti tidak bertindak. Ares akan waspada jika itu adalah Danan, Theodora atau Yarandorara tetapi anggota di sini hanya Gideon dan Lit serta Tise yang menjadi pengisi.
+semuanya adalah ikan-ikan kecil selama Ruti tidak bertindak. Ares akan waspada jika itu adalah Danan, Theodora atau Yarandorara tetapi di sini hanya Gideon dan Lit serta Tise saja.
 
 Ares yakin akan kemenangannya.
 
