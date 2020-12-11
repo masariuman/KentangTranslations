@@ -96,27 +96,29 @@ Meski aku tengah bertarung dengan Shisandan, aku tetap mengkhawatirkan Ruti.
 
 Saat itu, Ruti berurusan dengan Ares sendiri.
 
-Mengingat keadaan normal, Ares seharusnya tidak memiliki peluang untuk menang. Tapi Ares harus menyadari fakta itu.
+dalam keadaan normal, Ares seharusnya tidak memiliki peluang untuk menang. Tapi Ares pasti menyadari fakta itu.
 
 Namun, mengingat bagaimana dia tidak melarikan diri menuju Shisandan atau menuju Spirit Drake dalam situasi itu, dia mungkin punya semacam rencana.
 
-“Shisandan, pedang apa yang kamu dan Ares miliki di pinggangku?”
+g"Shisandan, pedang apa yang kamu dan Ares miliki di pinggang?"
 
 "Ho, seperti yang diharapkan dari Gideon, jadi kamu menyadarinya."
 
 Kata Shisandan dengan kagum.
 
-Kamu akan segera tahu.
+"Kamu akan segera tahu."
 
-Seringai lebar muncul di wajah Shisandan.
+senyuman licik lebar muncul di wajah Shisandan.
 
-Detik berikutnya, Shisandan dan aku, dan kemungkinan besar setiap anggota yang hadir di sana merasakan ketakutan akan kematian.
+Detik berikutnya, Shisandan dan aku, dan kemungkinan besar setiap anggota yang ada di sini merasakan ketakutan akan kematian.
 
-Untuk sesaat, kami tanpa sadar melupakan pertarungan kami dan melihat ke belakang untuk melihat Ruti berdiri di tengah ruangan.
+Untuk sesaat, kami tanpa melupakan pertarungan kami dan melihat ke belakang untuk melihat Ruti berdiri di tengah ruangan.
 
-"Seni Bela Diri: Angin Puyuh Hebat"
+r"Seni Bela Diri: Angin Puyuh Hebat"
 
-Ruti menggunakan kekuatan herculean yang diberikan oleh Divine Protection-nya dan dengan kuat dan cepat mengayunkan pedangnya seolah menggambar lingkaran.
+Ruti menggunakan kekuatan herculean yang diberikan oleh perlindungan ilahinya dan dengan kuat dan cepat mengayunkan pedangnya seolah menggambar lingkaran.
+
+<gambar> vol4 2.jpg
 
 Gelombang kejut berdenyut di udara. Meninggalkan bekas luka yang dalam di dinding reruntuhan yang kokoh.
 
