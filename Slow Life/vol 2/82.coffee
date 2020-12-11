@@ -62,9 +62,9 @@ Danan bergumam pelan setelah melihat ekspresi Albert.
 
 Suara logam terdengar.
 
-Ruti yang mengenakan baju besi menghantam lantai tanpa mengurangi kejatuhannya.
+Ruti yang mengenakan baju besi menghantam lantai tanpa mengurangi tingkat kejatuhannya.
 
-”……”
+r”......”
 
 Berbeda dengan Ruti yang menatap linglung ke lubang di langit-langit, Shisandan dengan gesit mendarat di tanah.
 
@@ -72,21 +72,21 @@ Dua sosok yang kontras. Shisandan menyiapkan empat Sacred Avengers miliknya.
 
 “Sekarang, bagaimana perasaanmu, O Hero.”
 
-"Mengapa? Aku hanya ingin hidup damai dengan Onii-chan. ”
+r"Mengapa? Aku hanya ingin hidup damai dengan Onii-chan."
 
-“Hmph, jadi kamu masih mempertahankan ego kamu ya?”
+“Hmph, jadi kamu masih mempertahankan egomu ya?”
 
 Ruti tidak melihat ke arah Shisandan.
 
 Jika dia seorang Pahlawan, dia akan menghadapi Shisandan yang merupakan Iblis Asura.
 
-“Pahlawan Ruti, bagaimanapun juga kamu adalah entitas yang berbahaya. Atas nama Asura, aku akan menghancurkanmu di sini. ”
+“Pahlawan Ruti, bagaimanapun juga kamu adalah entitas yang berbahaya. Atas nama Asura, aku akan menghancurkanmu di sini.”
 
 Shisandan memfokuskan kekuatannya ke lengan yang memegang pedang.
 
-Kecemerlangan The Sacred Avengers semakin meningkat dan kekuatan yang sangat besar mengalir ke Shisandan.
+kilauan Sacred Avengers semakin meningkat dan kekuatan yang sangat besar mengalir ke Shisandan.
 
-"Kamu kuat. Tapi Pembalas Suci adalah pedang suci yang dibuat untuk menghancurkan keberadaan sepertimu. Dan jika Asura menahan mereka, tidak ada alasan mengapa kamu tidak bisa dibunuh! ”
+"Kamu kuat. Tapi sacred avenger adalah pedang suci yang dibuat untuk menghancurkan keberadaan sepertimu. Dan jika Asura memakainya, tidak ada alasan mengapa kamu tidak bisa dibunuh!"
 
 Lawannya adalah seorang gadis muda yang kehilangan senjatanya. Namun demikian, tidak ada kepuasan dalam ekspresi Shisandan.
 
@@ -96,17 +96,17 @@ Keempat pedang suci itu menyerang Ruti tapi Ruti perlahan berdiri dan menggunaka
 
 “Ooooo !!!!”
 
-Shisandan meraung. The Sacred Avengers bersinar lebih terang dan pedangnya akhirnya mengenai lengan kiri Ruti.
+Shisandan meraung. Sacred Avenger bersinar lebih terang dan pedangnya akhirnya mengenai lengan kiri Ruti.
 
 Ruti terluka dan dia terhuyung ke belakang.
 
-"... Apakah seburuk itu bagiku untuk menjalani kehidupan biasa?"
+r"... Apakah seburuk itu bagiku untuk menjalani kehidupan biasa?"
 
-“Itu ironis. Perlindungan Ilahi dimaksudkan untuk mencegah situasi seperti ini, tetapi sebaliknya, Anda menciptakan jiwa mental untuk menahan dorongan dari Perlindungan Ilahi Anda. Benar, Anda tidak punya pilihan selain hidup sebagai Pahlawan. Dunia menginginkan itu. "
+"Itu ironis. Perlindungan Ilahi dimaksudkan untuk mencegah situasi seperti ini, tetapi sebaliknya, kamu menciptakan jiwa mental untuk menahan dorongan dari Perlindungan Ilahimu. Benar, kamu tidak punya pilihan selain hidup sebagai Pahlawan. Dunia menginginkan itu."
 
-"Dunia?"
+r"Dunia?"
 
-“Namun demikian, kami Asura juga memiliki tanggung jawab atas keadaanmu. Jangan berpikir terlalu buruk tentang kami. Tapi jika kita menghancurkan Demon Lord of Fury dan mencegah aksesinya menjadi Kaisar Iblis yang Berkuasa, Dewa dan orang-orang mungkin akan membiarkan Pahlawan menjalani kehidupan yang damai. "
+"Namun demikian, kami Asura juga memiliki tanggung jawab atas keadaanmu. Jangan berpikir terlalu buruk tentang kami. Tapi jika kami menghancurkan Demon Lord of Fury dan mencegah aksesinya menjadi Kaisar Iblis yang Berkuasa, Dewa dan orang-orang mungkin akan membiarkan Pahlawan menjalani kehidupan yang damai. "
 
 Ruti tidak begitu mengerti apa yang dibicarakan Shisandan.
 
@@ -114,25 +114,25 @@ Ada suara logam kering.
 
 Itu adalah suara Ruti yang sedang membuang pedangnya yang patah.
 
-“Saya tidak pernah sekalipun mengatakan bahwa saya ingin menjadi Pahlawan. Saya tidak ingin kekuatan seperti itu. "
+r"aku tidak pernah sekalipun mengatakan bahwa aku ingin menjadi Pahlawan. aku tidak ingin kekuatan seperti itu."
 
 "Hentikan, angkat pedangmu."
 
-Udara di sekitar Ruti yang tangan kirinya terkulai lemas di sisi tubuhnya bergetar seolah ketakutan.
+suasana di sekitar Ruti yang tangan kirinya terkulai lemas di sisi tubuhnya bergetar seolah ketakutan.
 
 Shisandan melemparkan salah satu pedangnya ke depan Ruti.
 
-“Angkat. Pahlawan Ruti. "
+"Ambillah. Pahlawan Ruti. "
 
 Tapi Ruti tidak mengarahkan pandangannya pada pedang, Sacred Avenger yang harus dimiliki Pahlawan.
 
-“Emosi ini membara di dadaku. Berkat kata-katamu, akhirnya aku ingat. Amarah… inilah amarah. ”
+r"Emosi ini membara di dadaku. Berkat kata-katamu, akhirnya aku ingat. Amarah... inilah amarah."
 
-Shisandan memutuskan sendiri. Dia mengangkat ketiga pedang sucinya dan menyerang Ruti. Dia berencana untuk memotong kepalanya begitu dia memasuki jangkauannya.
+Shisandan memutuskannya sendiri. Dia mengangkat ketiga pedang sucinya dan menyerang Ruti. Dia berencana untuk memotong kepalanya begitu dia memasuki jangkauannya.
 
 (Kekuatan ini, meskipun 'Perlindungan Ilahi Iblis' bertindak sebagai pemicunya, kekuatannya telah berkembang sejauh ini dan begitu jelas. Sebagai Asura, sebagai tanggung jawab seseorang yang memegang pedang ini, aku harus menebasnya di sini.)
 
-Ruti telah merancang ilmu pedang, mengambil ilmu pedang dari Ordo Ksatria Bahamut yang dia pelajari dari Red sebagai fondasinya, yang bisa disebut ilmu pedang gaya Pahlawan.
+Ruti telah belajar ilmu pedang, mengambil ilmu pedang dari Ksatria ordo Bahamut yang dia pelajari dari Red sebagai fondasinya, yang bisa disebut ilmu pedang gaya Pahlawan.
 
 Namun, pada saat itu, Ruti telah benar-benar melupakan semua dasar seni bela dirinya. Dia hanya ingin menyalurkan emosi kekerasan yang berputar-putar di dalam hatinya.
 
@@ -140,11 +140,11 @@ Ruti perlahan menarik kembali tangan kanannya.
 
 Tanpa pikiran apa pun di benaknya. Hanya,
 
-“Hidupku, dan Onii-chan, kehidupan biasa, kembalikan.”
+e"Hidupku, dan Onii-chan, kehidupan biasa, kembalikan."
 
 Dia mengungkapkan esensi sejati di balik amarahnya.
 
-Setelah menyadarinya, satu-satunya hal yang harus dilakukan adalah meledak.
+Setelah menyadarinya, satu-satunya yang tersisa adalah ledakan amarahnya.
 
 Sosok Ruti menghilang dari pandangan Shisandan.
 
@@ -152,9 +152,9 @@ Sosok Ruti menghilang dari pandangan Shisandan.
 
 Shisandan segera mengambil posisi bertahan.
 
-(Tapi tidak peduli seberapa cepat dia, dia hanya memiliki tinjunya yang telanjang. Aku akan menerima serangannya dengan pedangku dan menyerang balik. Maka itu akan menjadi kemenanganku!)
+(Tapi tidak peduli seberapa cepat dia, dia hanya memiliki tinjunya. Aku akan menerima serangannya dengan pedangku dan menyerang balik. Maka itu akan menjadi kemenanganku!)
 
-Shisandan menyilangkan pedangnya dan memegang posisi bertahan di depan Ruti yang langsung menyerangnya.
+Shisandan menyilangkan pedangnya dan membuat posisi bertahan di depan Ruti yang langsung menyerangnya.
 
 “Kuaaaaaaaaaaaaaaaaaaa !!!!!!!!!!!!!!!!!!!!!”
 
