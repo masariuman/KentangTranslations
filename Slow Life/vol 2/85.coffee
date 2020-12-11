@@ -1,7 +1,5 @@
 Bab 85: Pahlawan
 
-Penerjemah: Tseirp
-
 "Yo, red!"
 
 Gonz memasuki toko.
