@@ -274,7 +274,7 @@ Kemudian, dia menginjak Ugeuge-san di lantai, yang mengangkat kedua lengannya, t
 
 Tidak ada lagi orang yang bisa menentangnya.
 
-Yang tersisa hanyalah mendengarkan akhir menyedihkan Gideon saat dia hancur tak bisa dikenali di bawah dinding baja. Suara yang sama dengan arakhnida menyedihkan yang dia hancurkan sekarang.
+Yang tersisa hanyalah mendengarkan akhir menyedihkan Gideon yang hancur yang tak bisa dikenali di bawah dinding baja. Suara yang sama dari arakhnida menyedihkan yang dia hancurkan sekarang.
 
 ☆☆
 
