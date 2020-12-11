@@ -466,16 +466,18 @@ Darah mengalir dari mulut Ares.
 
 Ares mengatakan kata-kata dari mulutnya yang diwarnai merah dan jantungnya akhirnya berhenti berdetak.
 
-Akhir hidupnya disaksikan oleh Lit, Tise, Ugeuge-san, Godwin dan saya sendiri.
+Akhir hidupnya disaksikan oleh Lit, Tise, Ugeuge-san, Godwin dan aku sendiri.
 
 Pada akhirnya, dia mengeluarkan darah dan Sage Ares tidak pernah bergerak lagi.
 
 Sage Ares sudah mati.
 
+------------
+
 Catatan penulis:
 
-Sage Ares yang memulai cerita ini dengan membuang Red di episode satu sekarang akan berangkat dari cerita ini.
+Sage Ares yang memulai cerita ini dengan membuang Red di chapter satu sekarang akan hilang dari cerita ini.
 
-Bagi Red yang menjalani kehidupan yang lambat, Ares adalah masa lalu yang harus dia lawan dengan serius sekali lagi.
+Bagi Red yang menjalani kehidupan yang santai, Ares adalah masa lalu yang harus dia lawan dengan serius sekali lagi.
 
-Dia adalah penjahat yang tidak menyadari fakta bahwa dia salah dan bahwa dia adalah penjahat sampai akhir, tetapi dengan ini, dia mungkin tidak perlu terpaku untuk menjadi 『Sage 』yang harus menggunakan kekuatannya. untuk memberi orang kehidupan di mana mereka dapat sepenuhnya memanfaatkan Perlindungan Ilahi mereka.
+Dia adalah penjahat yang tidak menyadari fakta bahwa dia salah dan bahwa dia adalah penjahat sampai akhir, tetapi dengan ini, dia mungkin tidak perlu terpaku untuk menjadi 『Sage 』yang harus menggunakan kekuatannya untuk memberi orang kehidupan di mana mereka dapat sepenuhnya memanfaatkan Perlindungan Ilahi mereka.
