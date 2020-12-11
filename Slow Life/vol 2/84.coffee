@@ -54,27 +54,27 @@ Tapi Ares yang terbaring di peti mati tidak memiliki suara mengeluh dan hanya be
 
 Menurut ajaran Gereja Suci, kejahatan yang dilakukan dalam hidup dicatat dalam 『Perlindungan Ilahi』 mereka. Ketika 『Perlindungan Ilahi』 dikembalikan ke Dewa Demis, kejahatan tersebut akan dihapus dari orang tersebut dan di kehidupan berikutnya, mereka terlahir kembali sebagai jiwa yang tidak bersalah setelah menerima 『Perlindungan Ilahi』 baru.
 
-Tetapi bagi mereka yang tidak mengikuti ajaran Dewa Demis ', dengan kata lain doktrin Gereja Suci, 『Perlindungan Ilahi』 tidak diambil kembali oleh Dewa Demis, jiwa yang dibebani dengan dosa tampaknya akan menderita keabadian sebagai budak 'Demon Overlords' di tujuh lapisan neraka yang disebut Tujuh Neraka.
+Tetapi bagi mereka yang tidak mengikuti ajaran Dewa Demis, dengan kata lain doktrin Gereja Suci, 『Perlindungan Ilahi』 tidak diambil kembali oleh Dewa Demis, jiwa yang dibebani dengan dosa tampaknya akan menderita selamanya sebagai budak 'raja iblis' di tujuh lapisan neraka yang disebut Tujuh Neraka.
 
 Pendeta itu membunyikan bel yang ada di tangannya.
 
 “Sekarang, Red-san.”
 
-"Iya."
+g"Iya."
 
-Saya mengikuti tradisi dan meletakkan sepotong kayu bakar di dalam peti mati Ares. Begitu pula Ruti, Tise dan Danan masing-masing menempatkan sebatang kayu bakar.
+aku mengikuti tradisi dan meletakkan sepotong kayu bakar di dalam peti mati Ares. Begitu pula Ruti, Tise dan Danan masing-masing menempatkan sebatang kayu bakar.
 
-Imam itu berdoa untuk terakhir kalinya. Untuk mengungkapkan kepada Dewa Demis betapa setia Ares padanya.
+pendeta itu berdoa untuk terakhir kalinya. Untuk mengungkapkan kepada Dewa Demis betapa setia Ares padanya.
 
-“Prosesi pemakaman berakhir tanpa ada masalah. Seperti yang kalian semua tahu, kremasi akan dilakukan pada hari ke-7 setelah kematian sehingga kalian dapat kembali untuk bertemu dengan almarhum pada hari itu jika kalian ingin bertemu dengannya lagi. "
+"Prosesi pemakaman berakhir tanpa ada masalah. Seperti yang kalian semua tahu, kremasi akan dilakukan pada hari ke-7 setelah kematian sehingga kalian dapat kembali untuk bertemu dengan almarhum pada hari itu jika kalian ingin bertemu dengannya lagi."
 
-" … Tidak apa-apa."
+g" ... tidak. Tidak apa-apa."
 
-Saya ragu-ragu sedikit tetapi saya menolak.
+aku ragu sedikit tetapi aku menolaknya.
 
-Ares akhirnya dibebaskan dari pertempurannya sebagai 『Sage』. Saya berharap dia akan beristirahat dengan tenang.
+Ares akhirnya dibebaskan dari pertempurannya sebagai 『Sage』. aku berharap dia akan beristirahat dengan tenang.
 
-“Dimengerti.”
+“aku mengerti.”
 
 Pendeta itu tersenyum tipis dan membunyikan bel sekali lagi. Dengan demikian, pemakaman 『Sage』 Ares berakhir dengan tenang.
 
