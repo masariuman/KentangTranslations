@@ -2,19 +2,19 @@ Bab 85: Pahlawan
 
 Penerjemah: Tseirp
 
-"Yo, Merah!"
+"Yo, red!"
 
 Gonz memasuki toko.
 
 "Tanta kena flu."
 
-"Obat flu kalau begitu. Beri aku waktu. "
+g"Obat flu ya... tunggu sebentar. "
 
-Saya mengambil uang seminggu dari rak dan membungkusnya dengan tas.
+aku mengambil obat dari rak dan membungkusnya dengan plastik.
 
 “Apakah masalah dengan adik perempuanmu berjalan lancar?”
 
-“Ya, sekarang tidak apa-apa.”
+g"Ya, sekarang tidak apa-apa."
 
 Gonz menunjukkan senyum lega setelah aku mengatakan itu dan memberikan paket itu padanya.
 
