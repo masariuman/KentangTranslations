@@ -382,9 +382,9 @@ Aku bergumam pada diriku sendiri.
 
 Dorongan pembantaian dari Perlindungan Ilahi Iblis berasal dari Perlindungan Ilahi dari masing-masing iblis.
 
-Sedangkan untuk Perlindungan Ilahi Ruti Iblis, tidak ada Perlindungan Ilahi dari iblis manapun. Perlindungan Ilahi bawaan ada di dalam Ruti sejak lahir.
+Sedangkan untuk Perlindungan Ilahi Iblis ruti, tidak ada Perlindungan Ilahi dari iblis manapun. ruti hanya memiliki Perlindungan Ilahi bawaan yang ada di dalam Ruti sejak lahir.
 
-Dalam hal ini, dia seharusnya tidak memiliki dorongan untuk membantai. Karena Ruti tidak akan pernah mau membunuh orang lain. Saya bisa menjamin itu sebagai saudara laki-laki Ruti.
+Dalam hal ini, dia seharusnya tidak memiliki dorongan untuk membantai. Karena Ruti tidak akan pernah mau membunuh orang lain. aku bisa menjamin itu sebagai saudara laki-laki Ruti.
 
 Dengan demikian, dalam proses eliminasi, hanya ada satu sumber dorongan pembantaian yang menguasai Ruti.
 
