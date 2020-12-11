@@ -42,7 +42,7 @@ Ruti, Tise, Danan dan aku tiba di gereja di Distrik Pusat Zoltan.
 
 pendeta kemudian menyemprotkan parfum ke wajah Ares yang terbaring di peti mati. Aroma parfum mawar salju yang universal ke Benua Avalon menyebar tipis di udara.
 
-Ini memiliki bau yang menyenangkan tetapi karena digunakan untuk pemakaman, parfum mawar salju selalu membawa citra lewat. Karena gereja menggunakannya setiap hari, semua gereja memiliki hamparan bunga mawar salju sendiri yang mungkin juga menjadi salah satu faktor yang memperkuat citra yang mengikuti aroma bunga itu.
+Ini memiliki bau yang menyenangkan tetapi karena digunakan untuk pemakaman, parfum mawar salju selalu membawa citra kematian. Karena gereja menggunakannya setiap hari, semua gereja memiliki hamparan bunga mawar salju sendiri yang mungkin juga menjadi salah satu faktor yang memperkuat citra yang mengikuti aroma bunga itu.
 
 Berbicara tentang mawar salju, para penyair Benua Avalon akan, tanpa gagal, membuat setidaknya satu puisi di atas mawar salju dalam hidup mereka. Saya tidak memiliki bakat dalam membaca puisi tetapi saya masih merasakan sesuatu yang tertinggal di pikiran saya.
 
