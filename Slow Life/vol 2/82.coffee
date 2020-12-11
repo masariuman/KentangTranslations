@@ -368,15 +368,15 @@ Dentang terdengar dan pedang suci jatuh ke tanah bersama dengan pedang tembaga.
 
 Itu mirip dengan teknik melucuti senjata dengan membiarkan lawanmu menancapkan pedang mereka ke perisai kayumu tapi itu pertama kalinya aku melakukannya dengan pedang.
 
-Saya senang itu berjalan sesuai rencana!
+aku senang itu berjalan sesuai rencana!
 
-Namun demikian, saya juga kehilangan senjataku. Sedangkan Ruti memiliki sihirnya dan ada perbedaan dalam kemampuan bahkan dalam hal pertarungan dengan tangan kosong jadi saya tidak memiliki peluang untuk menang.
+Namun demikian, aku juga kehilangan senjataku. Sedangkan Ruti memiliki sihirnya dan ada perbedaan dalam kemampuan bahkan dalam hal pertarungan dengan tangan kosong jadi aku tidak memiliki peluang untuk menang.
 
-”………. ”
+r"......."
 
-Ruti berhenti bergerak. Tidak ada tanda-tanda dia mengirimkan pukulan mematikan ke arahku.
+Ruti berhenti bergerak. Tidak ada tanda-tanda dia akan melakukan pukulan mematikan ke arahku.
 
-"Aku senang aku bertanya kepada Godwin tentang pendapatnya sebagai Alchemist tentang Perlindungan Ilahi Iblis sebelumnya."
+g"Aku senang aku bertanya kepada Godwin tentang pendapatnya sebagai Alchemist tentang Perlindungan Ilahi Iblis sebelumnya."
 
 Aku bergumam pada diriku sendiri.
 
