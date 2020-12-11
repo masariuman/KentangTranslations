@@ -190,29 +190,29 @@ Tawa bergema di ruangan yang sebelumnya sunyi.
 
 Ares tertawa gila.
 
-"Saya telah menang! Dengan ini, saya dapat kembali melanjutkan perjalanan saya dengan Ruti! Lihat, saya lebih baik dari Gideon! Ini buktinya! Dia sudah mati saat aku masih hidup! Pemenang dan pecundang! Sage dan idiot! Ahahahahaha !!!!!! ”
+"aku telah menang! Dengan ini, aku dapat kembali melanjutkan perjalananku dengan Ruti! Lihat, aku lebih baik dari Gideon! Ini buktinya! Dia sudah mati saat aku masih hidup! Pemenang dan pecundang! Sage dan idiot! Ahahahahaha !!!!!!"
 
-Ares tertawa saat dia membentuk segel dengan tangan kanannya.
+Ares tertawa dan dia membentuk segel dengan tangan kanannya.
 
 "Pemotong Tornado!"
 
-Tornado terbentuk dengan bilah angin yang tak terhitung jumlahnya tersembunyi di dalamnya.
+Tornado terbentuk dengan bilah angin yang tak terhitung jumlahnya.
 
 Tornado itu menangkis pisau yang dilempar Tise sekali lagi dan langsung menyerang Tise.
 
 “Kyaaaaaa !!!!!”
 
-Seluruh tubuhnya tercabik-cabik dan Tise jatuh ke lautan darahnya sendiri.
+Seluruh tubuhnya tercabik-cabik dan Tise jatuh dan menumpahkan banyak darah.
 
-“Seorang Assassin rendahan sepertimu benar-benar mengarahkan pedangnya padaku, klienmu?”
+“Seorang pembunuh bayaran rendahan sepertimu benar-benar mengarahkan pedangnya padaku, klienmu?”
 
 "... Mengapa?"
 
 "Hah?"
 
-“Ares-sama menyukai Ruti-sama kan? Bagaimana Anda bisa melakukan hal seperti ini? ”
+“Ares-sama menyukai Ruti-sama kan? Bagaimana kamu bisa melakukan hal seperti ini? ”
 
-“Aku tidak mengerti kamu. Ruti adalah Pahlawan kan? "
+"Aku tidak mengerti maksudmu kamu. Ruti adalah Pahlawan kan? "
 
 Karena dia adalah Pahlawan, segala jenis pengorbanan diperbolehkan untuk menjadi Pahlawan. Ares mengaku itulah yang terbaik untuk kebahagiaan Ruti.
 
