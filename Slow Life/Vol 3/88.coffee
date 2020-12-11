@@ -4,51 +4,53 @@ Pada hari itu, langit musim dingin yang cerah tampak biru sejauh mata memandang.
 
 Hari ini adalah festival titik balik matahari musim dingin di Benua Avalon.
 
-Festival titik balik matahari musim dingin terjadi selama bulan ke-12 saat siang hari paling singkat dan merupakan festival untuk merayakan datangnya musim semi. Pada hari ini, orang-orang akan mengusir 『setan musim dingin』 yang baru lahir dan mempersembahkan babi, roti, dan anggur kepada Dewa Demis dan Rarael, Penjaga Harapan, untuk berdoa bagi kesuburan dan perdamaian.
+Festival titik balik matahari musim dingin terjadi selama bulan ke-12 saat siang hari paling singkat dan merupakan festival untuk merayakan datangnya musim semi. Pada hari ini, orang-orang akan mengusir 『iblis musim dingin』 yang baru lahir dan mempersembahkan babi, roti, dan anggur kepada Dewa Demis dan Rarael, Penjaga Harapan, untuk berdoa bagi kesuburan dan perdamaian.
 
-“Lit, apa kamu sudah selesai bersiap?”
+g"Lit, apa kamu sudah selesai bersiap?"
 
-“Ya, aku datang.”
+l"Ya, aku datang."
 
 Lit, yang sedang berganti pakaian di dalam kamar, menunjukkan dirinya.
 
-"Bagaimana itu?"
+l"Bagaimana?"
 
 Lit berputar melingkar di gaunnya sambil terlihat sedikit malu.
 
-Keliman roknya sedikit berkibar dan saya melihat sekilas pahanya yang sehat.
+Keliman roknya sedikit berkibar dan aku melihat sekilas pahanya yang mantap.
 
-“Ya, kamu terlihat sangat bagus di dalamnya.”
+g"Ya, kamu terlihat sangat bagus dengan itu."
 
-Ehehe.
+l"Ehehe."
 
 Lit dengan senang hati memelukku.
 
 Hari ini, dia memakai syal di lehernya, bukan bandana biasa. Syal itu diikat menjadi simpul dan ujung yang menjuntai ke dadanya disulam dengan bunga-bunga indah yang sangat cocok dengan penampilan Lit.
 
-"Merah juga terlihat bagus dalam mantel itu."
+l"red juga terlihat bagus dengan mantel itu."
 
-"Betulkah?"
+g"benarkah?"
 
-Lit tertawa ketika melihat reaksi pemalu saya dan dia memeluk saya lebih erat dengan lengan di pinggang saya dan menempelkan dirinya ke dada saya.
+Lit tertawa ketika melihat reaksi maluku dan dia memeluk aku lebih erat dengan lengan di pinggangku dan menempelkan dirinya ke dadaku.
 
-“Bukankah Logavia juga akan segera merayakan festival titik balik matahari musim dingin?”
+<gambar> vol5 2.jpg
 
-“Itu benar, setelah kamu menyebutkannya.”
+l"Bukankah Logavia juga akan segera merayakan festival titik balik matahari musim dingin?"
 
-"Saya menahan diri saat itu, tapi saya sangat ingin menikmati festival titik balik matahari musim dingin di Logavia bersama Red."
+g"benar juga ya."
 
-Pada saat itu, setelah kami selesai menyelamatkan Logavia, kami harus segera bergerak ke garis depan berikutnya melawan Tentara Raja Iblis. Tujuan kami berikutnya adalah Seren, pintu masuk ke Kerajaan Cataphract di timur laut. Ada pembicaraan tentang agitator yang tidak mau bekerja sama dengan Avalonia yang mengipasi api di antara warga di Seren jadi kami harus pergi ke sana untuk menyelesaikan masalah itu.
+l"aku menahan diri saat itu, tapi aku sangat ingin menikmati festival titik balik matahari musim dingin di Logavia bersama Red."
 
-Festival titik balik matahari musim dingin berdarah yang terjadi di kota agitator yang dihasut oleh iblis bukanlah kenangan yang ingin saya kembalikan.
+Pada saat itu, setelah kami selesai menyelamatkan Logavia, kami harus segera bergerak ke garis depan berikutnya melawan Tentara Raja Iblis. Tujuan kami berikutnya adalah Seren, pintu masuk ke Kerajaan Cataphract di timur laut. Ada pembicaraan tentang agitator yang tidak mau bekerja sama dengan Avalonia yang memprovokasi di antara warga di Seren jadi kami harus pergi ke sana untuk menyelesaikan masalah itu.
 
-“Baiklah, ayo pergi ke festival.”
+Festival titik balik matahari musim dingin berdarah yang terjadi di kota agitator yang dihasut oleh iblis bukanlah kenangan yang ingin aku kembali.
 
-"Ya!"
+g"Baiklah, ayo pergi ke festival."
+
+l"Ya!"
 
 Lit melepaskan tangannya di pinggangku dan mengikat lengan kanannya dengan lenganku tanpa ragu-ragu.
 
-“Hn… baiklah, ayo pergi!”
+g"Hn... baiklah, ayo pergi!"
 
 Saya sedikit ragu-ragu tetapi saya rasa tidak apa-apa selama perayaan.
 
