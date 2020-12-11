@@ -98,63 +98,63 @@ Shisandan mendecakkan lidahnya dan memutar dua dari enam lengannya ke punggung.
 
 Dia menyilangkan kedua pedangnya dan bertahan dari tebasanku yang diarahkan ke punggungnya.
 
-“Apa yang akan kamu lakukan Asura Demon? Kamu berencana menjebak Lit tapi sekarang kamu dijepit. ”
+g"Apa yang akan kamu lakukan iblis Asura? Kamu berencana menjebak Lit tapi sekarang kamu terjebak."
 
 Lit tidak punya tempat untuk melarikan diri karena dia berada di dalam perangkat lift.
 
 Namun, Shisandan yang memblokir pintu masuk ke perangkat lift juga berada dalam posisi yang tidak menguntungkan terjepit di antara aku dan Lit.
 
-(Mengesampingkan itu, apakah itu pedang Peri? Itu adalah pilihan yang tidak biasa untuk iblis. Selain itu, saya khawatir tentang empat pedang bersarung lainnya di pinggangnya.)
+(Mengesampingkan itu, apakah itu pedang elf? Itu adalah pilihan yang tidak biasa untuk iblis. Selain itu, aku khawatir tentang empat pedang bersarung lainnya di pinggangnya.)
 
-Setelah seranganku bertahan, aku mundur setengah langkah dan mengayunkan pedangku sekali lagi.
+Setelah seranganku ditangkisnya, aku mundur setengah langkah dan mengayunkan pedangku sekali lagi.
 
-Asura Demon membuka kedua kakinya dan bertahan melawan Lit dan pedangku berhembus dengan keenam lengannya.
+iblis Asura membuka kedua kakinya dan bertahan melawan Lit dan pedangku dengan keenam lengannya.
 
-Tiba-tiba, saya merasakan sedikit ketidaknyamanan datang dari belakang kepala saya.
+Tiba-tiba, aku merasakan sedikit ketidaknyamanan datang dari belakang kepalaku.
 
-"Sihir!?"
+g"Sihir!?"
 
-Saya dengan cepat mengambil posisi bertahan.
+aku dengan cepat mengambil posisi bertahan.
 
-“Lumpuhkan Flame!”
+“Api Pelumpuh!”
 
 Dinding kamar di satu sisi menghilang dan ada dinding tepat di belakangnya.
 
-Sepertinya dia membuat dinding ilusi di depan posisi awal dinding dan menciptakan ruang untuk bersembunyi.
+Sepertinya dia membuat dinding ilusi di depan dinding asli dan menciptakan ruang untuk bersembunyi.
 
 Api beracun menari-nari di lantai menuju ke arahku dan Lit.
 
-Itu adalah sihir serangan yang akan melumpuhkan korban saat disentuh. Lit dan I keduanya tidak memiliki ketahanan terhadap kelumpuhan. Lit bisa mencoba untuk menolaknya menggunakan Sihir Rohnya tapi aku hanya bisa mengandalkan tingkat Perlindungan Ilahi yang tinggi untuk menahannya.
+Itu adalah sihir serangan yang akan melumpuhkan korbannya saat disentuh. Lit dan aku keduanya tidak memiliki ketahanan terhadap kelumpuhan. Lit bisa mencoba untuk menangkisnya menggunakan Sihir Rohnya tapi aku hanya bisa mengandalkan tingkat Perlindungan Ilahiku yang tinggi untuk menahannya.
 
-Namun, itu hanya jika lawannya adalah seseorang dengan kemampuan yang hampir sama. Terhadap pengguna mantra terkuat umat manusia, kemungkinan untuk melawan hampir tidak ada.
+Namun, itu hanya jika lawannya adalah seseorang dengan kemampuan yang setara. Terhadap pengguna sihir terkuat umat manusia, kemungkinan untuk melawan hampir tidak ada.
 
-“Ares !!”
+g"Ares !!"
 
-Itu adalah Sage Ares yang melepaskan mantranya, memakai pedang asing di pinggangnya. Orang itu, apa dia gila dan berpasangan dengan Shisandan !?
+Itu adalah Sage Ares yang melepaskan sihirnya, memakai pedang asing di pinggangnya. Orang itu, apa dia gila dan setim dengan Shisandan !?
 
-"Mati! Gideon! ”
+"Matilah kau! Gideon!"
 
-Api mendekat. Tapi film putih bersinar menyelimuti kami.
+Api mendekat. Tapi film cahaya bersinar menyelimuti kami.
 
-Perisai Sihir Suci.
+ragu"Perisai Sihir Suci."
 
-Tangan kiri Ruti dibentuk menjadi segel.
+Tangan kiri Ruti membentik segel segel.
 
-Ruti, sebagai seorang veteran dalam pertarungan melawan Tentara Raja Iblis, sepertinya telah mengantisipasi dan mempersiapkan kemungkinan Ares dikhianati dan tidak terganggu olehnya.
+Ruti, sebagai seorang veteran dalam pertarungan melawan Tentara Raja Iblis, sepertinya telah mengantisipasi dan mempersiapkan kemungkinan Ares mengkhianatinya dan tidak terganggu olehnya.
 
-“Ares, aku masih akan memaafkanmu jika kamu mundur sekarang. Menyerah."
+r"Ares, aku masih akan memaafkanmu jika kamu mundur sekarang. Menyerahlah."
 
-“Ruti, ini masih belum terlambat. Tolong katakan bahwa Anda akan melanjutkan perjalanan Pahlawan dengan saya. "
+"Ruti, ini masih belum terlambat. Tolong katakan bahwa aku akan melanjutkan perjalanan Pahlawan denganku."
 
 Keduanya membentuk segel sekali lagi pada saat yang bersamaan.
 
 "Badai Gargantua Javelin!"
 
-Guntur Keadilan!
+r"Guntur Keadilan!"
 
-Badai lembing dan guntur keadilan.
+Badai dan guntur keadilan.
 
-Buntut dari tabrakan antara Sage dan Pahlawan, dua dari pengguna mantra terkuat, memaksa Shisandan dan aku untuk menghentikan pertempuran kami untuk sesaat.
+tabrakan antara Sage dan Pahlawan, dua dari pengguna mantra terkuat, memaksa Shisandan dan aku untuk menghentikan pertempuran kami untuk sesaat.
 
 Hantaman dahsyat itu menyebabkan retakan menembus struktur Ancient-Elf yang seharusnya memiliki ketangguhan tak tertandingi.
 
