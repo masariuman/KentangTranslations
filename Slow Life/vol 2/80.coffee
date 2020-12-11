@@ -84,15 +84,15 @@ Ares yakin akan kemenangannya.
 
 Lit dan aku memukul Shisandan dari depan dan belakang.
 
-(Orang ini lebih kuat dari saat kita bertarung dengannya sebelumnya.)
+(iblis ini lebih kuat dari saat kita bertarung dengannya sebelumnya.)
 
-Shisandan dengan lancar mengalihkan Lit dan serangan kolaboratif berturut-turut saya meskipun kami memegang keuntungan dari manuver penjepit.
+Shisandan dengan lancar mengalihkan Lit dan serangan kolaboratif berturut-turutku meskipun kami memegang keuntungan dengan menyerangnya dikedua sisi.
 
-Dia bukanlah lawan yang bisa kami kalahkan dengan cepat. Tapi kami juga tidak bisa mengambil waktu kami.
+Dia bukanlah lawan yang bisa kami kalahkan dengan cepat. Tapi kami juga tidak bisa berlama-lama.
 
 (Ruti!)
 
-Meski aku tengah bertengkar dengan Shisandan, aku tetap mengkhawatirkan Ruti.
+Meski aku tengah bertarung dengan Shisandan, aku tetap mengkhawatirkan Ruti.
 
 Saat itu, Ruti berurusan dengan Ares sendiri.
 
