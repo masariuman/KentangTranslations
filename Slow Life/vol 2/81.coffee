@@ -216,9 +216,9 @@ Seluruh tubuhnya tercabik-cabik dan Tise jatuh dan menumpahkan banyak darah.
 
 Karena dia adalah Pahlawan, segala jenis pengorbanan diperbolehkan untuk menjadi Pahlawan. Ares mengaku itulah yang terbaik untuk kebahagiaan Ruti.
 
-Tise mengatupkan giginya. Dia mengabaikan darah yang mengalir dari lukanya saat dia berdiri dan menghunus pedang pendeknya.
+Tise mengatupkan giginya. Dia mengabaikan darah yang mengalir dari lukanya dan dia berdiri dan menghunus pedang pendeknya.
 
-“Hou, luar biasa. Saya tidak akan bisa berdiri. Namun demikian, Anda menyebabkan diri Anda sendiri kesakitan. Jika Anda hanya berbaring di sana, Anda mungkin akan lolos dengan hidup Anda? Selama Anda tidak mati karena kehilangan darah. "
+"Hou, luar biasa. aku tidak akan bisa berdiri. tapi, kamu menyebabkan dirimu sendiri kesakitan. Jika kamu hanya berbaring di sana, kamu mungkin akan masih bisa hidup? Selama kamu tidak mati karena kehilangan darah. "
 
 Mempercayakan Ruti-sama pada pria seperti itu? Itu di luar pertanyaan.
 
