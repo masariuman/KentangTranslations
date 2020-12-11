@@ -84,107 +84,65 @@ Namun, Tise tidak melihat ke arah Ugeuge-san dengan senyumnya yang biasa.
 
 “He-hei, kalian para Pahlawan, kan? Kalian pasti bisa melakukan sesuatu! ”
 
-Godwin berteriak ketika dia melihat keadaan kami. Namun, baik Danan maupun saya tidak memiliki kemampuan untuk menyelamatkan Tise.
+Godwin berteriak ketika dia melihat keadaan kami. Namun, baik Danan maupun aku tidak memiliki kemampuan untuk menyelamatkan Tise.
 
- 
+r"Tidak... setelah kupikir akhirnya aku... akhirnya mendapat teman, aku... dengan tanganku sendiri !!!"
 
-“Tidak… setelah kupikir akhirnya aku… akhirnya mendapat teman, aku… dengan tanganku sendiri !!!”
+Ruti menangis sambil memeluk tubuh Tise. Apakah aku benar-benar tidak berdaya untuk melakukan sesuatu?
 
- 
+Andai saja aku tidak memiliki 『Panduan』 tetapi Perlindungan Ilahi yang menggunakan sihir...!
 
-Ruti menangis sambil memeluk tubuh Tise. Apakah saya benar-benar tidak berdaya untuk melakukan sesuatu?
+"Aku akan menyembuhkannya."
 
-Andai saja saya tidak memiliki 『Panduan』 tetapi Perlindungan Ilahi yang menggunakan sihir…!
+aku mendengar suara dari belakang kami.
 
- 
-
-Aku akan menyembuhkannya.
-
- 
-
-Saya mendengar suara dari belakang kami.
-
-Itu datang dari Theodora yang didukung oleh Albert.
-
- 
+Itu datang dari Theodora yang ditopang oleh Albert.
 
 “Theodora…”
 
-“Saya seorang pendeta. Wajar jika saya akan menjangkau pasien yang terluka. "
-
- 
+"aku seorang pendeta. Wajar jika aku akan menjangkau pasien yang terluka. "
 
 Danan dan aku menyingkir dan memberi jalan ke Theodora.
 
- 
-
-"B-bisakah dia dipercaya? '
-
- 
+"B-bisakah dia dipercaya ?"
 
 Godwin bertanya dengan gelisah. Di mata Godwin, dia adalah musuh yang tiba-tiba muncul dan memojokkan Lit dan aku hingga diambang kematian, jadi itu adalah reaksi alami yang datang darinya.
 
- 
+g"Ya, tidak apa-apa."
 
-“Ya, tidak apa-apa.”
+Tapi aku menjawab dengan percaya diri. Aku tahu kepribadian Theodora dengan sangat baik. Dia tidak akan pernah menyakiti Tise lagi.
 
- 
-
-Tapi saya menjawab dengan percaya diri. Aku tahu kepribadian Theodora dengan sangat baik. Dia tidak akan pernah menyakiti Tise lagi.
-
- 
-
-“Gideon, Danan. Terima kasih telah mempercayai saya. ”
-
- 
+“Gideon, Danan. Terima kasih telah mempercayaiku. ”
 
 Theodora tersenyum lemah saat dia meminjam kekuatan dari lengan Albert untuk duduk di samping Tise dan Ruti.
 
- 
+"Regenerasi."
 
-"Diperbarui."
-
- 
-
-Saat Theodora mengaktifkan Covenant Magic, tubuh Tise terbungkus cahaya hangat.
+Saat Theodora mengaktifkan Sihir Perjanjian, tubuh Tise terbungkus cahaya hangat.
 
 Luka menyakitkan dengan cepat tersegel dari dalam dan darah kembali ke wajahnya.
 
 Kemudian,
 
- 
-
-“Denyut nadinya sudah kembali…!”
-
- 
+l"Denyut nadinya sudah kembali…!"
 
 Lit, yang memegang lengan Tise, berteriak dengan ekspresi cerah.
 
- 
-
 Napasnya juga.
-
- 
 
 Ruti meletakkan pipinya di dekat wajah Tise dan berkata dengan suara serak karena air matanya.
 
-Tise telah diselamatkan!
-
- 
+l"Tise selamat!"
 
 "Dia akan baik-baik saja dengan ini."
 
- 
+Theodora, setelah selesai menggunakan sihir perjanjian, menghembuskan napas dalam-dalam dengan bibir bergetar dan dengan lemah mempercayakan berat tubuhnya kepada Albert.
 
-Theodora, setelah selesai merapalkan Covenant Magic, menghembuskan napas dalam-dalam dengan bibir bergetar dan dengan lemah mempercayakan berat tubuhnya kepada Albert.
+"Maaf Albert. aku telah menunjukkan kepadamu penampilan yang tidak pantas sebagai Pahlawan."
 
- 
+“Singkirkan hal-hal seperti itu dan sembuhkan dirimu sendiri! aku tidak lagi memiliki Obat Penyembuhan yang tersisa.”
 
-“Maaf Albert. Saya telah menunjukkan kepada Anda penampilan yang tidak pantas sebagai Pahlawan. "
-
-“Singkirkan hal-hal seperti itu dan sembuhkan dirimu sendiri! Saya tidak lagi memiliki Ramuan Penyembuhan yang tersisa. ”
-
- 
+<gambar> Vol4 10.jpg
 
 Tapi Theodora tidak mengobati luka-lukanya sendiri saat dia menatap Ruti dengan mata bingung.
 
