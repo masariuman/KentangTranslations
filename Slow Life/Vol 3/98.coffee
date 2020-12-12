@@ -100,9 +100,9 @@ Kataku sambil melihat ke laut.
 
 Aku tidak menjelaskan apapun tentang pikiranku ketika aku menggumamkan kata-kata itu tapi Ruti yang ada disampingku dan juga Lit yang agak jauh keduanya mengangguk setuju.
 
-“Zoltan menarik.”
+r"Zoltan sungguh menarik."
 
-"Tepat sekali."
+l"Tepat sekali."
 
 Mereka berkata dengan senyum lembut.
 
