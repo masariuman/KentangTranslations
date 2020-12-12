@@ -108,7 +108,7 @@ Mereka berkata dengan senyum lembut.
 
 ☆☆
 
-“Kurasa ini waktunya makan siang.”
+g"Kurasa ini waktunya makan siang."
 
 "Baiklah! Saya sudah lapar. "
 
