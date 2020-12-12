@@ -14,11 +14,11 @@ Ruti mencuci mulutnya dengan air dari kendi air sebelum meminum air.
 
 Setelah itu, dia melepas pakaiannya dan melakukan pembersihan sederhana pada tubuhnya dengan handuk basah.
 
-Dia kemudian akan melakukan olahraga ringan setelah mengganti pakaiannya. Putaran cepat di sekitar ruangan sambil melakukan handstand. Satu putaran di sekitar ruangan sambil memegangi batas langit-langit dengan jari kakinya. Akhirnya, dia akan melempar bola ke luar jendela untuk memantul dari pohon di taman dan menangkapnya dengan tangannya sebanyak 100 kali untuk menyelesaikan memastikan bahwa tubuhnya bergerak sesuai keinginannya.
+kemudian dia akan melakukan olahraga ringan setelah mengganti pakaiannya. berputaran cepat di sekitar ruangan sambil melakukan handstand(berdiri dengan tangan). Satu putaran di sekitar ruangan sambil menyentuh langit-langit dengan jari kakinya. terakhir, dia akan melempar bola ke luar jendela untuk memantulkannya ke pohon di taman dan menangkapnya dengan tangannya sebanyak 100 kali.
 
-"Ya."
+r"Yup."
 
-Latihan pemanasan pagi Ruti di atas dilakukan selama 15 menit.
+Latihan pemanasan pagi Ruti dilakukan selama 15 menit.
 
 Bagi Ruti yang tubuh fisiknya akan dipertahankan dalam kondisi optimal penuh karena kekuatan perlindungan ilahi sebelumnya, fakta bahwa gerakan akan menjadi tumpul jika tidak dilakukan secara teratur atau melakukan latihan pemanasan adalah pengalaman segar baginya.
 
