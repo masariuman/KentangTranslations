@@ -98,7 +98,7 @@ Sesaat, Meguria merasa seolah-olah sedang ditatap oleh monster besar. Namun, ber
 
 Meguria meletakkan tangannya di dadanya dan menekan jantungnya yang berdetak kencang dan menghembuskan napas dengan keras.
 
-”… ..”
+r"..."
 
 Ruti kaget dengan penjelasan Meguria yang membuatnya sangat kesal.
 
