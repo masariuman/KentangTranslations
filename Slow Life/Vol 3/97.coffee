@@ -20,9 +20,9 @@ mandi larut malam. Sungguh nikmat!
 
 Yah, aku akan menahan diri untuk tidak bernyanyi terlalu keras sehingga Ruti-sama bisa mendengar setiap kata dengan jelas.
 
-Aku segera merapikan senjata yang aku pertahankan. Tangan saya kotor karena oli yang saya oleskan pada bilahnya untuk mencegah karat sehingga waktunya tepat seperti saya akan mandi sekarang.
+Aku segera merapikan senjata yang aku bersihkan. Tanganku kotor karena oli yang aku oleskan pada bilahnya untuk mencegah karat sehingga waktunya tepat untukku mandi sekarang.
 
-"Ugeuge-san, bagaimana denganmu?"
+t"Ugeuge-san, bagaimana denganmu?"
 
 Ugeuge-san memiringkan kepalanya dan mengangkat lengan kanannya.
 
