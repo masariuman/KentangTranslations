@@ -84,15 +84,15 @@ Pemimpin Persekutuan Petualang Harold di distrik utara mungkin tidak pergi jauh-
 
 Namun, setelah mengetahui bahwa dia menggunakan obat Red, Ruti merasakan kesan yang baik terhadap pemimpin guild yang tidak bisa diandalkan itu.
 
-Pertama, informasi tidak cukup.
+r"Pertama, informasinya tidak cukup."
 
 "Informasi?"
 
-“Pertama, tujuannya. Siapa dan mengapa dia mencari orang itu. Mengapa dia menyembunyikannya? Kami tidak tahu apa-apa. ”
+r"Pertama, tujuannya. Siapa dan mengapa dia mencari orang itu. Mengapa dia menyembunyikannya? kita tidak tahu apa-apa."
 
-“Tentu saja kami bertanya. Tapi dia tidak bermaksud memberi tahu kami. "
+"Tentu saja kami bertanya. Tapi dia tidak bermaksud memberi tahu kami."
 
-Mendengar kata-kata Sir William, Tise, yang berdiri di belakang, mengernyit. Mereka tidak tahu karena dia tidak memberi tahu mereka, jika itu cukup maka para diplomat dunia mungkin akan punya banyak waktu luang.
+Mendengar kata-kata Sir William, Tise, yang berdiri di belakang, mengerutkan keningnya. Mereka tidak tahu karena dia tidak memberi tahu mereka, jika itu cukup maka para diplomat dunia mungkin akan punya banyak waktu luang.
 
 Meski demikian, Zoltan merasa itu sudah cukup. Pasukan Zoltan hanya menghadapi pencuri dan monster atau kelompok goblin sesekali.
 
