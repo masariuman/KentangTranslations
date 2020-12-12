@@ -171,3 +171,5 @@ Saat dia bisa membentuk cinta baru, perasaan positif Ruti-sama pada Red-san akan
 Atau lebih tepatnya, bukankah kita sudah melewati titik di mana tidak ada jalan kembali?
 
 Baik Ugeuge-san di pundakku dan aku memiringkan kepala kami dengan cemas.
+
+<gambar> vol5 5.jpg
