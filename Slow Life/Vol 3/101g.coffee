@@ -94,6 +94,8 @@ r"iYa."
 
 Keduanya tersenyum bahagia dengan senyuman yang hanya bisa dimengerti oleh mereka berdua.
 
+<gambar> vol6 5.jpg
+
 ☆☆
 
 Sore hari.
