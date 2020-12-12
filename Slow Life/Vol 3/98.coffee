@@ -88,6 +88,8 @@ g"Cuaca hari ini bagus."
 
 r"Ya."
 
+<gambar> vol6 01.jpg
+
 Laut musim dingin Zoltan dingin tapi indah.
 
 Saat musim dingin tiba, angin akan bertiup dari 'Tembok di Ujung Dunia' dan permukaan laut akan terdorong ke pantai, menyebabkan air laut dalam muncul ke permukaan.
