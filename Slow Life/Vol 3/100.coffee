@@ -146,7 +146,7 @@ Ares memiringkan kepalanya setelah mendengar komentar Yarandorara.
 
 Mata Ruti berbinar.
 
-“Mungkin Yarandorara… menuju Onii-san…”
+r"Mungkin Yarandorara... menuju Onii-san..."
 
 “T-tidak ada hal seperti itu! Saya hanya sedikit khawatir… ”
 
