@@ -108,13 +108,13 @@ Mereka berkata dengan senyum lembut.
 
 ☆☆
 
-g"Kurasa ini waktunya makan siang."
+g"Kurasa sekarang waktunya makan siang."
 
-"Baiklah! Saya sudah lapar. "
+"Baiklah! aku sudah lapar. "
 
 Tanta adalah orang pertama yang bereaksi terhadap kata-kataku.
 
-"Astaga, aku sama sekali tidak bisa mengejar Red."
+l"Astaga, aku sama sekali tidak bisa mengejar Red."
 
 Kata Lit dengan bibir mengerucut sebelum dia tertawa bahagia.
 
