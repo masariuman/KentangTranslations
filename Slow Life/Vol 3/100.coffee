@@ -406,4 +406,4 @@ Pangeran Kifa adalah seorang pangeran yang mendukung Ruti dan yang lainnya di du
 
 Adapun Yarandorara, Gideon tidak mati jadi dia tetap tinggal di tokonya. Dia baru resmi bergabung sebagai anggota tim saat mereka bertarung di Logavia bersama Lit.
 
-aku sesekali mengubah beberapa detail saat menulis tentang masa lalu jadi mungkin menyenangkan menemukan detail itu!
+aku sesekali mengubah beberapa detail saat menulis tentang masa lalu jadi itu mungkin menyenangkan!
