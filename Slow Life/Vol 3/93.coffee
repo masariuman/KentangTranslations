@@ -60,17 +60,17 @@ Pada hari eksekusinya, banyak yang datang sebagai penonton dan mereka meneriakka
 
 Dan kemudian, raja bandit dieksekusi diiringi tepuk tangan meriah.
 
-"Aku ingin tahu apakah ini baik-baik saja."
+g"Aku ingin tahu apakah ini baik-baik saja."
 
-Saya berpartisipasi dalam pertarungan untuk menangkap raja bandit tetapi orang itu bukanlah yang disebut pencuri kesatria. Dia memiliki karisma yang menarik banyak orang dan dia peduli terhadap anak buahnya tetapi memikirkan tentang bagaimana dia menyerang dan membunuh korbannya untuk kepentingannya sendiri, saya tidak dapat merasa kasihan padanya.
+aku berpartisipasi dalam pertarungan untuk menangkap raja bandit tetapi orang itu bukanlah yang disebut pencuri hebat. Dia memiliki karisma yang menarik banyak orang dan dia peduli terhadap anak buahnya tetapi memikirkan tentang bagaimana dia menyerang dan membunuh korbannya untuk kepentingannya sendiri, aku tidak dapat merasa kasihan padanya.
 
-“Suhu kamar mandinya bagus!”
+l"Suhunya sydah bagus!"
 
-Lit memanggilku. Ini buruk, pikiranku sepenuhnya menyimpang.
+Lit memanggilku. Ini buruk, pikiranku sepenuhnya sudah kemana-mana.
 
-Saya belum mengambil keputusan tentang poin utama kapan harus melewati itu.
+aku belum mengambil keputusan tentang poin utama kapan harus melewati itu.
 
-… Aku akan memikirkannya saat aku mandi.
+... Aku akan memikirkannya saat aku mandi.
 
 ☆☆
 
@@ -82,59 +82,59 @@ Dengan pandanganku dari belakang kepala Lit, apakah itu tengkuknya yang sehat at
 
 Meskipun itu kejadian sehari-hari.
 
-Yah, meski Lit melakukan itu setiap hari, tubuhnya akan menegang sesaat setiap kali punggungnya menyentuh dadaku jadi kurasa itu dasi, mungkin.
+Yah, meski Lit melakukan itu setiap hari, tubuhnya akan menegang sesaat setiap kali punggungnya menyentuh dadaku jadi kurasa kami seri, mungkin.
 
-“Hari ini menyenangkan.”
+l"Hari ini menyenangkan."
 
-Kata Lit. 【Tetes】 Tetesan dari langit-langit jatuh ke bak mandi.
+Kata Lit. Tetesan dari langit-langit jatuh ke bak mandi.
 
-“Saya tidak pernah membayangkan suatu hari saya akan menikmati festival bersama Ruti. Hidup pasti tidak bisa diprediksi. Dengan cara yang baik."
+l"aku tidak pernah membayangkan suatu hari aku akan menikmati festival bersama Ruti. Hidup pasti tidak bisa diprediksi. Dengan cara yang baik."
 
-“Itu benar, ketika saya pertama kali datang ke Zoltan, saya membayangkan bahwa saya akan menjalani kehidupan yang jauh lebih sunyi dan sepi.”
+g"Itu benar, ketika aku pertama kali datang ke Zoltan, aku membayangkan bahwa aku akan menjalani kehidupan yang jauh lebih sunyi dan sepi."
 
-“Apakah Anda lebih suka seperti itu?”
+l"Apakah kamu lebih suka seperti itu?"
 
 Aku memeluk Lit dari belakang.
 
-"Tentu saja tidak."
+g"Tentu saja tidak."
 
 Kami memejamkan mata dan menikmati kehangatan tubuh satu sama lain.
 
-“Shisandan, menurutmu dia sudah mati?”
+l"Shisandan, menurutmu dia sudah mati?"
 
-"Tidak ada ide."
+g"Entahlah."
 
-Lit mencengkeram tanganku. Saya mencengkeramnya kembali sebagai tanggapan.
+Lit mencengkeram tanganku. aku mencengkeramnya kembali sebagai tanggapan.
 
-“Orang itu sudah mati dua kali. Sekali di tangan saya dan yang kedua oleh Ruti. "
+l"dia sudah mati dua kali. Sekali di tanganku dan yang kedua oleh Ruti. "
 
-"Tepat sekali."
+g"Tepat sekali."
 
-“Itulah mengapa saya mengatasinya. Saya tidak akan lagi mengejarnya. Bahkan jika dia hidup kembali, saya akan bertarung jika dia mengancam hidup saya dan Red dan Ruti di Zoltan tapi saya tidak akan keberatan jika dia tidak melakukannya. ”
+l"Itulah mengapa aku akan move on. aku tidak akan lagi mengejarnya. Bahkan jika dia hidup kembali, aku akan bertarung jika dia mengancam hidupku dan Red dan Ruti di Zoltan tapi aku tidak akan keberatan jika dia tidak melakukannya."
 
-Apakah kamu yakin?
+g"Apakah kamu yakin?"
 
-“Ya, membalas dendam sekali saja sudah cukup. Mendapatkannya dua kali berlebihan. "
+l"Ya, membalas dendam sekali saja sudah cukup. dua kali berlebihan."
 
 Lit berkata dan menoleh untuk melihatku sambil tersenyum.
 
-“Lebih penting lagi, Red, aku lebih menyayangimu.”
+l"dan yang paling penting, Red, aku lebih menyayangimu."
 
 Mungkin karena dia malu dengan perkataannya, wajah Lit memerah.
 
-Tampaknya Lit telah memilah-milah perasaannya tentang Shisandan.
+Tampaknya Lit telah mengurus perasaannya tentang Shisandan.
 
-Li-Lit.
+g"Li-Lit."
 
-Saya Harus mengatakannya.
+aku Harus mengatakannya.
 
-“A-setelah kita meninggalkan kamar mandi, aku punya sesuatu yang ingin kuberikan padamu. Bisakah Anda memberi saya waktu? ”
+g"Se-setelah kita meninggalkan kamar mandi, aku punya sesuatu yang ingin kuberikan padamu. Bisakah kamu menemaniku?"
 
-“Tentu tapi… sampai-malam ini adalah malam festival titik balik matahari musim dingin.”
+l"Tentu tapi... ma-malam ini adalah malam festival titik balik matahari musim dingin."
 
-“A-ah, ya.”
+g"A-ah, ya."
 
-Saya tahu bahwa kedua tubuh kami kaku karena saraf.
+aku tahu bahwa kedua tubuh kami kaku karena tegang.
 
 Tenang. Tarik napas dalam.
 
@@ -142,17 +142,17 @@ Tenang. Tarik napas dalam.
 
 Ada legenda tentang malam festival titik balik matahari musim dingin.
 
-『Drake Rider』 yang mengalahkan 『Winter Demon』 menyelamatkan 『Princess』 yang terperangkap di kastil es.
+『Penunggang Drake』 yang mengalahkan 『Iblis Musim Dingin』 menyelamatkan 『Putri』 yang terperangkap di istana es.
 
 Namun, karena kutukan oleh 『Demon Musim Dingin』, 『Putri』 membeku sampai ke inti hatinya.
 
-『Drake Rider』 terpesona oleh sosok cantik 『Princess』 dan sangat sedih karena jantungnya membeku dan berhenti berdetak.
+『Penunggang Drake』 terpesona oleh sosok cantik 『Putri』 dan sangat sedih karena jantungnya membeku dan berhenti berdetak.
 
-『Drake Rider』 melepas cincinnya sendiri dari jari manisnya, meletakkannya di dada 『Princess』 dan meneteskan setetes darahnya ke dalam ring.
+『Penunggang Drake』 melepas cincinnya sendiri dari jari manisnya, meletakkannya di dada 『Putri』 dan meneteskan setetes darahnya ke dalam cincin.
 
-Ketika dia melakukan itu, darah hangat 『Drake Rider』 melewati kulit 『Princess '』 dan mencapai hatinya, menghangatkan hatinya yang membeku. Jantung 『Putri '』 mulai berdetak sekali lagi dan 『Putri』 perlahan membuka matanya.
+Ketika dia melakukan itu, darah hangat 『Penunggng Drake』 melewati kulit 『Putri』 dan mencapai jantungnya, menghangatkan Jantungnya yang membeku. Jantung 『Putri』 mulai berdetak sekali lagi dan 『Putri』 perlahan membuka matanya.
 
-Kemudian, keduanya saling berciuman. 『Drake Rider』 menikah dengan 『Princess』 dan menjadi raja ketika mereka kembali ke kampung halamannya.
+Kemudian, keduanya saling berciuman. 『Penunggang Drake』 menikah dengan 『Putri』 dan menjadi raja ketika mereka kembali ke kampung halamannya.
 
 Itulah ringkasan dari legenda tersebut.
 
@@ -162,4 +162,4 @@ Nah, itu tadi. Mudah untuk membayangkan metafora dalam legenda itu. Untuk mengal
 
 Banyak orang yang mengklaim bahwa banyak anak yang lahir di musim gugur karena legenda tersebut. Kebetulan, musim gugur kira-kira 10 bulan dari festival titik balik matahari musim dingin.
 
-Sambil menunggu dari Lit yang sedang berganti pakaian setelah keluar dari kamar mandi, aku memegang kotak dengan 'cincin' di tanganku dan masih ragu-ragu dan bermasalah, berpikir jika aku memberikannya padanya di tengah panasnya festival. atau bahwa dia akan kecewa atau bahwa saya mungkin harus memberikannya kepadanya pada hari biasa.
+Sambil menunggu dari Lit yang sedang berganti pakaian setelah keluar dari kamar mandi, aku memegang kotak dengan 'cincin' di tanganku dan masih ragu-ragu dan bermasalah, berpikir jika aku akan memberikannya padanya di tengah panasnya festival. atau bahwa dia akan kecewa atau bahwa aku mungkin harus memberikannya kepadanya pada hari biasa.
