@@ -102,26 +102,26 @@ Perasaan dalam diriku mengalir keluar dari mulutku.
 
 Wajah Lit memerah. Namun, aku tidak bisa menahan diri dan kata-kata itu keluar satu demi satu.
 
-g"Aku bahkan tidak menyadari betapa aku menyukaimu. Aku cinta kamu. Saya sangat mencintaimu."
+g"Aku bahkan tidak menyadari betapa aku menyukaimu. Aku cinta kamu. aku sangat mencintaimu."
 
-Maaf, saya tidak bisa berhenti. Saya tidak menuliskan kata-kata untuk diucapkan dan hanya bisa terus seperti itu.
+Maaf, aku tidak bisa berhenti. aku tidak menuliskan kata-kata untuk diucapkan dan hanya bisa terus seperti itu.
 
 Aku mengulurkan cincin di tangan kananku ke Lit.
 
-“Merah…”
+l"red..."
 
-Mata Lit berbinar dan berenang.
+Mata Lit berbinar dan berair.
 
-“Jika kamu tidak keberatan, nikahi aku… tidak, bukan itu. Lit, tolong nikahi aku. Aku ingin menikahi mu. Saya bukan lagi pahlawan. Saya mungkin bukan calon yang cocok untuk seorang putri. Tapi aku berjanji akan memberimu kebahagiaan sebanyak mungkin. Selanjutnya, saya berjanji akan membuatkan sarapan untuk Anda setiap pagi. "
+g"Jika kamu tidak keberatan, nikahi aku... tidak, bukan itu. Lit, tolong nikahi aku. Aku ingin menikahimu. aku bukan lagi pahlawan. aku mungkin bukan calon yang cocok untuk seorang putri. Tapi aku berjanji akan memberimu kebahagiaan sebanyak mungkin. aku berjanji akan membuatkan sarapan untukmu setiap pagi."
 
-“Ya… aku juga menginginkannya. Tolong nikahi aku. Saya mungkin membuang status royalti saya dan menjadi Lit biasa saja. Tapi aku berjanji akan mencintaimu. Bahkan jika kita menjadi pria dan wanita tua yang keriput, aku akan berada di sisimu sepanjang hidupku. "
+l"Ya... aku juga menginginkannya. Tolong nikahi aku. aku mungkin membuang status royaltiku dan menjadi Lit biasa saja. Tapi aku berjanji akan mencintaimu. Bahkan jika kita menjadi pria dan wanita tua yang keriput, aku akan berada di sisimu sepanjang hidupku."
 
 Lit menerima cincinku dan meletakkannya di atas jari manis kirinya.
 
 Berlian kecil di cincin perak bersinar dalam cahaya lilin.
 
-“Saya sangat bahagia… ini seperti mimpi.”
+l"aku sangat bahagia... ini seperti mimpi...."
 
-Lit tidak bisa menahannya lebih lama lagi saat matanya goyah. Tetesan air mata jatuh.
+Lit tidak bisa menahannya lebih lama lagi dan matanya goyah. Tetesan air mata jatuh.
 
 Aku juga tidak bisa menahannya. Aku memeluk Lit dan merasakan panas tubuhnya yang hangat.
