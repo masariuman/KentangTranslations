@@ -10,39 +10,39 @@ Wanita tua itu berkata dengan menyesal.
 
 Meskipun Tise telah mengalahkan para pembunuh yang tersesat, Otto menurunkan wanita tua itu dan melarikan diri secepat yang dia bisa tanpa mendengar permintaan wanita tua itu untuk menunggu.
 
-Tise merasa terganggu dan memutuskan untuk membawanya ke toko saya yang terletak di Downtown yang berada di samping distrik pelabuhan.
+Tise merasa terganggu dan memutuskan untuk membawanya ke tokoku yang terletak di Pusat Kota yang berada di samping distrik pelabuhan.
 
-"Lalu bagaimana dengan para pembunuh yang tersesat?"
+g"Lalu bagaimana dengan para pembunuh bayaran itu?"
 
 "Aku mengikatnya dan membawanya ke penjaga."
 
-“Benarkah? Apakah Anda tidak akan dikenakan sanksi jika Anda tidak membunuh mereka? "
+g"benarkah? Apakah kamu tidak akan dikenakan sanksi jika kamu tidak membunuh mereka? "
 
-“Tapi Zoltan bahkan tidak memiliki cabang Assassin Guild.”
+“Tapi Zoltan tidak memiliki cabang Guild Pembunuh Bayaran.”
 
-Tentu saja, cabang Assassin Guild tidak akan menggantung tanda mereka di siang hari bolong. Ini akan menjadi tempat persembunyian yang disamarkan sebagai toko biasa atau rumah pribadi.
+Tentu saja, cabang Guild Pembunuh Bayaran tidak akan menggantung tanda mereka di siang hari bolong. tempat itu biasanya akan menjadi tempat persembunyian yang disamarkan sebagai toko biasa atau rumah pribadi.
 
-Guild Assassin adalah guild assassin seperti namanya. Ini berfungsi untuk membatasi pembunuhan acak agar tidak terjadi dan untuk mempersiapkan rute pelarian bagi pembunuh agar mereka tidak diperlakukan sebagai bidak sekali pakai. Meskipun mereka tidak bisa membanggakan diri untuk berpihak pada keadilan, posisi dan prinsip resmi mereka adalah bahwa hanya dengan menyingkirkan yang lebih rendah barulah kebaikan yang lebih besar dapat dicapai.
+Guild Pembunuh Bayaran adalah guild Pembunuh Bayaran seperti namanya. berfungsi untuk membatasi pembunuhan acak agar tidak terjadi dan untuk mempersiapkan rute pelarian bagi pembunuh agar mereka tidak diperlakukan sebagai bidak sekali pakai. Meskipun mereka tidak bisa membanggakan diri untuk berpihak pada keadilan, posisi dan prinsip resmi mereka adalah bahwa hanya dengan menyingkirkan yang lebih rendah barulah kebaikan yang lebih besar dapat dicapai.
 
 Aturan mereka yang tidak dapat diganggu gugat adalah bahwa mereka hanya dapat menerima permintaan pembunuhan melalui guild. Hanya setelah pemimpin cabang memperkirakan berbagai efek pembunuhan serta keabsahan tujuan permintaan, barulah dia akan memberikan persetujuan.
 
-Organisasi seperti itu hanya ditoleransi karena adanya perlindungan ilahi. Selama perlindungan ilahi 『Assassin』 ada, itu bisa ditafsirkan sebagai persetujuan Dewa Demis atas keberadaan pembunuh dan tindakan mereka. Meskipun faksi utama Gereja Suci mengkritik manajemen Guild Assassin, mereka tidak mengkritik keberadaannya dan terdapat tingkat kepercayaan tertentu di dalamnya sebagai organisasi yang tidak akan terpengaruh oleh berbagai negara dan kekuatan.
+Organisasi seperti itu hanya ditoleransi karena adanya perlindungan ilahi. Selama perlindungan ilahi 『Pembunuh Bayaran』 ada, itu bisa ditafsirkan sebagai persetujuan Dewa Demis atas keberadaan pembunuh dan tindakan mereka. Meskipun faksi utama Gereja Suci mengkritik manajemen Guild Pembunuh Bayaran, mereka tidak mengkritik keberadaannya dan terdapat tingkat kepercayaan tertentu di dalamnya sebagai organisasi yang tidak akan terpengaruh oleh berbagai negara dan kekuatan.
 
-Meski demikian, faktanya banyak yang masih menghina pendudukan Assassin.
+Meski demikian, faktanya banyak yang masih menghina kedudukan Pembunuh Bayaran.
 
-Berbeda dengan Assassin Guild yang ingin menertibkan pembunuhan, selalu ada kekuatan yang memaksa orang-orang yang membenci aturan ketat dan merasa bahwa mereka harus diberi kebebasan untuk membunuh. Orang-orang seperti itu adalah mereka yang pernah menjadi anggota Assassin Guild tetapi kemudian melarikan diri untuk melakukan pembunuhan mereka sendiri atau mendirikan organisasi mereka sendiri.
+Berbeda dengan Guild Pembunuh Bayaran yang ingin menertibkan pembunuhan, selalu ada kekuatan yang memaksa orang-orang yang membenci aturan ketat dan merasa bahwa mereka harus diberi kebebasan untuk membunuh. Orang-orang seperti itu adalah mereka yang pernah menjadi anggota guild Pembunuh Bayaran tetapi kemudian melarikan diri untuk melakukan pembunuhan mereka sendiri atau mendirikan organisasi mereka sendiri.
 
-Orang-orang itu disebut pembunuh liar. Satu-satunya target pembunuhan yang ditetapkan oleh Assassination Guild sendiri.
+Orang-orang itu disebut pembunuh liar. Satu-satunya target pembunuhan yang ditetapkan oleh Pembunuh Bayaran dari Guild sendiri.
 
-【Pyon】 Ugeuge-san melompat dari bahu Tise ke tanah. Sepertinya telah menangkap seekor serangga.
+【Pyon】 Ugeuge-san melompat dari bahu Tise ke lantai. Sepertinya telah menangkap seekor serangga.
 
 Tise melanjutkan sambil melihat ke arah Ugeuge-san yang mulai makan dengan bahagia.
 
-“Pemimpin mereka adalah seorang pembunuh liar bernama Harks. Saya pernah berbicara dengannya, jadi saya ingat dia. Aku memang mempertimbangkan untuk membunuh mereka di sana tapi tanpa Assassin Guild, menjelaskan diriku sendiri akan merepotkan jadi aku merasa menyerahkan mereka ke penjaga adalah pilihan terbaik. ”
+“Pemimpin mereka adalah seorang pembunuh liar bernama Harks. Saya pernah berbicara dengannya, jadi saya ingat dia. Aku memang mempertimbangkan untuk membunuh mereka di sana tapi tanpa Pembunuh Bayaran Guild, menjelaskan diriku sendiri akan merepotkan jadi aku merasa menyerahkan mereka ke penjaga adalah pilihan terbaik. ”
 
 “Ya, menurutku itu pilihan yang bagus. Dan begitu pula pria Harks itu mengungkapkan sesuatu? "
 
-“Bahkan jika dia busuk, dia masih seorang『 Assassin 』. Dia tidak akan mengungkapkan nama pemohonnya bahkan jika dia disiksa. Dia mencoba melarikan diri dengan mengucapkan beberapa nama yang tidak masuk akal. "
+“Bahkan jika dia busuk, dia masih seorang『 Pembunuh Bayaran 』. Dia tidak akan mengungkapkan nama pemohonnya bahkan jika dia disiksa. Dia mencoba melarikan diri dengan mengucapkan beberapa nama yang tidak masuk akal. "
 
 "Saya melihat."
 
