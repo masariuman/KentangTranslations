@@ -92,9 +92,9 @@ Meguria menangis saat menatap Ruti.
 
 Ruti segera menenangkan perasaannya.
 
-“Eh, ah, maafkan aku.”
+r"Eh, ah, maafkan aku."
 
-Sesaat, Meguria merasa seolah-olah sedang ditatap oleh monster besar. Namun, saat berikutnya, itu hanya dua petualang peringkat B yang andal, Ruti‧Ruru dan Tifa‧Johnson.
+Sesaat, Meguria merasa seolah-olah sedang ditatap oleh monster besar. Namun, berikutnya, itu hanya dua petualang peringkat-B yang andal, Ruti‧Ruru dan Tifa‧Johnson.
 
 Meguria meletakkan tangannya di dadanya dan menekan jantungnya yang berdetak kencang dan menghembuskan napas dengan keras.
 
