@@ -128,15 +128,15 @@ g"haa~~~, pria itu, padahal dialah yang ingin sekali memancing."
 
 dasar...
 
-“Tidak ada yang membantunya, kita akan melanjutkannya.”
+g"yaah mau bagaimana lagi, kita akan pergi duluan."
 
-"Baik!"
+"okeey!"
 
-Tanta mengangguk senang. Mungkin dia takut saya akan menundanya.
+Tanta mengangguk senang. Mungkin dia takut aku akan menundanya.
 
-Saya menepuk kepala Tanta untuk meyakinkannya dan dia tertawa karena geli.
+aku menepuk kepala Tanta untuk meyakinkannya dan dia tertawa karena geli.
 
-“Kami juga memiliki bagian dari bento untuk semua orang.”
+l"Kami juga punya bento untuk semuanya."
 
 Lit menunjukkan keranjang besar yang dipegangnya. Ada berbagai macam bento yang ditempatkan di dalamnya.
 
