@@ -62,17 +62,17 @@ r"begitu..."
 
 Ruti mengangguk setelah mendengarkan hal itu. Konfliknya sederhana.
 
-Walikota Tonedo dan mayoritas pemimpin Zoltan merasa bahwa mereka harus menyerahkan daftar gereja. Menentang mereka, Uskup Cien bersikeras pada kebijakan gereja untuk tidak menyerahkannya dan Guild Petualang Garadin mendukungnya.
+Walikota Tonedo dan mayoritas pemimpin Zoltan merasa bahwa mereka harus menyerahkan catatan gereja. Menentang mereka, Uskup Cien bersikeras pada kebijakan gereja untuk tidak menyerahkannya dan Guild Petualang Garadin mendukungnya.
 
 Kapten Penjaga Moen berada di sisi atasannya, Sir Jenderal William, tetapi dia tampaknya mendukung Uskup Cien menilai dari ekspresinya.
 
-Pemimpin Zoltan melawan Gereja Suci + kelompok petualang peringkat B sebelumnya.
+Pemimpin Zoltan melawan Gereja Suci + kelompok petualang peringkat-B sebelumnya.
 
 Sepertinya itulah situasi saat ini.
 
-“Saya mengerti situasinya. Saya juga ingin menyatakan pendapat saya. "
+r"aku mengerti situasinya. aku juga ingin menyatakan pendapatku."
 
-“Oo, Ruru-kun. Saya pasti ingin mendengar pendapat Anda sebagai petualang peringkat-B saat ini. Anda adalah seorang petualang tetapi tentu saja, Anda tidak perlu menahan diri karena Guild Petualang. Saya jamin posisi Anda di guild. "
+"Oo, Ruru-kun. aku pasti ingin mendengar pendapat kamu sebagai petualang peringkat-B saat ini. kamu adalah seorang petualang tetapi tentu saja, kamu tidak perlu menahan diri karena Guild Petualang. kamu bisa menjamin posisimu di guild."
 
 “Guild Petualang tidak akan pernah melakukan hal seperti itu…”
 
