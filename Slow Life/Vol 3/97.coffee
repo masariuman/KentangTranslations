@@ -122,9 +122,9 @@ g"Eh? Dimana Gonz?"
 
 “Paman Gonz rupanya terlalu banyak minum alkohol di festival kemarin. Dia sedang mabuk dan sedang tidur. ”
 
-g"haa~~~, pria itu, dialah yang ingin datang."
+g"haa~~~, pria itu, padahal dialah yang ingin sekali memancing."
 
-Dia bilang dia mungkin akan sembuh pada siang hari setelah dia minum obat Red-oniichan?
+"Dia bilang dia mungkin akan baikan pada siang hari setelah dia minum obat Red-oniichan?"
 
 Menyedihkan.
 
