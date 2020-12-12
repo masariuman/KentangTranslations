@@ -40,9 +40,9 @@ t"Veronia juga memiliki Gereja Suci, aku terkejut dia bisa mengucapkan kata-kata
 
 Tise berjalan ke samping Ruti dan berkomentar.
 
-Bagi Pembunuh Bayaran Guild, Gereja Suci adalah musuh yang merepotkan. Jaringan informasi gereja yang membentang di berbagai negara merupakan penghalang mematikan bagi para pembunuh.
+Bagi Guild Pembunuh Bayaran, Gereja Suci adalah musuh yang merepotkan. Jaringan informasi gereja yang membentang di berbagai negara merupakan penghalang mematikan bagi para pembunuh.
 
-“Itu karena jarak Zoltan dan Veronia. Mungkin dia berpikir bahwa protes apa pun oleh gereja di Zoltan tidak akan mencapai negara asalnya, Veronia. ”
+“Itu karena jarak Zoltan dan Veronia. Mungkin dia berpikir bahwa protes apa pun oleh gereja di Zoltan tidak akan mencapai negara asalnya, Veronia.”
 
 Tise tidak yakin dengan kata-kata Meguria dan memiringkan kepalanya. Bahkan Tise, pembunuh terkuat umat manusia, mengakui kekuatan organisasi Gereja Suci.
 
@@ -50,29 +50,29 @@ Berbeda dengan berbagai negara yang gagal mencapai kesepakatan untuk garis depan
 
 Tise merasa ragu.
 
-Jadi mengapa Pangeran Veronia ingin mendaftar gereja Zoltan?
+r"Jadi mengapa Pangeran Veronia ingin catatan gereja Zoltan?"
 
-“Itu… dia ingin menemukan seseorang.”
+“Itu... dia ingin menemukan seseorang.”
 
-"Menemukan seseorang? Orang macam apa yang dia cari? "
+r"Menemukan seseorang? Orang macam apa yang dia cari? "
 
-“Itu… dia bilang dia tidak perlu menjelaskannya pada kita. Serahkan saja daftar gereja. "
+"Itu... dia bilang dia tidak perlu menjelaskannya pada kami. Serahkan saja daftar gerejanya. "
 
 Alis Ruti bergerak sedikit.
 
-"Saya melihat. Dia menyuruh Zoltan untuk tidak terlibat. "
+r"begitu... Dia menyuruh Zoltan untuk tidak terlibat. "
 
 "Iya."
 
-Lalu, apakah kita menolak?
+r"Lalu, jika kita menolak?"
 
-”… Dia tidak akan melakukan apapun. Namun, dalam kasus itu, dia akan berlabuh di lepas pantai Zoltan sampai dia menemukan orang yang dia cari. Dan bahwa mereka akan menemukan persediaan mereka sendiri dan kita tidak perlu repot tentang mereka. "
+"... Dia tidak akan melakukan apapun. Namun, dalam kasus itu, dia akan berlabuh di pantai Zoltan sampai dia menemukan orang yang dia cari. Dan mereka akan menemukan persediaan mereka sendiri dan kita tidak perlu repot tentang mereka."
 
-“Mereka akan mencari perbekalan sendiri ya. Seperti yang diharapkan dari putra Bajak Laut Geyserik. "
+r"Mereka akan mencari perbekalan sendiri ya. Seperti yang diharapkan dari putra Bajak Laut Geyserik. "
 
-Dengan kata lain, dia mengancam akan melakukan pembajakan di sepanjang pantai Zoltan jika mereka tidak menyerahkan daftar gereja.
+Dengan kata lain, dia mengancam akan melakukan penjarahan di sepanjang pantai Zoltan jika mereka tidak menyerahkan catatan gereja.
 
-Dengan ancaman kekerasan seperti itu, dia bahkan tidak akan bisa mengeluh jika Zoltan menyatakan perang padanya ...
+Dengan ancaman kekerasan seperti itu, dia bahkan tidak akan bisa mengeluh jika Zoltan menyatakan perang padanya...
 
 Tak perlu dikatakan, angkatan laut Zoltan tidak bisa bersaing dengannya.
 
