@@ -96,36 +96,36 @@ Walikota sebelumnya Mistome adalah seorang wanita yang pernah berdiri di puncak 
 
 Fakta bahwa dia mampu melanjutkan pekerjaannya sebagai walikota sambil beroperasi di kelompok petualang terkuat menunjukkan tingkat kemampuannya. Perlindungan ilahi-nya adalah 『Archmage』. Perlindungan ilahi tingkat tinggi dalam sistem pengguna sihir yang memiliki, selain keterampilan sistem sihir biasa, keterampilan unik mereka sendiri yang disebut 'Seni Sihir tingkat tinggi'.
 
-Itu adalah keterampilan kuat lainnya yang dapat meningkatkan mantra saat bepergian dengan cara seperti merefleksikan mantra, mengubah mantra target tunggal menjadi mantra area-of-effect, dan mengubah output daya agar seimbang dengan konsumsi daya magis.
+Itu adalah keterampilan kuat lainnya yang dapat meningkatkan sihir saat bepergian dengan cara seperti merefleksikan sihir, mengubah sihir target tunggal menjadi sihir area, dan mengubah output daya agar seimbang dengan konsumsi daya magis.
 
-Berbeda dengan 『Sage』 yang mampu menggunakan Magical Art dan Covenant Magic, 『Archmage』 adalah pelindung dewa yang berspesialisasi dalam Seni Sihir. Tapi 『Sage』 memiliki peningkatan kekuatan magis yang sangat besar jadi saya yakin 『Sage』 masih lebih unggul dalam pertempuran yang diperpanjang.
+Berbeda dengan 『Sage』 yang mampu menggunakan Magical Art dan Sihir Perjanjian, 『Archmage』 adalah pelindung ilahi yang berspesialisasi dalam Seni Sihir. Tapi 『Sage』 memiliki peningkatan kekuatan magis yang sangat besar jadi aku yakin 『Sage』 masih lebih unggul dalam pertempuran.
 
-“Bahkan jika kalian tidak membantunya, dia mungkin akan mengalahkan mereka tanpa kesulitan apapun.”
+g"Bahkan jika kalian tidak membantunya, dia mungkin akan mengalahkan mereka tanpa kesulitan apapun."
 
 Meskipun sudah tua, dia pernah menjadi pengguna sihir petualang peringkat B. Tidak seperti seni bela diri, keefektifan sihir tidak berkurang seiring bertambahnya usia. Regenerasi kekuatan sihir mungkin lebih lambat tetapi untuk satu pertarungan, dia akan mampu menampilkan kekuatan yang mirip dengan masa jayanya, yang merupakan ciri dari perlindungan ilahi tipe pengguna sihir.
 
 Jika mereka adalah lawan yang bisa dikalahkan Tise dalam sekejap, wanita tua itu seharusnya bisa mengatasinya sendiri.
 
-“Kalau begitu, Drake Rider yang mengaku dirinya menyia-nyiakan taruhannya untuk nyawanya.”
+l"Kalau begitu, orang yang mengaku penunggang drike itu menyia-nyiakan nyawanya sebagai taruhannya."
 
-"Saya kira Anda bisa mengatakan itu."
+g"begitulah."
 
 Selain itu, jika dia tetap tinggal daripada melarikan diri, dia mungkin akan menerima surat penghargaan serta emas dari otoritas Zoltan.
 
 Dalam cuaca dingin itu, kami teringat pada pria bertubuh besar yang lari dari keberuntungan yang akhirnya jatuh ke pangkuannya dan tertawa.
 
-“Nah, karena Ruti datang jauh-jauh ke sini, apakah kamu ingin minum susu panas?”
+g"Nah, karena Ruti datang jauh-jauh ke sini, apakah kamu ingin minum susu panas?"
 
-"Iya!"
+r"Iya!"
 
-“Kurasa Lit ingin kopi. Dengan jumlah gula dan susu yang sama? "
+g"Kurasa Lit ingin kopi. Dengan jumlah gula dan susu yang sama?"
 
-"Boleh juga."
+l"Boleh juga."
 
 Bagaimana dengan Tise?
 
-“Bisakah saya minta cafe au lait?”
+“Bisakah aku minta cafe au lait?”
 
-“Susu panas, kopi, dan cafe au lait. Baik."
+g"Susu panas, kopi, dan cafe au lait. oke."
 
 Aku berdiri dan berpikir untuk memanggang roti bawang putih saat aku berjalan menuju dapur.
