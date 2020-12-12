@@ -98,7 +98,7 @@ Ruti yang sekarang bisa tumbuh mencintai siapa saja.
 
 g"Aku agak merasa sedikit kesepian karena sepertinya dia akan meninggalkan kakak laki-lakinya."
 
-l"red adalah siscon yang sejati."
+l"red adalah siscon sejati."
 
 g"Muu... aku tidak menyangkalnya."
 
