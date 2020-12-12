@@ -84,7 +84,7 @@ Ruti tidak bisa membayangkan kemungkinan Veronia secara serius mengobarkan peran
 
 Bahkan jika mereka meminta bantuan dari Avalonia atau negara-negara besar lainnya, negara-negara itu sudah sibuk dengan perang melawan Tentara Raja Iblis. Mereka seharusnya tidak memiliki ruang kosong untuk berperang melawan Veronia.
 
-Dengan kata lain, Zoltan tidak punya pilihan lain selain menelan permintaan Veronia.
+Dengan kata lain, Zoltan tidak punya pilihan lain selain menerima permintaan Veronia.
 
 “Hiii !?”
 
