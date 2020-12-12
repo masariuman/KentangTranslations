@@ -184,8 +184,8 @@ Tanta bertanya dengan cemas.
 
 g"Masih ada kemungkinan mereka bajak laut tapi para bajak laut di sekitar wilayah ini menggunakan gali ukuran sedang sampai kecil. aku tidak ingat ada bajak laut yang memiliki kapal perang seperti itu."
 
-saat Danan melakukan perjalanan dengan perahu, dia menenggelamkan sejumlah besar kapal perompak. Para perompak di sepanjang rute laut Zoltan seharusnya bersembunyi saat ini.
+saat Danan melakukan perjalanan dengan perahu, dia menenggelamkan sejumlah besar kapal bajak laut. Para bajak laut di sepanjang rute laut Zoltan seharusnya bersembunyi saat ini.
 
-"Kapal itu tidak mampu melakukan perjalanan ke timur jadi aku ingin tahu ada urusan apa dengan Zoltan."
+g"Kapal itu tidak mampu melakukan perjalanan ke timur jadi aku ingin tahu ada urusan apa dengan Zoltan."
 
 Aku mengambil sandwich dengan tanganku dan menatap kapal perang Veronia yang bergerak menjauh dan membayangkan tujuan kapal itu.
