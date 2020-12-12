@@ -164,9 +164,9 @@ t"..."
 
 Red-san, kamu membuat kesalahpahaman besar.
 
-Ruti-sama tentu mampu menemukan cinta baru. Namun, cinta tidak meningkat dengan kecepatan yang konstan. Ini akan lebih berkonsentrasi pada orang-orang di mana dia memiliki kemungkinan lebih tinggi untuk mencintai.
+Ruti-sama tentu mampu menemukan cinta baru. Namun, cinta tidak meningkat dengan kecepatan yang konstan. Ini akan lebih berfokus pada orang-orang yang memiliki kemungkinan lebih tinggi untuk dia cintai.
 
-Saat dia bisa membentuk cinta baru, perasaan positif Ruti-sama pada Red-san akan terus meningkat setiap hari dengan batas langit.
+Saat dia bisa membentuk cinta baru, perasaan positif Ruti-sama pada Red-san akan terus meningkat setiap hari.
 
 Atau lebih tepatnya, bukankah kita sudah melewati titik di mana tidak ada jalan kembali?
 
