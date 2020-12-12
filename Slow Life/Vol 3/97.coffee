@@ -78,7 +78,7 @@ Ruti-sama tertawa malu-malu.
 
 Fuuuu.
 
-Saya secara tidak sengaja menghela nafas ketika saya memasuki kamar mandi. Saya mulai berpikir mengapa saya harus menghela nafas tetapi proses berpikir saya lumer oleh bak mandi dan saya merilekskan seluruh tubuh saya.
+aku secara tidak sengaja menghela nafas ketika aku memasuki kamar mandi. aku mulai berpikir mengapa aku harus menghela nafas tetapi proses berpikir saya lumer oleh bak mandi dan saya merilekskan seluruh tubuh saya.
 
 Uap putih melayang keluar melalui jendela. Ugeuge-san berdiri di dekat jendela dan dengan cekatan mengambil tetesan air kecil dengan lengannya dan membasuh tubuhnya.
 
