@@ -1,74 +1,72 @@
 Bab 96: Melamar
 
-Penerjemah: Tseirp
-
-Fuuuu.
+l"Fuuuu."
 
 Lit menghela nafas panjang dan duduk.
 
-"Apakah kamu baik-baik saja?"
+g"Apakah kamu baik-baik saja?"
 
-Saya lulus Lit a High Cure Potion.
+aku memberikan Lit obat penyembuh tingkat tinggi.
 
 Paha Lit dan lengan kiri atas berdarah.
 
-"Terima kasih."
+l"Terima kasih."
 
-Menyalakan isi ramuan sekaligus. Lit mengerutkan kening karena rasa sakit yang aneh ketika mengalami penyembuhan karena itu akan menyebabkan seseorang merasakan, dalam sekejap, semua rasa sakit yang seharusnya dirasakan orang karena luka sembuh secara normal seiring waktu tetapi lukanya menutup dengan sempurna pada saat berikutnya.
+lit meneguk ramuan sekaligus. Lit mengerutkan kening karena rasa sakit yang aneh ketika mengalami penyembuhan karena itu akan menyebabkan seseorang merasakan, dalam sekejap, semua rasa sakit yang seharusnya dirasakan orang karena luka sembuh secara normal seiring waktu tetapi lukanya menutup dengan sempurna pada saat berikutnya.
 
-“Itu adalah pertama kalinya aku melawan orc sekuat itu.”
+l"Itu adalah pertama kalinya aku melawan orc sekuat itu."
 
-“Kami bertemu mereka sesekali. Tentara Raja Iblis telah berjuang selama ini. Di antara barisan mereka adalah mereka yang telah mengalahkan banyak musuh secara berurutan dan menjadi lebih kuat. Bahkan jika mereka adalah orc yang sama, mereka yang berada di bawah komando pasukan utama Demon Lord Army memiliki level perlindungan divine yang lebih tinggi dan lebih kuat. "
+g"Kami bertemu mereka sesekali. Tentara Raja Iblis telah berjuang selama ini. Di antara barisan mereka adalah mereka yang telah mengalahkan banyak musuh terus-menerus dan menjadi lebih kuat. Bahkan jika mereka adalah orc yang sama, mereka yang berada di bawah komando pasukan utama pasukan raja iblis memiliki level perlindungan ilahi yang lebih tinggi dan lebih kuat."
 
-“Apakah kalian pernah bertengkar seperti itu selama ini?”
+l"Apakah kalian pernah bertarung seperti itu selama ini?"
 
-“Kami sama sekali tidak memimpin unit. Kita hanya bisa mengandalkan mendorong diri kita sendiri jika kita ingin melawan Tentara Raja Iblis secara setara. ”
+"Kami sama sekali tidak memimpin unit sama sekali. kami hanya bisa mengandalkan diri kami sendiri jika kmai ingin melawan pasukan Raja Iblis secara setara."
 
-Memikirkannya secara logis, menantang pasukan orc yang terdiri lebih dari seratus orc hanya dengan dua orang adalah gila. Namun, tidak ada strategi waras yang memungkinkan hanya lima orang untuk bersaing dengan Tentara Raja Iblis.
+Memikirkannya secara logis, menantang pasukan orc yang terdiri lebih dari seratus orc hanya dengan dua orang adalah gila. tapi, tidak ada strategi waras yang memungkinkan hanya lima orang untuk bersaing dengan Tentara Raja Iblis.
 
-Namun, jika saya harus jujur, itu menakutkan. Ketika aku harus menghadapi pasukan yang terdiri dari lusinan orc dan iblis sementara hanya bergantung pada pedang dan armorku saat aku menyerang mereka, aku masih ingin melarikan diri tidak peduli berapa kali aku mengalaminya.
+Namun, jika aku harus jujur, itu menakutkan. Ketika aku harus menghadapi pasukan yang terdiri dari lusinan orc dan iblis sementara hanya bergantung pada pedang dan armorku saat aku menyerang mereka, aku masih ingin melarikan diri tidak peduli berapa kali aku mengalaminya.
 
-Aku akan menyerang Soldier Demons yang terkoordinasi dengan sempurna dengan tombak mereka siap, menghindari pukulan tombak yang turun dari segala arah dan mendorong diriku melewati batas untuk mengayunkan pedang bahkan saat seluruh tubuhku memanas. Satu-satunya hal yang menungguku jika aku meletakkan pedang adalah kematian.
+Aku akan menyerang pasukan iblis yang terkoordinasi dengan sempurna, menghindari pukulan tombak yang datang dari segala arah dan mendorong diriku melewati batas untuk mengayunkan pedang bahkan saat seluruh tubuhku memanas. Satu-satunya hal yang menungguku jika aku melepaskan pedang adalah kematian.
 
-Tanpa sadar, saya berubah sedemikian rupa sehingga saya akan merasa tidak nyaman kecuali pedang ada dalam jangkauan. Sebelum tidur, saya harus meletakkan pedang di samping tempat tidur saya, jika tidak, saya tidak akan bisa tidur. Selama saya memiliki pedang, saya bisa tidur di tengah hutan belantara sedangkan jika saya tidak memiliki pedang, saya bahkan tidak akan bisa tidur di kota yang dipertahankan oleh ratusan tentara.
+Tanpa sadar, aku berubah sedemikian rupa sehingga aku akan merasa tidak nyaman kecuali pedang ada dalam jangkauanku. Sebelum tidur, aku harus meletakkan pedang di samping tempat tidurku, jika tidak, aku tidak akan bisa tidur. Selama aku memiliki pedang, aku bisa tidur di tengah hutan belantara sedangkan jika aku tidak memiliki pedang, aku bahkan tidak akan bisa tidur di kota yang dipertahankan oleh ratusan tentara.
 
-“Apa yang salah, kamu membuat wajah yang menakutkan…”
+l"Apa ada yang salah, kamu membuat wajah yang menakutkan..."
 
-"Ah maaf. Saya melamun. "
+g"Ah maaf. aku hanya melamun. "
 
-“Di tengah pertempuran sekarang?”
+l"Di tengah pertempuran sekarang?"
 
-"Jika kau ingin menunjukkannya, Lit, kau juga akan duduk."
+g"Jika kau ingin mengeluhkannya, Lit, kau juga akan duduk."
 
 Saat aku mengulurkan tanganku, Lit meraih tanganku dengan wajah merah untuk berdiri.
 
-"Saya hanya sedikit santai setelah mengalahkan musuh yang kuat."
+g"aku hanya sedikit santai setelah mengalahkan musuh yang kuat."
 
-Mungkin ada orang lain yang setingkat itu juga.
+l"Mungkin ada yang lain yang setingkat itu juga."
 
-"Tidak apa-apa, kita hanya harus mengalahkan mereka jika kita bertemu mereka."
+g"Tidak apa-apa, kita hanya harus mengalahkan mereka jika kita bertemu mereka."
 
 Lit mendengus. Setelah melihat penampilannya yang percaya diri, entah bagaimana aku merasa bisa rileks dan melepaskan ketegangan dari pundakku dengan cara yang baik.
 
 Entah kenapa, saat aku melihat wajah Lit, aku merasa tenang.
 
-“Akankah kita terus berjuang secara kooperatif?”
+g"Akankah kita terus berjuang secara kooperatif?"
 
-“T-tidak! Lain kali, saya akan merasa cukup sendirian! "
+l"T-tidak! Berikutnya, aku sendirian sudah cukup!"
 
-Setelah mengatakan itu, Lit bergumam tanpa alasan pada dirinya sendiri sebelum dia melihat ke bawah dan menambahkan.
+Setelah mengatakan itu, Lit bergumam tanpa alasan pada dirinya sendiri dan dia melihat ke bawah.
 
-“Baiklah, jika itu adalah lawan yang akan sulit bertarung sendirian, aku tidak keberatan bertarung bersama sekali lagi. Anda percaya pada saya setelah semua. Setidaknya selama kita bertengkar, aku akan percaya padamu juga. "
+l"Baiklah, jika itu adalah lawan yang akan sulit untuk bertarung sendirian, aku tidak keberatan bertarung bersama sekali lagi. kamu percaya padaku juga. Setidaknya selama kita bertarung, aku akan percaya padamu juga."
 
-“Yah, itu karena Lit baru saja percaya padaku. Terima kasih telah melindungiku. "
+g"Yah, itu karena Lit baru saja percaya padaku. Terima kasih telah melindungiku."
 
-“Saya merasa luar biasa bagaimana Anda dapat menghadapi orang lain secara langsung dan berterima kasih kepada mereka dengan lancar tanpa merasa malu. Aku sedikit menghargaimu. "
+l"aku merasa luar biasa bagaimana kamu dapat menghadapi orang lain secara langsung dan berterima kasih kepada mereka dengan lancar tanpa merasa malu. Aku sedikit menghargaimu."
 
-"Tapi menurutku Lit hanyalah orang yang sangat pemalu."
+g"Tapi menurutku Lit hanyalah orang yang sangat pemalu."
 
-“A-siapa orang yang sangat pemalu! WHO!"
+l"A-siapa orang yang sangat pemalu! SIAPA!"
 
-Saya tertawa.
+aku tertawa.
 
 Kalau dipikir-pikir lagi, mungkin saat itulah saya mulai menyukai Lit.
 
