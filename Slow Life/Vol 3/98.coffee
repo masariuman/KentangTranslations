@@ -182,9 +182,9 @@ Itu sekarang menjadi kapal tua tetapi bajak laut Geyserik merebutnya ketika masi
 
 Tanta bertanya dengan cemas.
 
-“Masih ada kemungkinan mereka bajak laut tapi para bajak laut di sekitar wilayah ini menggunakan galai ukuran sedang sampai kecil. Saya tidak ingat ada bajak laut yang memiliki kapal perang seperti itu. "
+g"Masih ada kemungkinan mereka bajak laut tapi para bajak laut di sekitar wilayah ini menggunakan gali ukuran sedang sampai kecil. aku tidak ingat ada bajak laut yang memiliki kapal perang seperti itu."
 
-Selanjutnya, saat Danan melakukan perjalanan dengan perahu, dia menenggelamkan sejumlah besar kapal perompak. Para perompak di sepanjang rute laut Zoltan seharusnya bersembunyi saat ini.
+saat Danan melakukan perjalanan dengan perahu, dia menenggelamkan sejumlah besar kapal perompak. Para perompak di sepanjang rute laut Zoltan seharusnya bersembunyi saat ini.
 
 "Kapal itu tidak mampu melakukan perjalanan ke timur jadi aku ingin tahu ada urusan apa dengan Zoltan."
 
