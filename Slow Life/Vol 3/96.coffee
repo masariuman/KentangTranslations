@@ -68,9 +68,9 @@ l"A-siapa orang yang sangat pemalu! SIAPA!"
 
 aku tertawa.
 
-Kalau dipikir-pikir lagi, mungkin saat itulah saya mulai menyukai Lit.
+Kalau dipikir-pikir lagi, mungkin saat itulah aku mulai menyukai Lit.
 
-Karena pada saat yang singkat itu, saya lupa semua tentang pertarungan, tanggung jawab saya, dan beban pedang di pinggang saya.
+Karena pada saat yang singkat itu, aku lupa semua tentang pertarungan, tanggung jawabku, dan beban pedang di pinggangku.
 
 Hanya kata-kata Lit yang berdiri di depanku yang mencapai diriku.
 
