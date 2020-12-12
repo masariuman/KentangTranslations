@@ -30,37 +30,37 @@ Meski tidak mau menyelam ke dalam bak mandi, ia seakan ingin membersihkan tubuhn
 
 t"Baiklah."
 
-Aku mengulurkan tangan kananku dan Ugeuge-san melompat ke punggung tanganku sambil memantul.
+Aku mengulurkan tangan kananku dan Ugeuge-san melompat ke punggung tanganku.
 
-Kemudian, itu dengan mulus berlari ke lenganku dan pindah ke pundakku.
+Kemudian, dia dengan mulus berlari ke lenganku dan pindah ke pundakku.
 
-Baiklah, kita siap berangkat. Ugeuge-san dengan kuat mengayunkan lengan kanannya ke depan untuk menunjukkan persetujuannya.
+Baiklah, kita sudah selesai. Ugeuge-san dengan kuat mengayunkan lengan kanannya ke depan untuk menunjukkan dia sudah selesai juga.
 
-"Tise?"
+g"Tise?"
 
-Saat aku berdiri, Ruti-sama mengintip keluar dari pintu.
+Saat aku berdiri, Ruti-sama mengintip dari pintu.
 
-“Kamu sudah selesai dengan perawatan peralatanmu?”
+r"Kamu sudah selesai dengan perawatan peralatanmu?"
 
-Ruti-sama bertanya setelah melihat senjata yang dipertahankan diletakkan di lantai.
+Ruti-sama bertanya setelah melihat senjata yang kubersihkan diletakkan di lantai.
 
-"Iya. Saya sudah selesai."
+t"Iya. aku sudah selesai."
 
-Sekarang aku memikirkannya, Ruti-sama terus menggunakan pedang goblin yang dia peroleh dari mengalahkan para goblin ketika kami tiba di Zoltan. Meskipun Sacred Avenger dihancurkan oleh Shisandan, item box Ruti-sama seharusnya memiliki senjata yang kami temukan di kamp atau reruntuhan Demon Lord Army.
+Sekarang baru aku memikirkannya, Ruti-sama terus menggunakan pedang goblin yang dia peroleh dari mengalahkan para goblin ketika kami tiba di Zoltan. Meskipun Sacred Avenger dihancurkan oleh Shisandan, item box Ruti-sama seharusnya memiliki senjata yang kami temukan di kamp atau reruntuhan pasukan raja iblis.
 
-Karena kami telah menunjukkan kemampuan sekitar level petualang peringkat B, saya merasa bahwa Ruti-sama harus memilih senjata yang cocok dari inventarisnya.
+Karena kami telah menunjukkan kemampuan sekitar level petualang tingkat-B, aku merasa bahwa Ruti-sama harus memilih senjata yang cocok dari inventarisnya.
 
-“Ruti-sama, apakah kamu yakin ingin terus menggunakan pedang goblin.”
+t"Ruti-sama, apakah kamu yakin ingin terus menggunakan pedang goblin."
 
-“Ya, itu tidak terlalu merepotkan saya.”
+r"Ya, itu tidak terlalu merepotkanku."
 
-Saya rasa itu juga benar. Sebagai yang terkuat di Benua Avalon bahkan dengan tangan kosong, satu pedang goblin sudah lebih dari cukup untuk setiap lawan yang mungkin dia hadapi di Zoltan.
+aku rasa itu juga benar. Sebagai yang terkuat di Benua Avalon bahkan dengan tangan kosong, satu pedang goblin sudah lebih dari cukup untuk setiap lawan yang mungkin dia hadapi di Zoltan.
 
-Namun…
+tapi...
 
-“Apakah karena pengaruh Red-san?”
+t"Apakah karena Red-san?"
 
-" … Iya."
+g" ... Iya."
 
 Sama seperti Red-san yang dengan sengaja membeli kembali pedang tembaga, pilihan Ruti-sama untuk memegang senjata yang jelek adalah caranya untuk mendekati Red-san.
 
