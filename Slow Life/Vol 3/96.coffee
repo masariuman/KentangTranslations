@@ -96,13 +96,13 @@ Meskipun aku mengincar kehidupan yang santai tanpa pertempuran apapun, aku tetap
 
 Lit datang kepadaku tepat saat aku berada dalam situasi itu. Dia menawarkan untuk tinggal bersamaku.
 
-“Aku sudah menyukaimu sejak lama, sejak kita bertemu di Logavia.”
+g"Aku sudah menyukaimu sejak lama, sejak kita bertemu di Logavia."
 
 Perasaan dalam diriku mengalir keluar dari mulutku.
 
-Wajah Lit memerah. Namun, saya tidak bisa menahan diri dan kata-kata itu keluar satu demi satu.
+Wajah Lit memerah. Namun, aku tidak bisa menahan diri dan kata-kata itu keluar satu demi satu.
 
-“Aku bahkan tidak menyadari betapa aku menyukaimu. Aku cinta kamu. Saya sangat mencintai kamu."
+g"Aku bahkan tidak menyadari betapa aku menyukaimu. Aku cinta kamu. Saya sangat mencintaimu."
 
 Maaf, saya tidak bisa berhenti. Saya tidak menuliskan kata-kata untuk diucapkan dan hanya bisa terus seperti itu.
 
