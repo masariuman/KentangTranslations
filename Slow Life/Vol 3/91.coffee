@@ -148,7 +148,7 @@ Saat itulah bayangan gelap tiba-tiba menembus kegelapan di pelabuhan.
 
 Otto memiringkan kepalanya.
 
-Benar-benar aneh. Meskipun akan baik-baik saja untuk membiarkannya, Otto pria itu dengan aneh berjalan ke dalam kegelapan.
+Benar-benar aneh. Meskipun akan baik-baik saja untuk membiarkannya, pria Otto itu dengan aneh berjalan ke dalam kegelapan.
 
 ☆☆
 
