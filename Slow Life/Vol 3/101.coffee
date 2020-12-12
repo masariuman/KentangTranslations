@@ -28,9 +28,9 @@ Ruti tidak meneteskan keringat sedikitpun. Pipinya sedikit memerah karena rencan
 
 Ruti dan Tise berjalan melewati Pusat Kota sambil mandi di bawah sinar matahari pagi saat mereka menuju ke toko Red.
 
-Tise membawa belati tersembunyi di bawah ketiaknya. Ruti tidak membawa apapun. Dia menyimpan pedangnya di toko Red.
+Tise membawa pisau tersembunyi di bawah ketiaknya. Ruti tidak membawa apapun. Dia menyimpan pedangnya di toko Red.
 
-Dia akan pergi keluar dari jalannya untuk melewati toko Red untuk mengambil pedangnya setiap kali dia akan pergi bertualang. Itu jelas alasan yang kikuk untuk bertemu Red, tapi Red dan Tise menjaga keegoisannya dengan hangat.
+Dia akan pergi ke toko Red untuk mengambil pedangnya setiap kali dia akan pergi bertualang. alasannya jelas untuk bertemu Red, tapi Red dan Tise menjaga keegoisannya dengan hangat.
 
 Ada sedikit keributan di Pusat Kota Zoltan hari ini.
 
