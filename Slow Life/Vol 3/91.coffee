@@ -158,7 +158,7 @@ Ada tiga pria dengan pedang pendek mengelilingi sosok wanita dengan punggung men
 
 Otto menyipitkan matanya, memutuskan bahwa dia akan membantu jika dia cantik, tetapi dia tampak seperti wanita tua dengan pinggang bungkuk.
 
-Awalnya Otto kecewa dan ingin pergi tapi sosok wanita tua itu mengingatkannya pada ibunya yang sudah lama tidak dia temui dan dia merasakan rasa bakti yang diluar karakter.
+Awalnya Otto kecewa dan ingin pergi tapi sosok wanita tua itu mengingatkannya pada ibunya yang sudah lama tidak dia temui dan dia merasakan tidak enak.
 
 Kepribadiannya adalah bertindak segera setelah dia membuat keputusan.
 
