@@ -310,7 +310,7 @@ g"Kupikir itu akan cocok dengan telingamu yang indah ..."
 
 “Tidak, tidak... tolong, jangan berbicara lagi.”
 
-g"Jadi.. rry... Gufu...."
+g"Ma.. af... Gufu...."
 
 Akhirnya, setelah batuk darah, lengan Gideon lemas dan anting-antingnya jatuh ke lantai.
 
@@ -322,39 +322,39 @@ Yarandorara menangis dan memeluk tubuh Gideon yang tak bernyawa.
 
 Setelah satu jam berlalu, Pahlawan Ruti dan Sage Ares buru-buru bersiap untuk perjalanan mengejar iblis.
 
-"Kita harus cepat."
+r"Kita harus cepat."
 
-"Ya, kita harus mengejar sebelum kabur ke Desmond dari kastil Pasir."
+"Ya, kita harus cepat mengejarnya sebelum iblis itu kabur ke Desmond dari istana Pasir."
 
 Setelah mereka selesai berkemas, mereka mendengar ketukan di pintu mereka.
 
-Bisakah saya masuk?
+"bolehkan aku masuk?"
 
-Pangeran Kifa?
+"Pangeran Kifa?"
 
 Kifa dan Yarandorara masuk setelah membuka pintu.
 
-“Kenapa kalian berdua disini? Sepertinya kalian berdua ada di sini untuk mengirim kami pergi? "
+"Kenapa kalian berdua disini? kalian berdua ada di sini untuk melihat kami pergi? "
 
 Kifa memukul gagang gladiusnya yang dipakainya di pinggangnya. Dia membawa perisai bundar di punggungnya.
 
-Yarandorara mencengkeram erat staf quarterstafnya.
+Yarandorara mencengkeram erat tongkat quarterstafnya.
 
-Mereka berdua sedang bepergian.
+Mereka berdua menggunakan perlengkapan bepergiannya.
 
-“Tugas saya adalah menyelamatkan Serena. Pahlawan, izinkan saya bepergian dengan Anda. "
+"Tugasku adalah menyelamatkan Serena. Pahlawan, izinkan aku bepergian denganmu. "
 
-“Saya akan menutup toko saya sampai saya membalas dendam untuk Gideon. Aku tidak akan memaafkan Tentara Raja Iblis karena telah merampok cintaku. "
+"aku akan menutup tokoku sampai aku membalas dendam untuk Gideon. Aku tidak akan memaafkan Tentara Raja Iblis karena telah mengambil cintaku."
 
-“Terima kasih, kalian berdua… ini meyakinkan!”
+r"Terima kasih, kalian berdua... ini meyakinkan!"
 
-Dengan demikian, 『Weapon Master』 Kifa dan 『Tree Singer』 Yarandorara secara resmi memasuki party dan bersama dengan 『Hero』 Ruti dan 『Sage』 Ares, akhirnya meninggalkan Imperial Capital.
+Dengan demikian, 『Ahli Senjata』 Kifa dan 『Penyanyi Pohon』 Yarandorara secara resmi memasuki tim dan bersama dengan 『Pahlawan』 Ruti dan 『Sage』 Ares, akhirnya meninggalkan Ibukota Kekaisaran.
 
 Ini hanyalah pengantar cerita Pahlawan.
 
-Pahlawan yang kehilangan adiknya menahan air matanya dan bergerak maju tanpa henti.
+Pahlawan yang kehilangan saudaranya menahan air matanya dan bergerak maju tanpa henti.
 
-Tanpa takut tragedi yang menunggunya, Pahlawan yang membawa dengan harapan kemanusiaannya, akan mewujudkan keadilan dan tidak melihat ke belakang sampai hari dia mengalahkan Raja Iblis Setan.
+Tanpa takut tragedi yang menunggunya, Pahlawan yang membawa harapan kemanusiaannya, akan mewujudkan keadilan dan tidak melihat ke belakang sampai hari dia mengalahkan Raja Iblis.
 
 ☆☆
 
