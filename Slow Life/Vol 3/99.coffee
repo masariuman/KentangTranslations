@@ -62,57 +62,57 @@ aku merasa seolah-olah udara membeku.
 
 Tise dan Tanta berhenti bergerak dan semua orang menatap ke arah kami.
 
-Ruti menatap langsung ke arahku dengan mata jernih. Di dalam matanya ada aura yang sama yang mengintimidasi lawannya ketika dia menjadi was Hero 』.
+Ruti menatap langsung ke arahku dengan mata jernih. Di dalam matanya ada aura mirip dengan mengintimidasi lawannya ketika dia menjadi seorang pahlawan.
 
 Aku menarik napas dalam-dalam dan perlahan membuka mulutku.
 
-"Ah iya. Saya melamar tadi malam. "
+g"iya. aku melamarn lit tadi malam."
 
-Aku mendengar Tise menelan. Lit tampak gugup dan dia mengepalkan tinjunya erat-erat. Tanta melihat antara Ruti dan aku dengan cemas.
+Aku mendengar Tise menelan liurnya. Lit tampak gugup dan dia mengepalkan tinjunya erat-erat. Tanta melihat antara Ruti dan aku dengan cemas.
 
-"Onii Chan."
+g"Onii Chan."
 
 Ruti, yang lebih pendek dariku, menatap mataku.
 
 Kemudian,
 
-Selamat, aku bahagia untukmu.
+r"Selamat, aku bahagia untukmu."
 
 Dia berkata dan tersenyum bahagia.
 
 ☆☆
 
-"Fiuh, aku sangat gugup."
+l"Fiuh, aku sangat gugup."
 
 Setelah berpisah dengan semua orang, Lit tersenyum sambil merilekskan kedua lengannya.
 
-“Tapi aku terkejut. Ruti sangat mencintai Red sehingga aku membayangkan suasana hatinya akan buruk setelah Onii-channya direnggut. ”
+l"Tapi aku terkejut. Ruti sangat mencintai Red sehingga aku membayangkan suasana hatinya akan buruk setelah Onii-channya direnggut."
 
-"Ya. Tetapi Ruti tidak mengembangkan kasih sayang pada orang lain selain diri saya karena perlindungan ilahi yang dimilikinya. Setelah itu pergi, mungkin dia akan menemukan orang lain yang menarik juga. "
+g"Ya. Tetapi Ruti tidak memberikan kasih sayang pada orang lain selain diriku karena perlindungan ilahi yang dimilikinya. Setelah itu pergi, mungkin dia akan menemukan orang lain yang menarik juga."
 
-Karena perlawanan mental Ruti dari perlindungan dewa 『Pahlawan』, dia berada dalam keadaan di mana dia tidak bisa merangkul kasih sayang manusia terhadap orang lain. Sebelum ketahanan mentalnya sempurna, dengan kata lain, perasaan kasih sayangnya kepada saya ketika kita bersama sebelum levelnya meningkat adalah satu-satunya kasih sayang yang bisa dia rasakan.
+Karena perlawanan mental Ruti dari perlindungan ilahi 『Pahlawan』, dia berada dalam keadaan di mana dia tidak bisa memberikan kasih sayang manusia terhadap orang lain. Sebelum ketahanan mentalnya sempurna, dengan kata lain, perasaan kasih sayangnya kepadaku ketika kami bersama sebelum levelnya meningkat adalah satu-satunya kasih sayang yang bisa dia rasakan.
 
-Namun, dengan Ruti's 『Shin』, dia dapat dengan bebas menerapkan atau menghilangkan perlawanannya.
+Namun, dengan『Shin』, dia dapat dengan bebas menerapkan atau menghilangkan ketahanan mentalnya.
 
 Ruti yang sekarang bisa tumbuh mencintai siapa saja.
 
-“Aku agak merasa sedikit kesepian karena sepertinya dia akan meninggalkan kakak laki-lakinya.”
+g"Aku agak merasa sedikit kesepian karena sepertinya dia akan meninggalkan kakak laki-lakinya."
 
-“Merah adalah siscon yang sebenarnya.”
+l"red adalah siscon yang sejati."
 
-“Muu… aku tidak menyangkalnya.”
+g"Muu... aku tidak menyangkalnya."
 
-“Apa yang akan kamu lakukan jika Drake Rider Otto itu menjadi partner Ruti? '
+l"Apa yang akan kamu lakukan jika penunggang Drake Otto itu menjadi kekasih Ruti?"
 
-Aku akan membunuhnya.
+g"Aku akan membunuhnya."
 
-“Jangan-jangan katakan itu dengan wajah serius. Sama sekali tidak terdengar seperti lelucon. "
+l"Ja-jangan katakan itu dengan wajah serius. Sama sekali tidak terdengar seperti lelucon."
 
-Saya bermaksud itu sebagai lelucon tetapi ... jika saat itu tiba, apakah saya bisa menerimanya dengan tenang?
+aku ingin membuat lelucon tetapi ... jika saat itu tiba, apakah aku bisa menerimanya dengan tenang?
 
-Aku mungkin akan membunuhnya jika partnernya adalah Ares.
+Aku mungkin akan membunuhnya jika kekasihnya adalah Ares.
 
-"Sheesh, Red."
+l"Sheesh, Red."
 
 Lit tersenyum pahit seolah dia telah membaca pikiranku.
 
@@ -120,7 +120,7 @@ Lit tersenyum pahit seolah dia telah membaca pikiranku.
 
 (Aku tahu itu akan menjadi percakapan yang akan dilakukan Red-san dan Lit-san.)
 
-Saya Tise‧Garland. Seorang pembunuh dan teman dekat Pahlawan-sama sedang jatuh cinta.
+aku Tise‧Garland. Seorang pembunuh dan teman dekat Pahlawan-sama yang sedang jatuh cinta.
 
 Beberapa saat yang lalu, Ruti-sama memberi selamat pada Red-san dan Lit-san atas pertunangan mereka.
 
@@ -128,39 +128,39 @@ Sekilas, sepertinya Ruti-sama menyerah pada Red-san dan memberkati masa depan me
 
 Red-san dan yang lainnya mungkin mengira masalah cinta Ruti-sama telah terselesaikan.
 
-Tapi mereka salah. Aku tahu selalu bersamanya sepanjang waktu.
+Tapi mereka salah. Aku tahu karena selalu bersamanya sepanjang waktu.
 
-“Ruti-sama. Apakah kamu yakin? ”
+t"Ruti-sama. Apakah kamu yakin?"
 
-"Tentang?"
+r"Tentang?"
 
-“Red-san dan Lit-san.”
+t"Red-san dan Lit-san."
 
-"Ya."
+r"Ya."
 
 Ruti-sama mengangguk.
 
-“Lit adalah orang yang baik dan akan menyayangi Onii-chan. Baru-baru ini aku mulai berpikir bahwa akan lebih baik jika orang seperti dia menjadi istri Onii-chan. ”
+r"Lit adalah orang yang baik dan akan menyayangi Onii-chan. Baru-baru ini aku mulai berpikir bahwa akan lebih baik jika orang seperti dia menjadi istri Onii-chan. "
 
-"Apakah begitu? Itu bagus… tapi bukankah kamu akan kesepian setelah Red-san menikah? ”
+t"begitukah? Itu bagus... tapi bukankah kamu akan kesepian setelah Red-san menikah?"
 
-"Kesepian? Mengapa?"
+r"Kesepian? Mengapa?"
 
-“Er…”
+t"Er..."
 
-“Aku adalah adik perempuannya jadi aku tidak bisa menikah dengan Onii-chan. Jadi saya akan menyerahkan posisi istri kepada Lit-san. "
+r"Aku adalah adik perempuannya jadi aku tidak bisa menikah dengan Onii-chan. Jadi aku akan menyerahkan posisi istri kepada Lit-san."
 
-“Eh, err?”
+t"Eh, err?"
 
-“Kita masih bisa menjadi kekasih tanpa menikah.”
+r"kami masih bisa menjadi kekasih tanpa menikah."
 
-Seperti yang diharapkan, masalahnya belum hilang sama sekali!
+Sudah kuduga, masalahnya belum hilang sama sekali!
 
 Ruti-sama sepertinya mengingat Red-san hari ini. Wajah seperti boneka dengan ekspresi terbatas berubah menjadi sedikit merah.
 
-“Onii-chan sangat toleran sehingga dia bisa menampung dua orang dengan mudah. Lit bisa menjadi istri nomor satu sementara aku akan menjadi kekasih nomor satu. "
+r"Onii-chan sangat toleran sehingga dia bisa menampung dua orang dengan mudah. Lit bisa menjadi istri nomor satu sementara aku akan menjadi kekasih nomor satu."
 
-”……”
+t"..."
 
 Red-san, kamu membuat kesalahpahaman besar.
 
