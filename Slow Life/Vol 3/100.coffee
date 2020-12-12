@@ -76,7 +76,7 @@ Ares tampak terkesan ketika dia memandang Gideon dengan terampil memilah-milah b
 
 Gideon‧Lugnason. kakak laki-laki Pahlawan Ruti dan seorang petualang yang dikenal sebagai pendekar pedang terbaik di perbatasan.
 
-Sebagai orang yang menjadi bagian dari party sejak Pahlawan memulai perjalanannya, kekayaan pengetahuan dan pengalamannya sebagai seorang petualang membuatnya menjadi eksistensi yang dihormati di party.
+Sebagai orang yang menjadi bagian dari tim sejak Pahlawan memulai perjalanannya, kaya akan pengetahuan dan pengalamannya sebagai seorang petualang membuatnya menjadi eksistensi yang dihormati di tim.
 
 "Ruti, bukti Pahlawan pasti ada di belakang sini."
 
