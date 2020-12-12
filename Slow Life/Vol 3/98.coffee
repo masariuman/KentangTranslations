@@ -44,57 +44,57 @@ Metode memancingnya adalah melempar jarum tanpa umpan ke laut, menusuk ikan seca
 
 Itu adalah metode yang keterlaluan tapi laut dengan luas hingga 50 meter berada dalam jangkauannya dan dia mendapatkan akurasi 100%. Tapi itu jelas bukan memancing.
 
-“Tapi memancing lebih cepat dengan cara ini.”
+r"Tapi memancing lebih cepat dengan cara ini."
 
-“Tentu saja.”
+g"Tentu saja."
 
 Ruti menatapku dengan bingung.
 
 Yah, Ruti tidak pernah memancing sebelumnya.
 
-“Baiklah, Ruti. Izinkan saya mengajari Anda cara memancing. "
+g"Baiklah, Ruti. aku akan mengajarimu cara memancing."
 
-Saya berdiri.
+aku berdiri.
 
-“Saat memancing saat liburan, tujuannya bukan untuk jumlah ikan, tapi menikmati memancing.”
+g"Saat memancing ketika liburan, tujuannya bukan untuk jumlah ikan, tapi menikmati memancing."
 
-“Nikmati aksi memancing?”
+r"menikmati memancing?"
 
-Saya menyesuaikan kembali alat pancing Ruti.
+aku menyesuaikan kembali alat pancing Ruti.
 
-Umpannya adalah cacing biru, cacing seperti cacing tanah. Ikan sering menggigit dengan umpan itu dan mudah didapat tetapi ada orang yang tidak mau menyentuh cacing biru yang menggeliat. Tise sepertinya dia juga membencinya jadi dia menggunakan udang kecil sebagai umpan, bukan cacing biru.
+Umpannya adalah cacing biru, cacing seperti cacing tanah. Ikan sering menggigit dengan umpan itu dan mudah didapat tetapi ada orang yang tidak mau menyentuh cacing biru yang menggeliat. Tise sepertinya juga membencinya jadi dia menggunakan udang kecil sebagai umpan, bukan cacing biru.
 
-Saya memasukkan pelampung dan beban melalui tali pancing dan menyematkan cacing biru di kail.
+aku memasukkan pelampung dan beban melalui tali pancing dan menyematkan cacing biru di kail.
 
-“Beginilah cara Anda memasang umpan di kail. Pada dasarnya, lebih baik jika Anda menusuk umpan sampai ke akar kail. ”
+g"Beginilah caramu memasang umpan di kail. Pada dasarnya, lebih baik jika kamu menusuk umpan sampai ke akar kail."
 
-"Baik."
+r"okee."
 
-“Anda tidak perlu membuangnya sejauh mungkin. Anda bisa melemparkannya ke dekat Anda dan menunggu ikan datang. ”
+g"kamu tidak perlu membuangnya sejauh mungkin. kamu bisa melemparkannya didekatmu dan menunggu ikan datang."
 
-"Betulkah?"
+r"Betulkah?"
 
-“Melemparnya dengan kuat bisa menyebabkan umpan lepas dan ikan yang kami targetkan tidak sebesar itu. Di sini ada ikan sirip benang yang mampu dengan cekatan mengeluarkan umpan dari kailnya juga. Anda harus sesekali memastikan bahwa kail Anda masih memiliki umpan. Karena itu, kali ini, lemparkan tepat di depan Anda dan pancing dengan santai saat Anda melihat pelampung. "
+g"Melemparnya dengan kuat bisa menyebabkan umpan lepas dan ikan yang kita targetkan tidak sebesar itu. Di sini ada ikan sirip benang yang mampu dengan cekatan melepaskan umpan dari kailnya juga. kamu harus sesekali memastikan bahwa kailmu masih memiliki umpan. Karena itu, kali ini, lemparkan tepat di depanmu dan pancing dengan santai dengan melihat pelampung pancingannya."
 
-“Mu, kedengarannya sulit.”
+r"Mu, kedengarannya sulit."
 
-“Menikmati kesulitan itu adalah bagian dari kesenangan memancing juga.”
+g"Menikmati kesulitan itu adalah bagian dari kesenangan memancing juga."
 
 Ruti mengambil pancingan dariku dan menjatuhkan umpannya ke laut.
 
-Itu bergoyang dan terombang-ambing di atas ombak. Burung laut menangis dan terbang di atas langit.
+Itu bergoyang dan terombang-ambing di atas ombak. Burung laut terbang di atas langit.
 
-"Cuaca bagus hari ini."
+g"Cuaca hari ini bagus."
 
-"Ya."
+r"Ya."
 
 Laut musim dingin Zoltan dingin tapi indah.
 
 Saat musim dingin tiba, angin akan bertiup dari 'Tembok di Ujung Dunia' dan permukaan laut akan terdorong ke pantai, menyebabkan air laut dalam muncul ke permukaan.
 
-Bahkan tanpa keahlian saya, saya bisa mengintip ke laut biru jernih dan melihat ikan tropis berwarna asli subtropis berenang di antara karang dan hutan anemon laut.
+Bahkan tanpa keahlianku, aku bisa mengintip ke laut biru jernih dan melihat ikan tropis berwarna asli subtropis berenang di antara karang dan hutan anemon laut.(anemon : seperti bunga bunga di laut selain karang.)
 
-"Sungguh pemandangan yang luar biasa."
+g"Sungguh pemandangan yang luar biasa."
 
 Kataku sambil melihat ke laut.
 
