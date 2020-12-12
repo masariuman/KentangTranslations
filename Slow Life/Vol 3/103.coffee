@@ -42,13 +42,13 @@ Tonedo dan sang jenderal membantah keras pendapat Garadin. Pemimpin dan eksekuti
 
 "Namun, menyerahkan catatan gereja adalah permintaan yang belum pernah terjadi sebelumnya. Gereja merasa itu sama sekali tidak dapat diterima. Kita harus memberi tahu Pastor Clemens di Benteng Sage Besar yang terletak di Tembok Terakhir Tanah Suci dan meminta pernyataan kutukan terhadap Veronia."
 
-Jelas dari nada bicara Uskup Cien bahwa dia bersikukuh tentang pandangannya. Walikota Tonedo mengerutkan alisnya dan mendesah keras. Ekspresi Uskup Cien tidak berubah bahkan setelah melihat ekspresi walikota.
+Jelas dari nada bicara Uskup Cien bahwa dia bersikukuh tentang pandangannya. Walikota Tonedo mengerutkan alisnya dan menghela nafas keras. Ekspresi Uskup Cien tidak berubah bahkan setelah melihat ekspresi walikota.
 
 Lingkaran pemimpin Zoltan tampak bingung dengan sikap tak terduga Uskup Cien meskipun kepribadiannya yang biasa berwatak lembut dan toleran yang diimbangi dengan fitur lembutnya.
 
 (Tembok Terakhir ya?)
 
-Ruti merasa sedikit kangen. Mereka bertemu dengan rekan mereka Theodora di Benteng Sage Besar di Tembok Terakhir Tanah Suci. Pada saat itu, karena intrik Tentara Raja Iblis, Ruti dan kelompoknya akan ditangkap sebagai bidat yang berpihak pada Tentara Raja Iblis dan mereka berada dalam situasi yang canggung dimana mereka bertarung melawan biksu agama Demis.
+Ruti merasa sedikit kangen. Mereka bertemu dengan rekan mereka Theodora di Benteng Sage Besar di Tembok Terakhir Tanah Suci. Pada saat itu, karena intrik Tentara Raja Iblis, Ruti dan kelompoknya akan ditangkap sebagai orang yang berpihak pada Tentara Raja Iblis dan mereka berada dalam situasi yang canggung dimana mereka bertarung melawan biksu agama Demis.
 
 Di antara mereka, Theodora mempercayai Ruti dan partainya, mengabaikan perintah Pastor Clemens dan mampu menyelesaikan insiden tersebut setelah jelas bahwa itu adalah konspirasi oleh seorang kardinal.
 
