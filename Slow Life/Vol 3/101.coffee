@@ -54,7 +54,7 @@ Tise memandangi Ruti namun dia hanya berjalan dengan tenang tanpa mempedulikan h
 
 r"enaknya."
 
-"Ya."
+t"Ya."
 
 Setelah mereka berdua selesai sarapan di toko Red, mereka kemudian pindah ke kebun tanaman obat di distrik utara.
 
@@ -72,15 +72,15 @@ Kediaman yang ditinggali Ruti dan Tise berada di sisi barat daya distrik pusat. 
 
 Itu terletak agak jauh dari kebun di distrik utara tetapi mereka berdua tidak terlalu mempermasalahkannya.
 
-Mereka pergi untuk melihat-lihat keadaan pertanian rumput obat.
+Mereka pergi untuk melihat-lihat keadaan kebun tanaman obat.
 
-Peternakan rumput obat Ruti memiliki sebuah pertanian reguler dan dua rumah kaca.
+penanaman tanaman obat Ruti memiliki sebuah kebun reguler dan dua rumah kaca.
 
-Rumah kaca ini dibangun dengan kaca di sisi selatan dan untuk langit-langit serta berfungsi untuk menaikkan suhu di dalamnya.
+Rumah kaca ini dibangun dengan kaca di sisi selatan serta berfungsi untuk menaikkan suhu di dalamnya.
 
-"Ruti-sama, mereka bertunas."
+t"Ruti-sama, tunasnya sudah tumbuh."
 
-"Itu benar."
+r"iya."
 
 Kecambah hijau kecil muncul dari dalam tanah.
 
