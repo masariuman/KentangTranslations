@@ -228,7 +228,7 @@ Ruti dan yang lainnya dengan cepat bergegas ke aula.
 
 Mereka bisa mendengar suara seseorang berkelahi di sisi lain pintu.
 
-“Onii-san…!”
+r"Onii-san...!"
 
 Gideon benar-benar bertarung. Ruti meraih pintu.
 
@@ -242,33 +242,33 @@ Yarandorara mendorong Ruti ke samping dan bergegas ke aula.
 
 Ruti dan yang lainnya mengikuti dari belakang.
 
-Terdengar suara kaca patri pecah di saat yang sama saat Ruti dan yang lainnya memasuki aula.
+Terdengar suara kaca pecah di saat yang sama saat Ruti dan yang lainnya memasuki aula.
 
 Mereka melihat bayangan besar terbang ke langit malam.
 
-"Semua orang! Gideon !! ”
+"Semua orang! Gideon !!"
 
-Yarandorara memegangi Gideon yang roboh dan berteriak.
+Yarandorara memegangi Gideon yang jatuh dan berteriak.
 
 Aula perjamuan telah menjadi tempat pembantaian. Tidak ada yang bergerak.
 
 "Ayah!"
 
-Itu sama dengan Raja Avalonia. Kifa bergegas menghampiri Raja Avalonia yang berdarah.
+Kifa bergegas menghampiri Raja Avalonia yang berdarah.
 
-"Tidak bagus, dia sudah mati!"
+"dia sudah mati!"
 
 Kifa, setelah melihat perubahan penampilan Raja Avalonia dari dekat, berkata dengan suara gemetar.
 
-“Uu… semuanya.”
+g"Uu... semuanya."
 
-“Gideon! Syukurlah kau masih hidup! "
+"Gideon! Syukurlah kau masih hidup! "
 
-“Ma-maaf… aku tidak bisa melindungi Raja Avalonia.”
+g"Ma-maaf... aku tidak bisa melindungi Raja Avalonia."
 
-“Jangan bicara! Aku akan mentraktirmu sekarang… ”
+“Jangan berbicara! Aku akan menyembuhkamu sekarang... ”
 
-"Tidak, saya tidak dapat ditolong ... Ya-Yarandorara, panggil Pangeran Kifa, saya hanya dapat berbicara dengan suara serak sekarang."
+g"Tidak, aku tidak dapat ditolong lagi... Ya-Yarandorara, panggil Pangeran Kifa, aku hanya dapat berbicara dengan suara serak sekarang."
 
 Yarandorara dengan cepat memanggil teman-temannya.
 
