@@ -1,8 +1,6 @@
-Bab 101: Pahlawan dan Assassin merasa emosional karena tunas kecil
+Bab 101: Pahlawan dan Pembunuh Bayaran merasa emosional karena teman kecil
 
-Penerjemah: Tseirp
-
-Pagi.
+Pagi har.
 
 Ruti bangun setiap hari di waktu yang sama.
 
