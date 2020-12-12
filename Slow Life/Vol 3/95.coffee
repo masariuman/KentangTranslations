@@ -336,4 +336,4 @@ Catatan penulis:
 
 Red dan Lit, pertarungan kolaboratif pertama mereka.
 
-Saat itulah kemampuan bertarung Red baru saja diambil alih oleh rekan-rekannya sehingga ia masih mengandalkan kemampuan bertarungnya semata.
+Saat itulah kemampuan bertarung Red baru saja diambil alih oleh rekan-rekannya sehingga ia masih mengandalkan kemampuan bertarung murninya semata.
