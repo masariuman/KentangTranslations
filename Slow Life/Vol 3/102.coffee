@@ -140,16 +140,16 @@ r"Terima kasih, pertama-tama aku akan mendengarkan pendapat setiap anggota. Ayo 
 
 Berjalan di belakang Ruti yang sedang berjalan dengan anggun, rasa takut terhadap negara besar Veronia menghilang dari ekspresi Meguria.
 
-Kulit pucatnya menjadi kemerahan dan dia merasakan perasaan misterius yang mengangkat.
+Kulit pucatnya menjadi kemerahan dan dia merasakan perasaan misterius.
 
 (Sungguh orang yang misterius.)
 
-Petualang peringkat B baru ini pendiam, memiliki ekspresi wajah yang buruk dan sulit untuk memahami pikirannya. Hanya kekuatannya yang menjadi kenyataan karena dia akan menyelesaikan setiap situasi yang memalukan hanya dengan temannya Tifa.
+Petualang peringkat B baru ini pendiam, memiliki ekspresi wajah yang buruk dan sulit untuk memahami pikirannya. Hanya kekuatannya yang nyata karena dia akan menyelesaikan setiap situasi hanya dengan temannya Tifa.
 
 Dibandingkan dengan Pahlawan Lit, Albert dan Byuui, dia terlihat tidak dapat diandalkan pada pandangan pertama tetapi kekuatannya tidak ada bandingannya dengan para petualang peringkat-B sampai saat ini.
 
-Namun, untuk beberapa alasan, Meguria tidak menganggapnya menakutkan atau menakutkan. Anehnya, dengan melihat sosoknya, dia akhirnya berpikir bahwa… entah bagaimana dia akan melakukan sesuatu tentang masalah ini.
+Namun, untuk beberapa alasan, Meguria tidak menganggapnya menakutkan. Anehnya, dengan melihat sosoknya, dia akhirnya berpikir bahwa... entah bagaimana dia pasti akan melakukan sesuatu tentang masalah ini.
 
-"Akan lebih bagus jika petualang peringkat B kali ini ... Ruru-san tinggal di Zoltan selamanya."
+"Akan lebih bagus jika petualang peringkat-B kali ini ... Ruru-san tinggal di Zoltan selamanya."
 
 Meguria menyadari bahwa dia secara tidak sengaja telah menyuarakan perasaannya sendiri dengan lembut dan wajahnya menjadi merah.
