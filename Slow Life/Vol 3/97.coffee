@@ -1,18 +1,16 @@
-Bab 97: Tise dan Ugeuge-san mandi
+Bab 97: Tise dan Ugeuge-san mandi bersama
 
-Penerjemah: Tseirp
-
-Saya seorang Assassin dari Assassin Guild yang bekerja sebagai petani rumput obat di Zoltan. Tise‧Garland.
+aku seorang Pembunuh Bayaran dari Guild Pembunuh Bayaran yang bekerja sebagai petani rumput obat di Zoltan. Tise‧Garland.
 
 Posisiku tidak lagi masuk akal tapi aku bersenang-senang setiap hari jadi itu bukan masalah.
 
 Hari ini adalah festival titik balik matahari musim dingin. Festival Zoltan sangat menyenangkan.
 
-Yang terpenting, odennya enak. Oden Obarara selalu enak. Saya mungkin akan membelinya sebagai camilan tengah malam besok juga.
+Yang terpenting, odennya enak. Oden Obarara selalu enak. aku mungkin akan membelinya sebagai camilan tengah malam besok juga.
 
-"Tise, aku sudah keluar dari bak mandi."
+r"Tise, aku sudah keluar dari bak mandi."
 
-"Oke, aku akan masuk juga."
+t"Oke, aku akan masuk sekarang."
 
 Karena ada sedikit gangguan setelah festival, hari ini, aku masuk kamar mandi lebih lama dari biasanya.
 
@@ -86,7 +84,7 @@ Sementara dengan linglung mulai dari Ugeuge-san, aku mengingat kejadian terakhir
 
 Pembunuh liar dan mantan walikota Mistome-shi.
 
-Saya tidak berharap untuk melihat pembunuh liar di Zoltan. Namun, karena Zoltan adalah kota perbatasan tanpa cabang Assassin Guild, kemungkinan Assassin Guild menemukan tindakan mereka rendah dan mereka mungkin bisa mencari nafkah sebagai assassin.
+Saya tidak berharap untuk melihat pembunuh liar di Zoltan. Namun, karena Zoltan adalah kota perbatasan tanpa cabang Guild Pembunuh Bayaran, kemungkinan Guild Pembunuh Bayaran menemukan tindakan mereka rendah dan mereka mungkin bisa mencari nafkah sebagai Pembunuh Bayaran.
 
 Tapi kenapa mereka membidik Mistome-shi? Tentu saja, sebagai pembunuh, mereka mungkin mengincar nyawa Mistome-shi karena permintaan dari seseorang yang menginginkan kematiannya.
 
