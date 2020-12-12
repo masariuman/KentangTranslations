@@ -118,7 +118,7 @@ Mengatakan bahwa dia adalah pria yang lahir untuk menjadi orang hebat, dia menin
 
 Namun, angkatan laut Veronia dengan jumlah bajak laut yang terus meningkat adalah lingkungan yang tidak bisa dimaafkan bagi orang seperti Otto yang dimanjakan sejak muda di desanya.
 
-Di kapal dapur Veronia inferior di mana dia tidak bisa melarikan diri, daripada bekerja sebagai navigator, dia hanya ditugaskan untuk bekerja sebagai pendayung dan menghadapi pelecehan yang tidak masuk akal dari atasannya setiap hari.
+Di kapal gali Veronia inferior di mana dia tidak bisa melarikan diri, daripada bekerja sebagai navigator, dia hanya ditugaskan untuk bekerja sebagai pendayung dan menghadapi pelecehan yang tidak masuk akal dari atasannya setiap hari.
 
 Hidupnya akan berbeda jika dia memutuskan untuk kembali ke kampung halamannya saat itu, tetapi Otto bermimpi bahwa 'Saya bukan alat untuk digunakan seseorang. Aku akan menjadi raja atas untuk tanah dan istanaku sendiri. ', Jadi setelah naik kapal perang selama tiga tahun, dia mengambil uang pensiun dan memulai perjalanan untuk menjadi seorang ksatria di Kerajaan Avalonia.
 
