@@ -14,9 +14,9 @@ t"Oke, aku akan masuk sekarang."
 
 Karena ada sedikit gangguan setelah festival, hari ini, aku masuk kamar mandi lebih lama dari biasanya.
 
-Jika ini adalah daerah pemukiman Ibukota Avalonia, hanya dengan memasuki pemandian saat ini, para tetangga akan mengeluh tentang suara itu tetapi saat ini kami tinggal di sebuah rumah besar di Zoltan dengan halaman yang luas dan tetangga kami cukup jauh jadi Saya bahkan bisa bernyanyi di kamar mandi.
+Jika ini adalah daerah pemukiman Ibukota Avalonia, hanya dengan memasuki pemandian saat ini, para tetangga akan mengeluh dengan suaraku tetapi saat ini kami tinggal di sebuah rumah besar di Zoltan dengan halaman yang luas dan tetangga kami cukup jauh jadi aku bahkan bisa bernyanyi di kamar mandi.
 
-Waktu mandi larut malam. Sungguh suguhan yang lezat!
+mandi larut malam. Sungguh nikmat!
 
 Yah, aku akan menahan diri untuk tidak bernyanyi terlalu keras sehingga Ruti-sama bisa mendengar setiap kata dengan jelas.
 
