@@ -116,13 +116,13 @@ g"Memancing ~!"
 
 temanku mengangkat tongkat pancing mereka dan menjawab ketika aku berteriak.
 
-Anggotanya adalah saya sendiri, Lit, Ruti, Tise dan Half-Elf Tanta.
+mereka adalah Lit, Ruti, Tise dan Half-Elf Tanta.
 
-“Eh? Dimana Gonz? ”
+g"Eh? Dimana Gonz?"
 
-“Paman Gonz rupanya terlalu banyak minum alkohol langka di festival kemarin. Dia sedang mabuk dan sedang tidur. ”
+“Paman Gonz rupanya terlalu banyak minum alkohol di festival kemarin. Dia sedang mabuk dan sedang tidur. ”
 
-"Sigh, pria itu, dialah yang ingin datang."
+g"haa~~~, pria itu, dialah yang ingin datang."
 
 Dia bilang dia mungkin akan sembuh pada siang hari setelah dia minum obat Red-oniichan?
 
