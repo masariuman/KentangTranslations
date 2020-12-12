@@ -142,19 +142,17 @@ Lit menunjukkan keranjang besar yang dipegangnya. Ada berbagai macam bento yang 
 
 Tentu saja, akulah yang membuatnya.
 
-“Jadi, kemana kita akan pergi hari ini?”
+r"Jadi, kemana kita akan pergi hari ini?"
 
-“Saya sedang berpikir untuk pergi ke pantai. Mungkin kita bisa menyewa kuda. ”
+g"aku berpikir untuk pergi ke pantai. Mungkin kita bisa menyewa kuda."
 
-"Kalau begitu, Lit dan aku bisa memanggil makhluk roh dengan sihir."
+r"Kalau begitu, Lit dan aku bisa memanggil makhluk roh dengan sihir."
 
-"Betulkah? Lit, apa kamu juga setuju dengan itu? ”
+g"Betulkah? Lit, apa kamu juga setuju dengan itu?"
 
-"Tentu!"
+l"Tentu!"
 
-Sudah diputuskan.
-
-Kami keluar dari gerbang kota. Lit memanggil dua Serigala Roh Dire sementara Ruti memanggil dua Gunung Roh.
+Kami keluar dari gerbang kota. Lit memanggil dua Roh Serigala Buas sementara Ruti memanggil dua Roh Gunung.
 
 Binatang roh Lit adalah serigala besar sebesar beruang coklat. Binatang buas Ruti adalah kuda dengan mantel putih bersih disertai pelana dan tali kekang.
 
