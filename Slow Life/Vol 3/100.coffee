@@ -272,51 +272,51 @@ g"Tidak, aku tidak dapat ditolong lagi... Ya-Yarandorara, panggil Pangeran Kifa,
 
 Yarandorara dengan cepat memanggil teman-temannya.
 
-Pangeran Kifa, Pr-Putri Serena, juga ada di aula ini.
+g"Pangeran Kifa, Pr-Putri Serena, juga ada di aula ini."
 
-“A-apa! Kemudian …"
+"A-apa! jadi..."
 
-"Putri Serena diambil oleh iblis ... dia masih hidup."
+g"Putri Serena diculik oleh iblis ... dia masih hidup."
 
-"Betulkah!!?"
+"benarkah!!?"
 
-“Ini, ketika saya melawan iblis, iblis itu menjatuhkannya.
+g"Ini, ketika aku melawan iblis, iblis itu menjatuhkannya."
 
-Gideon menawarkan belati.
+Gideon memberikan pisau.
 
-Ini adalah lambang Desmond of the Sand!
+Ini adalah lambang Desmond si pasir!
 
-“Putri mungkin dibawa ke Raja Pasir dari Empat Raja Surgawi… Guh…”
+g"Putri mungkin dibawa ke Raja Pasir dari Empat Raja langit... guh...."
 
-“Dimengerti! Terima kasih telah memberi tahu saya, tidak apa-apa sekarang, Anda tidak perlu berbicara lagi. ”
+"BAIKLAH! Terima kasih telah memberi tahuku, tidak apa-apa sekarang, kamu tidak perlu berbicara lagi."
 
-"Maaf .. Ruti."
+g"Maaf .. Ruti."
 
-“Onii-san…”
+r"Onii-san..."
 
-"Aku minta maaf karena tidak menemanimu sampai akhir ... tapi kamu tidak boleh bersedih dengan ini ... Ruti adalah Pahlawan yang akan menyelamatkan dunia."
+g"Aku minta maaf karena tidak menemanimu sampai akhir ... tapi kamu tidak boleh bersedih dengan ini ... Ruti adalah Pahlawan yang akan menyelamatkan dunia."
 
-“Tapi… baiklah, jadi tolong jangan memaksakan dirimu lagi.”
+r"Tapi... baiklah, jadi tolong jangan memaksakan dirimu lagi."
 
-“Ha… ha… terakhir, Yarandorara.”
+g"Ha... ha... terakhir, Yarandorara."
 
 "Gideon, tidak, jangan tunjukkan ekspresi seperti itu."
 
-"Maaf, aku tidak bisa menepati janji untuk pergi ke Kiramin bersamamu ... ini."
+g"Maaf, aku tidak bisa menepati janji untuk pergi ke Kiramin bersamamu ... ini."
 
-Gideon mengeluarkan dari sakunya sepasang anting ajaib yang terbuat dari cangkang kura-kura yang bisa menahan racun dan penyakit dan menunjukkannya kepada Yarandorara.
+Gideon mengeluarkan dari sakunya sepasang magic anting yang terbuat dari cangkang kura-kura yang bisa menahan racun dan penyakit dan menunjukkannya kepada Yarandorara.
 
-"Kupikir itu akan cocok dengan telingamu yang indah ..."
+g"Kupikir itu akan cocok dengan telingamu yang indah ..."
 
-“Tidak, tidak… tolong, jangan bicara.”
+“Tidak, tidak... tolong, jangan berbicara lagi.”
 
-“Jadi… rry… Gufu….”
+g"Jadi.. rry... Gufu...."
 
 Akhirnya, setelah batuk darah, lengan Gideon lemas dan anting-antingnya jatuh ke lantai.
 
 “Tidaaaaaaak !!!”
 
-Yarandorara menangis saat memeluk tubuh Gideon yang tak bernyawa.
+Yarandorara menangis dan memeluk tubuh Gideon yang tak bernyawa.
 
 ☆☆
 
