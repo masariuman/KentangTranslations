@@ -158,7 +158,7 @@ Pertemuan yang tidak ada kesimpulannya itu langsung digerakkan oleh kata-kata Ru
 
 Walikota Toledo dan Sir William sedang senang mengetahui bahwa kehadiran orang yang dapat diandalkan. Namun,
 
-“Saya tidak membutuhkannya. Lagipula aku punya pertanian rumput obat. "
+r"Saya tidak membutuhkannya. Lagipula aku punya kebun tanaman obat."
 
 Ruti menolak sambil tersenyum paksa.
 
