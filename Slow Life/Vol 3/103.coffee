@@ -190,7 +190,7 @@ Agar mereka berdua dapat menyelamatkan Zoltan dari situasi berbahaya, mereka har
 
 Karakter yang muncul:
 
-Walikota Toledo saat ini (Jenis walikota yang tidak biasa di Zoltan)
+Walikota Tonedo saat ini (Jenis walikota yang tidak biasa di Zoltan)
 
 Jenderal Baron William (perut buncit)
 
