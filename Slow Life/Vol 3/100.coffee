@@ -54,21 +54,21 @@ Kifa menambahkan dalam dua putaran serangan cepat.
 
 Yarandorara membuat segel dan daun pohon menjadi pisau dan menyerang lawannya.
 
-"Pertarungan!"
+g"Pertarungan!"
 
 Gideon menyerang lawan dengan pedangnya.
 
-Setelah pertempuran sengit, Ksatria Mesin Jam jatuh berlutut dan berhenti bergerak.
+Setelah pertempuran sengit, Mesin Jam jatuh berlutut dan berhenti bergerak.
 
-“Ini adalah masalah dimana level Divine Protection kita tidak naik setelah mengalahkan Clockwork Knight.”
+“mengapa level perlindungan ilahi kita tidak naik setelah mengalahkan mesin jam Knight.”
 
-"Itu tidak hidup jadi mau bagaimana lagi."
+"monster sudah mati jadi mau bagaimana lagi."
 
-Ares dan Kifa memandang Clockwork dan mengeluh.
+Ares dan Kifa memandang mesin jam dan mengeluh.
 
-“Tapi itu berfungsi sebagai sumber pendapatan. Bagian dan logam yang membentuk Clockwork tidak dapat diproduksi di zaman sekarang. Bahkan pedangku dipotong dari armor Clockwork. "
+g"Tapi itu berfungsi sebagai sumber pendapatan. Bagian dan logam yang membentuk mesim jam tidak dapat diproduksi di zaman sekarang. Bahkan pedangku terpotong hanya dari armor mesin jam. "
 
-Kata Gideon. Dia mendekati reruntuhan Clockwork dan memasukkan bagian-bagian yang tampaknya berguna ke dalam kotak barangnya.
+Kata Gideon. Dia mendekati mesin jam dan memasukkan bagian-bagian yang tampaknya berguna ke dalam kotak barangnya.
 
 "Seperti yang diharapkan dari petualang yang membuat namanya terkenal di perbatasan."
 
