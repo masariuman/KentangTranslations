@@ -168,13 +168,13 @@ Itu adalah kapal perang.
 
 Itu bukan milik Zoltan. Zoltan hanya memiliki tiga perahu layar jadi tidak mungkin aku salah.
 
-"... Itu adalah kapal perang Veronia."
+g"... Itu adalah kapal perang Veronia."
 
-Saya mengamati dari dekat dan memperhatikan bahwa ada lebih sedikit dayung di baris tertinggi. Itu adalah fitur kapal galai selatan Veronia.
+aku mengamati dan memperhatikan bahwa ada lebih sedikit dayung di baris tertinggi. Itu adalah fitur kapal gali selatan Veronia.
 
-Itu dirancang sedemikian rupa sehingga dengan posisi dek tinggi mereka, ketika diposisikan di samping kapal lawan, mereka bisa menembakkan panah secara sepihak dari posisi yang lebih tinggi.
+Itu dirancang sedemikian rupa sehingga dengan posisi dek tinggi, ketika diposisikan di samping kapal lawan, mereka bisa menembakkan panah secara sepihak dari posisi yang lebih tinggi.
 
-Awalnya, sekitar 80 tahun yang lalu, Veronia menerjunkan kapal perang yang dirancang untuk melawan bajak laut yang lebih suka pertarungan tangan kosong, tetapi ironisnya sekarang, para bajak laut dari Benua Avalon menggunakan kapal perang itu karena kemampuannya dalam jarak dekat.
+Awalnya, sekitar 80 tahun yang lalu, Veronia menerjunkan kapal perang yang dirancang untuk melawan bajak laut yang lebih suka bertarung dengan tangan kosong, tetapi ironisnya sekarang, para bajak laut dari Benua Avalon menggunakan kapal perang itu karena kemampuannya dalam jarak dekat.
 
 Itu sekarang menjadi kapal tua tetapi Pirate Geyserik menyambarnya ketika masih model baru dan meneror wilayah selatan, mencatatkan namanya dalam sejarah sebagai Juara Bajak Laut. Oleh karena itu, kapal-kapal tersebut masih digunakan di Veronia sebagai kapal perang aktif.
 
