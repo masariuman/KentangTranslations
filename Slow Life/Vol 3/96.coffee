@@ -100,7 +100,7 @@ g"Aku sudah menyukaimu sejak lama, sejak kita bertemu di Logavia."
 
 Perasaan dalam diriku mengalir keluar dari mulutku.
 
-Wajah Lit memerah. Namun, aku tidak bisa menahan diri dan kata-kata itu keluar satu demi satu.
+Wajah Lit memerah. Namun, aku tidak bisa menahan diri dan kata-kata itu keluar satu per satu.
 
 g"Aku bahkan tidak menyadari betapa aku menyukaimu. Aku cinta kamu. aku sangat mencintaimu."
 
