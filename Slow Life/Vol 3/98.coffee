@@ -18,29 +18,29 @@ Dinamakan sebagai Raja Badai, ada iblis laut seperti Kraken, Ular, SiPutih Besar
 
 Saat bertarung melawan monster yang sangat besar, kami tidak akan berdaya jika mereka menyerang langsung dari bawah kapal. Dalam kasus seperti itu, kami tidak punya pilihan selain menyelam ke laut dan berurusan dengan mereka dalam pertempuran bawah air mereka yang hebat.
 
-Untuk alasan itu, memancing adalah keahlian saya.
+Untuk alasan itu, memancing adalah keahlianku.
 
-"Wahhh, itu ikan yang besar."
+g"Wahhh, itu ikan yang besar."
 
-Ikan hasil tangkapan saya taruh di kotak di samping saya yang berisi air laut. Saat ini saya memiliki enam ikan.
+Ikan hasil tangkapan aku taruh di kotak di sampingku yang berisi air laut. Saat ini aku memiliki enam ikan.
 
-"Grrr."
+l"Grrr."
 
-Lit memelototi pelampung yang dipantulkan oleh laut karena frustrasi.
+Lit memelototi pelampung yang dipantulkan oleh air laut karena frustrasi.
 
 Kukuku, tidak ada ikan yang akan mendekati terlepas dari keahlianmu jika kamu melepaskan niat membunuh seperti itu.
 
-Kami sedang memancing di dermaga di atas laut dekat Zoltan. Itu adalah tempat para pedagang keliling yang menjajakan dagangannya ke desa-desa pesisir atau di sungai untuk menurunkan barang dagangannya. Karena memanfaatkan pelabuhan Zoltan akan dikenai biaya, pedagang yang menjual kebutuhan sehari-hari memuat atau menurunkan barang ke atau dari perahu mereka sendiri di sini.
+Kami sedang memancing di dermaga di atas laut dekat Zoltan. Itu adalah tempat para pedagang keliling yang menjajakan dagangannya ke desa-desa pesisir atau di sungai untuk menurunkan barang dagangannya. Karena memanfaatkan pelabuhan Zoltan akan dikenai biaya, pedagang yang menjual kebutuhan sehari-hari menurunkan barang dari perahu mereka sendiri di sini.
 
-“Juga, Ruti.”
+g"Ruti..."
 
-"Apa?"
+r"Apa?"
 
-“Tujuan memancing bukanlah untuk menargetkan ikan di laut dengan jarum yang akurat.”
+g"Tujuan memancing bukanlah untuk menargetkan ikan di laut dengan jarum yang akurat."
 
-Kembu nelayan Ruti sudah memiliki lebih dari 30 ekor ikan.
+bak Ruti sudah memiliki lebih dari 30 ekor ikan.
 
-Metode memancingnya adalah melempar jarum berulir tanpa umpan ke laut, menusuk ikan secara langsung dan menariknya ke atas.
+Metode memancingnya adalah melempar jarum tanpa umpan ke laut, menusuk ikan secara langsung dan menariknya ke atas.
 
 Itu adalah metode yang keterlaluan tapi laut dengan luas hingga 50 meter berada dalam jangkauannya dan dia mendapatkan akurasi 100%. Tapi itu jelas bukan memancing.
 
