@@ -104,39 +104,39 @@ Ruti kaget dengan penjelasan Meguria yang membuatnya sangat kesal.
 
 Dia ingin naik kapal perang Veronia saat itu juga dan menenggelamkannya menjadi dua bagian. Pikiran itu terlintas di benak Ruti.
 
-“Jadi, untuk apa kamu membutuhkanku?”
+r"Jadi, untuk apa kamu membutuhkanku?"
 
 Dia menenangkan dirinya untuk saat ini. Ruti berkata pada dirinya sendiri dan bertanya pada Meguria apa yang diinginkan oleh Guild Petualang darinya.
 
 “Pertama, kami meminta dan berharap Ruru-san bisa menghadiri pertemuan yang akan dihadiri oleh para pemimpin Zoltan.”
 
-"Saya?"
+r"aku?"
 
-“Ruru-san saat ini adalah kekuatan bertarung terkuat Zoltan secara individu. Selama tentara tidak memasuki pertarungan, Zoltan akan mengandalkan kekuatan individu Ruru-san… dan karenanya, kami berharap Ruru-san bisa menghadiri pertemuan di mana kami memutuskan arah kami dan menyumbangkan pendapat Anda. ”
+“Ruru-san saat ini adalah kekuatan bertarung terkuat Zoltan secara individu. Selama tentara tidak memasuki pertarungan, Zoltan akan mengandalkan kekuatan individu Ruru-san... dan karenanya, kami berharap Ruru-san bisa menghadiri pertemuan di mana kami memutuskan arah kami dan menyumbangkan pendapatmu.”
 
-“Dimengerti.”
+r"baiklah."
 
 Ruti langsung menjawab. Meguria menunjukkan ekspresi terkejut.
 
-“T-terima kasih banyak. Ada banyak petualang yang membenci pertemuan seperti itu jadi aku tidak menyangka kamu akan segera mengambil keputusan. ”
+“T-terima kasih banyak. Ada banyak petualang yang membenci pertemuan seperti itu jadi aku tidak menyangka kamu akan segera mengambil keputusan.”
 
-“Jangan khawatir tentang itu.”
+r"Jangan khawatir tentang itu."
 
 Selama menjadi pahlawan, Ruti selalu menghadiri pertemuan militer jadi hal yang lumrah baginya.
 
-“Lokasi?”
+r"Lokasinya?"
 
 Kongres Zoltan.
 
-“Dimengerti.”
+r"oke."
 
-“Di dalam Kongres, gereja, yang berpusat di sekitar Uskup Cien, menentang tuntutan tersebut. Eksekutif Guild Petualang Garadin dan fraksinya mendukung Uskup Cien. Kapten Penjaga Moen bersiap untuk bertarung jika diperlukan dan mendukung Uskup Cien. Di sisi lain, Walikota Tonedo dan petinggi pasukan Zoltan Jenderal William sama-sama berpendapat bahwa pertempuran bukanlah pilihan yang realistis. "
+"Di dalam Kongres, gereja, yang berpusat di sekitar Uskup Cien, menentang tuntutan tersebut. Eksekutif Guild Petualang Garadin dan fraksinya mendukung Uskup Cien. Kapten Penjaga Moen bersiap untuk bertarung jika diperlukan dan mendukung Uskup Cien. Di sisi lain, Walikota Tonedo dan petinggi pasukan Zoltan Jenderal William sama-sama berpendapat bahwa pertempuran bukanlah pilihan yang realistis."
 
-“Uskup Cien, eksekutif Guild Petualang Garadin dan Kapten Penjaga Moen. Pesta petualang peringkat B sebelumnya ya? ”
+r"Uskup Cien, eksekutif Guild Petualang Garadin dan Kapten Penjaga Moen. tim petualang peringkat-B sebelumnya ya?"
 
-"Iya. Mereka semua kuat secara individu jadi mungkin itulah mengapa mereka memegang pendapat itu. "
+"Iya. Mereka semua kuat secara individu jadi mungkin itulah mengapa mereka memegang pendapat itu."
 
-“Terima kasih, pertama-tama saya akan mendengarkan pendapat setiap anggota. Ayo pergi."
+r"Terima kasih, pertama-tama aku akan mendengarkan pendapat setiap anggota. Ayo pergi."
 
 Berjalan di belakang Ruti yang sedang berjalan dengan anggun, rasa takut terhadap negara besar Veronia menghilang dari ekspresi Meguria.
 
