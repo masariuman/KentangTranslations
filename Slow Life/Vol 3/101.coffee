@@ -86,17 +86,17 @@ Kecambah hijau kecil muncul dari dalam tanah.
 
 Ruti dan Tise melihatnya dengan ekspresi lembut.
 
-Mereka berdua sangat bersemangat tetapi yang lain mungkin tidak tahu dari ekspresi mereka. Namun, hanya mereka berdua yang ada di sana. Keduanya adalah teman dekat yang bisa memahami emosi satu sama lain.
+Mereka berdua sangat bersemangat. orang lain mungkin tidak dapat memberitahunya dari ekpresi mereka. Namun, hanya mereka berdua yang ada di sana. Keduanya adalah teman dekat yang bisa memahami emosi satu sama lain.
 
-"Itu hebat."
+t"Itu hebat."
 
-"Ya."
+r"iYa."
 
 Keduanya tersenyum bahagia dengan senyuman yang hanya bisa dimengerti oleh mereka berdua.
 
 ☆☆
 
-Sore.
+Sore hari.
 
 Mereka berdua memberi sedikit air pada kecambah seperti yang diinstruksikan oleh Red.
 
