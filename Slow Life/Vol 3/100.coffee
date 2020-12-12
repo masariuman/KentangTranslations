@@ -146,15 +146,15 @@ Ares memiringkan kepalanya setelah mendengar komentar Yarandorara.
 
 Mata Ruti berbinar.
 
-r"Mungkin Yarandorara... menuju Onii-san..."
+r"Mungkin Yarandorara... kepada Onii-san..."
 
-“T-tidak ada hal seperti itu! Saya hanya sedikit khawatir… ”
+“T-tidak ada hal seperti itu! aku hanya sedikit khawatir… ”
 
-“Heeeh ~! Saya melihat!"
+r"Heeeh ~! aku mengerti!"
 
 Kata Ruti riang dan menggoda Yarandorara.
 
-Ares kadang-kadang curiga bahwa mungkin Ruti tidak memiliki perasaan dan tujuan sendiri dan hanya bereaksi dengan cara yang diharapkan pihak lain tetapi melihat dia berbicara dengan mata berkilauan tentang cinta dengan gadis lain di kelompok usia yang sama membuatnya tersenyum kecut dan menemukan bahwa dia berpikir terlalu banyak.
+Ares kadang-kadang curiga bahwa mungkin Ruti tidak memiliki perasaan dan tujuan sendiri dan hanya bereaksi dengan cara yang diharapkan pihak lain tetapi melihat dia berbicara dengan mata berkilauan tentang cinta dengan gadis lain di kelompok usia yang sama membuatnya tersenyum kecut.
 
 “Erm.”
 
@@ -162,39 +162,39 @@ Pada saat itu, mereka mendengar suara seorang gadis muda dari belakang mereka.
 
 Ketika Ares berbalik, seorang gadis muda berusia sekitar 10 tahun sedang memegang karangan bunga dan melihat ke arah mereka.
 
-"Ini untuk Hero-sama."
+"Ini untuk pahlawan-sama."
 
-"Untuk saya? Terima kasih!"
+"Untukku? Terima kasih!"
 
 Ruti tersenyum dan mendekati gadis muda itu.
 
-“Apakah Anda putri salah satu pelayan?”
+“Apakah kamu anak salah satu pelayan?”
 
 Ares dengan santai menggunakan 'Appraisal'.
 
-“Tidak ada perlindungan ilahi? Jangan beritahu aku! Ruti! Silakan mundur! ”
+“Tidak ada perlindungan ilahi? Ruti! MUNDURLAH!”
 
-"!?"
+r"!?"
 
 Ruti terbang mundur dengan lompatan saat mendengar Ares.
 
-Detik berikutnya, buket yang dipegang gadis muda itu meledak. Dia menghindarinya di selebar rambut.
+Detik berikutnya, bunga yang dipegang gadis muda itu meledak.
 
 Saat ledakan mereda, pakaian gadis itu robek dan tubuhnya memantulkan sinar bulan.
 
 “Itu golem !?”
 
-Tubuh gadis muda itu adalah buatan. Dia menggerakkan lengannya yang bulat dan, dengan senyum manis, membuka mulutnya lebar-lebar untuk menunjukkan gigi yang tajam.
+Tubuh gadis muda itu adalah tubuh buatan. Dia menggerakkan lengannya yang bulat dan, dengan senyum manis, membuka mulutnya lebar-lebar untuk menunjukkan gigi yang tajam.
 
-“Kamu berhasil mengelak ya…”
+“Kamu berhasil mengelak ya...”
 
-Tiga iblis muncul dari bayang-bayang.
+Tiga iblis muncul dari bayangan.
 
-“Setan Marionetter! Bagaimana iblis bisa menyusup ke dalam istana! "
+"iblis Marionetter! Bagaimana iblis bisa menyusup ke dalam istana! "
 
 Para pahlawan meraih senjata mereka.
 
-"Saya tidak tahu apakah Anda asli atau palsu tetapi jika saya memegang gelar Pahlawan, saya tidak akan mengabaikan Anda, Anda akan mati di sini!"
+r"aku tidak tahu apakah kamu asli atau palsu tetapi jika aku memegang gelar Pahlawan, aku tidak akan mengabaikanmu, kamu akan mati di sini!"
 
 Para Iblis Marionetter memanipulasi golem boneka buatan mereka sendiri dan menyerang para pahlawan!
 
@@ -204,17 +204,17 @@ Musuh yang kuat.
 
 Ares mengerang sambil menekan tangan kanannya yang digigit oleh golem itu.
 
-"Menyembuhkan."
+r"Sembuhkan."
 
-Ruti mengaktifkan 'Healing Hands' di Ares. Lukanya langsung menutup.
+Ruti mengaktifkan 'tangan penyembuh' pada Ares. Lukanya langsung menutup.
 
-“Mungkin ada yang lain. Kita harus segera memperingatkan para prajurit! "
+"Mungkin ada yang lain. Kita harus segera memperingatkan para tentara! "
 
 Pangeran Kifa juga memasang ekspresi serius di wajahnya.
 
 Yarandorara tenggelam dalam pikirannya saat dia menatap mayat iblis itu.
 
-“Mengapa orang-orang ini keluar pada saat ini… tidak mungkin!”
+“Mengapa iblis-iblis ini muncul pada saat ini... tidak mungkin!”
 
 Pada saat itu,
 
@@ -222,7 +222,7 @@ Pada saat itu,
 
 Ada teriakan keras diikuti dengan suara piring pecah yang tak terhitung jumlahnya.
 
-"Balai!!"
+r"di aula!!"
 
 Ruti dan yang lainnya dengan cepat bergegas ke aula.
 
