@@ -138,7 +138,7 @@ Itu adalah lawan yang tidak bisa dimenangkan oleh Otto saat ini.
 
 Otto tidak lagi muda dan dia merasa khawatir jika sudah waktunya dia kembali ke rumah dan menundukkan kepalanya untuk meminta maaf kepada sesama penduduk desa.
 
-Selain itu, tingkat perlindungan ilahi-nya ditingkatkan oleh pertempuran yang dia lawan jadi itu harus lebih tinggi dari penduduk desa sehingga dia mungkin tidak akan diperlakukan dengan buruk.
+Selain itu, tingkat perlindungan ilahi-nya ditingkatkan oleh pertempuran yang dia lawan jadi itu lebih tinggi dari penduduk desa sehingga dia mungkin tidak akan diperlakukan dengan buruk.
 
 Otto merenung sambil memeluk makanan yang dia terima saat dia dimarahi dengan keras dari pekerjaan paruh waktu festival hari ini dan berjalan menuju penginapannya di pelabuhan.
 
