@@ -190,35 +190,35 @@ Karena dia tidak memiliki senjata atau baju besi, dia akan dibunuh jika mereka t
 
 Namun, dia dengan cepat merasakan kehadiran di belakangnya.
 
-"Serius? Mereka sudah menyusul !? ”
+"Serius? Mereka sudah menyusul !?"
 
-Dia telah memberikan kekuatan yang cukup pada pukulan dan tendangan sehingga dia berpikir bahwa mereka tidak akan bisa bergerak untuk sementara waktu tetapi tampaknya mereka sebenarnya tidak mengalami banyak kerusakan.
+Dia telah memberikan kekuatan yang cukup pada pukulan dan tendangan sehingga dia berpikir bahwa mereka tidak akan bisa bergerak untuk sementara waktu tetapi tampaknya mereka sebenarnya tidak mengalami banyak luka.
 
 “Hiii !!”
 
 Merasakan bahaya dalam hidupnya, Otto mati-matian lari.
 
-"Jika."
+"Jika saja."
 
 "Apa itu bibi, kamu akan menggigit lidah jika kamu berbicara!"
 
-"Saya yakin Anda akan selamat jika Anda menurunkan saya."
+"aku yakin kamu akan selamat jika kamu menurunkanku."
 
 Wanita tua itu berkata dengan nada meminta maaf. Otto memberikan tatapan kosong setelah mendengar itu.
 
-"Saya tidak berniat melakukan itu."
+"aku tidak berniat melakukan itu."
 
 Otto berkata sambil berbelok dan mencapai jalan di mana dia melihat seorang gadis muda bertubuh pendek. Seekor laba-laba pelompat kecil naik di bahunya dan dia memegang mangkuk dengan chikuwa dalam jumlah berlebihan di tangannya.
 
-“Oya, bukankah kamu seburuk itu『 Drake Rider 』?”
+“Oya, bukankah kamu si『 Penunggang Drake 』yang menyedihkan itu?”
 
 “Geh, kamu dari waktu itu.”
 
-"Apa ini? Sekarang Anda beralih ke penculikan? Kupikir akan lebih baik membiarkanmu menderita kesakitan? "
+"Apa ini? Sekarang aku jadi pencuri? Kupikir akan lebih baik membiarkanmu menderita kesakitan?"
 
 Tise memelototi Otto dengan curiga, tetapi Otto berteriak.
 
-“Orang-orang berbahaya mengejar di belakangku! Pergilah bersembunyi di suatu tempat! "
+"Orang-orang berbahaya mengejar di belakangku! Pergilah bersembunyi di suatu tempat!"
 
 "Dibelakang?"
 
@@ -238,6 +238,6 @@ Otto dengan cemas berbalik untuk melihat ke belakang,
 
 "Aku tidak menyangka akan bertemu dengan para pembunuh yang meninggalkan guild di sini."
 
-Dan melihat tiga pria yang tidak sadar dengan bagian putih matanya terlihat dan sosok Tise memegang mangkuk odennya.
+Dan melihat tiga pria yang tidak sadar dan sosok Tise memegang mangkuk odennya.
 
 Tidak ada setetes pun sup oden di mangkuk yang tumpah.
