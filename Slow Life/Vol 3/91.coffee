@@ -40,73 +40,73 @@ r"Aku, dengan Onii-chan? ...... Benarkah?"
 
 g"Tidak ada yang salah dengan sepasang kakak dan adik berdansa."
 
-Ruti kembali melihat ke arah Lit. Lit melambai padanya untuk melanjutkan dengan senyuman.
+Ruti kembali melihat ke arah Lit. Lit melambai padanya dengan senyuman.
 
-“Tapi, terakhir kali aku menari adalah pada akhir festival titik balik matahari musim dingin sebelum Onii-chan masuk dalam ordo ksatria. Saya tidak bisa menari dengan baik? "
+r"Tapi, terakhir kali aku menari adalah pada akhir festival titik balik matahari musim dingin sebelum Onii-chan bergabung kedalam ksatria ordo. aku tidak bisa menari dengan baik?"
 
-Aku menarik tangan Ruti alih-alih menjawab.
+Aku menarik tangan Ruti.
 
-“Menari dengan baik bukanlah tujuannya. Tujuannya adalah untuk bersenang-senang menari selama festival titik balik matahari musim dingin. "
+g"Menari dengan baik bukanlah tujuannya. Tujuannya adalah untuk bersenang-senang menari selama festival titik balik matahari musim dingin."
 
-Setan dikatakan membenci kegembiraan. Tentu saja, setelah bertarung dengan Tentara Raja Iblis, kita tahu itu sebagai takhayul.
+iblis membenci kegembiraan. Tentu saja, setelah bertarung dengan Tentara Raja Iblis, kami tahu itu takhayul.
 
 Namun, meski itu takhayul, jika tujuannya adalah untuk menghabiskan hari ini dengan gembira maka tidak ada alasan untuk menyangkal klaim itu.
 
-"Ayolah."
+g"Ayolah."
 
-”… Un.”
+r".... Un."
 
 Aku mengulurkan tangan kiriku dan Ruti sedikit ragu-ragu sebelum dia menggenggam tanganku dengan erat.
 
-Musisi Zoltan memainkan lagu musim semi yang menyenangkan. Half-Elf sedang memainkan seruling kayu vertikal yang digunakan oleh para Peri Hutan. Nama persis dari instrumen itu tidak pernah disebutkan sehingga disebut sebagai seruling elf.
+Musisi Zoltan memainkan lagu musim semi yang menyenangkan. Half-Elf sedang memainkan seruling kayu vertikal yang digunakan oleh para wood-elf. Nama persis dari instrumen itu tidak pernah disebutkan sehingga disebut sebagai seruling elf.
 
-Ada sangat sedikit catatan tentang praktik para Peri Hutan dan banyak kebiasaan yang tersisa dalam misteri, tetapi menurut catatan yang ditinggalkan oleh manusia, para Peri Hutan rupanya mempraktikkan nada seruling itu untuk mempersembahkannya kepada kekasih mereka.
+Ada sangat sedikit catatan tentang kegiatan para wood-elf dan banyak masih dalam misteri, tetapi menurut catatan yang ditinggalkan oleh manusia, para wood-elf rupanya mempraktikkan nada seruling itu untuk mempersembahkannya kepada kekasih mereka.
 
 Meski sekarang, adat Wood-Elf itu tidak dipertahankan dan seruling hanya digunakan sebagai alat musik yang dikenal menghasilkan musik yang indah dan dinikmati sebagai alat musik eksotik yang berbeda dengan alat musik manusia pada umumnya.
 
-Ruti dan saya mencocokkan kombinasi seruling dan irama biola serta tarian dengan langkah sederhana namun menyenangkan. Kami berpegangan tangan dan menari. Wajah Ruti yang disinari matahari terbenam memerah tapi dia tampak sedang bersenang-senang.
+Ruti dan aku mencocokkan kombinasi seruling dan irama biola serta tarian dengan langkah sederhana namun menyenangkan. Kami berpegangan tangan dan menari. Wajah Ruti yang disinari matahari terbenam memerah tapi dia tampak sedang bersenang-senang.
 
-Apakah ini baik-baik saja?
+r"Apakah ini baik-baik saja?"
 
-"Apa yang salah?"
+g"Apa yang salah?"
 
-“Apakah saya diizinkan untuk memiliki kebahagiaan sebanyak ini.”
+r"Apakah aku diizinkan untuk memiliki kebahagiaan sebanyak ini."
 
-“Saya mengizinkannya. Sampai saat ini, Ruti sudah berkali-kali disakiti demi kebahagiaan orang lain. Sudah waktunya Anda menikmati kebahagiaan Anda sendiri. "
+g"aku mengizinkannya. Sampai saat ini, Ruti sudah berkali-kali disakiti demi kebahagiaan orang lain. Sudah waktunya kamu menikmati kebahagiaanmu sendiri."
 
-Ruti menatap saya terus menerus saat kami menari.
+Ruti menatapku terus menerus saat kami menari.
 
 Aku melingkarkan tanganku di pinggang Ruti dan mengangkat tubuhnya saat kami berputar.
 
-Saya selalu ingin Ruti bahagia.
+aku selalu ingin Ruti bahagia.
 
-Dia adalah 『Hero』 tetapi yang lebih penting, Ruti adalah adik perempuanku. Sangat menyakitkan bagiku melihat Ruti terluka sebagai 『Hero』.
+Dia adalah 『Pahlawan』 tetapi yang paling penting, Ruti adalah adik perempuanku. Sangat menyakitkan bagiku melihat Ruti terluka sebagai 『Pahlawan』.
 
-Dan ketidakmampuan saya untuk bertindak sebagai kekuatan Ruti sangat memalukan.
+Dan ketidakmampuanku untuk bertindak sebagai kekuatan Ruti sangat memalukan.
 
-“Onii-chan, dari…”
+r"Onii-chan, Teri..."
 
-"Terima kasih."
+g"Terima kasih."
 
-“Eh?”
+r"Eh?"
 
 Aku menyela Ruti saat dia mencoba berterima kasih.
 
-“Terima kasih sudah bahagia.”
+g"Terima kasih sudah bahagia."
 
-“Ah, uu…”
+r"Ah, uu..."
 
-Bersama dengan Ruti yang menangis, kami menghabiskan akhir festival sebagai saudara dan saudari.
+Bersama dengan Ruti yang menangis, kami menghabiskan akhir festival sebagai kakak-adik.
 
 ☆☆
 
-Malam. Pelabuhan Zoltan.
+Malam hari. di Pelabuhan Zoltan.
 
-Hari ini sangat buruk.
+"Hari ini sangat buruk."
 
-Drake Rider Otto yang memproklamirkan dirinya terhuyung-huyung saat dia berjalan.
+Penunggang Drake Otto yang memproklamirkan dirinya terhuyung-huyung saat dia berjalan.
 
-Dia memiliki aura seorang ksatria ketika dia mengenakan baju besi tetapi sosoknya di mana dia berjalan sambil memeluk tubuhnya karena kedinginan karena pakaian compang-camping yang dia kenakan selama malam yang dingin mengungkapkan perlindungan ilahi yang sebenarnya sebagai 『Sailor』 belaka.
+Dia memiliki aura seorang ksatria ketika dia mengenakan baju besi tetapi sosoknya di mana dia berjalan sambil memeluk tubuhnya karena kedinginan karena pakaian compang-camping yang dia kenakan selama malam yang dingin mengungkapkan perlindungan ilahi yang sebenarnya sebagai 『Sailor』.
 
 “Hah, mungkin sebaiknya aku kembali ke Veronia.”
 
@@ -118,21 +118,21 @@ Mengatakan bahwa dia adalah pria yang lahir untuk menjadi orang hebat, dia menin
 
 Namun, angkatan laut Veronia dengan jumlah bajak laut yang terus meningkat adalah lingkungan yang tidak bisa dimaafkan bagi orang seperti Otto yang dimanjakan sejak muda di desanya.
 
-Di kapal dapur Veronia inferior di mana dia tidak bisa melarikan diri, alih-alih bekerja sebagai navigator, dia hanya ditugaskan untuk bekerja sebagai pendayung dan menghadapi pelecehan yang tidak masuk akal dari atasannya setiap hari.
+Di kapal dapur Veronia inferior di mana dia tidak bisa melarikan diri, daripada bekerja sebagai navigator, dia hanya ditugaskan untuk bekerja sebagai pendayung dan menghadapi pelecehan yang tidak masuk akal dari atasannya setiap hari.
 
-Hidupnya akan berbeda jika dia memutuskan untuk kembali ke kampung halamannya saat itu, tetapi Otto bermimpi bahwa 'Saya bukan alat untuk digunakan seseorang. Aku akan menjadi tuan atas domain dan kastilku sendiri. ', Jadi setelah naik kapal perang selama tiga tahun, dia mengambil uang pensiun dan memulai perjalanan untuk menjadi seorang ksatria di Kerajaan Avalonia.
+Hidupnya akan berbeda jika dia memutuskan untuk kembali ke kampung halamannya saat itu, tetapi Otto bermimpi bahwa 'Saya bukan alat untuk digunakan seseorang. Aku akan menjadi raja atas untuk tanah dan istanaku sendiri. ', Jadi setelah naik kapal perang selama tiga tahun, dia mengambil uang pensiun dan memulai perjalanan untuk menjadi seorang ksatria di Kerajaan Avalonia.
 
-Sejak itu, dia gagal mendapatkan hasil apapun dan dipindahkan antar kota sampai akhirnya dia mengalir ke kota perbatasan Zoltan.
+Sejak itu, dia gagal mendapatkan hasil apapun dan dipindahkan antar kota sampai akhirnya dia ke kota perbatasan Zoltan.
 
-Meskipun aku membayangkan bagaimana seharusnya ketika aku mendengar ada raksasa yang menempati sebuah kastil.
+Meskipun aku membayangkan bagaimana seharusnya ketika aku mendengar ada raksasa yang menempati sebuah istana.
 
-Hill Giants bukanlah musuh yang kuat seperti monster. Otto percaya bahwa dia akan berhasil dan pernah mengumpulkan tujuh rekan untuk menyerang kastil.
+Hill Giants bukanlah musuh yang kuat seperti monster. Otto percaya bahwa dia akan berhasil dan mengumpulkan tujuh rekan untuk menyerang istana.
 
-Menggunakan gelar Drake Rider miliknya, ia mengumpulkan dua petualang peringkat-C, empat peringkat-D dan satu petualang peringkat-E. Selain itu, dia menyewa dua tentara bayaran yang baru saja mengalir ke Zoltan dan membentuk party beranggotakan sepuluh orang termasuk Otto.
+Menggunakan gelar Penunggang Drake miliknya, ia mengumpulkan dua petualang peringkat-C, empat peringkat-D dan satu petualang peringkat-E. Selain itu, dia menyewa dua tentara bayaran yang baru saja datang ke Zoltan dan membentuk tim beranggotakan sepuluh orang termasuk Otto.
 
 Pada akhirnya, mereka gagal mengalahkan bahkan satu Raksasa Bukit dan mereka melarikan diri untuk hidup mereka.
 
-Monster dengan kecerdasan tinggi mampu menumbuhkan Perlindungan Ilahi mereka dan Raksasa Bukit yang mampu menduduki kastil, Bukit Dantak Raksasa, mungkin adalah semacam 'Pahlawan' Raksasa Bukit.
+Monster dengan kecerdasan tinggi mampu menumbuhkan Perlindungan Ilahi mereka dan Raksasa Bukit yang mampu menduduki istana, Bukit Dantak Raksasa, mungkin adalah semacam 'Pahlawan' Raksasa Bukit.
 
 Itu adalah lawan yang tidak bisa dimenangkan oleh Otto saat ini.
 
