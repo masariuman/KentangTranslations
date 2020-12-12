@@ -108,15 +108,15 @@ r"aku akan berasumsi bahwa Pangeran Sarius akan menemukan apa yang dia cari jika
 
 r"Selain itu, jika dia dapat menemukan orang tersebut hanya dengan informasi yang akurat tentang tanggal migrasi, dia tidak memerlukan catatan gereja. Dia akan meminta catatan imigrasi dari pemerintah. Itu akan jauh lebih sederhana dibandingkan dengan menentang Gereja. Dengan kata lain, Veronia hanya mengetahui tanggal migrasi orang itu. Informasi yang menentukan adalah perlindungan ilahi."
 
-“Tetapi apakah mungkin untuk mengidentifikasi seseorang dengan perlindungan ilahi saja? Ada banyak perlindungan ilahi yang sama dan ada beberapa yang tidak menyatakan perlindungan ilahi mereka ke daftar gereja. "
+"Tetapi apakah mungkin untuk mengidentifikasi seseorang dengan perlindungan ilahi saja? Ada banyak perlindungan ilahi yang sama dan ada beberapa yang tidak menyatakan perlindungan ilahi mereka ke catatan gereja."
 
 Ruti mengangguk pada kata-kata Sir William.
 
-“Itulah mengapa mungkin bagi kami yang tidak mengetahui situasi untuk mengidentifikasi orang tersebut juga. Ini bukan perlindungan ilahi umum di mana puluhan orang memilikinya atau perlindungan ilahi seperti 『Manslayer』 yang tidak diumumkan. Itu adalah perlindungan ilahi khusus yang orang lain akan ketahui dan akan dicatat bahkan jika orang tersebut tidak menyatakannya. 『The Champion』, 『Sword Saint』, 『Archmage』, 『Hierophant』, 『Crusader』 ... mereka mencari pemilik perlindungan dewa heroik yang langka tapi masih terkenal. ”
+r"Itulah mengapa mungkin bagi kami yang tidak mengetahui situasi untuk mengidentifikasi orang tersebut juga. Ini bukan perlindungan ilahi umum di mana puluhan orang memilikinya atau perlindungan ilahi seperti 『Manslayer』 yang tidak diumumkan. Itu adalah perlindungan ilahi khusus yang orang lain akan ketahui dan akan dicatat bahkan jika orang tersebut tidak menyatakannya. 『sang pemenang』, 『Ahli Pedang』, 『Archmage』, 『Hierophant』, 『Crusader』 ... mereka mencari pemilik perlindungan dewa heroik yang langka tapi masih terkenal."
 
 "Itu benar … !"
 
-Apalagi, jika mereka membatasinya untuk migran dan bukan yang lahir di Zoltan, mereka harus bisa mempersempitnya ke jumlah yang cukup kecil.
+Apalagi, jika mereka membatasinya untuk migran dan bukan yang lahir di Zoltan, mereka bisa mempersempitnya ke jumlah yang cukup kecil.
 
 “Selanjutnya, saya akan bertemu Pangeran Sarius secara langsung dan mengeluarkan informasi sedikit demi sedikit… selain itu, saya ragu bahwa tindakan Pangeran Saurius sebenarnya adalah kehendak Kerajaan Veronia.”
 
