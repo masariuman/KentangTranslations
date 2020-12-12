@@ -4,43 +4,43 @@ Cerita ini tidak mungkin terjadi baik di alam semesta paralel maupun di alam sem
 
 ☆☆
 
-Dipimpin oleh Demon Lord of Fury, Setan, yang mengendalikan Benua Hitam, invasi ke Benua Avalon dimulai tiga tahun lalu.
+Dipimpin oleh raja iblis kemarahan, iblis, yang mengendalikan Benua kegelapan, melakukan invasi ke Benua Avalon dari tiga tahun lalu.
 
 Hanya dalam tiga tahun, empat negara telah dimusnahkan dan setengah dari benua telah jatuh ke tangan Raja Iblis.
 
-Umat ​​manusia tidak tahu harus berbuat apa… tapi, Tuhan tidak meninggalkan manusia.
+Umat ​​manusia tidak tahu harus berbuat apa... tapi, dewa tidak meninggalkan manusia.
 
 Ada ramalan kelahiran seorang Pahlawan.
 
 Kemudian, ada seorang gadis yang memukul mundur tim barisan depan Tentara Raja Iblis dengan mengambil komando pasukan lokal di tempat yang hampir tidak memiliki kekuatan pertahanan.
 
-Pahlawan Ruti‧Lugnason muncul di Ibukota Kekaisaran, memiliki 『Perlindungan Ilahi dari Pahlawan』, bukti bahwa semua orang mengerti.
+Pahlawan Ruti‧Lugnason muncul di Ibukota Kekaisaran, memiliki 『Perlindungan Ilahi dari Pahlawan』.
 
-Dia memusnahkan pencuri bawah tanah yang membuat masalah di Ibukota Kekaisaran dan sekarang, dia pergi ke reruntuhan Peri Kuno untuk mendapatkan 'Bukti Pahlawan', warisan terkenal dari pahlawan generasi sebelumnya yang disebutkan dalam legenda.
+Dia memusnahkan pencuri bawah tanah yang membuat masalah di Ibukota Kekaisaran dan sekarang, dia pergi ke reruntuhan ancient-elf untuk mendapatkan 'Bukti Pahlawan', warisan terkenal dari pahlawan generasi sebelumnya yang disebutkan dalam legenda.
 
-Reruntuhan Peri-Kuno.
+Reruntuhan ancient-elf.
 
-Meskipun terletak di sekitar Ibukota Kekaisaran Avalonia, pintunya tertutup rapat oleh sihir yang tidak diketahui sehingga tidak ada yang pernah menginjakkan kaki di dalam reruntuhan itu.
+Meskipun terletak di sekitar Ibukota Kekaisaran Avalonia, pintunya tertutup rapat oleh sihir yang tidak diketahui sehingga tidak ada yang pernah menginjakkan kaki ke dalam reruntuhan itu.
 
-Tertulis di pintu dalam bahasa Peri-Kuno adalah 'Ketika Raja Iblis muncul, seorang pahlawan juga akan muncul. Saya hanya berharap seorang pahlawan dan hanya dapat memberikan kekuatan kepada pahlawan. '.
+yang Tertulis di pintu dalam bahasa ancient-elf adalah 'Ketika Raja Iblis muncul, seorang pahlawan juga akan muncul. aku hanya mengharapkan seorang pahlawan dan hanya dapat memberikan kekuatan kepada pahlawan. '.
 
 Kemudian, ketika Hero Ruti mencapai pintu reruntuhan, pintu yang tidak bisa dilewati siapa pun selama ratusan tahun terbuka.
 
 ☆☆
 
-Ksatria Mesin Jam yang besar dengan tinggi lebih dari tiga meter mengangkat pedang dan perisai kuno dan menyerang dengan langkah kaki yang menggelegar.
+pasukan Mesin Jam yang besar dengan tinggi lebih dari tiga meter mengangkat pedang dan perisai kuno dan menyerang dengan langkah kaki yang menggelegar.
 
-"Semua orang! Hati-hati!"
+r"Semuanya! Hati-hati!"
 
 Berdiri di garis depan, Pahlawan Ruti (Pahlawan Lv16) berteriak dan menyiapkan pedangnya.
 
-Sage Ares (Sage Lv14), Prince of Avalonia Kifa (Weapon Master Lv14), High-Elf Florist Yarandorara (Tree Singer Lv12), dan Frontier Adventurer Gideon (Guide Lv32).
+Sage Ares (Sage Lv14), pangeran Avalonia Kifa (ahli senjata Lv14), High-Elf Florist Yarandorara (penyanyi pohon Lv12), dan petualang perbatasan Gideon (pemandu Lv32).
 
-Para pahlawan sahabat berdiri bersatu saat mereka menghadapi Clockwork Knight.
+Para sahabat pahlawan berdiri bersatu saat mereka menghadapi pasukan mesin jam.
 
-"Seni Bela Diri! Pedang Berkelanjutan! "
+r"Seni Bela Diri! Pedang Berkelanjutan!"
 
-Ruti mengirimkan dua putaran serangan cepat.
+Ruti melakukan dua putaran serangan cepat.
 
 "Bola api!"
 
@@ -50,7 +50,7 @@ Ares membuat segel dan menyebabkan ledakan api.
 
 Kifa menambahkan dalam dua putaran serangan cepat.
 
-Pemotong Daun!
+"Pemotong Daun!"
 
 Yarandorara membuat segel dan daun pohon menjadi pisau dan menyerang lawannya.
 
