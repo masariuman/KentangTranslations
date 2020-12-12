@@ -84,37 +84,37 @@ Kata Yarandorara pada Ruti. Tujuan mereka di reruntuhan ini, untuk mencari bukti
 
 r"Yup, dengan itu, bahkan raja pun akan percaya bahwa aku adalah Pahlawan. Begitu aku menerima pengakuan itu, aku bisa mendapatkan izin untuk memasuki berbagai negara dan memperoleh wewenang untuk meminjam tentara. Dengan itu, kita bisa memulai perjalanan untuk mengalahkan Raja Iblis!"
 
-Ruti terdengar bersemangat karena perjalanannya akhirnya akan dimulai dan pesta berlanjut ke kedalaman bersama.
+Ruti terdengar bersemangat karena perjalanannya akhirnya akan dimulai dan tim berlanjut ke kedalaman reruntuhan bersamaan.
 
 ☆☆
 
 Setelah mendapatkan bukti Pahlawan dengan aman, Avalonia secara resmi mengakui Ruti sebagai 『Pahlawan』.
 
-Raja Avalonia merayakan kedatangan kedua 『Hero』 dan mengadakan pesta besar sebelum mereka pergi.
+Raja Avalonia merayakan kedatangan 『Pahlawan』 dan mengadakan pesta besar sebelum mereka pergi.
 
 Para pahlawan melupakan pertempuran untuk waktu yang singkat dan menikmati makanan dan musik.
 
-“Ares, Kifa, kalian ada di sini.”
+r"Ares, Kifa, kalian ada di sini."
 
 Saat pesta sudah mereda, Ruti melihat Ares dan Kifa tidak ada di ruang perjamuan.
 
-Setelah mencari mereka, dia menemukan mereka berdua di teras kastil melihat keluar.
+Setelah mencari mereka, dia menemukan mereka berdua di teras istana melihat keluar.
 
 “Ruti, kamu bisa menikmati perjamuan tanpa mengkhawatirkan kami. Maaf sudah membuatmu khawatir. ”
 
-Apa yang kalian berdua lihat?
+r"Apa yang kalian berdua lihat?"
 
 "Jalanan."
 
 Kata Ares sambil menunjuk ke jalan Avalonia yang diterangi oleh cahaya bulan.
 
-“Di bawah sinar bulan ini, ada banyak orang yang menjalani hidup mereka. Saya merasa sangat berharga. Itulah mengapa saya ingin melindungi kota ini. "
+"Di bawah sinar bulan ini, ada banyak orang yang menjalani hidup mereka. aku merasa sangat berharga. Itulah mengapa aku ingin melindungi kota ini."
 
-“Ares… yup, aku merasakan hal yang sama. Aku tidak akan membiarkan Raja Iblis atau apapun mengatur dunia kita! ”
+r"Ares... yup, aku merasakan hal yang sama. Aku tidak akan membiarkan Raja Iblis atau apapun mengatur dunia kita!"
 
 Kifa menatap mereka dengan mata berbinar setelah melihat tekad mereka.
 
-“Jika memungkinkan, saya ingin melanjutkan perjalanan bersama kalian. Tetapi saya harus segera menikah dengan putri Duke Danich, Putri Serena. Dia sudah ada di kota ini dan berpartisipasi dalam pesta juga. "
+"Jika memungkinkan, aku ingin melanjutkan perjalanan bersama kalian. Tetapi aku harus segera menikah dengan putri Duke Danich, Putri Serena. Dia sudah ada di kota ini dan berpartisipasi dalam pesta juga."
 
 “Ah, orang yang tampan itu!”
 
