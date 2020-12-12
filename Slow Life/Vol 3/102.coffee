@@ -76,7 +76,7 @@ Dengan ancaman kekerasan seperti itu, dia bahkan tidak akan bisa mengeluh jika Z
 
 Tak perlu dikatakan, angkatan laut Zoltan tidak bisa bersaing dengannya.
 
-Zoltan hanya memiliki tiga perahu layar kecil sebagai kapal perang. Mereka adalah perahu layar karavel tempat 20 orang bisa menaikinya. Dalam hal kemampuan tempur, mereka tidak akan bisa bersaing dengan kapal dapur militer Veronia yang mampu membawa hingga 300 orang.
+Zoltan hanya memiliki tiga perahu layar kecil sebagai kapal perang. itu adalah perahu layar karavel yang bisa menampung 20 orang. Dalam hal kemampuan tempur, mereka tidak akan bisa bersaing dengan kapal dapur militer Veronia yang mampu membawa hingga 300 orang.
 
 Lebih jauh lagi, bahkan jika mereka menang, sayangnya terdapat perbedaan besar dalam kekuatan nasional antara negara besar Veronia dan Republik kecil Zoltan.
 
