@@ -168,63 +168,39 @@ Kedua orc itu menahan luka mereka dan terhuyung ke belakang sebelum jatuh.
 
 Namun, Orc yang tersisa tidak goyah dan berdiri saling membelakangi. Dari penampilan mereka, nampaknya mereka yakin dengan skill mereka bahkan setelah melihat Lit dan teknik pedangku.
 
-… Orang-orang itu mungkin kuat.
+mereka mungkin kuat.
 
- 
-
-“Seni bela diri kolaboratif: Pisau Angin Gabungan Aun!”
-
- 
+"Seni bela diri kolaboratif: Pisau Angin Gabungan Aun!"
 
 Pisau angin berguling dari segala arah.
 
- 
-
-“Ku !?”
-
- 
+l"Ku !?"
 
 Ketegangan terlihat di ekspresi Lit untuk pertama kalinya.
 
-Kami bertahan dari pedang yang tak terhitung jumlahnya saat kami berlari mundur.
+Kami bertahan dari pedang yang tak terhitung jumlahnya dan kami berlari mundur.
 
- 
-
-"... Kurasa kita harus bertemu musuh seperti itu sesekali saat bertarung melawan pasukan utama Tentara Raja Iblis."
-
- 
+g"... Kurasa kita pasti bertemu musuh seperti itu sesekali saat bertarung melawan pasukan utama Tentara Raja Iblis."
 
 Aku bergumam saat aku melihat goresan di armorku dari bilah yang gagal aku tangkis dengan pedangku.
 
 Lengan jubah Lit juga robek. Tak satu pun dari kami yang terluka tapi akan sulit untuk menembus pusaran pedang itu.
 
- 
+“aku Gaderyut. yang Berarti Burung Api. ”
 
-“Saya Gaderyut. Artinya Firebird. ”
+“aku Bijuryut. yang Berarti Burung Petir. ”
 
-“Saya Bijuryut. Artinya Thunderbird. ”
-
-"" Ini adalah nasib buruk Anda bahwa Anda menghadapi Hijugade (Thunderfire) kavaleri ketiga belas! ""
-
- 
+"" Ini adalah nasib buruk kalian bahwa kalian menghadapi Hijugade (Petir Api) kavaleri ketiga belas! ""
 
 Mereka mungkin adalah pahlawan di antara para Orc.
 
 Prajurit yang meningkatkan tingkat perlindungan ilahi mereka dengan selamat dari pengalaman mendekati kematian berkali-kali.
 
- 
+g"Dan mereka juga memiliki seni bela diri kolaboratif."
 
-"Dan mereka juga memiliki seni bela diri kolaboratif."
+Itu adalah seni bela diri yang bisa menggandakan efek seni bela diri mereka saat mereka mengaktifkannya bersama. Yang barusan seharusnya adalah seni bela diri pedang lagu 'Pisau Angin Au' dan 'Pisau Angin Un' yang diaktifkan pada saat yang bersamaan.
 
- 
-
-Itu adalah seni bela diri yang bisa menggandakan efek seni bela diri mereka saat mereka mengaktifkannya bersama. Yang barusan seharusnya adalah seni bela diri pedang lagu 'Au Wind Blade' dan 'Un Wind Blade' yang diaktifkan pada saat yang bersamaan.
-
- 
-
-“Meskipun ini pertama kalinya aku melihatnya.”
-
- 
+g"Meskipun ini pertama kalinya aku melihatnya."
 
 Prajurit terampil dengan kaliber seperti itu. Kita harus menjatuhkan mereka di sini apapun yang terjadi.
 
