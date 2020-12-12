@@ -104,13 +104,13 @@ Mereka berdua memberi sedikit air pada kecambah seperti yang diinstruksikan oleh
 
 Pekerjaan mereka sudah cukup banyak.
 
-Setelah rumput obat menumbuhkan daun hijau, mereka mungkin akan sibuk dengan tindakan melawan hama dan gulma.
+Setelah tanaman obat menumbuhkan daun hijau, mereka mungkin akan sibuk dengan tindakan melawan hama dan penyakit.
 
-Namun, Red menyebutkan bahwa tumbuhan dari pegunungan liar sangat kuat melawan hama dan gulma. Padahal, mereka harus memperhatikan lingkungan rerumputan obat dan menjauhkan rerumputan obat yang memiliki kesuburan tinggi dari tanaman obat lain untuk mencegah terjadinya erosi pada tanah mereka.
+Namun, Red menyebutkan bahwa tumbuhan dari pegunungan liar sangat kuat melawan hama dan penyakit. faktanya, mereka harus memperhatikan lingkungan tanaman obat dan menjauhkan tanaman obat yang memiliki kesuburan tinggi dari tanaman obat lain untuk mencegah terjadinya erosi pada tanah mereka.
 
-“Apakah kita akan mengakhiri dengan ini hari ini?”
+t"sepertinya sudah selesai. ayo kita pulang."
 
-"Baiklah."
+r"Baiklah."
 
 Mereka mengemasi peralatan mereka dan mengatakan bahwa sudah waktunya mereka istirahat makan.
 
@@ -120,8 +120,8 @@ Pada saat itu, mereka mendengar panggilan yang keras.
 
 Ruti dan Tise melihat ke arah suara itu dan melihat staf Guild Petualang Meguria menyeka keringat di dahinya.
 
-“Ruru-san! Saya memiliki sebuah permintaan!"
+"Ruru-san! aku memiliki sebuah permintaan!"
 
 Permintaan petualang?
 
-Ruti mengusap wajahnya yang dikotori dengan handuk dan, tanpa bekerja, dengan tenang menghadap wajah pucat Meguria.
+Ruti mengusap wajahnya yang dikotori dengan handuk dan, tanpa semangat, denngan tenang menghadap wajah pucat Meguria.
