@@ -124,15 +124,15 @@ Kifa menatap mereka dengan mata berbinar setelah melihat tekad mereka.
 
 "aku juga! aku senang pedangku berguna bagi kalian. "
 
-Pangeran Kifa tertawa riang. Ruti dan Ares ikut tertawa bersamanya. Pangeran Kifa adalah orang yang banyak tertawa. Ares merasa kasihan bahwa dia pergi karena dia mungkin akan mencerahkan pesta setiap kali dia ada.
+Pangeran Kifa tertawa riang. Ruti dan Ares ikut tertawa bersamanya. Pangeran Kifa adalah orang yang banyak tertawa. Ares merasa kasihan bahwa dia pergi karena dia selalu membuat tim meriah.
 
-"Semua orang."
+"Semuanya."
 
 Yarandorara.
 
 Rambut perak Yarandorara berkibar saat diterangi oleh sinar bulan. Yarandorara berjalan menuju Ruti dan yang lainnya dengan tatapan sedikit marah.
 
-“Sheesh Ruti, bahkan kamu meninggalkan pesta, kalian sangat buruk. Gideon sedang mencarimu. ”
+“Sheesh Ruti, bahkan kamu meninggalkan pesta, kalian sangat buruk. Gideon sedang mencarimu.”
 
 "Maaf maaf."
 
