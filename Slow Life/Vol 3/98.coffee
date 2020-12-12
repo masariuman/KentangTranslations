@@ -114,51 +114,51 @@ g"Kurasa sekarang waktunya makan siang."
 
 Tanta adalah orang pertama yang bereaksi terhadap kata-kataku.
 
-l"Astaga, aku sama sekali tidak bisa mengejar Red."
+l"Astaga, aku sama sekali tidak bisa mengalahkan Red."
 
-Kata Lit dengan bibir mengerucut sebelum dia tertawa bahagia.
+Kata Lit dengan bibir mengerucut sebelum dia tertawa.
 
-Ruti?
+g"Ruti?"
 
 Ruti yang selama ini memandangi pelampung dengan enggan menarik tali pancing ke atas dan melepas joran.
 
-“Menyenangkan.”
+r"Menyenangkan."
 
-Ruti hanya menangkap dua setelah saya mengajarinya. Itu cukup berhasil untuk pemula tetapi saya khawatir dia tidak akan menganggapnya menyenangkan tetapi sepertinya saya terlalu khawatir.
+Ruti hanya menangkap dua setelah aku mengajarinya. Itu cukup berhasil untuk pemula tetapi aku khawatir dia tidak akan menganggapnya menyenangkan tetapi sepertinya aku terlalu khawatir.
 
-Ruti awalnya bingung dengan kegagalannya menangkap ikan dengan baik tetapi setelah ikan itu mulai menggigit satu demi satu, dia sepertinya sudah mengerti betapa senangnya menunggu ikan menggigit dengan santai.
+Ruti awalnya bingung dengan kegagalannya menangkap ikan tetapi setelah ikan itu mulai menggigit, dia sepertinya sudah mengerti betapa senangnya menunggu ikan menggigit dengan santai.
 
-Tise sangat bagus dalam aspek itu. Dia hanya menangkap satu ikan. Tapi itu adalah ikan besar yang tidak muat di dalam keranjang yang kami bawa.
+Tise sangat bagus dalam aspek itu. Dia hanya menangkap satu ikan. Tapi itu adalah ikan besar dan tidak muat di dalam keranjang yang kami bawa.
 
-Dia mengabaikan ikan kecil itu dan sekilas tampak seperti sedang memancing dengan linglung, tetapi dia cukup mengesankan.
+Dia mengabaikan ikan kecil itu dan sekilas tampak seperti sedang memancing dengan bingung, tetapi dia cukup mengesankan.
 
 Kami mengepung bento.
 
-“Apa yang kamu buat?”
+"Apa yang kamu buat?"
 
-Berbagai hal.
+g"Banyak macam."
 
 Di dalam bento itu ada sandwich, salad tomat, telur dadar, daging sapi panggang, dan steak hamburger. Dan minumannya adalah susu.
 
-“Wow, ini sangat berwarna.”
+"Wow, ini sangat berwarna."
 
-Tanpa penundaan, Tanta mengulurkan garpunya ke daging panggang itu.
+Tanpa menunggu lagi, Tanta mengulurkan garpunya ke daging panggang itu.
 
 Lit memulai dengan steak hamburger sementara Ruti dan Tise memulai dengan salad tomat.
 
-“Red, bukankah sulit membuat semua ini?”
+l"Red, bukankah sulit membuat semua ini?"
 
-"Hn, yah, aku terbawa suasana."
+g"Hn, yah, aku terbawa suasana."
 
-Kondisi mental saya dalam kondisi prima sejak tadi malam hingga pagi ini.
+Kondisi mentalku dalam kondisi prima sejak tadi malam hingga pagi ini.
 
-“Ehehe…”
+l"Ehehe..."
 
 Lit buru-buru menutupi senyumnya.
 
-Bibirku berubah menjadi seringai juga ketika aku melihatnya dan aku segera menutupi bibirku juga.
+Bibirku berubah menjadi tersenyum juga ketika aku melihatnya dan aku segera menutupi bibirku juga.
 
-“Ah, lihat! Itu sebuah kapal! "
+"Ah, lihat! Itu sebuah kapal!"
 
 Tanta berteriak. Aku melihat ke laut ke arah yang ditunjuk Tanta.
 
