@@ -64,9 +64,9 @@ g" ... Iya."
 
 Sama seperti Red-san yang dengan sengaja membeli kembali pedang tembaga, pilihan Ruti-sama untuk memegang senjata yang jelek adalah caranya untuk mendekati Red-san.
 
-“Aku juga ingin hidup damai seperti Onii-chan.”
+r"Aku juga ingin hidup damai seperti Onii-chan."
 
-"Saya melihat. Saya yakin Anda akan bisa. "
+t"begitu ya. kau yakin kamu bisa seperti itu."
 
 Ugeuge-san di bahuku mengangkat kedua lengannya untuk mendukung Ruti-sama.
 
