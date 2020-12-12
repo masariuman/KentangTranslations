@@ -58,7 +58,7 @@ r"enaknya."
 
 Setelah mereka berdua selesai sarapan di toko Red, mereka kemudian pindah ke kebun tanaman obat di distrik utara.
 
-Sarapan hari ini dibuat dari ikan yang mereka tangkap kemarin jadi itu adalah kubis dan ikan dengan tomat rebus, ikan merah dengan bumbu bawang, air dengan lemon yang menyegarkan dan roti putih yang lembut.
+Sarapan hari ini dibuat dari ikan yang mereka tangkap kemarin jadi sarapannya adalah kubis dan ikan dengan tomat rebus, ikan merah dengan bumbu bawang, air dengan lemon yang menyegarkan dan roti putih yang lembut.
 
 Ruti dan Tise terkesan karena dia bisa menyiapkan hidangan sebanyak itu di pagi hari.
 
@@ -66,9 +66,9 @@ Dan,
 
 『Ini adalah ikan yang ditangkap Ruti kemarin.』
 
-Ruti dengan sendirinya tersenyum lebar saat mengingat Red mengatakan itu saat dia memakan ikan tomat rebus.
+Ruti dengan sendirinya tersenyum lebar saat mengingat Red mengatakan itu ketika dia memakan ikan tomat rebus.
 
-Kediaman yang ditinggali Ruti dan Tise berada di sisi barat daya distrik pusat. Ruti memilih lokasi itu agar dia dapat melakukan perjalanan ke Apoteker Red & Lit di Pusat Kota yang terletak di distrik selatan sementara Tise memilihnya untuk berjalan-jalan ke toko oden Oparara yang terletak di perbatasan distrik pelabuhan di sisi barat untuk menikmati beberapa chikuwa .
+Kediaman yang ditinggali Ruti dan Tise berada di sisi barat daya distrik pusat. Ruti memilih lokasi itu agar dia dapat melakukan perjalanan ke Apotek Red & Lit di Pusat Kota yang terletak di distrik selatan sementara Tise memilihnya untuk berjalan ke toko oden Oparara yang terletak di perbatasan distrik pelabuhan di sisi barat untuk menikmati beberapa chikuwa .
 
 Itu terletak agak jauh dari pertanian penting di distrik utara tetapi mereka berdua tidak terlalu mempermasalahkannya.
 
