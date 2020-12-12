@@ -150,11 +150,11 @@ r"aku akan menyelidiki itu juga. Kami akan melaporkan kemajuan kami 10 hari kede
 
 "kami juga bisa melakukan hal seperti itu! Serahkan pada kami!"
 
-Pertemuan yang tidak ada kesimpulannya itu langsung digerakkan oleh kata-kata Ruti. Begitu mereka tahu apa yang harus mereka lakukan, pemimpin guild tidak lagi tersesat.
+Pertemuan yang tidak ada kesimpulannya itu langsung digerakkan oleh kata-kata Ruti. Begitu mereka tahu apa yang harus mereka lakukan, pemimpin guild tidak lagi bingung.
 
-“Nah sekarang, aku tidak tahu Ruru-kun punya bakat seperti itu. Saya merasa yakin mengetahui bahwa seseorang dengan kebijaksanaan besar seperti Anda pada akhirnya akan menjadi pemimpin Zoltan. "
+"Nah sekarang, aku tidak tahu Ruru-kun punya bakat seperti itu. aku merasa yakin mengetahui bahwa seseorang dengan kebijaksanaan besar sepertimu pada akhirnya akan menjadi pemimpin Zoltan. "
 
-“Ya, beri tahu saya kapan pun Anda ingin masuk militer. Saya akan menyambut Anda sebagai ksatria junior sejak awal. Saya bisa meminjamkan Anda tentara sehingga Anda juga bisa merebut kembali tanah yang ditempati oleh Bukit Dantak Raksasa dan menjadi bangsawan. Saya akan menjamin peringkat Anda sebagai wali Anda. "
+"Ya, beri tahu aku kapan pun kamu ingin masuk militer. aku akan menyambutmu sebagai ksatria junior. aku bisa meminjamkanmu tentara sehingga kamu juga bisa merebut kembali tanah yang ditempati oleh Raksasa Bukit Dantak dan menjadi bangsawan. aku akan menjamin peringkatmu sebagai walimu."
 
 Walikota Toledo dan Sir William sedang senang mengetahui bahwa kehadiran orang yang dapat diandalkan. Namun,
 
