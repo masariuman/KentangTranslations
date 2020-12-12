@@ -76,7 +76,7 @@ r"aku mengerti situasinya. aku juga ingin menyatakan pendapatku."
 
 “Guild Petualang tidak akan pernah melakukan hal seperti itu…”
 
-Pemimpin Guild Petualang Harold menyeka keringat dari wajahnya dengan cemberut saat dia menjabat kedua tangannya dan menyangkalnya. Sepertinya dia sakit perut saat mengeluarkan obat dari sakunya dan meminumnya dengan air di cangkirnya.
+Pemimpin Guild Petualang Harold menyeka keringat dari wajahnya dengan cemberut dan menyangkalnya. Sepertinya dia sakit perut saat mengeluarkan obat dari sakunya dan meminumnya dengan air di cangkirnya.
 
 (Ah, itu obat Onii-chan.)
 
