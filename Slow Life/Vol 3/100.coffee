@@ -402,7 +402,7 @@ Ini adalah cerita tambahan April Mop.
 
 Di dunia palsu ini, Ruti menyerah pada perlindungan ilahi Pahlawan dan menjadi eksistensi yang hanya merespon sesuai dengan bagaimana Pahlawan akan merespon daripada dengan kehendak bebasnya sendiri. Alasan nada cerianya adalah karena orang akan senang melihat kepribadian yang lebih cerah.
 
-Pangeran Kifa adalah seorang pangeran yang mendukung Ruti dan yang lainnya di dunia dimana Gideon tidak menjadi seorang ksatria. Di main novel, Gideon adalah seorang ksatria sehingga perannya tidak diperlukan dan Putri Serena tidak diculik sehingga tidak muncul sama sekali.
+Pangeran Kifa adalah seorang pangeran yang mendukung Ruti dan yang lainnya di dunia dimana Gideon tidak menjadi seorang ksatria. Di novel utama, Gideon adalah seorang ksatria sehingga perannya tidak diperlukan dan Putri Serena tidak diculik bahkan tidak muncul sama sekali.
 
 Adapun Yarandorara, Gideon tidak mati jadi dia tetap tinggal di tokonya. Dia baru resmi bergabung sebagai pendamping saat mereka bertarung di Logavia bersama Lit.
 
