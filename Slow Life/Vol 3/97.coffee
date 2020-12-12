@@ -1,179 +1,179 @@
-Chapter 97: Tise and Ugeuge-san takes a bath
+Bab 97: Tise dan Ugeuge-san mandi
 
-Translator: Tseirp
+Penerjemah: Tseirp
 
-I am an Assassin belonging to the Assassin Guild working as a medicinal grass farmer in Zoltan. Tise‧Garland.
+Saya seorang Assassin dari Assassin Guild yang bekerja sebagai petani rumput obat di Zoltan. Tise‧Garland.
 
-My position no longer made sense but I was having fun everyday so it wasn’t an issue.
+Posisiku tidak lagi masuk akal tapi aku bersenang-senang setiap hari jadi itu bukan masalah.
 
-Today was the winter solstice festival. Zoltan’s festival was extremely fun.
+Hari ini adalah festival titik balik matahari musim dingin. Festival Zoltan sangat menyenangkan.
 
-Most importantly, the oden was delicious. Obarara’s oden is always delicious. I might buy it as midnight snack tomorrow as well.
+Yang terpenting, odennya enak. Oden Obarara selalu enak. Saya mungkin akan membelinya sebagai camilan tengah malam besok juga.
 
-“Tise, I’ve gotten out of the bath.”
+"Tise, aku sudah keluar dari bak mandi."
 
-“Okay, I’ll enter too.”
+"Oke, aku akan masuk juga."
 
-Because there was a slight disturbance after the festival, today, I was entering the bath a lot later than usual.
+Karena ada sedikit gangguan setelah festival, hari ini, aku masuk kamar mandi lebih lama dari biasanya.
 
-If this was the residential area of the Avalonia Capital, just by entering the bath at this time, the neighbors would complain about the sound but currently we were living in a mansion in Zoltan with a large courtyard and our neighbor was quite a distance away so I could even sing in the bath.
+Jika ini adalah daerah pemukiman Ibukota Avalonia, hanya dengan memasuki pemandian saat ini, para tetangga akan mengeluh tentang suara itu tetapi saat ini kami tinggal di sebuah rumah besar di Zoltan dengan halaman yang luas dan tetangga kami cukup jauh jadi Saya bahkan bisa bernyanyi di kamar mandi.
 
-Late night bath time. What a luscious treat!
+Waktu mandi larut malam. Sungguh suguhan yang lezat!
 
-Well, I’ll refrain from singing so loud that Ruti-sama would be able to hear every word clearly though.
+Yah, aku akan menahan diri untuk tidak bernyanyi terlalu keras sehingga Ruti-sama bisa mendengar setiap kata dengan jelas.
 
-I quickly tidied up the weapon that I was maintaining. My hands were dirty from the oil I applied on the blade to prevent rust so the timing was just right as I was going to the bath now.
+Aku segera merapikan senjata yang aku pertahankan. Tangan saya kotor karena oli yang saya oleskan pada bilahnya untuk mencegah karat sehingga waktunya tepat seperti saya akan mandi sekarang.
 
-“Ugeuge-san, what about you?”
+"Ugeuge-san, bagaimana denganmu?"
 
-Ugeuge-san tilted its head and raised its right arm.
+Ugeuge-san memiringkan kepalanya dan mengangkat lengan kanannya.
 
-Although it won’t dive into the bath tub, it seemed to want to clean its body with the water droplets.
+Meski tidak mau menyelam ke dalam bath tub, ia seakan ingin membersihkan tubuhnya dengan tetesan air.
 
-“All right.”
+"Baiklah."
 
-I extended my right hand and Ugeuge-sa leaped to the back of my hand with a bounce.
+Aku mengulurkan tangan kananku dan Ugeuge-sa melompat ke punggung tanganku sambil memantul.
 
-Then, it smoothly ran up my arm and moved to my shoulder.
+Kemudian, itu dengan mulus berlari ke lenganku dan pindah ke pundakku.
 
-All right, we’re good to go. Ugeuge-san vigorously swung its right arm forward to indicate its agreement.
+Baiklah, kita siap berangkat. Ugeuge-san dengan kuat mengayunkan lengan kanannya ke depan untuk menunjukkan persetujuannya.
 
-“Tise?”
+"Tise?"
 
-When I stood up, Ruti-sama peeked her head out from the door.
+Saat aku berdiri, Ruti-sama mengintip keluar dari pintu.
 
-“You’re done with your equipment maintenance?”
+“Kamu sudah selesai dengan perawatan peralatanmu?”
 
-Ruti-sama asked after seeing the maintained weapons placed on the floor.
+Ruti-sama bertanya setelah melihat senjata yang dipertahankan diletakkan di lantai.
 
-“Yes. I am done.”
+"Iya. Saya sudah selesai."
 
-Now that I think about it, Ruti-sama has continued to use the goblin sword she obtained from defeating the goblins when we arrived in Zoltan. Even though the Sacred Avenger was broken by Shisandan, Ruti-sama’s item box should have the weapons we discovered in the Demon Lord Army camps or ruins.
+Sekarang aku memikirkannya, Ruti-sama terus menggunakan pedang goblin yang dia peroleh dari mengalahkan para goblin ketika kami tiba di Zoltan. Meskipun Sacred Avenger dihancurkan oleh Shisandan, item box Ruti-sama seharusnya memiliki senjata yang kami temukan di kamp atau reruntuhan Demon Lord Army.
 
-Since we have already displayed ability of around B-rank adventurer level, I feel that Ruti-sama should choose a suitable weapon from her inventory.
+Karena kami telah menunjukkan kemampuan sekitar level petualang peringkat B, saya merasa bahwa Ruti-sama harus memilih senjata yang cocok dari inventarisnya.
 
-“Ruti-sama, are you sure you wish to continue to use the goblin sword.”
+“Ruti-sama, apakah kamu yakin ingin terus menggunakan pedang goblin.”
 
-“Yup, it doesn’t particularly inconvenience me.”
+“Ya, itu tidak terlalu merepotkan saya.”
 
-I guess that was true too. As the Avalon Continent’s strongest even with her bare hands, a single goblin sword was more than sufficient for any opponents she may face in Zoltan.
+Saya rasa itu juga benar. Sebagai yang terkuat di Benua Avalon bahkan dengan tangan kosong, satu pedang goblin sudah lebih dari cukup untuk setiap lawan yang mungkin dia hadapi di Zoltan.
 
-However …
+Namun…
 
-“Is it because of Red-san’s influence?”
+“Apakah karena pengaruh Red-san?”
 
-” … Yes.”
+" … Iya."
 
-Just like Red-san who purposely re-purchased a copper sword, Ruti-sama’s choice to hold a poor weapon was her way of getting closer to Red-san.
+Sama seperti Red-san yang dengan sengaja membeli kembali pedang tembaga, pilihan Ruti-sama untuk memegang senjata yang jelek adalah caranya untuk mendekati Red-san.
 
-“I also wish to live peacefully just like Onii-chan.”
+“Aku juga ingin hidup damai seperti Onii-chan.”
 
-“I see. I am sure you will be able to.”
+"Saya melihat. Saya yakin Anda akan bisa. "
 
-Ugeuge-san on my shoulder raised both its arms in support of Ruti-sama.
+Ugeuge-san di bahuku mengangkat kedua lengannya untuk mendukung Ruti-sama.
 
-Ruti-sama laughed a little shyly.
-
-☆☆
-
-“Fuuuu.”
-
-I inadvertently sighed when I entered the bath. I started thinking why I would release a sigh but my thought process was melted by the bath and I relaxed my entire body.
-
-White steam floated out through the window. Ugeuge-san stood near the window and dexterously scooped up small water droplets with its arm and washed its body.
-
-While absent mindedly starting at Ugeuge-san, I recalled the final event that happened today with a blank mind.
-
-Stray assassins and the ex-mayor Mistome-shi.
-
-I didn’t expect to see stray assassins in Zoltan. However, as Zoltan was a frontier town with no Assassin Guild branch, the possibility of the Assassin Guild discovering their actions was low and they probably could make a living as assassins.
-
-But why were they aiming for Mistome-shi? Of course, as assassins, they were probably aiming for Mistome-shi’s life because of a request from somebody who wanted her dead.
-
-However, Mistome-shi has retired from her position as a politician and as an adventurer. Zoltan residents don’t even know where Mistome-shi currently resides.
-
-She shouldn’t have much influence left in the municipal government. There didn’t seem to be any meaning in killing Mistome-shi now.
-
-“If there is no meaning then it can only be for a grudge.”
-
-But even if that was the case, why aim for her life now?
-
-If the grudge was born during their careers, they probably would have aimed for her life then. Was it possible to be resented enough after retirement that somebody would aim for your life?
-
-Maybe I’ll try investigating when I am free. I stopped my thoughts and lowered my arm into the bath tub.
-
-Looking toward the window, I saw Ugeuge-san leap up. It seemed to have caught an insect that tried to enter from the window.
-
-“You’ll get fat if you eat too much.”
-
-When I called out to it, Ugeuge-san quietly averted its eyes.
+Ruti-sama tertawa malu-malu.
 
 ☆☆
 
-“Fishing~!”
+Fuuuu.
 
-“Ooo~!”
+Saya secara tidak sengaja menghela nafas ketika saya memasuki kamar mandi. Saya mulai berpikir mengapa saya harus menghela nafas tetapi proses berpikir saya lumer oleh bak mandi dan saya merilekskan seluruh tubuh saya.
 
-My companions raised their fishing poles and answered when I shouted.
+Uap putih melayang keluar melalui jendela. Ugeuge-san berdiri di dekat jendela dan dengan cekatan mengambil tetesan air kecil dengan lengannya dan membasuh tubuhnya.
 
-The members were myself, Lit, Ruti, Tise and the Half-Elf Tanta.
+Sementara dengan linglung mulai dari Ugeuge-san, aku mengingat kejadian terakhir yang terjadi hari ini dengan pikiran kosong.
 
-“Eh? Where’s Gonz?”
+Pembunuh liar dan mantan walikota Mistome-shi.
 
-“Uncle Gonz apparently drank too much rare alcohol in the festival yesterday. He’s having a hangover and is currently sleeping.”
+Saya tidak berharap untuk melihat pembunuh liar di Zoltan. Namun, karena Zoltan adalah kota perbatasan tanpa cabang Assassin Guild, kemungkinan Assassin Guild menemukan tindakan mereka rendah dan mereka mungkin bisa mencari nafkah sebagai assassin.
 
-“Sigh, that guy, he was the one who wanted to come.”
+Tapi kenapa mereka membidik Mistome-shi? Tentu saja, sebagai pembunuh, mereka mungkin mengincar nyawa Mistome-shi karena permintaan dari seseorang yang menginginkan kematiannya.
 
-“He said he would probably recover by noon after he drink’s Red-oniichan’s medicine?”
+Namun, Mistome-shi telah pensiun dari posisinya sebagai politisi dan petualang. Penduduk Zoltan bahkan tidak tahu di mana Mistome-shi saat ini tinggal.
 
-Good grief.
+Dia seharusnya tidak memiliki banyak pengaruh tersisa di pemerintahan kota. Sepertinya tidak ada artinya membunuh Mistome-shi sekarang.
 
-“There’s no helping it, we’ll go ahead then.”
+“Jika tidak ada artinya maka itu hanya untuk dendam.”
 
-“Okay!”
+Tetapi bahkan jika itu masalahnya, mengapa membidik hidupnya sekarang?
 
-Tanta nodded happily. Perhaps he was afraid that I would postpone it.
+Jika dendam itu lahir selama karir mereka, mereka mungkin akan membidik hidupnya saat itu. Mungkinkah cukup dibenci setelah pensiun sehingga seseorang akan membidik hidup Anda?
 
-I patted Tanta’s head to reassure him and he laughed because it was ticklish.
+Mungkin saya akan mencoba menyelidiki ketika saya bebas. Aku menghentikan pikiranku dan menurunkan lenganku ke dalam bak mandi.
 
-“We have everyone’s share of bento as well.”
+Melihat ke arah jendela, saya melihat Ugeuge-san melompat. Sepertinya telah menangkap serangga yang mencoba masuk dari jendela.
 
-Lit showed the large basket that she was holding. There were all kinds of bento placed inside.
+“Kamu akan menjadi gemuk jika makan terlalu banyak.”
 
-Of course, I was the one who made them.
+Saat aku memanggilnya, Ugeuge-san dengan tenang mengalihkan pandangannya.
 
-“So where will we be going today?”
+☆☆
 
-“I was thinking of going to the seaside. Maybe we can rent horses.”
+“Memancing ~!”
 
-“In that case, Lit and I can just summon spirit beasts with magic.”
+“Ooo ~!”
 
-“Really? Lit, are you okay with that too?”
+Rekan saya mengangkat tongkat pancing mereka dan menjawab ketika saya berteriak.
 
-“Sure!”
+Anggotanya adalah saya sendiri, Lit, Ruti, Tise dan Half-Elf Tanta.
 
-It was decided.
+“Eh? Dimana Gonz? ”
 
-We exited the town gates. Lit summoned two Spirit Dire Wolves while Ruti summoned two Spirit Mounts.
+“Paman Gonz rupanya terlalu banyak minum alkohol langka di festival kemarin. Dia sedang mabuk dan sedang tidur. ”
 
-Lit’s spirit beasts were huge wolves as large as brown bears. Ruti’s spirit beasts were horses with pure white coats with accompanying saddles and reins.
+"Sigh, pria itu, dialah yang ingin datang."
 
-Tanta was initially afraid of the dire wolves which bared their fangs but he quickly adapted and was hugging their fluffy necks.
+Dia bilang dia mungkin akan sembuh pada siang hari setelah dia minum obat Red-oniichan?
 
-The dire wolf grabbed Tanta’s clothes with its mouth and tossed him onto its back.
+Menyedihkan.
 
-“Amazing!”
+“Tidak ada yang membantunya, kita akan melanjutkannya.”
 
-Tanta seemed to have taken a liking for the dire wolf as he stroked the dire wolf’s neck.
+"Baik!"
 
-“I guess Tanta prefers this. I’ll ride together then.”
+Tanta mengangguk senang. Mungkin dia takut saya akan menundanya.
 
-I rode behind Tanta.
+Saya menepuk kepala Tanta untuk meyakinkannya dan dia tertawa karena geli.
 
-“Are you sure? Don’t you think the horses there are better since they have saddles?”
+“Kami juga memiliki bagian dari bento untuk semua orang.”
 
-“It’s fine.”
+Lit menunjukkan keranjang besar yang dipegangnya. Ada berbagai macam bento yang ditempatkan di dalamnya.
 
-The dire wolf snorted as if to indicate to leave it to him in response to Lit’s worry.
+Tentu saja, akulah yang membuatnya.
 
-That gesture caused Tanta to be even more excited and he hugged the wolf’s neck tightly with sparkling eyes.
+“Jadi, kemana kita akan pergi hari ini?”
+
+“Saya sedang berpikir untuk pergi ke pantai. Mungkin kita bisa menyewa kuda. ”
+
+"Kalau begitu, Lit dan aku bisa memanggil makhluk roh dengan sihir."
+
+"Betulkah? Lit, apa kamu juga setuju dengan itu? ”
+
+"Tentu!"
+
+Sudah diputuskan.
+
+Kami keluar dari gerbang kota. Lit memanggil dua Serigala Roh Dire sementara Ruti memanggil dua Gunung Roh.
+
+Binatang roh Lit adalah serigala besar sebesar beruang coklat. Binatang buas Ruti adalah kuda dengan mantel putih bersih disertai pelana dan tali kekang.
+
+Tanta awalnya takut pada serigala mengerikan yang memperlihatkan taring mereka, tetapi dia dengan cepat beradaptasi dan memeluk leher berbulu mereka.
+
+Serigala yang mengerikan itu meraih pakaian Tanta dengan mulutnya dan melemparkannya ke punggungnya.
+
+“Luar biasa!”
+
+Tanta tampaknya menyukai serigala yang mengerikan saat dia mengelus leher serigala yang mengerikan itu.
+
+“Kurasa Tanta lebih suka ini. Kalau begitu aku akan berkendara bersama. "
+
+Saya berkendara di belakang Tanta.
+
+“Apakah kamu yakin? Tidakkah menurutmu kuda-kuda di sana lebih baik karena mereka memiliki pelana? ”
+
+"Tidak apa-apa."
+
+Serigala yang mengerikan itu mendengus seolah-olah menunjukkan untuk menyerahkannya kepadanya sebagai tanggapan atas kekhawatiran Lit.
+
+Sikap itu membuat Tanta semakin bersemangat dan ia memeluk leher serigala itu dengan erat dengan mata berbinar.
