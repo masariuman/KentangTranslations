@@ -38,13 +38,13 @@ Orang-orang itu disebut pembunuh liar. Satu-satunya target pembunuhan yang ditet
 
 Tise melanjutkan sambil melihat ke arah Ugeuge-san yang mulai makan dengan bahagia.
 
-“Pemimpin mereka adalah seorang pembunuh liar bernama Harks. Saya pernah berbicara dengannya, jadi saya ingat dia. Aku memang mempertimbangkan untuk membunuh mereka di sana tapi tanpa Pembunuh Bayaran Guild, menjelaskan diriku sendiri akan merepotkan jadi aku merasa menyerahkan mereka ke penjaga adalah pilihan terbaik. ”
+“Pemimpin mereka adalah seorang pembunuh liar bernama Harks. aku pernah berbicara dengannya, jadi aku ingat dia. Aku memang mempertimbangkan untuk membunuh mereka di sana tapi tanpa guild Pembunuh Bayaran, menjelaskan diriku sendiri akan merepotkan jadi aku merasa menyerahkan mereka ke penjaga adalah pilihan terbaik.”
 
-“Ya, menurutku itu pilihan yang bagus. Dan begitu pula pria Harks itu mengungkapkan sesuatu? "
+g"Ya, menurutku itu pilihan yang bagus. apakah pria Harks ada mengatakan sesuatu?"
 
-“Bahkan jika dia busuk, dia masih seorang『 Pembunuh Bayaran 』. Dia tidak akan mengungkapkan nama pemohonnya bahkan jika dia disiksa. Dia mencoba melarikan diri dengan mengucapkan beberapa nama yang tidak masuk akal. "
+"Bahkan walaupun dia busuk, dia masih seorang『 Pembunuh Bayaran 』. Dia tidak akan mengungkapkan nama kliennya bahkan jika dia disiksa. Dia pasti akan mencoba melarikan diri dengan mengucapkan beberapa nama yang tidak masuk akal."
 
-"Saya melihat."
+g"begitu ya..."
 
 Lit pergi memanggil Ruti yang telah kembali ke rumahnya sendiri. Kami akan baik-baik saja meskipun kami tidak menelepon Ruti tetapi dia mungkin akan kesal jika kami tidak menelepon.
 
