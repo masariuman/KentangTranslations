@@ -40,7 +40,7 @@ Beberapa peserta dikejutkan oleh kekuatan Garadin tetapi Tonedo mempertahankan p
 
 Tonedo dan sang jenderal membantah keras pendapat Garadin. Pemimpin dan eksekutif guild lainnya menindaklanjuti dengan persetujuan mereka.
 
-“Namun, menyerahkan daftar gereja adalah permintaan yang belum pernah terjadi sebelumnya. Gereja merasa itu sama sekali tidak dapat diterima. Kita harus memberi tahu Pastor Clemens di Benteng Sage Besar yang terletak di Tembok Terakhir Tanah Suci dan meminta pernyataan kutukan terhadap Veronia. "
+"Namun, menyerahkan catatan gereja adalah permintaan yang belum pernah terjadi sebelumnya. Gereja merasa itu sama sekali tidak dapat diterima. Kita harus memberi tahu Pastor Clemens di Benteng Sage Besar yang terletak di Tembok Terakhir Tanah Suci dan meminta pernyataan kutukan terhadap Veronia."
 
 Jelas dari nada bicara Uskup Cien bahwa dia bersikukuh tentang pandangannya. Walikota Tonedo mengerutkan alisnya dan mendesah keras. Ekspresi Uskup Cien tidak berubah bahkan setelah melihat ekspresi walikota.
 
