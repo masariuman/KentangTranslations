@@ -128,7 +128,7 @@ r"Kerajaan Veronia saat ini terisolasi di Benua Avalonia. Tidak peduli seberapa 
 
 Sebelum mereka menyadarinya, Walikota Tonedo, Sir William, dan para pemimpin guild mendengarkan perkataan Ruti dengan seksama.
 
-Ruti masih gadis belia dan pidatonya tidak fasih. Namun, kata-katanya membawa pengalaman pertempuran terus menerus melawan Tentara Raja Iblis. Para pemimpin Zoltan yang tidak mengetahui jati diri Ruti menganggap perkataan Ruti dapat diandalkan dan mereka tidak meragukan pemikiran gadis muda di depan mereka.
+Ruti masih gadis belia dan pidatonya tidak fasih. Namun, kata-katanya didapat dari pengalaman pertempuran terus menerus melawan Tentara Raja Iblis. Para pemimpin Zoltan yang tidak mengetahui jati diri Ruti menganggap perkataan Ruti dapat diandalkan dan mereka tidak meragukan pemikiran gadis muda di depan mereka.
 
 Meskipun pidatonya yang biasa sangat terpecah-pecah, kata-katanya pada pertemuan itu lebih dapat diandalkan daripada orang lain. Tise terkesan dengan betapa misteriusnya Ruti.
 
