@@ -184,9 +184,11 @@ t"y-yah, itu benar. kita harus mampir untuk mengambil pedangmu juga."
 
 Tise tanpa sadar tertawa setelah melihat Ruti berbicara tentang kekurangan energi Onii-chan dengan ekspresi serius.
 
-Agar mereka berdua dapat menyelamatkan Zoltan dari situasi berbahaya, mereka harus memenuhi pengisian energi Onii-chan oleh Ruti terlebih dahulu sehingga mereka berangkat menuju toko Red.
+Agar mereka berdua dapat menyelamatkan Zoltan dari situasi berbahaya, mereka harus memenuhi pengisian energi Onii-chan terlebih dahulu jadi mereka berangkat menuju toko Red.
 
-Penampilan Karakter:
+-------------------------------
+
+Karakter:
 
 Walikota Toledo saat ini (Jenis walikota yang tidak biasa di Zoltan)
 
