@@ -188,18 +188,18 @@ Agar mereka berdua dapat menyelamatkan Zoltan dari situasi berbahaya, mereka har
 
 -------------------------------
 
-Karakter:
+Karakter yang muncul:
 
 Walikota Toledo saat ini (Jenis walikota yang tidak biasa di Zoltan)
 
-Jenderal Baron William (Memiliki perut)
+Jenderal Baron William (perut buncit)
 
-Petualang Guild Leader Harold (Tidak bisa melepaskan obat perut yang dibuat oleh Red)
+ketua Guild petualang Harold (Tidak bisa meninggalkan obat perut yang dibuat oleh Red)
 
-Pesta petualang peringkat B generasi sebelumnya
+tim petualang peringkat B generasi sebelumnya
 
 Uskup Cien (Bertindak sebagai rem Garadin. Namun, Moen merasa bahwa dia adalah orang yang paling berbahaya begitu dia membentak.)
 
-Petualang Guild Executive Garadin (Apakah orang yang sembrono tapi melunak setelah bertemu rekan mereka Mistome)
+eksekutif Petualang Guild Garadin (orang yang sembrono tapi melunak setelah bertemu rekan mereka Mistome)
 
-Penjaga Kapten Moen (Adalah satu-satunya remaja ketika dia memasuki pesta sehingga dia mengalami banyak kesulitan)
+Penjaga Kapten Moen (Adalah satu-satunya remaja ketika dia memasuki tim sehingga dia mengalami banyak kesulitan)
