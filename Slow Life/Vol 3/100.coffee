@@ -362,29 +362,29 @@ Kembali pada kenyataan.
 
 ☆☆
 
-Aku menghunus pedang Ksatria untuk menghadapi iblis terbang yang memasuki aula.
+Aku menghunus pedangku untuk menghadapi iblis terbang yang memasuki aula.
 
-"Akan ada korban jika aku membiarkannya mengamuk."
+g"Akan ada korban jika aku membiarkannya mengamuk."
 
-Saya menyalurkan kekuatan ke kedua lengan saya. Ruti berlari di sampingku.
+aku menyalurkan kekuatan ke kedua lenganku. Ruti berlari ke sampingku.
 
-“Mari kita putuskan dalam satu serangan, kita akan menjatuhkannya pada saat yang sama.”
+g"Mari kita putuskan dalam satu serangan, kita akan menjatuhkannya pada saat yang sama."
 
-“Dimengerti.”
+r"OKE."
 
 Kami mengayunkan pedang kami dari kiri dan kanan pada saat yang bersamaan. Kami berpapasan dengan iblis.
 
 “Guaaaaa !!!”
 
-Setan itu terkoyak secara vertikal dan horizontal.
+iblis itu terkoyak secara vertikal dan horizontal.
 
-"Iblis hari ini cukup kuat, sekitar Lv35?"
+g"Iblis hari ini cukup kuat, sekitar Lv35?"
 
-Mungkin akan berbahaya jika aku tidak menjadi Knight dan menjalani pelatihan.
+Mungkin akan berbahaya jika aku tidak menjadi ksatria dan menjalani pelatihan.
 
-“Ooo !! Seperti yang diharapkan dari dua sayap harapan umat manusia! Pahlawan Ruti dan Ksatria Gideon! "
+"Ooo !! Seperti yang diharapkan dari dua sayap harapan umat manusia! Pahlawan Ruti dan Ksatria Gideon! "
 
-Aula yang dibungkam karena ketakutan dari iblis yang menyusup meledak dengan sorak-sorai.
+Aula yang dibungkam karena ketakutan dari iblis yang menyusup, meledak dengan teriakan sorakan dari orang yang ada didalamnya.
 
 "Apakah kamu baik-baik saja!"
 
