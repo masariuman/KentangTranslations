@@ -118,11 +118,11 @@ r"Itulah mengapa mungkin bagi kami yang tidak mengetahui situasi untuk mengident
 
 Apalagi, jika mereka membatasinya untuk migran dan bukan yang lahir di Zoltan, mereka bisa mempersempitnya ke jumlah yang cukup kecil.
 
-“Selanjutnya, saya akan bertemu Pangeran Sarius secara langsung dan mengeluarkan informasi sedikit demi sedikit… selain itu, saya ragu bahwa tindakan Pangeran Saurius sebenarnya adalah kehendak Kerajaan Veronia.”
+r"Selanjutnya, saakuakuya akan bertemu Pangeran Sarius secara langsung dan mengorek informasi sedikit demi sedikit... selain itu, aku ragu bahwa tindakan Pangeran Saurius sebenarnya adalah kehendak Kerajaan Veronia."
 
-"Keraguan?"
+"ragu?"
 
-“Kerajaan Veronia saat ini terisolasi di Benua Avalonia. Tidak peduli seberapa banyak Raja Geyserik menjadikan Veronia sebagai kekuatan utama dalam satu generasi, dia sekarang adalah raja tua yang berusia lebih dari 90 tahun. Para bangsawan dan warga negara merasa tidak nyaman dengan kebijakan netral mereka terhadap Tentara Raja Iblis yang menyebabkan isolasi mereka dan ada kemungkinan terjadi kerusuhan skala besar jika mereka memusuhi gereja. Apakah ada orang di Zoltan yang sangat menghargai Veronia? Saya merasa tidak pada tempatnya bahwa mereka akan mengambil risiko seperti itu dan bahkan tidak akan membiarkan orang-orang di perbatasan Zoltan mengetahui alasannya. "
+r"Kerajaan Veronia saat ini terisolasi di Benua Avalonia. Tidak peduli seberapa banyak Raja Geyserik menjadikan Veronia sebagai kekuatan utama dalam satu generasi, dia sekarang adalah raja tua yang berusia lebih dari 90 tahun. Para bangsawan dan warga negara merasa tidak nyaman dengan kebijakan netral mereka terhadap Tentara Raja Iblis yang menyebabkan mereka diisolasi dan ada kemungkinan terjadi kerusuhan skala besar jika mereka memusuhi gereja. Apakah ada orang di Zoltan yang sangat menghargai Veronia? aku merasa tidak pada tempatnya bahwa mereka akan mengambil risiko seperti itu dan bahkan tidak akan membiarkan orang-orang di perbatasan Zoltan mengetahui alasannya."
 
 "Aneh sekali kau berkata seperti itu."
 
