@@ -28,9 +28,9 @@ Ugeuge-san memiringkan kepalanya dan mengangkat lengan kanannya.
 
 Meski tidak mau menyelam ke dalam bak mandi, ia seakan ingin membersihkan tubuhnya dengan tetesan air.
 
-"Baiklah."
+t"Baiklah."
 
-Aku mengulurkan tangan kananku dan Ugeuge-sa melompat ke punggung tanganku sambil memantul.
+Aku mengulurkan tangan kananku dan Ugeuge-san melompat ke punggung tanganku sambil memantul.
 
 Kemudian, itu dengan mulus berlari ke lenganku dan pindah ke pundakku.
 
