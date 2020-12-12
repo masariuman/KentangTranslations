@@ -1,8 +1,8 @@
-Bab 92: Penyihir wanita tua
+Bab 92: wanita tua ArchMage
 
-“Dan kemudian memproklamirkan diri sebagai Drake Rider』 menurunkan wanita tua itu dan melarikan diri. ”
+“Dan kemudian si orang yabg mengaku dirinya sebagai 『Penunggang Drake』 itu menurunkan wanita tua itu dan melarikan diri. ”
 
-Aku tersenyum pahit setelah mendengarnya dari Tise. Aku menutup mata padanya karena dia bukan musuh tapi sepertinya dia memiliki sisi perhatian padanya juga. Mungkin aku harus sedikit mengevaluasi kembali pendapatku tentang dia.
+Aku tersenyum pahit setelah mendengarnya dari Tise. Aku menutup mata padanya karena dia bukan musuh tapi sepertinya dia memiliki sisi perhatian juga. Mungkin aku harus sedikit mengevaluasi kembali pendapatku tentangnya.
 
 “Saya tidak sempat berterima kasih kepada orang itu.”
 
