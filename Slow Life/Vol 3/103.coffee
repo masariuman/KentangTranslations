@@ -168,19 +168,19 @@ Mereka berdua terdiam sejenak tapi mereka tertawa untuk menghilangkan suasana ca
 
 Setelah rapat usai, Ruti dan Tise meninggalkan tempat pertemuan.
 
-“Jadi, kita mulai dari mana?”
+t"Jadi, kita mulai dari mana?"
 
 Ruti menjawab pertanyaan Tise dengan tekad yang kuat.
 
-“Kami berangkat untuk mengisi kembali energi Onii-chan.”
+r"kita berangkat untuk mengisi kembali energi Onii-chan."
 
-"Hah?"
+t"Hah?"
 
-"Sudah lama sekali sejak aku tidak terlalu serius berbicara sehingga tidak ada cukup energi Onii-chan."
+r"Sudah lama sekali aku tidak terlalu serius berbicara jadi energi Onii-chanku tidak cukup."
 
 Tise mengira dia bercanda tapi ekspresi Ruti serius.
 
-“Kami-yah, itu benar. Kami harus mampir untuk mengambil pedangmu juga. "
+t"y-yah, itu benar. kita harus mampir untuk mengambil pedangmu juga."
 
 Tise tanpa sadar tertawa setelah melihat Ruti berbicara tentang kekurangan energi Onii-chan dengan ekspresi serius.
 
