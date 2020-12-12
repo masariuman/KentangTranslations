@@ -110,11 +110,11 @@ Saat aku memanggilnya, Ugeuge-san dengan tenang mengalihkan pandangannya.
 
 ☆☆
 
-“Memancing ~!”
+g"Memancing ~!"
 
 “Ooo ~!”
 
-Rekan saya mengangkat tongkat pancing mereka dan menjawab ketika saya berteriak.
+temanku mengangkat tongkat pancing mereka dan menjawab ketika aku berteriak.
 
 Anggotanya adalah saya sendiri, Lit, Ruti, Tise dan Half-Elf Tanta.
 
