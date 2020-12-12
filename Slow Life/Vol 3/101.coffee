@@ -20,7 +20,7 @@ r"Yup."
 
 Latihan pemanasan pagi Ruti dilakukan selama 15 menit.
 
-Bagi Ruti yang tubuh fisiknya akan dipertahankan dalam kondisi optimal penuh karena kekuatan perlindungan ilahi sebelumnya, fakta bahwa gerakan akan menjadi tumpul jika tidak dilakukan secara teratur atau melakukan latihan pemanasan adalah pengalaman segar baginya.
+Bagi Ruti yang tubuh fisiknya akan dipertahankan dalam kondisi optimal penuh karena kekuatan perlindungan ilahi sebelumnya, fakta bahwa gerakannya akan menjadi tumpul jika tidak dilakukan secara teratur atau melakukan latihan pemanasan adalah pengalaman segar baginya.
 
 Ruti tidak meneteskan keringat sedikitpun. Pipinya sedikit memerah karena rencana selanjutnya adalah pergi ke tempat Red untuk sarapan. Syukurlah, sampai sekarang belum ada yang melihat latihan yang dianggapnya ringan.
 
