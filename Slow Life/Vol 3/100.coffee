@@ -390,15 +390,17 @@ Aula yang dibungkam karena ketakutan dari iblis yang menyusup, meledak dengan te
 
 Ares bergegas melewati pintu segera setelah kami dikelilingi oleh bangsawan Avalonia.
 
-Aku melakukan yang terbaik sementara Ruti tersenyum datar dengan ekspresi bahwa dia merasa merepotkan dan berkomentar bahwa sudah waktunya kita mulai mempersiapkan bagaimana menghadapi para bangsawan.
+Aku melakukan yang terbaik sementara Ruti tersenyum datar dengan ekspresi bahwa dia merasa kerepotan dan berkomentar bahwa sudah waktunya kita mulai mempersiapkan bagaimana menghadapi para bangsawan.
 
 Aku mendengar Ares mendecakkan lidahnya dari jauh, tapi aku tidak punya waktu untuk diganggu oleh Ares saat itu.
+
+--------------------------
 
 Catatan penulis:
 
 Ini adalah cerita tambahan April Mop.
 
-Di dunia palsu ini, Ruti menyerah pada perlindungan ilahi Pahlawan dan menjadi eksistensi yang hanya merespon sesuai dengan bagaimana Pahlawan akan merespon alih-alih dengan kehendak bebasnya sendiri. Alasan nada cerianya adalah karena orang akan senang melihat kepribadian yang lebih cerah.
+Di dunia palsu ini, Ruti menyerah pada perlindungan ilahi Pahlawan dan menjadi eksistensi yang hanya merespon sesuai dengan bagaimana Pahlawan akan merespon daripada dengan kehendak bebasnya sendiri. Alasan nada cerianya adalah karena orang akan senang melihat kepribadian yang lebih cerah.
 
 Pangeran Kifa adalah seorang pangeran yang mendukung Ruti dan yang lainnya di dunia dimana Gideon tidak menjadi seorang ksatria. Di main novel, Gideon adalah seorang ksatria sehingga perannya tidak diperlukan dan Putri Serena tidak diculik sehingga tidak muncul sama sekali.
 
