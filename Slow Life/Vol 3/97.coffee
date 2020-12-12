@@ -104,7 +104,7 @@ Mungkin aku akan mencoba menyelidikinya. Aku menghentikan pikiranku dan menurunk
 
 Melihat ke arah jendela, aku melihat Ugeuge-san melompat. Sepertinya telah menangkap serangga yang mencoba masuk dari jendela.
 
-“Kamu akan menjadi gemuk jika makan terlalu banyak.”
+t"Kamu akan menjadi gemuk jika makan terlalu banyak."
 
 Saat aku memanggilnya, Ugeuge-san dengan tenang mengalihkan pandangannya.
 
