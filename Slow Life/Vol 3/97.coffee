@@ -88,7 +88,7 @@ Pembunuh liar dan mantan walikota Mistome-shi.
 
 aku tidak berharap untuk melihat pembunuh liar di Zoltan. Namun, karena Zoltan adalah kota perbatasan tanpa cabang Guild Pembunuh Bayaran, kemungkinan Guild Pembunuh Bayaran menemukan mereka rendah dan mereka mungkin bisa mencari nafkah sebagai Pembunuh Bayaran.
 
-Tapi kenapa mereka membidik Mistome-shi? Tentu saja, sebagai pembunuh, mereka mungkin mengincar nyawa Mistome-shi karena permintaan dari seseorang yang menginginkan kematiannya.
+Tapi kenapa mereka menargetkan Mistome-shi? Tentu saja, sebagai pembunuh, mereka mungkin mengincar nyawa Mistome-shi karena permintaan dari seseorang yang menginginkan kematiannya.
 
 Namun, Mistome-shi telah pensiun dari posisinya sebagai politisi dan petualang. Penduduk Zoltan bahkan tidak tahu di mana Mistome-shi saat ini tinggal.
 
