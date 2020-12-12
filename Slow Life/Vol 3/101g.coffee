@@ -124,4 +124,4 @@ Ruti dan Tise melihat ke arah suara itu dan melihat staf Guild Petualang Meguria
 
 Permintaan petualang?
 
-Ruti mengusap wajahnya yang dikotori dengan handuk dan, tanpa semangat, denngan tenang menghadap wajah pucat Meguria.
+Ruti mengusap wajahnya yang dikotori dengan handuk dan, tanpa terlihat lelah, denngan tenang menghadap wajah pucat Meguria.
