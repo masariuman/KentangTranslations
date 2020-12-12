@@ -162,15 +162,15 @@ Serigala yang mengerikan itu meraih pakaian Tanta dengan mulutnya dan melemparka
 
 “Luar biasa!”
 
-Tanta tampaknya menyukai serigala yang mengerikan saat dia mengelus leher serigala yang mengerikan itu.
+Tanta tampaknya menyukai serigala yang mengerikan dan dia mengelus leher serigala yang mengerikan itu.
 
-“Kurasa Tanta lebih suka ini. Kalau begitu aku akan berkendara bersama. "
+g"Kurasa Tanta lebih suka ini. Kalau begitu aku akan bersama tanta."
 
-Saya berkendara di belakang Tanta.
+Saya duduk di belakang Tanta.
 
-“Apakah kamu yakin? Tidakkah menurutmu kuda-kuda di sana lebih baik karena mereka memiliki pelana? ”
+l"Apakah kamu yakin? Tidakkah menurutmu kuda-kuda di sana lebih baik karena mereka memiliki pelana?"
 
-"Tidak apa-apa."
+g"Tidak apa-apa."
 
 Serigala yang mengerikan itu mendengus seolah-olah menunjukkan untuk menyerahkannya kepadanya sebagai tanggapan atas kekhawatiran Lit.
 
