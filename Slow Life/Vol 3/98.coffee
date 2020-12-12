@@ -162,7 +162,7 @@ Bibirku berubah menjadi tersenyum juga ketika aku melihatnya dan aku segera menu
 
 Tanta berteriak. Aku melihat ke laut ke arah yang ditunjuk Tanta.
 
-Ada sebuah dapur dengan dua layar persegi yang bergerak maju dengan dayung yang tak terhitung jumlahnya tersebar di tiga lapisan yang mendorong perahu ke depan secara teratur.
+Ada sebuah gali dengan dua layar persegi yang bergerak maju dengan dayung yang tak terhitung jumlahnya tersebar di tiga lapisan yang mendorong perahu ke depan secara teratur.
 
 Itu adalah kapal perang.
 
