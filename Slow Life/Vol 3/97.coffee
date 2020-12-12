@@ -82,7 +82,7 @@ aku secara tidak sengaja menghela nafas ketika aku memasuki bak mandi. aku mulai
 
 Uap putih melayang keluar melalui jendela. Ugeuge-san berdiri di dekat jendela dan dengan cekatan mengambil tetesan air kecil dengan lengannya dan membasuh tubuhnya.
 
-Sementara dengan linglung mulai dari Ugeuge-san, aku mengingat kejadian terakhir yang terjadi hari ini dengan pikiran kosong.
+aku mengingat kejadian terakhir yang terjadi hari ini dengan pikiran kosong.
 
 Pembunuh liar dan mantan walikota Mistome-shi.
 
