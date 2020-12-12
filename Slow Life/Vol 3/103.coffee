@@ -132,15 +132,15 @@ Ruti masih gadis belia dan pidatonya tidak fasih. Namun, kata-katanya didapat da
 
 Meskipun pidatonya yang biasa sangat terpecah-pecah, kata-katanya pada pertemuan itu lebih dapat diandalkan daripada orang lain. Tise terkesan dengan betapa misteriusnya Ruti.
 
-“Saya ingin melihat surat resmi yang dibawa Pangeran Sarius. Apakah segel keluarga kerajaan Veronia benar-benar asli… ”
+r"ingin melihat surat resmi yang dibawa Pangeran Sarius. Apakah segel keluarga kerajaan Veronia benar-benar asli..."
 
-Tidak ada surat resmi.
+"Tidak ada surat resmi."
 
 Gerakan Ruti terhenti.
 
-“Jenderal, tidak ada surat resmi?”
+r"Jenderal, tidak ada surat resmi?"
 
-“Persis seperti yang saya katakan. Pangeran Sarius meminta pendaftaran gereja secara lisan. Ah, tapi dia pasti Pangeran Sarius. Bawahan saya, awalnya seorang petualang di negara lain, telah melihat Pangeran Sarius sebelumnya dan saya telah memverifikasi penampilannya dengannya. "
+"Persis seperti yang aku katakan. Pangeran Sarius meminta catatan gereja secara lisan. Ah, tapi dia pasti Pangeran Sarius. Bawahanku, awalnya seorang petualang di negara lain, telah melihat Pangeran Sarius sebelumnya dan aku telah memverifikasi penampilannya dengannya."
 
 Ruti mengerutkan alisnya dan tampak gelisah untuk pertama kalinya. Setelah berpikir sejenak,
 
