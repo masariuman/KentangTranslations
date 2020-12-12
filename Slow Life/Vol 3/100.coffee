@@ -390,7 +390,7 @@ Aula yang dibungkam karena ketakutan dari iblis yang menyusup, meledak dengan te
 
 Ares bergegas melewati pintu segera setelah kami dikelilingi oleh bangsawan Avalonia.
 
-Aku melakukan yang terbaik untuk menindaklanjuti sementara Ruti tersenyum datar dengan ekspresi bahwa dia merasa merepotkan dan berkomentar bahwa sudah waktunya kita mulai mempersiapkan bagaimana menghadapi para bangsawan.
+Aku melakukan yang terbaik sementara Ruti tersenyum datar dengan ekspresi bahwa dia merasa merepotkan dan berkomentar bahwa sudah waktunya kita mulai mempersiapkan bagaimana menghadapi para bangsawan.
 
 Aku mendengar Ares mendecakkan lidahnya dari jauh, tapi aku tidak punya waktu untuk diganggu oleh Ares saat itu.
 
