@@ -50,7 +50,7 @@ Lingkaran pemimpin Zoltan tampak bingung dengan sikap tak terduga Uskup Cien mes
 
 Ruti merasa sedikit kangen. Mereka bertemu dengan rekan mereka Theodora di Benteng Sage Besar di Tembok Terakhir Tanah Suci. Pada saat itu, karena intrik Tentara Raja Iblis, Ruti dan kelompoknya akan ditangkap sebagai orang yang berpihak pada Tentara Raja Iblis dan mereka berada dalam situasi yang canggung dimana mereka bertarung melawan biksu agama Demis.
 
-Di antara mereka, Theodora mempercayai Ruti dan partainya, mengabaikan perintah Pastor Clemens dan mampu menyelesaikan insiden tersebut setelah jelas bahwa itu adalah konspirasi oleh seorang kardinal.
+Di antara mereka, Theodora mempercayai Ruti dan timnya, mengabaikan perintah Pastor Clemens dan mampu menyelesaikan insiden tersebut setelah jelas bahwa itu adalah konspirasi oleh seorang kardinal.
 
 Ngomong-ngomong, di belakang Gereja Tembok Terakhir, ada kuil rahasia di mana tidak ada yang diizinkan masuk. Mereka membiarkannya karena mereka tidak ada hubungannya dengan itu. Ruti mengingat kembali kenangan Tanah Suci secara nostalgia.
 
