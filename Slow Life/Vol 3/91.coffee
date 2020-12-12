@@ -178,7 +178,7 @@ Isinya tumpah dan menghalangi penglihatan pria itu sedetik.
 
 “Ora !!”
 
-Saat itulah Otto mengayunkan kakinya dengan busur besar. Itu mengenai pria itu tepat di wajah dan pria itu berputar di udara sebelum membanting ke tanah.
+Saat itulah Otto mengayunkan kakinya dan mengenai pria itu tepat di wajahnya dan pria itu berputar di udara sebelum terbanting ke tanah.
 
 Mengambil kesempatan itu, Otto mengangkat wanita tua itu dengan kedua tangannya dan dengan cepat meninggalkan tempat kejadian.
 
