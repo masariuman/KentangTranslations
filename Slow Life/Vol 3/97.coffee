@@ -126,7 +126,7 @@ g"haa~~~, pria itu, padahal dialah yang ingin sekali memancing."
 
 "Dia bilang dia mungkin akan baikan pada siang hari setelah dia minum obat Red-oniichan?"
 
-Menyedihkan.
+dasar...
 
 “Tidak ada yang membantunya, kita akan melanjutkannya.”
 
