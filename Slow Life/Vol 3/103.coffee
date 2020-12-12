@@ -20,9 +20,9 @@ Wajah Sir William menjadi semakin cemberut saat Ruti memberikan sapaan yang pas-
 
 “Kami sedang mendiskusikan sikap yang harus diambil Zoltan saat berhubungan dengan Kerajaan Veronia.”
 
-Dan kesimpulannya?
+r"Dan kesimpulannya?"
 
-“Yah, ini masalah yang cukup sulit. Aturan dasarnya adalah bahwa negara tidak menginvasi kekuasaan Gereja tetapi karena Kerajaan Veronia harus menemukan orang tertentu dengan segala cara dan mempertimbangkan hubungan persahabatan kedua negara, bekerja sama dengan mereka bukanlah hal yang memalukan… ”
+“Yah, ini masalah yang cukup sulit. Aturan dasarnya adalah bahwa negara tidak menginvasi kekuasaan Gereja tetapi karena Kerajaan Veronia harus menemukan orang tertentu dengan segala cara dan mempertimbangkan hubungan persahabatan kedua negara, bekerja sama dengan mereka bukanlah hal yang memalukan...”
 
 "Walikota!"
 
