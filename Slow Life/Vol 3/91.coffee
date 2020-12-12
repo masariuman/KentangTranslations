@@ -1,8 +1,6 @@
 Bab 91: Terima kasih
 
-Penerjemah: Tseirp
-
-Saat matahari terbenam, yang kelelahan, namun masih terlihat seolah-olah dia memiliki banyak energi untuk dihabiskan, 『Winter Demon meninggalkan kota, menandai akhir dari festival.
+Saat matahari terbenam, yang kelelahan, namun masih terlihat seolah-olah dia memiliki banyak energi untuk dihabiskan, 『Iblis Musim Dingin』 meninggalkan kota, menandai akhir dari festival.
 
 Sebagai penutup, setiap orang disarankan untuk menikmati momen ini sebanyak mungkin untuk mewujudkan keinginan mereka agar musim semi tiba secepat mungkin menjadi kenyataan.
 
