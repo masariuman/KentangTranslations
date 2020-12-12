@@ -26,17 +26,17 @@ r"Dan kesimpulannya?"
 
 "Walikota!"
 
-Eksekutif Guild Petualang, Garadin, menyela dia.
+Eksekutif Guild Petualang, Garadin, menyelanya.
 
-Garadin memelototi walikota dengan ekspresi menyeramkan yang terdistorsi, yang akan lebih cocok untuk eksekutif Thieves Guild.
+Garadin memelototi walikota dengan ekspresi menyeramkan yang terdistorsi, yang akan lebih cocok untuk eksekutif Guild Pencuri.
 
-“Tak seorang pun kecuali orang yang tidak sopan akan meminta daftar gereja tanpa menjelaskan alasan mereka. Zoltan dianggap remeh! ”
+“Tak seorang pun kecuali orang yang tidak sopan akan meminta catatan gereja tanpa menjelaskan alasan mereka. Zoltan dianggap remeh! ”
 
-Beberapa peserta dikejutkan oleh kekuatan Garadin tetapi Tonedo mempertahankan warna kulit yang dingin. Faktanya, itu adalah Pemimpin Guild Petualang yang duduk di samping Garadin yang berkeringat dingin.
+Beberapa peserta dikejutkan oleh kekuatan Garadin tetapi Tonedo mempertahankan posisinya. Faktanya, itu adalah Pemimpin Guild Petualang yang duduk di samping Garadin yang berkeringat dingin.
 
 “Garadin, bisakah kehormatan membela negara?”
 
-"Tepat sekali. Berbicara sebagai pemimpin pasukan Zoltan, Zoltan sama sekali tidak memiliki peluang untuk menang jika kita berperang dengan Veronia. Kami hampir tidak dapat bersaing dengan satu kapal perang, jika kapal perang lain tiba, saya akan menyarankan untuk menyerah bahkan tanpa pertempuran. "
+"Tepat sekali. Berbicara sebagai pemimpin pasukan Zoltan, Zoltan sama sekali tidak memiliki peluang untuk menang jika kita berperang dengan Veronia. Kami hampir tidak dapat bersaing dengan satu kapal perang, jika kapal perang lain tiba, aku akan menyarankan untuk menyerah bahkan tanpa pertempuran."
 
 Tonedo dan sang jenderal membantah keras pendapat Garadin. Pemimpin dan eksekutif guild lainnya menindaklanjuti dengan persetujuan mereka.
 
