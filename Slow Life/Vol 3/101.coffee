@@ -1,16 +1,16 @@
 Bab 101: Pahlawan dan Pembunuh Bayaran merasa emosional karena teman kecil
 
-Pagi har.
+Pagi hari.
 
 Ruti bangun setiap hari di waktu yang sama.
 
-Itu akan menjadi waktu yang sama tidak peduli seberapa larut dia begadang malam sebelumnya atau seberapa pagi dia pergi tidur.
+tidak peduli seberapa larut tertidur.
 
-"Aku juga tidur hari ini."
+r"Aku juga tidur hari ini."
 
-Ruti akan sangat terharu setiap pagi oleh tindakan manusia saat tidur di malam hari dan matanya akan berbinar ketika melihat matahari pagi bersinar melalui jendela. Meski mungkin hanya Red dan Tise yang bisa melihat kilauan di dalam pupil Ruti yang sedalam danau.
+Ruti sangat terharu setiap pagi oleh tindakan manusia saat tidur di malam hari dan matanya akan berbinar ketika melihat matahari pagi bersinar melalui jendela. Meski mungkin hanya Red dan Tise yang bisa melihat kilauan di dalam pupil Ruti yang sedalam danau.
 
-Ruti membilas mulutnya dengan air dari kendi air sebelum meminum air.
+Ruti mencuci mulutnya dengan air dari kendi air sebelum meminum air.
 
 Setelah itu, dia melepas pakaiannya dan melakukan pembersihan sederhana pada tubuhnya dengan handuk basah.
 
