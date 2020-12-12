@@ -404,6 +404,6 @@ Di dunia palsu ini, Ruti menyerah pada perlindungan ilahi Pahlawan dan menjadi e
 
 Pangeran Kifa adalah seorang pangeran yang mendukung Ruti dan yang lainnya di dunia dimana Gideon tidak menjadi seorang ksatria. Di novel utama, Gideon adalah seorang ksatria sehingga perannya tidak diperlukan dan Putri Serena tidak diculik bahkan tidak muncul sama sekali.
 
-Adapun Yarandorara, Gideon tidak mati jadi dia tetap tinggal di tokonya. Dia baru resmi bergabung sebagai pendamping saat mereka bertarung di Logavia bersama Lit.
+Adapun Yarandorara, Gideon tidak mati jadi dia tetap tinggal di tokonya. Dia baru resmi bergabung sebagai anggota tim saat mereka bertarung di Logavia bersama Lit.
 
-Lebih jauh lagi, saya sesekali mengubah beberapa detail saat menulis tentang masa lalu jadi mungkin menyenangkan menemukan detail itu!
+aku sesekali mengubah beberapa detail saat menulis tentang masa lalu jadi mungkin menyenangkan menemukan detail itu!
