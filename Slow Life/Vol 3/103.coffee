@@ -98,15 +98,15 @@ Meski demikian, Zoltan merasa itu sudah cukup. Pasukan Zoltan hanya menghadapi p
 
 Sir William dan tentara Zoltan sama sekali tidak terbiasa dengan perang diplomatik melawan musuh yang diasumsikan.
 
-Aku akan menyelidiki.
+r"Aku akan menyelidiki."
 
-"Sedang diselidiki? Bagaimana?"
+"menyeelidiki? Bagaimana?"
 
-“Saya akan berasumsi bahwa Pangeran Sarius akan menemukan apa yang dia cari jika dia memiliki daftar gereja. Daftar gereja merinci nama, detail kelahiran, usia, alamat saat ini, pekerjaan, nama kedua orang tua, perlindungan ilahi dan tanggal migrasi. Di antara mereka, nama dan usia dapat dipalsukan dan tidak perlu mendaftar ke gereja jika hanya itu yang dia butuhkan. Alamat saat ini, pekerjaan dan nama kedua orang tua tidak diperlukan untuk menemukan seseorang. Oleh karena itu, dia berencana untuk mempersempit kandidat dengan tanggal migrasi dan perlindungan ilahi. "
+r"aku akan berasumsi bahwa Pangeran Sarius akan menemukan apa yang dia cari jika dia memiliki catatan gereja. catatan gereja merinci nama, detail kelahiran, usia, alamat saat ini, pekerjaan, nama kedua orang tua, perlindungan ilahi dan tanggal migrasi. Di antara semua itu, nama dan usia dapat dipalsukan dan tidak perlu mendaftar ke gereja jika hanya itu yang dia butuhkan. Alamat saat ini, pekerjaan dan nama kedua orang tua tidak diperlukan untuk menemukan seseorang. Oleh karena itu, dia berencana untuk memperkecil kandidat dengan tanggal migrasi dan perlindungan ilahi."
 
 "Aku mengerti."
 
-“Selain itu, jika dia dapat menemukan orang tersebut hanya dengan informasi yang akurat tentang tanggal migrasi, dia tidak memerlukan pendaftaran gereja. Dia akan meminta catatan imigrasi dari pemerintah. Itu akan jauh lebih sederhana dibandingkan dengan menentang Gereja. Dengan kata lain, Veronia hanya mengetahui tanggal migrasi kasar orang itu. Informasi yang menentukan adalah perlindungan ilahi. "
+r"Selain itu, jika dia dapat menemukan orang tersebut hanya dengan informasi yang akurat tentang tanggal migrasi, dia tidak memerlukan catatan gereja. Dia akan meminta catatan imigrasi dari pemerintah. Itu akan jauh lebih sederhana dibandingkan dengan menentang Gereja. Dengan kata lain, Veronia hanya mengetahui tanggal migrasi orang itu. Informasi yang menentukan adalah perlindungan ilahi."
 
 “Tetapi apakah mungkin untuk mengidentifikasi seseorang dengan perlindungan ilahi saja? Ada banyak perlindungan ilahi yang sama dan ada beberapa yang tidak menyatakan perlindungan ilahi mereka ke daftar gereja. "
 
