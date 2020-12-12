@@ -10,9 +10,9 @@ Ruti dan Tise memasuki ruangan di bawah bimbingan Meguria.
 
 Ada beberapa di antara para pemimpin yang mampu menggerakkan Zoltan mengerutkan kening ketika melihat mereka. Itu karena Ruti masih mengenakan baju yang dikenakannya untuk bekerja di ladang.
 
-Sir William tidak menyembunyikan tatapan jijiknya pada Ruti dan Tise. Ruti tidak peduli saat dia duduk di tempat dia dibimbing.
+Sir William tidak menyembunyikan tatapan jijiknya pada Ruti dan Tise. Ruti tidak peduli dan dia duduk di tempat dia diarahkan.
 
-“Ruti‧Ruru dan ini Tifa‧Johnson. Senang bertemu denganmu. Jadi bagaimana situasinya? "
+r"Ruti‧Ruru dan ini Tifa‧Johnson. Senang bertemu denganmu. Jadi bagaimana situasinya? "
 
 "Ruru-kun, terima kasih sudah datang."
 
