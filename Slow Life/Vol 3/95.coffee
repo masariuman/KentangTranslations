@@ -212,165 +212,99 @@ Lit mencoba menembakkan panah api yang dibuat menggunakan Sihir Rohnya tapi itu 
 
 Mereka sepertinya tidak menggertak. Meskipun itu mungkin akan berbeda jika itu adalah sihir yang kuat dari Ares atau Theodora. Sepertinya akan sulit mengandalkan sihir Lit untuk menerobos.
 
-"Ini!!"
-
- 
+l"Rasakan Ini!!"
 
 Lit menyiapkan pedangnya dan sepertinya ingin menantang mereka dalam pertempuran jarak dekat.
 
- 
-
-"Tunggu."
-
- 
+g"Tunggu."
 
 Aku memegang lengan Lit yang sedang memegang pedang.
 
- 
+g"E-eh? Kapan kamu?"
 
-“E-eh? Kapan kamu? ”
+aku menggunakan skill 'kaki kilat' untuk berlari ke sisi Lit.
 
- 
+Para Orc menunjukkan ekspresi terkejut untuk sekejap tetapi mereka dengan cepat kembali tenang.
 
-Saya menggunakan skill 'Lightning Feet' untuk berlari ke sisi Lit.
+l"Keterampilan untuk membuat kakimu lebih cepat ya. Tapi tidak peduli seberapa cepat kakimu, tidak berguna di depan seni bela diri mereka!"
 
-Para Orc menunjukkan ekspresi terkejut untuk sekejap tetapi mereka dengan cepat mendapatkan kembali ketenangan mereka.
+'Kaki kilat'ku pasti tidak bisa menembus 'Pisau Angin Gabungan Aun' yang menutupi seluruh lingkungan mereka.
 
- 
+skillku hanya meningkatkan kecepatan gerakanku. Itu memang memiliki efek membuat lebih sulit untuk membidikku menggunakan serangan jarak jauh tapi itu tidak berdaya melawan badai pedang yang tak terhitung jumlahnya.
 
-“Keterampilan untuk membuat kakimu lebih cepat ya. Tapi tidak peduli seberapa cepat kakimu, tidak masalah seni bela diri mereka! "
-
- 
-
-'Kaki Petir' saya pasti tidak bisa menembus 'Pisau Angin Gabungan Aun' yang menutupi seluruh lingkungan mereka.
-
-Keterampilan saya hanya meningkatkan kecepatan gerakan saya. Itu memang memiliki efek membuat lebih sulit untuk membidikku menggunakan serangan jarak jauh tapi itu tidak berdaya melawan badai pedang yang tak terhitung jumlahnya.
-
- 
-
-“Ada apa, jangan bilang kamu ingin kabur!”
-
- 
+l"Ada apa, jangan bilang kamu ingin kabur!"
 
 Lit memelototiku saat aku memegangi lengannya.
 
- 
+g"Tentu saja tidak. Tapi kita juga tidak bisa berlama-lama."
 
-"Tentu saja tidak. Tapi kita juga tidak bisa mengambil waktu kita di sini. "
-
-“Itulah mengapa saya mencoba untuk bertarung!”
-
- 
+l"Itulah mengapa aku mencoba untuk bertarung!"
 
 Aku mengerahkan lebih banyak kekuatan pada genggamanku dan menatap mata Lit.
 
- 
+l"A-ada apa..."
 
-“A-apa itu…”
+g"kita juga harus berkolaborasi. Aku akan bertahan dari serangan jadi Lit tolong fokus menyerang."
 
-“Kami juga harus berkolaborasi. Aku akan bertahan dari serangan jadi Lit tolong fokus menyerang. "
+l"... Kolaborasi ya, aku akui ada beberapa manfaatnya. Tapi."
 
-“… Kolaborasi ya, saya akui ada beberapa manfaatnya. Tapi."
+【Gochin】. Itu adalah suara kepala Lit yang menyerangku... itu menyakitkan.
 
- 
-
-【Gochin】. Itu adalah suara kepala Lit yang menyerangku… itu menyakitkan.
-
- 
-
-“Aku salah menilai kamu. Bilah gandaku bisa menangani lebih banyak serangan dan pedang panjangmu lebih panjang dari shotelku. Anda harus memasukkan rentang yang lebih pendek dari jangkauan Anda. Perannya dibalik. Atau apakah Anda berencana untuk mengatakan bahwa itu adalah tugas seorang ksatria untuk melindungi wanita itu? Jangan bodoh !! ”
-
- 
+g"Aku salah menilaimu. Bilah gandaku bisa menangani lebih banyak serangan dan pedang panjangmu lebih panjang dari shotelku. kamu harusnya bisa menjangkaunya. Perannya terbalik. Atau apakah kamu berencana untuk mengatakan bahwa itu adalah tugas seorang ksatria untuk melindungi wanita itu? Jangan bodoh !!"
 
 Lit menatap langsung ke mataku sementara dahi kami masih bersentuhan.
 
 Benar, Lit benar.
 
- 
+g"Maaf. Maukah kamu melindungiku?"
 
-"Maaf. Maukah kamu melindungiku? ”
-
-"Serahkan padaku."
-
- 
+l"Serahkan padaku."
 
 Lit menyiapkan kedua pedangnya dan berdiri di depan sementara aku berdiri di belakang.
 
- 
+g"Bilah Angin Kombinasi Aun adalah seni bela diri dengan jangkauan efektif sekitar 270 derajat. Mereka saling menutupi titik buta satu sama lain dengan berdiri saling membelakangi. Jadi tidak ada titik buta. Namun, ada bagian yang bilahnya lebih tipis. Tujuan kita adalah masuk langsung di depan salah satu musuh. Karena itu akan menjadi titik buta bagi yang lain."
 
-“Bilah Angin Kombinasi Aun adalah seni bela diri dengan jangkauan efektif sekitar 270 derajat. Mereka saling menutupi titik buta satu sama lain dengan berdiri saling membelakangi. Jadi tidak ada titik buta. Namun, ada bagian yang bilahnya lebih tipis. Tujuan kami adalah masuk langsung di depan salah satu musuh. Karena itu akan menjadi titik buta bagi yang lain. "
-
- 
-
-Kami menghadapi orc secara langsung. Dan dibebankan langsung ke posisi di mana garis pandang kita berpotongan.
+Kami menghadapi orc secara langsung. Dan dibebankan langsung ke posisi di mana garis pandang kami berpotongan.
 
 Namun, orc tersenyum puas.
 
- 
-
 “Ini adalah teknik kami! Jangan berpikir untuk menerobos hanya dengan itu saja! ”
-
- 
 
 Para Orc dengan punggung saling bersandar menyesuaikan waktu pernapasan mereka dan berputar. Ke posisi di mana mereka melihat kami di samping. Di situlah bilahnya paling terkonsentrasi.
 
- 
+"kami bisa memusatkan bilah angin kami di satu titik! Bilah Angin Kombinasi Aun tidak memiliki titik buta! "
 
-“Kita bisa memusatkan bilah angin kita di satu titik! Bilah Angin Kombinasi Aun tidak memiliki titik buta! "
+Seni bela diri mereka segera dimulai kembali: Pisau Angin Kombinasi Aun. Saat itu juga, aku mengaktifkan 'kaki kilat' sambil menarik lengan Lit.
 
- 
-
-Seni bela diri mereka segera dimulai kembali: Pisau Angin Kombinasi Aun. Saat itu juga, saya mengaktifkan 'Lightning Feet' sambil menarik lengan Lit.
-
- 
-
-“A-apa !?”
-
- 
+l"A-apa !?"
 
 Lit dan aku bergerak tepat di depan orc dalam sekejap mata.
 
 Tidak seperti Orc yang terkejut, Lit tidak ragu-ragu untuk sesaat dan menyerbu ke arah bilahnya.
 
- 
-
 Kakakakakakaka !!!!
-
- 
 
 Bilah ganda Lit terdengar dengan ritme super cepat.
 
-Pedang Lit menangkis bilah angin yang akan memotong alisku. Namun, untuk melindungiku, Lit mengulurkan tangan kanannya dan tubuhnya terbuka lebar. Pedang yang tak terhitung jumlahnya melesat saat dia menjadi target yang lebih besar.
+Pedang Lit menangkis bilah angin yang akan memotong alisku. Namun, untuk melindungiku, Lit mengulurkan tangan kanannya dan tubuhnya terbuka lebar. Pedang yang tak terhitung jumlahnya melesat karena dia menjadi target yang lebih besar.
 
-Lit menangkisnya hanya dengan pedang di tangan kirinya, tapi pedang yang gagal ditangkisnya memotong pahanya secara dangkal.
+Lit menangkisnya hanya dengan pedang di tangan kirinya, tapi pedang yang gagal ditangkisnya menggores pahanya.
 
- 
+g"Tiga langkah lagi!"
 
-Tiga langkah lagi!
+Aku berteriak pada Lit daripada meributkannya.
 
- 
-
-Aku berteriak pada Lit bukannya meributkannya.
-
-Dia mengambil satu langkah. Lalu lainnya. Darah segar mengucur dari lengan kiri Lit. Namun, dia tidak berhenti. Lalu, langkah ketiga.
+Dia mengambil satu langkah. Lalu 2 langkah. Darah segar mengucur dari lengan kiri Lit. Namun, dia tidak berhenti. Lalu, langkah ketiga.
 
 Lit dan aku bertukar posisi sambil menyentuh bahu.
 
 Pedang tusukan itu menembus armor kulit orc dan meluncur ke dadanya.
 
- 
-
-“Nuoooooo !!!!”
-
- 
+“TIIIIIIIDAAAAAAAAAAAKKKKK !!!!”
 
 Tapi orc mencengkeram pedangku bahkan dalam kondisi itu.
 
- 
-
-"Apa!?"
-
- 
+g"Apa!?"
 
 Seluruh tubuh orc menjadi kaku dan aku tidak bisa mencabut pedang yang aku tusukkan padanya.
 
@@ -380,33 +314,23 @@ Tangan Lit mendekati tangan kiriku yang terulur. Di tanganku ada shotel Lit sete
 
 Dengan shotel Lit di tangan kiriku, aku menebas orc yang mengayunkan pedangnya.
 
- 
-
 Pedang yang diayunkan orc berhenti di dekat leherku.
 
-【Gachi Gachi】 Ada suara gerinda logam. Shotel Lit memblokir pedang yang diayunkan ke arahku.
+【Gachi Gachi】 Ada suara logam. Shotel Lit menangkis pedang yang diayunkan ke arahku.
 
- 
-
-“Anda tampaknya tidak melindungi diri sendiri sama sekali. Sungguh menakjubkan betapa Anda mempercayai rekan Anda… "
-
- 
+"kamu tampaknya tidak melindungi dirimu sendiri sama sekali. Sungguh menakjubkan betapa kamu mempercayai rekanmu..."
 
 Orc menggumamkan kata-kata pujian kepadaku dengan suara parau.
 
-Bilah shotel menusuk dalam-dalam melalui sayap orc ke dalam organ internalnya dan orc yang memegang pedang itu menjadi lemas dan pingsan.
-
- 
+Bilah shotel menusuk dalam-dalam melalui samping orc ke dalam organ internalnya dan orc yang memegang pedang itu menjadi lemas dan terjatuh. 
 
 "Impresif."
 
- 
-
 Orc yang tersisa mengeluarkan pedangku yang menusuk ke arahnya saat dia menatap rekannya yang pingsan. Darah mengalir keluar. Itu adalah luka yang fatal.
 
-Dengan senyuman di bibirnya yang berlumuran darah, orc terakhir runtuh di samping partnernya seolah ingin tetap bersama sampai akhir.
+Dengan senyuman di bibirnya yang berlumuran darah, orc terakhir jatuh di samping partnernya seolah ingin tetap bersama sampai akhir.
 
- 
+-------------------------
 
 Catatan penulis:
 
