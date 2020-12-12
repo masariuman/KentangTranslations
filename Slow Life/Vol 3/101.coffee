@@ -70,7 +70,7 @@ Ruti dengan sendirinya tersenyum lebar saat mengingat Red mengatakan itu ketika 
 
 Kediaman yang ditinggali Ruti dan Tise berada di sisi barat daya distrik pusat. Ruti memilih lokasi itu agar dia dapat melakukan perjalanan ke Apotek Red & Lit di Pusat Kota yang terletak di distrik selatan sementara Tise memilihnya untuk berjalan ke toko oden Oparara yang terletak di perbatasan distrik pelabuhan di sisi barat untuk menikmati beberapa chikuwa .
 
-Itu terletak agak jauh dari pertanian penting di distrik utara tetapi mereka berdua tidak terlalu mempermasalahkannya.
+Itu terletak agak jauh dari kebun di distrik utara tetapi mereka berdua tidak terlalu mempermasalahkannya.
 
 Mereka pergi untuk melihat-lihat keadaan pertanian rumput obat.
 
