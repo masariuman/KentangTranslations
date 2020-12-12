@@ -34,7 +34,7 @@ Aku mengulurkan tangan kananku dan Ugeuge-san melompat ke punggung tanganku.
 
 Kemudian, dia dengan mulus berlari ke lenganku dan pindah ke pundakku.
 
-Baiklah, kita sudah selesai. Ugeuge-san dengan kuat mengayunkan lengan kanannya ke depan untuk menunjukkan dia sudah selesai juga.
+Baiklah, semua sudah siap. Ugeuge-san dengan kuat mengayunkan lengan kanannya ke depan untuk menunjukkan dia juga sudah siap.
 
 g"Tise?"
 
@@ -76,7 +76,7 @@ Ruti-sama tertawa malu-malu.
 
 ☆☆
 
-Fuuuu.
+t"Fuuuu."
 
 aku secara tidak sengaja menghela nafas ketika aku memasuki kamar mandi. aku mulai berpikir mengapa aku harus menghela nafas tetapi proses berpikir saya lumer oleh bak mandi dan saya merilekskan seluruh tubuh saya.
 
