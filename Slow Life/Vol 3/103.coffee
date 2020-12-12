@@ -144,11 +144,11 @@ r"Jenderal, tidak ada surat resmi?"
 
 Ruti mengerutkan alisnya dan tampak gelisah untuk pertama kalinya. Setelah berpikir sejenak,
 
-“Ada nilai dalam menyelidiki itu juga. Kami akan melaporkan kemajuan kami 10 hari kemudian jadi walikota mohon mengulur waktu dengan mengatakan bahwa Anda mencoba untuk membujuk gereja. Uskup Cien, saya akan mengirimkan daftar barang besok tentang informasi yang ingin saya dengar dari gereja. Kapten Penjaga harap waspada terhadap rumor aneh yang beredar yang dapat menyebabkan keresahan pada warga. Kavaleri Jenderal harus bersiaga saat berlatih tentang cara mengevakuasi penduduk desa segera ketika Pangeran Sarius menyerang sebuah desa. Karena jalur perdagangan air diblokir, akan ada kebutuhan yang lebih besar untuk jalur perdagangan darat sehingga setiap guild harus mempersiapkan infrastruktur yang dibutuhkan. ”
+r"aku akan menyelidiki itu juga. Kami akan melaporkan kemajuan kami 10 hari kedepan jadi walikota mohon mengulur waktu dengan mengatakan bahwa kamu mencoba untuk membujuk gereja. Uskup Cien, aku akan mengirimkan daftar barang besok tentang informasi yang ingin aku dengar dari gereja. Kapten Penjaga harap waspada terhadap rumor aneh yang beredar yang dapat menyebabkan keresahan pada warga. Kavaleri Jenderal harus bersiaga dan berlatih tentang cara mengevakuasi penduduk desa segera ketika Pangeran Sarius menyerang sebuah desa. Karena jalur perdagangan air diblokir, akan ada kebutuhan yang lebih besar untuk jalur perdagangan darat sehingga setiap guild harus mempersiapkan infrastruktur yang dibutuhkan."
 
-"Tidak dimengerti."
+"Ba-baik..."
 
-“Kita juga bisa melakukan hal seperti itu! Serahkan pada kami! "
+"kami juga bisa melakukan hal seperti itu! Serahkan pada kami!"
 
 Pertemuan yang tidak ada kesimpulannya itu langsung digerakkan oleh kata-kata Ruti. Begitu mereka tahu apa yang harus mereka lakukan, pemimpin guild tidak lagi tersesat.
 
