@@ -176,7 +176,7 @@ Itu dirancang sedemikian rupa sehingga dengan posisi dek tinggi, ketika diposisi
 
 Awalnya, sekitar 80 tahun yang lalu, Veronia menerjunkan kapal perang yang dirancang untuk melawan bajak laut yang lebih suka bertarung dengan tangan kosong, tetapi ironisnya sekarang, para bajak laut dari Benua Avalon menggunakan kapal perang itu karena kemampuannya dalam jarak dekat.
 
-Itu sekarang menjadi kapal tua tetapi Pirate Geyserik menyambarnya ketika masih model baru dan meneror wilayah selatan, mencatatkan namanya dalam sejarah sebagai Juara Bajak Laut. Oleh karena itu, kapal-kapal tersebut masih digunakan di Veronia sebagai kapal perang aktif.
+Itu sekarang menjadi kapal tua tetapi bajak laut Geyserik merebutnya ketika masih baru dan meneror wilayah selatan, mencatatkan namanya dalam sejarah sebagai Bajak Laut terkuat. Oleh karena itu, kapal-kapal tersebut masih digunakan di Veronia sebagai kapal perang aktif.
 
 “Mereka bukan bajak laut, kan?”
 
