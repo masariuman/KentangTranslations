@@ -72,6 +72,8 @@ Ugeuge-san di bahuku mengangkat kedua lengannya untuk mendukung Ruti-sama.
 
 Ruti-sama tertawa malu-malu.
 
+<gambar> vol5 5.jpg
+
 ☆☆
 
 Fuuuu.
