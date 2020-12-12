@@ -36,27 +36,27 @@ Ada sedikit keributan di Pusat Kota Zoltan hari ini.
 
 Orang-orang kota berkumpul di sekitar sumur dan gang-gang kecil dan dengan rajin bergosip dengan tatapan cemas.
 
-(Saya menduga ini tentang kapal kemarin.)
+(ini pasti tentang kapal kemarin.)
 
 Tise bergumam pada dirinya sendiri.
 
-Kapal perang Veronia yang mereka lihat kemarin saat memancing. Tidak mungkin kapal dapur dengan hambatan gelombang rendah melakukan perjalanan ke timur. Kalau begitu, tujuan kapal perang itu hanya bisa Zoltan.
+Kapal perang Veronia yang mereka lihat kemarin saat memancing. Tidak mungkin kapal gali dengan hambatan gelombang rendah melakukan perjalanan ke timur. Kalau begitu, tujuan kapal perang itu hanya Zoltan.
 
-Namun, apa tujuan kapal perang Veronia dengan Zoltan yang jauh?
+tapi, apa tujuan kapal perang Veronia dengan Zoltan yang jauh?
 
 (Mungkin ini terkait dengan upaya pembunuhan mantan walikota?)
 
-Apakah saya terlalu memikirkannya?
+Apakah aku terlalu memikirkannya?
 
 Tise memandangi Ruti namun dia hanya berjalan dengan tenang tanpa mempedulikan hiruk pikuk di sekitarnya.
 
 ☆☆
 
-"Itu lezat."
+r"enaknya."
 
 "Ya."
 
-Setelah mereka berdua selesai sarapan di toko Red, mereka kemudian pindah ke pertanian rumput obat di distrik utara.
+Setelah mereka berdua selesai sarapan di toko Red, mereka kemudian pindah ke kebun tanaman obat di distrik utara.
 
 Sarapan hari ini dibuat dari ikan yang mereka tangkap kemarin jadi itu adalah kubis dan ikan dengan tomat rebus, ikan merah dengan bumbu bawang, air dengan lemon yang menyegarkan dan roti putih yang lembut.
 
