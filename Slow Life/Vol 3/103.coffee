@@ -56,9 +56,9 @@ Ngomong-ngomong, di belakang Gereja Tembok Terakhir, ada kuil rahasia di mana ti
 
 “Seperti yang baru saja aku sebutkan, meskipun pihak lain adalah Kerajaan Veronia, Gereja tidak bermaksud untuk menyerahkan catatan gereja.”
 
-Sementara Ruti mengenang Tembok Terakhir, Uskup Cien sekali lagi mengumumkan bahwa gereja tidak bergantung pada kekuatan sekuler dan mereka tidak bermaksud untuk menyerahkan daftar gereja.
+Sementara Ruti mengenang Tembok Terakhir, Uskup Cien sekali lagi mengumumkan bahwa gereja tidak bergantung pada kekuatan sekuler dan mereka tidak bermaksud untuk menyerahkan catatan gereja.
 
-" … Saya melihat."
+r"begitu..."
 
 Ruti mengangguk setelah mendengarkan hal itu. Konfliknya sederhana.
 
