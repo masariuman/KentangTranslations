@@ -80,9 +80,9 @@ Sebagai orang yang menjadi bagian dari tim sejak Pahlawan memulai perjalanannya,
 
 "Ruti, bukti Pahlawan pasti ada di belakang sini."
 
-Kata Yarandorara pada Ruti. Tujuan mereka untuk mencari reruntuhan ini, bukti Pahlawan, tepat di depan mata mereka.
+Kata Yarandorara pada Ruti. Tujuan mereka di reruntuhan ini, untuk mencari bukti Pahlawan, tepat di depan mata mereka.
 
-“Yup, dengan itu, bahkan raja pun akan percaya bahwa aku adalah Pahlawan. Begitu saya menerima pengakuan itu, saya bisa mendapatkan izin untuk memasuki berbagai negara dan memperoleh wewenang untuk meminjam tentara. Dengan itu, kita bisa memulai perjalanan untuk mengalahkan Raja Iblis! "
+r"Yup, dengan itu, bahkan raja pun akan percaya bahwa aku adalah Pahlawan. Begitu aku menerima pengakuan itu, aku bisa mendapatkan izin untuk memasuki berbagai negara dan memperoleh wewenang untuk meminjam tentara. Dengan itu, kita bisa memulai perjalanan untuk mengalahkan Raja Iblis!"
 
 Ruti terdengar bersemangat karena perjalanannya akhirnya akan dimulai dan pesta berlanjut ke kedalaman bersama.
 
