@@ -60,35 +60,35 @@ Wanita tua itu meminta maaf kepada kami dengan sikap sopan.
 
 Dia sepertinya berasal dari latar belakang kelas atas.
 
-"Itu baik-baik saja. Ini mungkin Apoteker di Pusat Kota tetapi Pahlawan Lit dan Tise di sini serta Ruti yang sedang dalam perjalanan semuanya adalah petualang peringkat B. Tenang dan istirahatlah dengan baik, erm, aku dipanggil Red. Bolehkah saya tahu nama Anda? ”
+g"tidak apa-apa. Ini mungkin Apotek di Pusat Kota tetapi Pahlawan Lit dan Tise di sini serta Ruti yang sedang dalam perjalanan semuanya adalah petualang peringkat B. Tenang dan istirahatlah dengan baik, erm, aku dipanggil Red. Bolehkah saya tahu nama Anda?"
 
 “Ya, saya dipanggil Mistome.”
 
 Mistome?
 
-“Apakah Anda, secara kebetulan, Tuan Mistome? Walikota sebelumnya dan juga partai terkuat generasi sebelumnya dari Zoltan 『Archmage』 Mistome-san? ”
+“Apakah Anda, secara kebetulan, Tuan Mistome? Walikota sebelumnya dan juga tim terkuat generasi sebelumnya dari Zoltan 『Archmage』 Mistome-san?”
 
-“Ya, saya telah dipanggil seperti itu di masa lalu. Tapi sekarang saya hanyalah wanita tua biasa. "
+"Ya, saya telah dipanggil seperti itu di masa lalu. Tapi sekarang saya hanyalah wanita tua biasa. "
 
 Senyuman elegan muncul di wajah keriput Mistome.
 
 ☆☆
 
-"Saya kembali! Saya membawa Ruti. "
+l"aku kembali! aku membawa Ruti. "
 
-“Onii-chan, apa terjadi sesuatu?”
+r"Onii-chan, apa terjadi sesuatu?"
 
-Lit dan Ruti kembali jadi aku akan menjelaskan tapi…
+Lit dan Ruti kembali jadi aku akan menjelaskan tapi...
 
-“Eh, apa wanita tua itu ada di kamar? Apakah dia tertidur? "
+l"Eh, apa wanita tua itu ada di kamar? Apakah dia tertidur? "
 
-"Tidak, aku mempercayakannya ke Garadin Guild Petualang."
+g"Tidak, aku mempercayakannya ke Garadin Guild Petualang."
 
-“Ke Garadin? Jika orang itu harus keluar maka itu berarti dia adalah pensiunan bangsawan? "
+l"Ke Garadin? Jika orang itu harus turun tangan maka itu berarti dia adalah pensiunan bangsawan? "
 
-“Yah, kamu bisa memikirkannya seperti itu. Dia adalah walikota sebelumnya, Tuan Mistome. ”
+g"Yah, kamu bisa memikirkannya seperti itu. Dia adalah walikota sebelumnya, Tuan Mistome."
 
-“Eh? Dia orang yang luar biasa? "
+l"Eh? Dia orang yang luar biasa?"
 
 Lit kaget. Ruti tidak tahu apa-apa dan sedang menerima penjelasan dari Tise.
 
