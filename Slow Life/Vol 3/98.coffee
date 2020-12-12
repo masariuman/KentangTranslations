@@ -36,7 +36,7 @@ g"Ruti..."
 
 r"Apa?"
 
-g"Tujuan memancing bukanlah untuk menargetkan ikan di laut dengan jarum yang akurat."
+g"Tujuan memancing bukanlah untuk menargetkan ikan di laut dengan akurat."
 
 bak Ruti sudah memiliki lebih dari 30 ekor ikan.
 
