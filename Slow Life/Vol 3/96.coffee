@@ -74,25 +74,25 @@ Karena pada saat yang singkat itu, aku lupa semua tentang pertarungan, tanggung 
 
 Hanya kata-kata Lit yang berdiri di depanku yang mencapai diriku.
 
-Saya ingin berbicara lebih banyak. Aku ingin lebih sering bertemu dengannya.
+aku ingin berbicara lebih banyak. Aku ingin lebih sering bertemu dengannya.
 
-Mata biru Lit yang tampak memantulkan langit, rambut emasnya yang tergerai, sosoknya yang menggambar lekuk tubuh yang indah, wajahnya yang menunjukkan kemauan yang kuat, bibir yang sering menunjukkan amarah dan tawa, jari-jarinya yang kurus dan halus namun kuat, jemarinya yang sehat. paha yang menjulur dari rok merahnya, dan kepribadiannya yang selalu berdiri di atas kakinya sendiri tanpa bergantung pada orang lain…
+Mata biru Lit yang tampak memantulkan langit, rambut emasnya yang tergerai, sosoknya yang menggambarkan lekuk tubuh yang indah, wajahnya yang menunjukkan kemauan yang kuat, bibir yang sering menunjukkan amarah dan tawa, jari-jarinya yang kurus dan halus namun kuat, paha yang menjulur dari rok merahnya, dan kepribadiannya yang selalu berdiri di atas kakinya sendiri tanpa bergantung pada orang lain...
 
 ☆☆
 
-“Semua itu membuatku jatuh cinta padamu dan aku telah menantikan untuk bertemu Lit sejak saat itu.”
+g"Semua itu membuatku jatuh cinta padamu dan aku telah menantikan untuk bertemu Lit sejak saat itu."
 
-"Merah?"
+l"red?"
 
-Sambil memegang cincin di tangan kanan saya, saya menghadapi gelombang emosi dalam diri saya.
+Sambil memegang cincin di tangan kananku, aku menghadapi gelombang emosi dalam diriku.
 
 Tapi, jika aku sangat menyukainya, lalu kenapa aku tidak mencarinya dulu di Zoltan?
 
-Ares yang mengejarku keluar dari pesta menyakitiku lebih dari yang kubayangkan. Ketakutan Lit menolakku juga membuatku tidak bisa memaksa diriku untuk mencari dia secara proaktif.
+Ares yang mengusirku keluar dari tim menyakitiku lebih dari yang kubayangkan. Ketakutan Lit menolakku juga membuatku tidak bisa memaksa diriku untuk mencari dia secara proaktif.
 
 Karena alasan itu, meskipun aku pergi diam-diam tanpa memberi tahu teman-temanku, aku tidak dapat meninggalkan Zoltan tempat Lit berada.
 
-Meskipun aku mengincar kehidupan yang lambat tanpa pertempuran apapun, aku tetap tidak bisa meletakkan pedang dan selalu membawa pedang tembaga bersamaku. Saya terjebak setengah-setengah.
+Meskipun aku mengincar kehidupan yang santai tanpa pertempuran apapun, aku tetap tidak bisa meletakkan pedang dan selalu membawa pedang tembaga bersamaku. aku terjebak setengah-setengah.
 
 Lit datang kepadaku tepat saat aku berada dalam situasi itu. Dia menawarkan untuk tinggal bersamaku.
 
