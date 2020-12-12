@@ -72,9 +72,9 @@ Kata Gideon. Dia mendekati mesin jam dan memasukkan bagian-bagian yang tampaknya
 
 "Seperti yang diharapkan dari petualang yang membuat namanya terkenal di perbatasan."
 
-Ares tampak terkesan saat dia memandang Gideon dengan terampil memilah-milah bagian-bagian Clockwork.
+Ares tampak terkesan ketika dia memandang Gideon dengan terampil memilah-milah bagian-bagian mesin jam.
 
-Gideon‧Lugnason. Adik Pahlawan Ruti dan seorang petualang yang dikenal sebagai pendekar pedang terbaik di perbatasan.
+Gideon‧Lugnason. kakak laki-laki Pahlawan Ruti dan seorang petualang yang dikenal sebagai pendekar pedang terbaik di perbatasan.
 
 Sebagai orang yang menjadi bagian dari party sejak Pahlawan memulai perjalanannya, kekayaan pengetahuan dan pengalamannya sebagai seorang petualang membuatnya menjadi eksistensi yang dihormati di party.
 
