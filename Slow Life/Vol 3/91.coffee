@@ -8,37 +8,37 @@ Momen saat ini selama festival titik balik matahari musim dingin di mana semua o
 
 “Hei hei, kudengar ada anak bangsawan menari di sana.”
 
-“Tidak mungkin, aku akan melihatnya juga!”
+“Tidak mungkin, aku ingin melihatnya juga!”
 
 “Mari kita semua pergi bersama dan bertujuan untuk cepat kaya!”
 
 Tiga gadis muda berbicara sambil berlari. Di antara mereka tampaknya ada seorang gadis Zoltan yang mengarahkan pandangannya pada masa depannya.
 
-Tise menempatkan Ugeuge-san di telapak tangannya dan Ugeuge-san menatap pada datang dan pergi orang-orang melalui celah di antara jari-jarinya.
+Tise menempatkan Ugeuge-san di telapak tangannya dan Ugeuge-san menatap pada orang-orang melalui celah di antara jari-jarinya.
 
 Mereka berjalan dengan kecepatan mereka masing-masing tetapi tampaknya Tise dan Ugeuge-san menikmati festival menilai dari ekspresi dan gerak tubuh mereka.
 
 Saat aku melihat ke arah Tise, aku merasakan tarikan di pakaianku. Ruti-lah yang menarik pakaianku.
 
-“Onii-chan, terima kasih untuk hari ini.”
+r"Onii-chan, terima kasih untuk hari ini."
 
 Kata Ruti sambil tersenyum.
 
-"Aku menikmati diriku sendiri."
+g"Aku juga menikmatinya."
 
-Saya menepuk kepala Ruti. Ruti menerimanya dengan mata sipit.
+aku menepuk kepala Ruti. Ruti menerimanya dengan mata sipit.
 
-“Tapi kami masih belum melakukan satu hal lagi.”
+g"Tapi kita masih belum melakukan satu hal lagi."
 
-“Eh?”
+r"Eh?"
 
-Saya mengambil tangan Ruti. Wajah Ruti sedikit memerah.
+aku memegang tangan Ruti. Wajah Ruti sedikit memerah.
 
-“Maukah kamu berdansa denganku?”
+g"Maukah kamu berdansa denganku?"
 
-“Aku, dengan Onii-chan? … Betulkah?"
+r"Aku, dengan Onii-chan? ...... Benarkah?"
 
-“Tidak ada yang salah dengan sepasang kakak dan adik menari.”
+g"Tidak ada yang salah dengan sepasang kakak dan adik berdansa."
 
 Ruti kembali melihat ke arah Lit. Lit melambai padanya untuk melanjutkan dengan senyuman.
 
