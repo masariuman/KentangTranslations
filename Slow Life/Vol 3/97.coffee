@@ -26,7 +26,7 @@ t"Ugeuge-san, bagaimana denganmu?"
 
 Ugeuge-san memiringkan kepalanya dan mengangkat lengan kanannya.
 
-Meski tidak mau menyelam ke dalam bath tub, ia seakan ingin membersihkan tubuhnya dengan tetesan air.
+Meski tidak mau menyelam ke dalam bak mandi, ia seakan ingin membersihkan tubuhnya dengan tetesan air.
 
 "Baiklah."
 
