@@ -94,15 +94,15 @@ Namun, Mistome-shi telah pensiun dari posisinya sebagai politisi dan petualang. 
 
 Dia seharusnya tidak memiliki banyak pengaruh tersisa di pemerintahan kota. Sepertinya tidak ada artinya membunuh Mistome-shi sekarang.
 
-“Jika tidak ada artinya maka itu hanya untuk dendam.”
+t"Jika tidak ada artinya berarti itu hanya untuk dendam."
 
-Tetapi bahkan jika itu masalahnya, mengapa membidik hidupnya sekarang?
+Tetapi bahkan jika itu masalahnya, mengapa menargetkan hidupnya sekarang?
 
-Jika dendam itu lahir selama karir mereka, mereka mungkin akan membidik hidupnya saat itu. Mungkinkah cukup dibenci setelah pensiun sehingga seseorang akan membidik hidup Anda?
+Jika dendam itu lahir selama karir mereka, mereka mungkin akan menargetkannya waktu itu. Mungkinkah dia cukup dibenci setelah pensiun sehingga seseorang akan menargetkan hidupnya?
 
-Mungkin saya akan mencoba menyelidiki ketika saya bebas. Aku menghentikan pikiranku dan menurunkan lenganku ke dalam bak mandi.
+Mungkin aku akan mencoba menyelidikinya. Aku menghentikan pikiranku dan menurunkan lenganku ke dalam bak mandi.
 
-Melihat ke arah jendela, saya melihat Ugeuge-san melompat. Sepertinya telah menangkap serangga yang mencoba masuk dari jendela.
+Melihat ke arah jendela, aku melihat Ugeuge-san melompat. Sepertinya telah menangkap serangga yang mencoba masuk dari jendela.
 
 “Kamu akan menjadi gemuk jika makan terlalu banyak.”
 
