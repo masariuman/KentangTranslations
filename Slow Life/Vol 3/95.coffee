@@ -204,19 +204,13 @@ g"Meskipun ini pertama kalinya aku melihatnya."
 
 Prajurit terampil dengan kaliber seperti itu. Kita harus menjatuhkan mereka di sini apapun yang terjadi.
 
-Saya mencoba melempar pisau lempar tetapi dengan cepat ditembak jatuh oleh pisau angin.
+aku mencoba melempar pisau lempar tetapi dengan cepat ditembak jatuh oleh pisau angin.
 
-Lit mencoba menembakkan Flame Arrow yang dibuat menggunakan Sihir Rohnya tapi itu juga menghilang tanpa mencapai mereka.
-
- 
+Lit mencoba menembakkan panah api yang dibuat menggunakan Sihir Rohnya tapi itu juga menghilang tanpa mencapai mereka.
 
 “Tidak ada panah atau sihir yang bisa menembus Pedang Angin Gabungan Aun kami!”
 
- 
-
 Mereka sepertinya tidak menggertak. Meskipun itu mungkin akan berbeda jika itu adalah sihir yang kuat dari Ares atau Theodora. Sepertinya akan sulit mengandalkan sihir Lit untuk menerobos.
-
- 
 
 "Ini!!"
 
