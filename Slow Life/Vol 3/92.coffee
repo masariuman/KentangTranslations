@@ -46,9 +46,9 @@ g"Ya, menurutku itu pilihan yang bagus. apakah pria Harks ada mengatakan sesuatu
 
 g"begitu ya..."
 
-Lit pergi memanggil Ruti yang telah kembali ke rumahnya sendiri. Kami akan baik-baik saja meskipun kami tidak menelepon Ruti tetapi dia mungkin akan kesal jika kami tidak menelepon.
+Lit pergi memanggil Ruti yang telah kembali ke rumahnya sendiri. Kami akan baik-baik saja meskipun kami tidak memanggil Ruti tetapi dia mungkin akan kesal jika kami tidak memanggilnya.
 
-“Untuk saat ini, dia mungkin harus tinggal di sini malam ini. Para pembunuh itu mungkin tidak terbatas pada ketiganya. "
+g"Untuk saat ini, dia mungkin harus tinggal di sini malam ini. Para pembunuh itu tidak hanya bertiga."
 
 "Itu benar."
 
