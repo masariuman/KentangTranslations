@@ -116,13 +116,13 @@ Kifa menatap mereka dengan mata berbinar setelah melihat tekad mereka.
 
 "Jika memungkinkan, aku ingin melanjutkan perjalanan bersama kalian. Tetapi aku harus segera menikah dengan putri Duke Danich, Putri Serena. Dia sudah ada di kota ini dan berpartisipasi dalam pesta juga."
 
-“Ah, orang yang tampan itu!”
+“Ah, orang nampak baik itu!”
 
-“Itu benar, aku berpikir untuk mengabaikan pernikahan dan melanjutkan perjalanan dengan kalian jika aku tidak menyukai pihak lain tapi… dia gadis yang sangat baik. Saya ingin melindunginya di sisinya. "
+"Itu benar, aku berpikir untuk mengabaikan pernikahan dan melanjutkan perjalanan dengan kalian jika aku tidak menyukainya... dia gadis yang sangat baik. aku ingin melindunginya di sisinya. "
 
 “Menurutku itu hal yang indah, Pangeran. Jangan khawatirkan kami. Ini hanya waktu yang singkat tapi aku menikmati berpetualang denganmu. ”
 
-"Saya juga! Saya senang pedang saya berguna bagi kalian. "
+"aku juga! aku senang pedangku berguna bagi kalian. "
 
 Pangeran Kifa tertawa riang. Ruti dan Ares ikut tertawa bersamanya. Pangeran Kifa adalah orang yang banyak tertawa. Ares merasa kasihan bahwa dia pergi karena dia mungkin akan mencerahkan pesta setiap kali dia ada.
 
