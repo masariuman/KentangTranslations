@@ -30,37 +30,37 @@ Tise memiringkan kepalanya.
 
 t"Apakah orang akan mengungkit masa lalu yang sudah begitu jauh lampaunya? Apakah Mistome-shi meninggalkan Zoltan baru-baru ini?"
 
-“Saya juga tidak mendengar tentang itu. Namun demikian, Mistome-shi telah tinggal sendirian di suatu tempat di luar Zoltan sejak dia pensiun. Jadi bahkan warga Zoltan tidak tahu banyak detail tentang keberadaannya. ”
+g"aku juga tidak mendengar tentang itu. tapi, Mistome-shi telah tinggal sendirian di suatu tempat di luar Zoltan sejak dia pensiun. Jadi bahkan warga Zoltan tidak tahu banyak detail tentang keberadaannya."
 
-Mistome-shi dulunya adalah pahlawan Zoltan dan menjabat sebagai walikota juga. Meski begitu, hanya ada sedikit informasi tentang dia di depan umum.
+Mistome-shi dulunya adalah pahlawan Zoltan dan menjabat sebagai walikota juga. Meski begitu, hanya ada sedikit informasi tentang dia.
 
-Ada banyak pelarian yang melarikan diri ke Zoltan. Begitu pula dengan saya yang dikeluarkan dari partai pahlawan, Ruti yang berhenti menjadi pahlawan, dan Lit yang terhanyut ke sini karena perselisihan keluarga.
+Ada banyak pelarian yang melarikan diri ke Zoltan. Begitu pula aku yang dikeluarkan dari tim pahlawan, Ruti yang berhenti menjadi pahlawan, dan Lit yang ke sini karena perselisihan keluarga.
 
-Itulah mengapa ada pemahaman yang tidak terucapkan di Zoltan untuk tidak menanyakan tentang masa lalu seseorang sebelum Zoltan. Satu-satunya imigran di antara para petualang peringkat-B generasi sebelumnya. Dan wanita paling sukses yang berhasil mencapai puncak Zoltan. Dia memiliki perlindungan ilahi yang luar biasa 『Archmage』 dan dia memiliki kekuatan nyata yang sesuai dengan perlindungan ilahi-nya.
+Itulah mengapa ada pemahaman di Zoltan untuk tidak menanyakan tentang masa lalu seseorang sebelum Zoltan. Satu-satunya imigran di antara para petualang peringkat-B generasi sebelumnya. Dan wanita paling sukses yang berhasil mencapai puncak Zoltan. Dia memiliki perlindungan ilahi yang luar biasa 『Archmage』 dan dia memiliki kekuatan nyata yang sesuai dengan perlindungan ilahi-nya.
 
-“Apakah Mistome-shi masih dilindungi oleh para penjaga?”
+r"Apakah Mistome-shi masih dilindungi oleh para penjaga?"
 
-"Aku tidak tahu ... Itu benar, aku telah mengenal Moen karena gangguan terakhir jadi mungkin aku bisa mengunjunginya dan bertanya padanya."
+g"Aku tidak tahu ... aku telah mengenal Moen karena masalah zoltan terakhir jadi mungkin aku bisa mengunjunginya dan bertanya padanya."
 
-“Aku senang Onii-chan mau membantu tapi… apa kamu yakin?”
+r"Aku senang Onii-chan mau membantu tapi... apa onii-chan yakin?"
 
-“Daripada membantu, aku hanya akan mengobrol. Sudah lama sekali saya tidak bertemu Ademi, jadi saya ingin melihat bagaimana kabarnya juga. ”
+g"Daripada membantu, aku hanya akan mengobrol. Sudah lama sekali aku tidak bertemu Ademi, jadi aku ingin melihat bagaimana kabarnya juga."
 
 Ademi yang masih muda yang diculik selama insiden Perlindungan Ilahi Iblis sebelumnya. Putra Penjaga Kapten Moen dan pemilik berbakat dari perlindungan ilahi 『Bar Brawler』 yang langka.
 
-Sebelumnya, dia terombang-ambing oleh impuls 『Bar Brawler』-nya tapi aku bertanya-tanya bagaimana kabarnya sekarang? Saya mendengar bahwa dia mendapatkan kembali pikirannya.
+Sebelumnya, dia terombang-ambing oleh impuls 『Bar Brawler』-nya tapi aku penasaran bagaimana kabarnya sekarang? aku mendengar bahwa dia sudah menjadi lebih baik.
 
-“Anda tidak perlu khawatir. Saya akan mencoba menyelidiki setelah saya menutup toko. "
+g"kalian tidak perlu khawatir. aku akan mencoba menyelidiki setelah aku menutup toko."
 
-"Baik. Terima kasih Onii-chan. ”
+r"okee. Terima kasih Onii-chan."
 
-“Baiklah, aku akan kembali ke toko. Silakan anggap rumah sendiri. ”
+g"Baiklah, aku akan kembali ke toko. Silakan anggap rumah sendiri."
 
-“Tidak, aku akan ikut. Onii-chan membantuku bagaimanapun juga… aku akan melakukan yang terbaik juga. ”
+r"Tidak, aku akan ikut. Onii-chan membantuku bagaimanapun juga... aku akan melakukan yang terbaik juga."
 
-"Apakah begitu? Yah, aku akan memasak untukmu kapan saja. Mampirlah ke toko kapan pun Anda mau. "
+g"begitu? Yah, aku akan memasak untukmu kapan saja. Mampirlah ke toko kapan pun kamu mau."
 
-“Mmm, aku akan.”
+r"Mmm, Pastinya."
 
 Ruti mengangguk dan membalas ajakanku.
 
