@@ -64,55 +64,55 @@ Wajah Ademi memerah karena senang setelah aku mengatakan itu.
 
 Kami duduk mengelilingi meja dan mengobrol dengan Ademi.
 
-Saat ini kami sudah selesai membicarakan tentang Ademi jadi saya bertanya tentang Moen.
+Saat ini kami sudah selesai membicarakan tentang Ademi jadi aku bertanya tentang Moen.
 
-“Sejak kemarin ya?”
+g"Sejak kemarin ya?"
 
-"Ya. Semua orang gelisah sejak kapal perang Veronia datang. Saya yakin itu mungkin karena kasus itu. "
+"Ya. Semua orang gelisah sejak kapal perang Veronia datang. aku yakin itu mungkin karena kasus itu."
 
-Biasanya, itu sudah pasti. Kapten Penjaga harus bekerja siang dan malam untuk menenangkan warga yang gelisah oleh kapal perang Veronia. Itu adalah alasan yang mungkin.
+itu sudah pasti. Kapten Penjaga harus bekerja siang dan malam untuk menenangkan warga yang gelisah oleh kapal perang Veronia. Itu adalah alasan yang masuk akal.
 
-Namun…
+Namun...
 
-(Kami melihat kapal perang lepas pantai saat makan siang kemarin. Dan pertemuan puncak Zoltan terjadi sore ini.)
+(Kami melihat kapal perang pergi saat makan siang kemarin. Dan pertemuan puncak Zoltan terjadi sore ini.)
 
-Kapal perang Veronia tidak akan bisa memasuki pelabuhan Zoltan. Itu harus berlabuh di laut dan Pangeran Sarius harus datang ke Zoltan dengan perahu kecil.
+Kapal perang Veronia tidak akan bisa memasuki pelabuhan Zoltan. Itu tetap di laut dan Pangeran Sarius harus datang ke Zoltan dengan perahu kecil.
 
-Meski terletak di dekat muara Zoltan, jarak antara pelabuhan dan laut masih cukup jauh sehingga tidak mudah untuk melihat kapal berlabuh di laut. Karena itu, saya tidak percaya informasi yang diterima warga Zoltan menyebabkan keributan.
+Meski terletak di dekat muara Zoltan, jarak antara pelabuhan dan laut masih cukup jauh sehingga tidak mudah untuk melihat kapal laut. Karena itu, aku tidak percaya informasi yang diterima warga Zoltan menyebabkan keributan.
 
-Faktanya, tidak ada tanda-tanda keributan di kota Zoltan kemarin. Informasinya baru diketahui pagi ini. Informasi menyebar dalam sekejap setelah gosip sisi baik yang biasa.
+Faktanya, tidak ada tanda-tanda keributan di kota Zoltan kemarin. Informasinya baru diketahui pagi ini. Informasi menyebar dalam sekejap.
 
-Sekilas sepertinya tidak ada yang aneh, tapi…
+Sekilas sepertinya tidak ada yang aneh, tapi...
 
-"Fumu."
+g"Fumu."
 
-Saya merasa ada yang aneh tetapi saya tidak bisa mengungkapkannya dengan kata-kata.
+aku merasa ada yang aneh tetapi aku tidak bisa mengungkapkannya dengan kata-kata.
 
-“Kapan terakhir kali Anda bertemu Moen?”
+g"Kapan terakhir kali kamu bertemu Moen?"
 
-"Kemarin pagi. Kemarin malam, dia sepertinya dipanggil untuk masalah yang mendesak. Tapi dia sepertinya telah kembali di tengah malam saat dia sarapan denganku kemarin pagi. "
+"Kemarin pagi. malam sebelum kemarin, dia sepertinya dipanggil untuk masalah yang mendesak. Tapi dia sepertinya telah kembali di tengah malam karena dia sarapan denganku kemarin pagi."
 
 Malam kemarin mungkin tentang percobaan pembunuhan Walikota Mistome.
 
-Hari itu, saya mempercayakan Mistome-shi kepada eksekutif Guild Petualang Garadin karena dia dapat dipercaya.
+Hari itu, aku mempercayakan Mistome-shi kepada eksekutif Guild Petualang Garadin karena dia dapat dipercaya.
 
-Saya membayangkan bahwa Moen telah kembali ke rumah pada saat itu dan memutuskan bahwa alih-alih mempercayakan keselamatan Mistome-shi kepada penjaga yang tidak saya kenal dengan baik, akan lebih aman untuk mempercayakannya kepada Garadin yang merupakan rekan partainya.
+aku membayangkan bahwa Moen telah kembali ke rumah pada saat itu dan memutuskan bahwa daripada mempercayakan keselamatan Mistome-shi kepada penjaga yang tidak aku kenal dengan baik, akan lebih aman untuk mempercayakannya kepada Garadin yang merupakan rekan partainya.
 
-“Tahukah kamu siapa yang datang mencari Moen kemarin lusa?”
+g"Tahukah kamu siapa yang datang mencari Moen kemarin lusa?"
 
-“Saya berada di ruang tamu jadi saya tidak melihat orang itu secara langsung tapi saya ingat dia memperkenalkan dirinya sebagai orang dari Guild Petualang.”
+“aku berada di ruang tamu jadi aku tidak melihat orang itu secara langsung tapi aku ingat dia memperkenalkan dirinya sebagai orang dari Guild Petualang.”
 
 Itu berarti Garadin tidak menghubungi penjaga dan langsung mencari Moen.
 
-Dia sedang mengumpulkan rekan party masa lalu mereka untuk krisis Mistome-shi. Itu tidak biasa.
+Dia sedang mengumpulkan rekan tim masa lalu mereka untuk krisis Mistome-shi. Itu tidak biasa.
 
-“Terima kasih Ademi. Aku akan pergi ke pos jaga setelah ini jadi apa ada yang ingin aku beritahu Moen? ”
+g"Terima kasih Ademi. Aku akan pergi ke pos jaga setelah ini jadi apa ada pesan untuk Moen?"
 
-"Dalam hal itu …"
+"Dalam hal itu..."
 
 Ademi memberitahuku tanpa ragu.
 
-“Semoga berhasil dengan pekerjaan Anda dan jangan khawatir tentang rumah karena saya di sini. Tolong bantu saya mengatakan itu padanya! "
+"Semoga berhasil dengan pekerjaanmu dan jangan khawatir tentang rumah karena aku di sini. Tolong bantu aku mengatakan itu padanya!"
 
 Melihat Ademi mengatakan itu sambil tersenyum, Lit tersenyum dengan mata menyipit.
 
