@@ -186,8 +186,8 @@ g"Apa yang harus dilakukan walikota tidak berubah terlepas dari siapa lawannya."
 
 Tidak ada sedikitpun ketidakpuasan dalam suara Ruti. Walikota memperoleh keberanian dari suaranya dan mendapatkan kembali sikapnya sebagai otoritas tertinggi di Zoltan.
 
-Republik Zoltan tidak lebih dari sebuah negara kota yang didirikan oleh para perintis di perbatasan. Namun demikian, itu tetaplah sebuah negara. Kedua negara mungkin memiliki perbedaan yang lebar tetapi dia tidak perlu mencela dirinya sendiri sebagai pangeran.
+Republik Zoltan tidak lebih dari sebuah negara kota yang didirikan oleh para perintis di perbatasan. Namun demikian, itu tetaplah sebuah negara. Kedua negara mungkin memiliki perbedaan yang besar tetapi dia tidak perlu mencela dirinya sendiri sebagai pangeran.
 
-"Kalau begitu, saya akan mengizinkan Anda untuk membimbing saya."
+"Kalau begitu, silahkan pandu saya untuk masuk."
 
-Meski suaranya sedikit bergetar, walikota tersenyum ke arah Ririnrara dan menjawab.
+Meski suaranya sedikit bergetar, walikota tersenyum ke arah Ririnrara dan menjawabnya.
