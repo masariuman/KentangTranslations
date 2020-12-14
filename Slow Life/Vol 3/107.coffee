@@ -100,29 +100,29 @@ Keesokan paginya.
 
 Walikota Tonedo mengendarai perahu layar kecil tentara Zoltan menuju kapal perang Veronia tempat Pangeran Sarius berada.
 
-Angkatan Laut Zoltan ... yang mengatakan, awak kapal biasanya bekerja sebagai awak kapal dagang dan kapal penangkap ikan sehingga mereka tidak memiliki pengalaman dalam pertempuran laut.
+Angkatan Laut Zoltan ... awak kapal biasanya bekerja sebagai awak kapal dagang dan kapal penangkap ikan sehingga mereka tidak memiliki pengalaman dalam pertempuran laut.
 
 Bahkan saat mengemudikan kapal, teriakan untuk mengkoordinasikan pengaturan waktu lebih pelan karena gugup.
 
-"Saya kira mereka tidak bisa disalahkan."
+"yaah mereka juga tidak bisa disalahkan."
 
-Walikota Tonedo dengan putus asa mencegah dirinya agar tidak kewalahan oleh kesan kapal dapur besar yang mereka datangi.
+Walikota Tonedo dengan putus asa mencegah dirinya agar tidak kewalahan oleh kesan kapal gali besar yang mereka datangi.
 
 Jika walikota yang tidak memiliki pengetahuan tentang kapal merasa seperti itu, awak kapal yang mengetahui tentang kapal mungkin akan lebih ketakutan.
 
-Bagaimanapun, mereka mengerti bahwa jika kapal perang di depan mata mereka dengan seenaknya memutuskan untuk menyerang, mereka tidak akan dapat melakukan perlawanan apapun dan dibantai seperti ranting yang patah menjadi dua.
+Bagaimanapun juga, mereka mengerti bahwa jika kapal perang di depan mata mereka dengan seenaknya memutuskan untuk menyerang, mereka tidak akan dapat melakukan perlawanan apapun dan dibantai seperti ranting yang patah menjadi dua.
 
 Tapi kemudian, jika Veronia benar-benar menyerang dengan iseng, mereka mungkin akan menyesalinya.
 
-Lagipula, 『Hero』 dan 『Assassin』 manusia terkuat ada di kapal itu.
+Lagipula, 『Pahlawan』 dan 『Pembunuh Bayaran』, manusia terkuat ada di kapal itu.
 
 “Aku lega kalian berdua bisa menemaniku.”
 
 Walikota berterima kasih kepada dua gadis yang berdiri di sampingnya.
 
-“Tifa-kun dan Ru… erm, Ksatria Putih-dono kan?”
+“Tifa-kun dan Ru... erm, Ksatria Putih-dono kan?”
 
-"Ya."
+r"Ya."
 
 Tise berpakaian dengan gaya biasanya peralatan ringan yang terdiri dari pedang pendek dan pisau lempar tersembunyi tetapi Ruti berpakaian berbeda dari biasanya.
 
@@ -130,15 +130,15 @@ Hari ini, Ruti mengenakan helm full plate dengan helm yang menutupi seluruh waja
 
 Di dadanya ada lambang singa. Lambang itu bukan milik pihak mana pun dan dia hanya seorang ksatria keliling yang mencari disiplin diri dan ketenaran.
 
-(Saya belum pernah ke Veronia tetapi karena dia bangsawan dari negara besar, dia mungkin pernah melihat wajah saya sebelumnya di suatu tempat.)
+(aku belum pernah ke Veronia tetapi karena dia bangsawan dari negara besar, dia mungkin pernah melihat wajahku sebelumnya di suatu tempat.)
 
-Sejak mereka memulai perjalanan mereka, Red waspada terhadap serangan dari Demon Lord Army dan dia teliti dalam memastikan tidak ada lukisan wajah Ruti yang begitu bertentangan dengan ketenarannya, hanya mereka yang bertemu langsung dengannya yang tahu bagaimana rupa Ruti.
+Sejak mereka memulai perjalanan mereka, Red waspada terhadap serangan dari Pasukan raja iblis dan dia teliti dalam memastikan tidak ada lukisan wajah Ruti yang begitu bertentangan dengan ketenarannya, hanya mereka yang bertemu langsung dengannya yang tahu bagaimana rupa Ruti.
 
 Oleh karena itu, Pangeran Sarius tidak mungkin mengetahui bagaimana rupa Ruti tetapi untuk amannya, Ruti menyembunyikan wajahnya dengan menggunakan helm.
 
-Keduanya menemani walikota sebagai pengawal di permukaan tetapi tujuan mereka yang sebenarnya adalah untuk mengamati secara langsung sikap dan kata-kata Pangeran Sarius.
+Keduanya menemani walikota sebagai pengawal tetapi tujuan mereka yang sebenarnya adalah untuk mengamati secara langsung sikap dan kata-kata Pangeran Sarius.
 
-Konon, mereka saat ini tidak memiliki cukup informasi untuk bernegosiasi dengan pangeran. Kali ini hanya pemeriksaan awal dari lawan mereka. Ruti dan Tise tidak berniat berbicara dan hanya hadir sebagai penjaga.
+mereka saat ini tidak memiliki cukup informasi untuk bernegosiasi dengan pangeran. Kali ini hanya pemeriksaan awal dari lawan mereka. Ruti dan Tise tidak berniat berbicara dan hanya hadir sebagai penjaga.
 
 Akhirnya, perahu layar Zoltan yang seperti anak kecil itu menyentuh sisi kapal perang Veronia yang sangat besar.
 
@@ -150,37 +150,37 @@ Para prajurit Veronia mengenakan kemeja rantai pinggang tanpa lengan. Itu karena
 
 Untuk mencegah baju rantai mereka memanas karena matahari saat berada di laut, mereka mengenakan kemeja lusuh di atasnya yang membuat mereka tampak lebih seperti bajak laut daripada tentara biasa bagi Tise.
 
-“Salam, teman-teman Zoltan yang terkasih. Kita terakhir bertemu kemarin. ”
+“Salam, teman-teman Zoltan yang terkasih. Kita terakhir bertemu kemarin.”
 
 Dari balik pintu kabin datang seorang pria yang tampaknya berusia pertengahan tiga puluhan dengan senyum di wajahnya yang kecokelatan. Tapi Ruti mendengar bahwa sebenarnya usianya sekitar lima puluh tahun.
 
-“Tetap berada di geladak di atas lautan musim dingin beracun bagi tubuh. Silakan masuk."
+"Tetap berada di geladak di atas lautan pada musim dingin beracun bagi tubuhmu. Silakan masuk."
 
 Seorang gadis cantik dengan rambut perak menjuntai di sisi tubuhnya berdiri tiga langkah di belakang pria itu. Telinganya panjang dan luka pedang menjalar ke bawah mata kanannya yang ditutupi penutup mata.
 
-“Ririnrara dari Bajak Laut Peri.”
+t"Ririnrara si peri Bajak Laut."
 
 Tise bergumam pelan.
 
-Lebih dari 50 tahun yang lalu, bersama dengan Juara Bajak Laut Geyserik, kelompok bajak laut yang tidak biasa terdiri dari High-Elf yang ditakuti karena kekejaman mereka. Mereka disebut Bajak Laut Peri.
+Lebih dari 50 tahun yang lalu, bersama dengan Juara Bajak Laut Geyserik, kelompok bajak laut yang tidak biasa terdiri dari High-Elf yang ditakuti karena kekejaman mereka. Mereka disebut peri Bajak Laut.
 
-Ketika Geyserik mengkhianati generasi sebelumnya Veronia King dan menyerang ibu kota, dikatakan bahwa ia mampu mengalahkan pasukan Veronia dengan bantuan Bajak Laut Peri yang dipimpin oleh Ririnrara.
+Ketika Geyserik mengkhianati generasi sebelumnya raja Veronia dan menyerang ibu kota, dikatakan bahwa ia mampu mengalahkan pasukan Veronia dengan bantuan peri Bajak Laut yang dipimpin oleh Ririnrara.
 
 Setelah perang, Ririnrara dan para eksekutif dari Bajak Laut Peri diberi posisi kunci di Veronia oleh Raja Geyserik dan sebagai ras yang berumur panjang, para High-Elf masih menempati kursi penting di Veronia bahkan hingga hari ini.
 
-(Ada kemungkinan itu adalah tubuh ganda tapi luka itu sama dengan yang Ririnrara miliki menurut apa yang kudengar. Dengan kata lain, sekutu lama Geyserik ... eksekutif terhebat di Veronia kedua setelah Geyserik datang jauh-jauh ke Zoltan ?)
+(Ada kemungkinan dia hanya bayangannya saja tapi luka itu sama dengan yang Ririnrara miliki menurut apa yang kudengar. Dengan kata lain, sekutu lama Geyserik ... eksekutif terhebat di Veronia kedua setelah Geyserik datang jauh-jauh ke Zoltan ?)
 
 Di depan mereka adalah pangeran sejati yang mungkin mewarisi takhta dan High-Elf yang memiliki kekuatan besar nomor dua setelah raja.
 
 Ketika Tise dengan tenang membisikkan informasi tentang Ririnrara kepada walikota, wajah Walikota Tonedo menjadi pucat.
 
-Meskipun Tonedo dievaluasi sebagai orang yang tajam dan berani di Zoltan, masalah putaran ini benar-benar melebihi batas toleransinya.
+Meskipun Tonedo dievaluasi sebagai orang yang tajam dan berani di Zoltan, masalah ini benar-benar melebihi batas toleransinya.
 
-"Ya, benar."
+r"Ya, benar."
 
 Kata Ruti kepada walikota yang gelisah dan ketakutan dari dalam helmnya.
 
-"Apa yang harus dilakukan walikota tidak berubah terlepas dari siapa lawannya."
+g"Apa yang harus dilakukan walikota tidak berubah terlepas dari siapa lawannya."
 
 “I-itu benar.”
 
