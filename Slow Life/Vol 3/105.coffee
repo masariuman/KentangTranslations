@@ -42,19 +42,19 @@ Begitu, jadi mereka berdua adalah apa yang kamu sebut bawahan.
 
 Divisi Penanggulangan Guild Pencuri huh?
 
-The Thieves Guild adalah guild yang sah dan pemimpin Thieves Guild Gorga adalah orang terkenal yang memegang kursi di kongres Zoltan. Namun, mayoritas bisnis Thieves Guild adalah tindakan kriminal sehingga sering bentrok dengan para penjaga.
+Guild pencuri adalah guild yang sah dan pemimpin guild pencuri Gorga adalah orang terkenal yang memegang kursi di kongres Zoltan. Namun, mayoritas bisnis guild pencuri adalah tindakan kriminal sehingga sering bentrok dengan para penjaga.
 
 Maka para penjaga di sebagian besar kota membentuk Divisi Penanggulangan Persekutuan Pencuri untuk menangani kejahatan yang melibatkan Persekutuan Pencuri.
 
-Cara mereka dirujuk berbeda-beda menurut negara dan kota tetapi di antara para petualang, mereka disebut sebagai 'Guards Guild' atau nama mengerikan dari 'The Thieves Guild yang tidak mencuri'.
+Cara mereka berbeda-beda menurut negara dan kota tetapi di antara para petualang, mereka disebut sebagai 'guild penjaga' atau nama mengerikan dari 'guild pencuri yang tidak mencuri'.
 
 Yah, terlepas dari apa nama mereka, Divisi Penanggulangan Guild Pencuri adalah kelompok yang tidak kalah kuatnya dengan Guild Pencuri.
 
 “Aku pasti akan menjadi penjaga seperti ayahku!”
 
-Dengan perlindungan ilahi 『Bar Brawler』 dan lengannya yang kuat, bergabung dengan divisi penanggulangan Persekutuan Pencuri mungkin menjadi panggilan sejati Ademi.
+Dengan perlindungan ilahi 『Bar Brawler』 dan lengannya yang kuat, bergabung dengan divisi penanggulangan Persekutuan Pencuri mungkin menjadi pilihan terbaik Ademi.
 
-“Bagaimanapun, Ademi memang dimaksudkan untuk menjadi penjaga.”
+g"Ademi memang cocok untuk menjadi penjaga."
 
 Wajah Ademi memerah karena senang setelah aku mengatakan itu.
 
