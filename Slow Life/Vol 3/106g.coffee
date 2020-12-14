@@ -126,6 +126,8 @@ aku menjawab dengan tegas pertanyaan Lit dengan anggukan.
 
 g"Toko sewa buku."
 
+<gambar> vol6 07.jpg
+
 Toko sewa buku di pusat kota. Sesuai namanya, itu adalah toko yang meminjamkan buku yang dimaksudkan untuk hiburan dengan biaya tertentu.
 
 Itu adalah toko yang kadang-kadang masih aku datangi dan kami menuju ke sana.

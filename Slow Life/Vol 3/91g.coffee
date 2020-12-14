@@ -98,6 +98,8 @@ r"Ah, uu..."
 
 Bersama dengan Ruti yang menangis, kami menghabiskan akhir festival sebagai kakak-adik.
 
+<gambar> Vol5 12.jpg
+
 ☆☆
 
 Malam hari. di Pelabuhan Zoltan.
