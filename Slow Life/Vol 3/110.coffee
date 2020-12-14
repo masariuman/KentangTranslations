@@ -106,21 +106,21 @@ t"Oh, iya."
 
 Tise akhirnya menyadari bahwa itu akan berdampak buruk bagi pihak lain. Rasanya dia sedang memikirkan urusan orang lain, tetapi dia merasa lebih baik jika dia menghentikan orang yang akan bunuh diri.
 
-“Saya sarankan Anda memberi tahu pasangan Anda untuk kembali sekarang.”
+t"aku sarankan kamu memberi tahu temanmu untuk kembali sekarang."
 
-"Apakah itu ancaman? Tapi rekanku tetap akan melakukan tugasnya meski kau mengalahkanku. Dia akan menangkap rekan Anda dan menyerahkannya ke penyiksaan berat kecuali Anda mematuhinya. Penyiksaan angkatan laut Veronia itu mengerikan, Anda tahu? Tidak peduli seberapa berototnya pria itu, dia akan menangis seperti anak kecil dan memohon mereka untuk mengakhiri hidupnya secepat mungkin. "
+"Apakah itu ancaman? Tapi rekanku tetap akan melakukan tugasnya meski kau mengalahkanku. Dia akan menangkap rekanmu dan menyerahkannya ke penyiksaan berat kecuali kamu mematuhinya. Penyiksaan angkatan laut Veronia itu mengerikan lho... Tidak peduli seberapa berototnya pria itu, dia akan menangis seperti anak kecil dan memohon mereka untuk mengakhiri hidupnya secepat mungkin."
 
-"Tidak, bukan itu yang saya maksud."
+t"Tidak, bukan itu yang aku maksud."
 
-“Selain itu, perlindungan ilahi saya adalah『 Gladiator 』. Saya dapat menunjukkan kekuatan yang lebih besar dalam situasi 1-vs-1 seperti ini di mana kami saling berhadapan. Dari cara Anda membawa diri sendiri, Anda kemungkinan besar memiliki perlindungan ilahi kelas pencuri. Saya bertanya-tanya berapa lama Anda dapat terus mempertahankan ekspresi tidak terganggu itu.
+"Selain itu, perlindungan ilahiku adalah『 Gladiator 』. aku dapat menunjukkan kekuatan yang lebih besar dalam situasi 1-vs-1 seperti ini di mana kita saling berhadapan. Dari caramu, kamu kemungkinan besar memiliki perlindungan ilahi kelas pencuri. aku penasaran berapa lama kamu dapat terus mempertahankan ekspresi tidak terganggu itu."
 
-High-Elf menyeringai tapi Tise sedang merenung dan bergumam pada dirinya sendiri, "Ruti sudah tenang jadi aku yakin dia tidak akan memutuskan untuk membunuhnya tanpa mengajukan pertanyaan ..."
+High-Elf tersenyum licik tapi Tise sedang merenung dan bergumam pada dirinya sendiri, "Ruti sudah aman jadi aku yakin dia tidak akan memutuskan untuk membunuhnya tanpa mengajukan pertanyaan ..."
 
-High-Elf secara bertahap semakin frustrasi karena tampaknya Tise bereaksi jemu terhadap kata-katanya.
+High-Elf secara bertahap semakin frustrasi karena tampaknya Tise bereaksi biasa saja terhadap kata-katanya.
 
-“Apa yang salah denganmu, apakah kamu memiliki perlindungan ilahi yang hanya dapat berkomunikasi dengan orang-orang yang memiliki perlindungan ilahi seperti『 Evil Spirit 』atau『 Dual Mind 』?
+"Apa yang salah denganmu, apakah kamu memiliki perlindungan ilahi yang hanya dapat berkomunikasi dengan orang-orang yang memiliki perlindungan ilahi seperti『 Evil Spirit 』atau『 Dual Mind 』?"
 
-Akan merepotkan jika itu masalahnya. High-Elf mendecakkan lidahnya dan menurunkan posisinya.
+Akan merepotkan jika itu memang masalahnya. High-Elf mendecakkan lidahnya dan menurunkan posisinya.
 
 Dia tidak ingin bertarung tetapi jika dia memiliki perlindungan ilahi yang tidak dapat dibicarakan, ada kemungkinan dia menyerang tanpa peringatan dan memiliki sandera juga tidak akan berhasil.
 
@@ -136,13 +136,13 @@ High-Elf mengumpulkan kekuatan di lengannya yang memegang jaring dan bergerak ke
 
 Pada saat itu, sesuatu dari udara menabrak High-Elf yang memegang trisula dengan kekuatan yang kuat.
 
-“Eh?”
+t"Eh?"
 
 Seperti yang diharapkan, Tise terkejut juga dan menghentikan pikirannya.
 
-Kedua High-Elf di depannya memiliki postur yang tidak mungkin. Keduanya memiliki tingkat perlindungan ilahi yang tinggi tetapi mereka biasanya akan mati dalam keadaan itu.
+Kedua High-Elf di depannya memiliki postur yang tidak mungkin terjadi. Keduanya memiliki tingkat perlindungan ilahi yang tinggi tetapi mereka biasanya akan mati dalam keadaan itu.
 
-"Tidak mungkin."
+t"Tidak mungkin."
 
 Tise melihat ke belakang dengan ketakutan.
 
@@ -152,11 +152,11 @@ Rumah Tise dan Ruti masih beberapa ratus meter jauhnya.
 
 Alasan dan naluri Tise mencoba menyangkal bahwa, belum lagi manusia, bahkan raksasa tidak akan mampu melakukan itu tapi ...
 
-(Sekarang aku memikirkannya, dia telah meninju raksasa gunung ke udara sebelumnya.)
+(Sekarang aku memikirkannya, dia meninju raksasa gunung ke udara sebelumnya.)
 
 Tise mengingat bahwa ketika raksasa gunung yang tak terhitung jumlahnya menyerang mereka, Ruti merasa itu merepotkan jadi dia menyarungkan pedangnya dan melemparkan mereka ke bawah tebing satu demi satu.
 
-Setelah itu, raksasa gunung yang melarikan diri menjadi sasaran permainan tag hidup-dan-mati dengan Ruti dan adegan itu sangat membara di benak Tise yang baru saja bergabung dengan party itu.
+Setelah itu, raksasa gunung yang melarikan diri menjadi sasaran permainan tag hidup-dan-mati dengan Ruti dan adegan itu sangat jelas di benak Tise yang baru saja bergabung dengan tim itu.
 
 Dia mampu mengatasi kekuatan dan berat raksasa gunung jadi, baginya, mungkin tugas sederhana untuk melemparkan manusia beberapa ratus meter.
 
@@ -164,19 +164,19 @@ Dia mampu mengatasi kekuatan dan berat raksasa gunung jadi, baginya, mungkin tug
 
 Melihat para High-Elf yang mengejang, bahkan wajah tanpa ekspresi Tise berubah menjadi tawa kering.
 
-(Dia benar-benar orang yang keterlaluan.)
+(Dia benar-benar orang yang berlebihan.)
 
 ☆☆
 
 Hari berikutnya.
 
-“Jadi apa yang terjadi dengan keduanya?”
+g"Jadi apa yang terjadi dengan keduanya?"
 
 Aku bertanya pada Tise setelah aku mendengar ceritanya saat aku menyajikan pasta salad untuk sarapan.
 
-“Setelah Ruti-sama merawat mereka, dia mengikatnya dan melemparkannya ke ruangan yang tidak digunakan di mansion.”
+t"Setelah Ruti-sama merawat mereka, dia mengikatnya dan melemparkannya ke ruangan yang tidak digunakan di mansion."
 
-Oden itu dingin.
+t"Oden itu dingin."
 
 Ruti marah karena alasan yang aneh. Dari sedikit gerakan alis dan kepalan tangan di depan dadanya, tindakan Ruti memberitahuku bahwa mereka adalah orang yang sangat jahat.
 
@@ -184,6 +184,6 @@ Cara dia mengkategorikan mereka sebagai buruk semata-mata karena mereka menyebab
 
 Yah, itu juga dihitung sebagai individualitas. Sebenarnya, itu cukup lucu!
 
-“Eheh ~”
+t"Eheh ~"
 
 Mungkin dia menyimpulkan sesuatu dari ekspresiku, bibir Tise terulur ke samping membentuk senyuman halus.
