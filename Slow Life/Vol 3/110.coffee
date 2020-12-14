@@ -18,13 +18,13 @@ Poin penting untuk investigasi sudah dalam pengerjaan.
 
 Meskipun sulit melakukan penyelidikan di daerah terpencil Zoltan, selama festival titik balik matahari musim dingin, ada pelaut Veronia dan warga negara lain yang datang untuk berdagang.
 
-Selain itu, meski sudah beberapa bulan lalu, Tise juga mendapatkan informasi yang didapatnya dari Assassin's Guild.
+Selain itu, meski sudah beberapa bulan lalu, Tise juga mendapatkan informasi yang didapatnya dari Guild Pembunuh Bayaran.
 
 (Juara Bajak Laut yang menjelajahi lautan tiga kerajaan sekarang berada di ranjang kematiannya.)
 
 Tentu saja Raja Veronia, Raja Geyserik tidak menunjukkan kelemahan seperti berbaring di tempat tidurnya selama masa sulit ini. Dia berpartisipasi dalam upacara-upacara penting dan memberi perhatian penuh agar tidak mempengaruhi urusan nasional.
 
-Namun, tidak peduli seberapa keras dia berusaha menyembunyikannya, nasib mereka yang hampir mati tidak dapat diubah. Assassin seperti Tise yang telah menyaksikan berbagai kematian secara sensitif dapat menangkap aroma kematian Raja Geyserik dari informasi yang mereka kumpulkan.
+Namun, tidak peduli seberapa keras dia berusaha menyembunyikannya, nasib mereka yang hampir mati tidak dapat diubah. Pembunuh Bayaran seperti Tise yang telah menyaksikan berbagai kematian secara sensitif dapat menangkap aroma kematian Raja Geyserik dari informasi yang mereka kumpulkan.
 
 (Tentang waktu?)
 
@@ -64,7 +64,7 @@ Ugeuge-san di bahu Tise memiringkan kepalanya bersamaan dengan dia saat mereka m
 
 “Kamu sepertinya terkejut. Tapi perlindungan ilahi saya memiliki keterampilan deteksi yang disebut 'Insight Musuh Kuat' yang mampu memberi tahu saya jika tingkat perlindungan ilahi lawan saya lebih besar atau lebih rendah dari milik saya. Perlindungan ilahi Anda lebih kuat dari perlindungan ilahi saya sendiri dari Lv39. Hanya segelintir orang yang lebih kuat dari saya bahkan di Veronia tapi saya terkejut seorang pahlawan seperti Anda dapat ditemukan di daerah terpencil. "
 
-Lv39, Tise merasa cukup tinggi. Seseorang pada level itu di Assassin Guild akan menjadi cukup elit atau pangkat kapten di Knight Order. Klaimnya sebagai salah satu pejuang terbaik Kerajaan Veronia bukanlah gertakan.
+Lv39, Tise merasa cukup tinggi. Seseorang pada level itu di Pembunuh Bayaran Guild akan menjadi cukup elit atau pangkat kapten di Knight Order. Klaimnya sebagai salah satu pejuang terbaik Kerajaan Veronia bukanlah gertakan.
 
 Meskipun tingkat perlindungan ilahi Tise melebihi 60.
 
