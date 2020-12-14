@@ -98,7 +98,7 @@ g"Yup, aku juga mendengarnya."
 
 Ruti menghunus pedangnya juga. Tise memegang pisau lempar dan aku meletakkan tanganku di gagang pedangku.
 
-Kabut tiba-tiba bergulung masuk. Saya melihat bayangan manusia berlari dari sisi lain kabut putih.
+Kabut tiba-tiba muncul. aku melihat bayangan manusia berlari dari sisi lain kabut putih.
 
 Itu adalah orang yang mengenakan jubah ... sosok Sage Ares.
 
@@ -108,50 +108,52 @@ Aku menghunus pedangku tanpa ragu-ragu dan menebas di depanku.
 
 Lendir hijau memercik ke pedang dan menempel padanya. Sosok Ares terdistorsi seperti sketsa rusak dan kabut yang tiba-tiba menghilang dengan cepat.
 
-Itu adalah Kabut Horor.
+l"Itu adalah Kabut Horor."
 
 Lit tampak sedikit terkejut. Itu adalah monster dengan tubuh gas yang memproyeksikan ilusi yang memprovokasi ketakutan lawannya dan memberi makan kekuatan mental dan kekuatan magis lawannya.
 
-Karena ilusi tidak dapat menyesuaikan dirinya dengan situasi, itu tidak menakutkan selama Anda tetap tenang. Karena tidak memiliki sarana untuk menyerang secara fisik dan membutuhkan waktu untuk membunuh lawannya, tingkat bahayanya rendah. Namun, berurusan dengan tubuh gas itu sulit. Cara termudah adalah dengan menyiramnya dengan api.
+Karena ilusi tidak dapat menyesuaikan dirinya dengan situasi, itu tidak menakutkan selama kamu tetap tenang. Karena tidak memiliki sarana untuk menyerang secara fisik dan membutuhkan waktu untuk membunuh lawannya, tingkat bahayanya rendah. Namun, berurusan dengan tubuh gas itu sulit. Cara termudah adalah dengan menyiramnya dengan api.
 
-Nah, keempat anggota yang hadir bisa secara alami 'Memotong partikel yang membentuk kabut' jadi tidak ada masalah.
+Nah, kamu berempat pada dasarnya bisa 'Memotong partikel yang membentuk kabut' jadi tidak ada masalah.
 
-"Sepertinya itu hewan peliharaan seseorang."
+t"Sepertinya itu hewan peliharaan seseorang."
 
 Tise dan Ruti tidak langsung menyerang karena merasa Kabut Horor itu seperti pengawas. Lit tidak tahu tentang keberadaan Kabut Horor jadi masuk akal kalau dia gagal menyadarinya.
 
-“Mungkin milik Mistome-shi atau seseorang dengan Mistome-shi. Baunya seperti Mistome-shi. ”
+l"Mungkin milik Mistome-shi atau seseorang dengan Mistome-shi. Baunya seperti Mistome-shi."
 
-Namun, meskipun dia tidak tahu tentang monster yang disebut Kabut Horor, indra penciuman Lit yang diperoleh melalui Aspect of the Wolf-nya memungkinkannya untuk merasakan bau kecil yang ditinggalkan oleh kabut hidup. Mistome-shi ada di hutan.
+Namun, meskipun dia tidak tahu tentang monster yang disebut Kabut Horor, indra penciuman Lit yang diperoleh melalui aspek serigalanya memungkinkannya untuk merasakan bau kecil yang ditinggalkan oleh kabut hidup. Mistome-shi ada di hutan.
 
 Dalam hal itu,
 
-“Saya menahan sebanyak yang saya bisa. Seharusnya tidak mengancam jiwa. Kita akhirnya bisa bertemu Mistome-shi jika kita mengejarnya.
+g"aku menahan sebanyak yang saya bisa. Seharusnya tidak mengancam jiwa. Kita akhirnya bisa bertemu Mistome-shi jika kita mengejarnya."
 
 Genangan lendir hijau terus berlanjut ke dalam hutan. Itu adalah darah Kabut Horor dari lukanya.
 
-“Kalau begitu, aku tidak membutuhkan sihir ini lagi.”
+g"Kalau begitu, aku tidak membutuhkan sihir ini lagi."
 
 Lit berkonsentrasi untuk menghilangkan sihirnya.
 
-“Ah, tunggu.”
+g"Ah, tunggu."
 
-“Hn?”
+l"Hn?"
 
-Saya tidak bisa menahan diri, ya.
+aku tidak bisa menahan diri, ya.
 
 Aku menghampiri Lit sambil berpura-pura tenang.
 
-"Apa yang salah?"
+l"Apa yang salah?"
 
-“Ah, kami bisa melacaknya berkat Lit. Terima kasih."
+g"Ah, kami bisa melacaknya berkat Lit. Terima kasih."
 
-Dengan kepura-puraan itu, aku membelai area di belakang telinga serigala di kepala Lit sambil berhati-hati agar rambut Lit tidak berantakan. Lagipula mereka lembut dan halus. Rasanya menyenangkan.
+Dengan alasan itu, aku membelai area di belakang telinga serigala di kepala Lit sambil berhati-hati agar rambut Lit tidak berantakan. Lagipula mereka lembut dan halus. Rasanya menyenangkan.
 
 Mata Lit langsung membulat karena terkejut sebelum dia dengan cepat menerimanya dan dia tertelungkup karena malu. Sejauh yang aku tahu, dia tidak menyukainya dari ekornya yang bergetar kuat.
 
-Saya senang. Tapi bagian dalam roknya akan terlihat jadi saya memutuskan untuk tidak melakukannya lagi ketika mereka ada di sekitar.
+aku senang. Tapi bagian dalam roknya akan terlihat jadi aku memutuskan untuk tidak melakukannya lagi ketika ada orang lain di sekitar.
 
 Pada akhirnya, kami melanjutkan tanpa Lit membatalkan sihirnya.
 
 Lit berjalan di sampingku dan ekornya bergoyang-goyang kegirangan.
+
+<gambar> vol6 6++.jpg  04.jpg
