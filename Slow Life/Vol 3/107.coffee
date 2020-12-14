@@ -1,89 +1,86 @@
 Bab 107: Pangeran dan Bajak Laut High-Elf
 
-Penerjemah: Tseirp
+Kami meminjam buku dari toko penyewaan buku, kembali ke toko kami dan aku membuka kunci pintu.
 
+r"Selamat datang kembali, Onii-chan, Lit."
 
-Kami meminjam buku dari toko buku sewaan, kembali ke toko kami dan saya membuka kunci pintu.
+Ruti datang menyambut kami setelah aku membuka pintu. Aku memberikan kunci cadangan padanya jadi tidak aneh kalau dia ada di dalam. kunci tidak akan bisa menghalangi Ruti atau Tise.
 
-“Selamat datang kembali, Onii-chan, Lit.”
-
-Ruti datang menyambut kami setelah aku membuka pintu. Aku memberikan kunci cadangan padanya jadi tidak aneh kalau dia ada di dalam. Bagaimanapun, kunci komersial tidak akan bisa menghalangi Ruti atau Tise.
-
-"Sini."
+r"Sini."
 
 Ruti mengulurkan tangannya.
 
-"Terima kasih."
+g"Terima kasih."
 
-Saya memberikan mantel yang saya kenakan kepada Ruti.
+aku memberikan mantel yang aku kenakan kepada Ruti.
 
 Ruti menggantungkan mantelku di rak jubah.
 
-Ehehe.
+r"Ehehe."
 
 Dia tampak sangat puas karena suatu alasan.
 
-“Menyala juga.”
+r"lit juga."
 
-"Terima kasih."
+l"Terima kasih."
 
 Dengan cara serupa, Ruti mengambil jubah Lit dan membersihkan sebagian debu dengan kuas sebelum menyimpannya di lemari.
 
-Ketika kami memasuki ruang tamu, saya melihat Tise minum kopi saat dia menatap peta kota Zoltan.
+Ketika kami memasuki ruang tengah, aku melihat Tise minum kopi saat dia menatap peta kota Zoltan.
 
 Ruti segera kembali setelah menyimpan jubah Lit.
 
-“Moen dan Garadin tidak ada dan tampaknya, termasuk Mistome-shi, semua anggota partai peringkat B generasi sebelumnya mengambil tindakan bersama. Tanpa memberi tahu bawahan masing-masing tentang keberadaan mereka. "
+g"Moen dan Garadin tidak ada dan tampaknya, termasuk Mistome-shi, semua anggota tim peringkat B generasi sebelumnya mengambil tindakan bersama. Tanpa memberi tahu bawahannya masing-masing tentang keberadaan mereka."
 
-"Seperti yang kuharapkan. Saya pergi ke gereja untuk menunjukkan kepada Pastor Cien draf yang ingin saya gunakan untuk meminta informasi dari gereja tetapi dia tidak ada. "
+r"sudah kuduga. aku pergi ke gereja untuk menunjukkan kepada pendeta Cien draf yang ingin aku gunakan untuk meminta informasi dari gereja tetapi dia tidak ada."
 
-“Kamu juga ya?”
+g"Kamu juga ya?"
 
-“Aku malah meminta pendeta untuk melihatnya, tetapi dia juga tidak tahu tentang keberadaan Ayah.”
+r"Aku malah meminta pendeta untuk mencarinya, tetapi dia juga tidak tahu tentang keberadaannya."
 
-Haruskah saya mengatakan itu seperti yang saya harapkan? Namun, berbeda dengan Moen dan Garadin, aneh bila Pastor Cien tidak ada.
+Haruskah aku mengatakan itu seperti yang sudah kuduga? Namun, berbeda dengan Moen dan Garadin, aneh bila Pendeta Cien tidak ada.
 
-Posisi Pastor Cien sebagai Ayah juga bisa disebut sebagai Pemimpin Gereja Paroki.
+Posisi Pendeta Cien juga bisa disebut sebagai Pemimpin Gereja Paroki.
 
-Paroki di sini akan merujuk ke seluruh wilayah Zoltan dan dia mengelola semua gereja di Zoltan serta permukiman sekitarnya dan memiliki hak untuk menunjuk imam dan diaken tingkat rendah. Dengan kata lain, dia memiliki otoritas penuh atas sumber daya manusia. Teorinya, Pastor Cien dapat dengan bebas menggantikan orang-orang di gereja Zoltan atas kebijakannya sendiri.
+Paroki di sini akan merujuk ke seluruh wilayah Zoltan dan dia mengelola semua gereja di Zoltan serta permukiman sekitarnya dan memiliki hak untuk menunjuk pemimpin dan diaken tingkat rendah. Dengan kata lain, dia memiliki otoritas penuh atas sumber daya manusia. Teorinya, Pendeta Cien dapat dengan bebas menggantikan orang-orang di gereja Zoltan atas kebijakannya sendiri.
 
-Kali ini, Pastor Cien bisa dikatakan sebagai orang yang memimpin faksi yang menentang permintaan Veronia. Tidak terbayangkan bahwa dia akan menghilang ketika dia seharusnya menjadi ujung tombak di Zoltan.
+Kali ini, Pendeta Cien bisa dikatakan sebagai orang yang memimpin faksi yang menentang permintaan Veronia. Tidak terbayangkan bahwa dia akan menghilang ketika dia seharusnya menjadi ujung tombak di Zoltan.
 
 Penduduk Zoltan yang riang dengan polosnya senang dengan kebangkitan kelompok peringkat-B generasi sebelumnya tapi itu jelas tidak normal.
 
-“Nah, kami sekarang tahu bahwa situasinya aneh. Lit. ”
+g"Nah, kami sekarang tahu bahwa situasinya aneh. Lit."
 
-"Sini."
+l"ini."
 
-Lit membariskan beberapa buku yang dia ekstrak dari kotak barang di pinggangnya di atas meja.
+Lit membariskan beberapa buku yang dia ambil dari kotak barang di pinggangnya di atas meja.
 
 Buku-buku itu berukuran hampir sama tetapi semuanya cukup tipis. Selain itu, semuanya telah menguning.
 
 Kualitas kertas kurang baik dan kondisi pengawetan yang buruk sehingga ada tanda-tanda gigitan serangga juga.
 
-Ini adalah?
+r"Ini apa?"
 
-Berita Zoltan.
+g"berita Zoltan."
 
-"Berita?"
+r"berita?"
 
-"Setiap volume adalah kumpulan berita selama satu tahun."
+g"Setiap volume adalah kumpulan berita selama satu tahun."
 
 Berita Zoltan adalah berita mingguan yang dibuat menggunakan pencetakan balok kayu. Hal-hal yang terjadi dalam seminggu akan dicetak ke dalam satu lembar dan ditukar dengan 10 koin tembaga biasa.
 
 Kemudian, berita selama setahun akan dijilid ke dalam sebuah buku dan dipinjamkan oleh toko buku rental. Cukup menarik untuk dibaca.
 
-“Yang di sini adalah berita saat Mistome-shi datang ke Zoltan. Kami meminjam semua berita dari 50 tahun yang lalu hingga tahun lalu. "
+g"ini adalah berita saat Mistome-shi datang ke Zoltan. Kami meminjam semua berita dari 50 tahun yang lalu hingga tahun lalu."
 
-“Saya terkejut Anda masih bisa menemukan rekor lama seperti itu.”
+t"aku terkejut kamu masih bisa menemukan berita lama seperti itu."
 
 Tise membalik-balik buku dengan penuh minat.
 
-“Saya pernah berkonsultasi dengan penolak serangga di gudang mereka. Saat itu, saya melihat ada banyak sekali buku berita yang disimpan di belakang gudang. ”
+g"aku pernah berkonsultasi untuk penolak serangga di gudang mereka. Saat itu, aku melihat ada banyak sekali buku berita yang disimpan di belakang gudang."
 
-“Merah bisa diandalkan untuk segala macam hal ya.”
+t"red bisa diandalkan untuk segala macam hal ya."
 
-Beberapa bulan setelah Red & Lit Apothecary dibuka, saya tidak menerima permintaan untuk menaklukkan monster tetapi sebaliknya, saya menerima permintaan untuk ramuan penangkal serangga, tas beraroma yang digunakan untuk sauna, dan memanen serta meracik rumput obat yang dibutuhkan untuk kehidupan biasa.
+Beberapa bulan setelah Apotek Red & Lit dibuka, aku tidak menerima permintaan untuk menaklukkan monster tetapi sebaliknya, aku menerima permintaan untuk ramuan penangkal serangga, tas beraroma yang digunakan untuk sauna, dan memanen serta meracik tanaman obat yang dibutuhkan untuk kehidupan biasa.
 
 Kali ini, pengalaman itu berguna.
 
