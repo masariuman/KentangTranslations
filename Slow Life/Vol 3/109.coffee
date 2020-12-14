@@ -188,56 +188,56 @@ g"Paling tidak, Garadin dan timnya percaya bahwa Pangeran Sarius sedang mencari 
 
 Mereka kebetulan mengantisipasi dikejar oleh Kerajaan Veronia.
 
-g"Jadi mereka menginstruksikan surat kabar untuk tidak menulis tentang masa lalu Mistome-shi tentang awak dan kapalnya. Para kru adalah pahlawan di mana tidak aneh jika semua nama mereka terdaftar dan diawetkan. Kali ini, mereka menentang penyerahan daftar gereja dan mengambil tindakan tertentu."
+g"Jadi mereka menginstruksikan surat kabar untuk tidak menulis tentang masa lalu Mistome-shi tentang awak dan kapalnya. Para kru adalah pahlawan di mana tidak aneh jika semua nama mereka terdaftar dan disimpan. Kali ini, mereka menentang penyerahan catatan gereja dan mengambil tindakan tertentu."
 
-“Tapi ingatan orang akan tetap ada meskipun mereka mencoba mengubur berita sebesar itu.”
+l"Tapi ingatan orang akan tetap ada meskipun mereka mencoba mengubur berita sebesar itu."
 
-“Kebingungan dari perang mungkin menjadi faktor, tapi itu mungkin karena kru mengambil tindakan yang tidak mencolok. Namun demikian, artikel ini masih diterbitkan di surat kabar sehingga mungkin tidak mungkin untuk menekan sepenuhnya informasi tersebut. Alasan terbesar adalah bahwa setelah lebih dari 40 tahun dan dikombinasikan dengan sifat Zoltan untuk tidak menyentuh masa lalu migran, informasi ini kemungkinan besar tidak diteruskan kepada pendatang baru seperti kita. ”
+g"Kebingungan dari perang mungkin menjadi faktor, tapi itu mungkin karena kru mengambil tindakan yang tidak mencolok. Namun demikian, artikel ini masih diterbitkan di surat kabar sehingga mungkin tidak mungkin untuk menekan sepenuhnya informasi tersebut. Alasan terbesar adalah bahwa setelah lebih dari 40 tahun dan dikombinasikan dengan sifat Zoltan untuk tidak menyentuh masa lalu pendatang, informasi ini kemungkinan besar tidak diteruskan kepada pendatang baru seperti kita."
 
-"Saya melihat."
+l"begitu ya..."
 
-“Tapi itu mungkin untuk mengetahui sebanyak ini jika kita benar-benar memeriksanya.”
+g"Tapi itu memungkinkan untuk mengetahui sebanyak ini jika kita benar-benar memeriksanya."
 
 Bahkan kita bisa sampai di masa lalu Mistome-shi dengan mudah.
 
-“Aku berasumsi bahwa orang yang dicari Kerajaan Veronia adalah seseorang yang berhubungan dengan Mistome-shi tapi… Kerajaan Veronia seharusnya bisa menyelidiki Mistome-shi jika mereka mengumpulkan informasi sebelum mereka meminta pendaftaran gereja. Bagaimanapun, dia orang yang terkenal. "
+g"Aku berasumsi bahwa orang yang dicari Kerajaan Veronia adalah seseorang yang berhubungan dengan Mistome-shi tapi... Kerajaan Veronia seharusnya bisa menyelidiki Mistome-shi jika mereka mengumpulkan informasi sebelum mereka meminta catatan gereja. Bagaimanapun, dia orang yang terkenal."
 
-" … Dengan kata lain."
+l" ... Dengan kata lain."
 
 Lit mengumpulkan temuan kami.
 
-“Sesuatu dari masa lalu Mistome-shi terhubung dengan Kerajaan Veronia dan pihak peringkat B generasi sebelumnya tahu tentang itu. Selain itu, ada orang yang tahu tentang Mistome-shi di pihak Veronia dan berusaha menjauhkannya dari Pangeran Sarius? "
+l"Sesuatu dari masa lalu Mistome-shi terhubung dengan Kerajaan Veronia dan pihak peringkat-B generasi sebelumnya tahu tentang itu. Selain itu, ada orang yang tahu tentang Mistome-shi di pihak Veronia dan berusaha menjauhkannya dari Pangeran Sarius?"
 
-"Aku pikir begitu."
+g"Aku pikir begitu."
 
-Itu dengan asumsi proses pemikiran kami akurat hingga saat itu.
+asumsi pemikiran kami mengarah kesitu.
 
-“Klien dari para pembunuh yang tidak terafiliasi itu. Mereka mungkin adalah orang-orang dari Kerajaan Veronia. ”
+g"Klien dari para pembunuh bayaran yang tidak terafiliasi itu. Mereka mungkin adalah orang-orang dari Kerajaan Veronia."
 
 Ada seseorang yang ingin membungkam Mistome-shi sebelum dia berhubungan dengan Pangeran Sarius. Tujuan mereka langsung selaras dengan para pembunuh.
 
-Dan Garadin dan partainya menahan para pembunuh karena mereka takut pembunuh yang tidak terafiliasi akan mengekspos Mistome-shi kepada otoritas Zoltan. Hanya sesama pembunuh, Tise yang akan mengerti bahwa pembunuh yang tidak berafiliasi tidak akan mengungkapkan apapun.
+Dan Garadin dan timnya menahan para pembunuh bayarann karena mereka takut pembunuh bayaran yang tidak terafiliasi akan mengekspos Mistome-shi kepada otoritas Zoltan. Hanya sesama pembunuh, Tise yang akan mengerti bahwa pembunuh yang tidak berafiliasi tidak akan mengungkapkan apapun.
 
-“Jika kita sudah mengetahui sebanyak ini, yang harus dilakukan adalah langsung menemui mereka untuk berbicara.”
+g"Jika kita sudah mengetahui sebanyak ini, yang harus dilakukan adalah langsung menemui mereka untuk berbicara."
 
-“Bertemu langsung dengan mereka?”
+l"Bertemu langsung dengan mereka?"
 
-“Untungnya, saya bertemu dengan Mistome-shi secara langsung. Jejak kakinya dimulai dari toko ini. Dan kami juga memiliki Lit di sini. "
+g"Untungnya, aku bertemu dengan Mistome-shi secara langsung. Jejak kakinya dimulai dari toko ini. Dan kita juga memiliki Lit di sini."
 
-" … Saya melihat."
+l" ... Begitu ya..."
 
-Lit menyeringai.
+Lit tersenyum licik.
 
-“Yup, aku ingat jejak kakinya. Kita bisa berangkat sekarang jika kita ingin mengikuti mereka. "
+l"Yup, aku ingat jejak kakinya. Kita bisa berangkat sekarang jika kita ingin mengikuti mereka."
 
-Mengikuti jejak kaki seseorang yang dia temui beberapa hari yang lalu. Lebih jauh, jejak kaki itu ditemukan di mana orang-orang, meskipun tidak banyak, telah datang dan pergi.
+Mengikuti jejak kaki seseorang yang dia temui beberapa hari yang lalu. jejak kaki itu melokasikan di mana orang-orang, meskipun tidak banyak, telah datang dan pergi.
 
-Biasanya itu tidak mungkin dan kami harus menyerah. Tapi Hero Lit hadir. Spesialisasi perlindungan ilahi Spirit Scout adalah dalam pelacakan dan jika itu Lit, dia bahkan dapat dengan jelas mengidentifikasi sedikit jejak yang tertinggal di batu besar dari sebulan yang lalu.
+Biasanya itu tidak mungkin dan kami harus menyerah. Tapi ada pahlawan Lit disini. Spesialisasi perlindungan ilahi pemandu roh adalah dalam pelacakan dan jika itu Lit, dia bahkan dapat dengan jelas mengidentifikasi sedikit jejak yang tertinggal di batu besar dari sebulan yang lalu.
 
-“Baiklah, mari kita tidur untuk malam ini. Mereka akan berjaga-jaga jika kita bertemu mereka saat larut malam. "
+g"Baiklah, mari kita tidur untuk malam ini. Mereka akan berjaga-jaga jika kita bertemu mereka saat larut malam."
 
-“Bagaimanapun juga mereka akan berjaga-jaga tetapi saya setuju untuk berangkat besok. Saya ingin memberi tahu Ruti dan Tise apa yang kami temukan juga. "
+g"Bagaimanapun juga mereka akan berjaga-jaga tetapi aku setuju untuk berangkat besok. aku ingin memberi tahu Ruti dan Tise apa yang kita temukan juga."
 
-"Saya melihat. Besok, setelah kita sarapan bersama Ruti dan Tise, kita akan berangkat menemui Mistome-shi. ”
+l"begitu ya... Besok, setelah kita sarapan bersama Ruti dan Tise, kita akan berangkat menemui Mistome-shi."
 
-Lit dengan tegas mengangguk menanggapi saran saya.
+Lit dengan tegas mengangguk menanggapi saranku.
