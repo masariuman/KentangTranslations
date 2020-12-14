@@ -6,9 +6,9 @@ Meski jejak Mistome-shi sudah diinjak oleh para pejalan kaki yang menggunakan ja
 
 Dengan bantuan dari sihir roh pandangan pemburu dan aspek serigala, Lit bisa dengan jelas melihat jejak yang tidak bisa kulihat.
 
-'Hunter Insight' adalah mantra yang meningkatkan kemampuan persepsi dengan meningkatkan konsentrasi untuk memperhatikan detail yang bagus.
+'Pandangan Pemburu' adalah sihir yang meningkatkan kemampuan persepsi dengan meningkatkan konsentrasi untuk memperhatikan detail yang bagus.
 
-Sedangkan untuk 'Aspect of the Wolf', pengguna mengambil aspek serigala sedemikian rupa sehingga mereka dapat memperoleh berbagai kemampuan persepsi serigala yang memungkinkan mereka melacak mangsanya.
+Sedangkan untuk 'Aspek Serigala', pengguna mengambil aspek serigala sedemikian rupa sehingga mereka dapat memperoleh berbagai kemampuan persepsi serigala yang memungkinkan mereka melacak mangsanya.
 
 Mantra Aspect termasuk dalam kategori mantra yang disebut mantra Transformasi. Mereka adalah mantra yang memberikan sebagian dari kemampuan target dengan menggunakan fitur mereka. Di dalam mantra transformasi, ada empat jenis, Power, Aspect, Form, dan Shape.
 
