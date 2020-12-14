@@ -118,41 +118,41 @@ Melihat Ademi mengatakan itu sambil tersenyum, Lit tersenyum dengan mata menyipi
 
 ☆☆
 
-“Dia juga tidak datang ke pos jaga?”
+g"Dia juga tidak datang ke pos jaga?"
 
-Saya menyadari bahwa saya telah berbicara dengan keras tanpa menyadarinya.
+aku menyadari bahwa aku telah berbicara dengan keras tanpa menyadarinya.
 
-"Maaf, saya sedikit terkejut."
+g"Maaf, aku sedikit terkejut."
 
-Wajah cemberut penjaga tua itu melunak sedikit setelah saya meminta maaf.
+Wajah cemberut penjaga tua itu melunak sedikit setelah aku meminta maaf.
 
 Lit dan aku berada di pos jaga. Tentu, tujuan kami adalah bertemu Moen. Untuk berbicara tentang percobaan pembunuhan Mistome-shi, kapal perang Veronia dan untuk membantu menyampaikan pesan Ademi.
 
-Namun, Moen tidak ada di sana. Tidak hanya itu …
+Namun, Moen tidak ada di sana. Tidak hanya itu ...
 
-Kapten Penjaga belum mampir hari ini.
+"Kapten Penjaga belum datang hari ini."
 
-"Bahkan tidak sekali?"
+g"Bahkan tidak sama sekali?"
 
-"Iya. Kemarin setelah kapal perang Veronia terlihat, dia hanya datang sekali di malam hari untuk menginstruksikan kami agar bersiaga dan menjaga keamanan. "
+"Iya. Kemarin setelah kapal perang Veronia terlihat, dia hanya datang sekali di malam hari untuk menginstruksikan kami agar bersiaga dan menjaga keamanan."
 
-“Mengikuti keputusan yang dibuat di KTT hari ini, dia seharusnya mengadakan latihan jika kapal perang Veronia menyerang desa-desa di dekat pantai saat dalam keadaan siaga.”
+g"Mengikuti keputusan hari ini, dia seharusnya mengadakan latihan jika kapal perang Veronia menyerang desa-desa di dekat pantai saat dalam keadaan siaga."
 
-“Aku belum pernah mendengar tentang itu… bagaimana kamu tahu itu?”
+“Aku belum pernah mendengar tentang itu... bagaimana kamu tahu itu?”
 
-Adik perempuan saya menghadiri pertemuan itu.
+g"Adik perempuanku menghadiri pertemuan itu."
 
 "Ah, Ruru-san huh ... Red juga membantu ya?"
 
-Bibir penjaga itu menyeringai saat aku mengangguk.
+Bibir penjaga itu tertawa kecil saat aku mengangguk.
 
-“Saya tidak tahu. Jadi akhirnya apakah kamu kuat? Atau lemah? "
+"aku tidak bisa tahu apakaj apakah kamu kuat? Atau lemah?"
 
-“Tentu saja tidak sebatas adik perempuanku. Nah, saya di sini hanya untuk bertanya tentang Penjaga Kapten Moen. "
+g"Tentu saja tidak sekuat adik perempuanku. Nah, aku di sini hanya untuk bertanya tentang Penjaga Kapten Moen."
 
-Selama kasus perlindungan dewa Iblis, tercatat dalam laporan Kapten Penjaga bahwa saya mengirim lengan Albert terbang dan menyelamatkan Al dan Ademi dari rumah Big Hawk. Namun, putusan itu karena Hero Lit ada bersamaku saat itu.
+Selama kasus perlindungan dewa Iblis, tercatat dalam laporan Kapten Penjaga bahwa aku memotong lengan Albert dan menyelamatkan Al dan Ademi dari rumah Big Hawk. Namun, itu karena Hero Lit ada bersamaku saat itu.
 
-Sama seperti insiden dengan Albert, mereka seharusnya sadar bahwa Lit tidak ada di tempat kejadian tapi… Yah, mereka mungkin mengalami kesulitan mengevaluasi kemampuanku sejak aku pensiun dan menjalankan apotek.
+Sama seperti insiden dengan Albert, mereka seharusnya sadar bahwa Lit tidak ada di tempat kejadian tapi... Yah, mereka mungkin mengalami kesulitan mengevaluasi kemampuanku sejak aku pensiun dan menjalankan apotek.
 
 "Begitu, jadi Moen belum datang ke sini."
 
