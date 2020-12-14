@@ -84,13 +84,13 @@ Beberapa bulan setelah Apotek Red & Lit dibuka, aku tidak menerima permintaan un
 
 Kali ini, pengalaman itu berguna.
 
-"Lit dan aku menyelidiki apakah Mistome-shi dan yang lainnya punya hubungan dengan Veronia."
+g"Lit dan aku menyelidiki apakah Mistome-shi dan yang lainnya punya hubungan dengan Veronia."
 
-“Terima kasih atas bantuanmu, Onii-chan.”
+r"Terima kasih atas bantuanmu, Onii-chan."
 
-"Aku berjanji pada Ruti bahwa aku akan bertanya pada Moen."
+g"yaah Aku berjanji pada Ruti bahwa aku akan bertanya pada Moen."
 
-“Mmm.”
+r"Mmm."
 
 Ruti tersenyum tipis saat aku mengatakan itu.
 
