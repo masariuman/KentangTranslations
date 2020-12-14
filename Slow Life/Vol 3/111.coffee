@@ -10,91 +10,91 @@ Dengan bantuan dari sihir roh pandangan pemburu dan aspek serigala, Lit bisa den
 
 Sedangkan untuk 'Aspek Serigala', pengguna mengambil aspek serigala sedemikian rupa sehingga mereka dapat memperoleh berbagai kemampuan persepsi serigala yang memungkinkan mereka melacak mangsanya.
 
-Mantra Aspect termasuk dalam kategori mantra yang disebut mantra Transformasi. Mereka adalah mantra yang memberikan sebagian dari kemampuan target dengan menggunakan fitur mereka. Di dalam mantra transformasi, ada empat jenis, Power, Aspect, Form, dan Shape.
+sihir aspek termasuk dalam kategori sihir yang disebut sihir Transformasi. Mereka adalah sihir yang memberikan sebagian dari kemampuan target dengan menggunakan fitur mereka. Di dalam sihir transformasi, ada empat jenis, kekuatan, aspek, tampilan, dan bentuk.
 
-Kekuatan adalah mantra untuk memperoleh sebagian dari kemampuan fisik target transformasi dan tidak mengubah penampilan kastor sama sekali. Itu adalah mantra yang murni meningkatkan kekuatan otot. Misalnya, 'Power of the Wolf' akan menambah kekuatan otot serigala dan kelincahan mereka pada kemampuan pengguna.
+Kekuatan adalah sihir untuk memperoleh sebagian dari kemampuan fisik target transformasi dan tidak mengubah penampilan pemakai sama sekali. Itu adalah sihir yang murni meningkatkan kekuatan otot. Misalnya, 'Kekuatan Serigala' akan menambah kekuatan otot serigala dan kelincahan mereka pada kemampuan pengguna.
 
-Sebaliknya, mantra dari Aspect dan seterusnya akan mengubah penampilan pengguna menjadi target. 'Bentuk Serigala' akan menyebabkan pengguna muncul sebagai serigala berkaki dua, campuran antara manusia dan serigala. 'Shape of the Wolf' akan sepenuhnya mengubah tampilan pengguna menjadi serigala.
+Sebaliknya, sihir dari aspek dan lainnya akan mengubah penampilan pengguna menjadi target. 'Bentuk Serigala' akan menyebabkan pengguna muncul sebagai serigala berkaki dua, campuran antara manusia dan serigala. 'Bentuk Serigala' akan sepenuhnya mengubah tampilan pengguna menjadi serigala.
 
-Dalam hal ini, 'Aspek Serigala' akan ...
+Dalam hal ini, 'Aspek Serigala' ...
 
-"Cara ini."
+l"Lewat sini."
 
-Berjalan di depan kami, ekor serigala yang bergoyang perlahan mengintip dari bawah rok Lit. Telinga serigala disangga di atas kepalanya.
+Berjalan di depan kami, ekor serigala yang bergoyang perlahan terlihat dari bawah rok Lit. Telinga serigala berada di atas kepalanya.
 
-Dengan mantra Aspect, aspek tertentu dari target akan muncul seperti itu.
+Dengan sihir aspek, aspek tertentu dari target akan muncul seperti itu.
 
-Itu agak… lucu. Saya merasa ingin membelai kepalanya tanpa alasan.
+Itu agak... Imut. aku merasa ingin membelai kepalanya tanpa alasan.
 
-"?"
+l"?"
 
-Lit berbalik seolah dia memperhatikan tatapanku. Seperti yang diharapkan dari indera serigala. Aku menjabat tanganku untuk menunjukkan tidak ada yang salah dan mengalihkan pandanganku dari Lit sambil merasa sedikit malu.
+Lit berbalik seolah dia memperhatikan tatapanku. Seperti yang diharapkan dari indera serigala. Aku memegang tanganku untuk menunjukkan tidak ada yang salah dan mengalihkan pandanganku dari Lit sambil merasa sedikit malu.
 
-Lit itu luar biasa.
+r"Lit luar biasa."
 
-Ruti tampak terkesan. Sekarang aku memikirkannya, Ares buruk dengan sihir transformasi jadi dia sama sekali tidak menggunakannya. Yarandorara hanya bisa menggunakan mantra yang mengendalikan tanaman sehingga dia tidak bisa menggunakannya dan Biara Sihir hanya memiliki sihir transformasi Kekuatan sehingga Theodora juga tidak bisa menggunakannya. Dan selain tidak bisa menggunakan sihir transformasi, Ruti memiliki ketahanan penuh terhadap sihir transformasi.
+Ruti tampak terkesan. Sekarang aku memikirkannya, Ares buruk dengan sihir transformasi jadi dia sama sekali tidak menggunakannya. Yarandorara hanya bisa menggunakan sihir yang mengendalikan tanaman sehingga dia tidak bisa menggunakannya dan Sihir perjanjian hanya memiliki sihir transformasi Kekuatan sehingga Theodora juga tidak bisa menggunakannya. Dan selain tidak bisa menggunakan sihir transformasi, Ruti memiliki ketahanan penuh terhadap sihir transformasi.
 
-『Pahlawan』 adalah perlindungan ilahi terkuat umat manusia tetapi itu tidak mahakuasa selain dari kemampuan tempurnya. Meskipun demikian, ini berkinerja di atas rata-rata untuk semua aspek tetapi Lit masih lebih baik dalam hal pelacakan.
+『Pahlawan』 adalah perlindungan ilahi terkuat umat manusia tetapi itu tidak mahakuasa selain dari kemampuan tempurnya. Meskipun demikian, itu bekerja di atas rata-rata untuk semua aspek tetapi Lit masih lebih baik dalam hal pelacakan.
 
-Saat ini, Lit, Ruti, Tise dan aku sedang melacak jejak Mistome-shi. Ruti dan Tise sepertinya telah mendengar tentang Mistome-shi dan cerita party jadi mereka segera bergabung untuk mencari mereka.
+Saat ini, Lit, Ruti, Tise dan aku sedang melacak jejak Mistome-shi. Ruti dan Tise sepertinya telah mendengar tentang Mistome-shi dan timnya jadi mereka segera bergabung untuk mencari mereka.
 
 Tampaknya penyelidikan dari pihak Ruti sudah selesai dan yang harus mereka lakukan hanyalah menunggu jawaban dari pihak gereja Veronia yang telah mereka kirimkan surat untuk didengar langsung dari sudut pandang pihak Veronia.
 
-Maka, Ruti dan Tise bergabung dengan kami untuk mencari Mistome-shi dan party.
+Maka, Ruti dan Tise bergabung dengan kami untuk mencari Mistome-shi dan timnya.
 
 Malam itu, setelah Mistome-shi pergi ke Guild Petualang, mereka pergi ke rumah Garadin untuk bermalam.
 
-Keesokan paginya, mereka pergi ke gereja tempat Uskup Cien berada dan beberapa jam kemudian mereka meninggalkan kota dengan menunggang kuda.
+Keesokan paginya, mereka pergi ke gereja tempat Pendeta Cien berada dan beberapa jam kemudian mereka meninggalkan kota dengan menunggang kuda.
 
-"Itu adalah hari kedatangan kapal perang Veronia."
+t"Itu adalah hari kedatangan kapal perang Veronia."
 
 Kata Tise.
 
-Dia benar. Ketika kapal itu datang, Mistome-shi dan party meninggalkan Zoltan untuk sementara.
+Dia benar. Ketika kapal itu datang, Mistome-shi dan timnya meninggalkan Zoltan untuk sementara.
 
-“Mereka semua bisa dihitung sebagai tokoh sentral di Zoltan. Mengapa mereka berpesta dan meninggalkan Zoltan? ”
+g"Mereka semua bisa dihitung sebagai tokoh utama di Zoltan. Mengapa mereka setim dan meninggalkan Zoltan?"
 
-“Baik Garadin, Moen atau Uskup Cien tidak memiliki rasa tanggung jawab. Mereka juga menyukai Zoltan sebagai negara asal mereka. ”
+l"Baik Garadin, Moen atau Pendeta Cien tidak memiliki rasa tanggung jawab. Mereka juga menyukai Zoltan sebagai negara asal mereka."
 
 Namun demikian, tindakan mereka tampaknya tidak bertanggung jawab.
 
 Dengan kata lain, mereka yakin Veronia tidak datang untuk menyakiti Zoltan.
 
-Saya bisa memahami tindakan mereka jika itu masalahnya. Dari insiden perlindungan ilahi Iblis, saya bisa mengatakan cinta Moen terhadap keluarganya dan kemarahan Garadin terhadap Albert dan teman-temannya yang mengganggu kedamaian Zoltan dan perasaan itu tidak dangkal.
+aku bisa memahami tindakan mereka jika itu masalahnya. Dari insiden perlindungan ilahi Iblis, aku bisa mengatakan cinta Moen terhadap keluarganya dan kemarahan Garadin terhadap Albert dan teman-temannya yang mengganggu kedamaian Zoltan dan perasaan itu tidak dangkal.
 
 Mereka tahu bahwa tidak akan ada masalah meskipun mereka meninggalkan Zoltan.
 
 Lit mengangguk, yakin dengan interpretasi kami atas tindakan mereka.
 
-Kami meninggalkan Zoltan dan jalan setapak dilanjutkan dari jalan raya berumput ke hutan. Jalan setapak itu dilalui dengan baik tetapi itu adalah jalan berlumpur dengan kondisi buruk yang akan menodai sepatu pelancong.
+Kami meninggalkan Zoltan dan jalan setapak dilanjutkan dari jalan raya berumput ke hutan. Jalan setapak itu dilalui dengan baik tetapi itu adalah jalan berlumpur dengan kondisi buruk yang akan menodai sepatu petualang.
 
 Tampaknya itu adalah jalan yang sulit untuk dilalui dengan kereta.
 
-Jejak kakinya telah diawetkan dengan sangat jelas.
+Jejak kakinya nampak dengan sangat jelas.
 
-Bahkan saya bisa melihat mereka dengan jelas.
+Bahkan aku bisa melihat dengan jelas.
 
 Ada bukti kuda berjalan melalui jalan berlumpur beberapa kali baru-baru ini.
 
-“Tapi hutan ya, saya belum pernah ke sini sebelumnya.”
+g"Tapi hutan ya, aku belum pernah ke sini sebelumnya."
 
 Sekitar dua jam berjalan kaki ke barat laut Zoltan.
 
 Mungkin karena tidak cukup nutrisi di lahan basah yang ditemukan di sini, pepohonan menjadi tipis dan bengkok. Itu membuat hutan terlihat menakutkan sehingga penduduk Zoltan menyebarkan rumor bahwa monster pemakan manusia seperti perempuan mengintai di dalam hutan.
 
-“Pertama-tama, tidak ada yang pernah melihat perempuan tua. Ini lebih seperti slogan yang digunakan saat memarahi anak-anak. Bahwa jika mereka tidak berperilaku, wanita hutan akan menculik dan menyeret mereka pergi. "
+g"Pada dasarnya, tidak ada yang pernah melihat perempuan tua. Ini lebih seperti slogan yang digunakan saat memarahi anak-anak. Bahwa jika mereka nakal, wanita hutan akan menculik dan menyeret mereka pergi."
 
-“Kami juga memiliki itu di Logavia. Aku tidak diberitahu sebelumnya tapi hantu Peri Hutan dari Hutan Penipuan akan menculik dan menyeretmu ke dalam lubang yang dingin dan gelap. "
+l"Kami juga memiliki cerita seperti itu di Logavia. Aku tidak diberitahu sebelumnya tapi hantu wood-elf dari Hutan Penipuan akan menculik dan menyeretmu ke dalam lubang yang dingin dan gelap."
 
-“Di desa saya juga, mereka akan memberi tahu anak-anak bahwa ogre akan turun dari gunung dan mengunyah mereka.”
+t"Di desaku juga, mereka akan memberi tahu anak-anak bahwa ogre akan turun dari gunung dan mengunyah mereka."
 
-“Eh, jadi sama saja di mana-mana.”
+g"Eh, jadi sama saja di mana-mana."
 
 Telinga serigala di kepala Lit bergerak-gerak.
 
-Aku mendengar sesuatu.
+l"Aku mendengar sesuatu."
 
-“Yup, aku juga mendengarnya.”
+g"Yup, aku juga mendengarnya."
 
 Ruti menghunus pedangnya juga. Tise memegang pisau lempar dan aku meletakkan tanganku di gagang pedangku.
 
@@ -130,9 +130,9 @@ Dalam hal itu,
 
 Genangan lendir hijau terus berlanjut ke dalam hutan. Itu adalah darah Kabut Horor dari lukanya.
 
-“Kalau begitu, aku tidak membutuhkan mantra ini lagi.”
+“Kalau begitu, aku tidak membutuhkan sihir ini lagi.”
 
-Lit berkonsentrasi untuk menghilangkan mantranya.
+Lit berkonsentrasi untuk menghilangkan sihirnya.
 
 “Ah, tunggu.”
 
@@ -152,6 +152,6 @@ Mata Lit langsung membulat karena terkejut sebelum dia dengan cepat menerimanya 
 
 Saya senang. Tapi bagian dalam roknya akan terlihat jadi saya memutuskan untuk tidak melakukannya lagi ketika mereka ada di sekitar.
 
-Pada akhirnya, kami melanjutkan tanpa Lit membatalkan mantranya.
+Pada akhirnya, kami melanjutkan tanpa Lit membatalkan sihirnya.
 
 Lit berjalan di sampingku dan ekornya bergoyang-goyang kegirangan.
