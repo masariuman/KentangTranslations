@@ -154,43 +154,43 @@ Selama kasus perlindungan dewa Iblis, tercatat dalam laporan Kapten Penjaga bahw
 
 Sama seperti insiden dengan Albert, mereka seharusnya sadar bahwa Lit tidak ada di tempat kejadian tapi... Yah, mereka mungkin mengalami kesulitan mengevaluasi kemampuanku sejak aku pensiun dan menjalankan apotek.
 
-"Begitu, jadi Moen belum datang ke sini."
+g"Begitu, jadi Moen belum datang ke sini."
 
 Itu pasti tidak wajar.
 
-“Apakah para penjaga melindungi Mistome-shi?”
+g"Apakah para penjaga melindungi Mistome-shi?"
 
-“Mistome-shi? Walikota sebelumnya? Apa yang sedang Anda bicarakan?"
+"Mistome-shi? Walikota sebelumnya? Apa yang sedang kamu bicarakan?"
 
-"Apa? Anda belum mendengar dari Moen? ”
+g"Apa? Anda belum mendengar dari Moen?"
 
 Penjaga itu memiringkan kepalanya dengan bingung.
 
 Apa yang sedang terjadi?
 
-"Bagaimana dengan para pembunuh yang ditangkap kemarin?"
+g"Bagaimana dengan para pembunuh bayaran yang ditangkap kemarin?"
 
-Pembunuh?
+"Pembunuh barayn?"
 
-Orang-orang yang ditangkap oleh petualang tingkat-B Tifa.
+g"Orang-orang yang ditangkap oleh petualang tingkat-B Tifa."
 
-“Ah, Pastor Cien dan Guild Petualang Garadin datang untuk menjemput preman itu. Saya mendengar mereka adalah petualang dengan perilaku buruk yang datang ke Zoltan baru-baru ini. Tampaknya, guild akan menguliahi mereka. ”
+“Ah, Pendeta Cien dan Guild Petualang Garadin datang untuk menjemput preman itu. aku mendengar mereka adalah petualang dengan perilaku buruk yang datang ke Zoltan baru-baru ini. Tampaknya, guild akan mengurus mereka.”
 
-"Kuliah? Mereka adalah para pembunuh yang tidak terafiliasi, tahu !? ”
+g"mengurus? Mereka adalah para pembunuh bayaran yang tidak terafiliasi ! "
 
-“Pembunuh yang tidak terafiliasi? Aku sedang tidak bertugas tadi malam jadi aku tidak tahu detailnya tapi… apakah kamu serius? ”
+“Pembunuh bayaran yang tidak terafiliasi? Aku sedang tidak bertugas tadi malam jadi aku tidak tahu detailnya tapi... apakah kamu serius? ”
 
-“Ya, aku mendengarnya dari Tifa jadi aku yakin. Terlebih lagi, Tifa pasti akan memberitahu para penjaga bahwa mereka adalah pembunuh yang tidak terafiliasi. ”
+g"Ya, aku mendengarnya dari Tifa jadi aku yakin. Terlebih lagi, Tifa pasti akan memberitahu para penjaga bahwa mereka adalah pembunuh bayaran yang tidak terafiliasi."
 
-“Orang yang bertanggung jawab adalah… beri aku waktu.”
+“Orang yang bertanggung jawab untuk itu... sebentar, beri aku waktu.”
 
 Penjaga itu dengan cepat berlari ke dalam dan dengan keras memanggil penjaga lain.
 
-Mungkin dia sedang makan malam saat penjaga datang dengan membawa seteguk roti.
+Mungkin dia sedang makan malamnya karena penjaga tersebut datang dengan membawa seteguk roti.
 
 "Munch munch"
 
-Oi!
+"Oi!"
 
 Setelah dipelototi oleh penjaga tua yang berbicara dengan kami, penjaga lainnya segera menelan roti.
 
@@ -198,35 +198,35 @@ Setelah dipelototi oleh penjaga tua yang berbicara dengan kami, penjaga lainnya 
 
 “Apa yang kamu dengar dari petualang Tifa-san tentang orang-orang yang ditangkap kemarin !?”
 
-“Eh erm…”
+“Eh erm...”
 
-Mata penjaga muda itu berenang dengan gelisah. Gerakan itu menyebabkan penjaga tua itu mengangkat alisnya.
+Mata penjaga muda itu nampak gelisah. Gerakan itu menyebabkan penjaga tua itu mengangkat alisnya.
 
-“A-aku diberitahu bahwa mereka adalah pembunuh yang tidak terafiliasi! Tapi kemudian Garadin-san dan Pastor Cien datang! Mereka memberitahuku bahwa mereka adalah petualang yang datang ke Zoltan baru-baru ini! Kemudian… mereka mengatakan kepada saya bahwa mereka akan menangani mereka jadi saya menyerahkan mereka !! ”
+“A-aku diberitahu bahwa mereka adalah pembunuh bayaran yang tidak terafiliasi! Tapi kemudian Garadin-san dan Pendeta Cien datang! Mereka memberitahuku bahwa mereka adalah petualang yang datang ke Zoltan baru-baru ini! Kemudian... mereka mengatakan kepadaku bahwa mereka akan menangani mereka jadi aku menyerahkan mereka !!”
 
-Lit dan saya berdiskusi sambil mendengarkan penjaga muda itu diajar dengan buruk.
+Lit dan aku berdiskusi sambil mendengarkan penjaga muda itu dimarahi.
 
-“Pertama, apa kemungkinan bahwa para pembunuh yang tidak terafiliasi menipu Garadin dan Pastor Cien dengan sertifikat petualang?”
+g"Pertama, berapa kemungkinan bahwa para pembunuh bayaran yang tidak terafiliasi menipu Garadin dan Pendeta Cien dengan sertifikat petualang?"
 
-“Itu seharusnya tidak mungkin. Bagaimanapun, Mistome-shi dilindungi di tempat Garadin kan? Karena dia mendengar tentang situasi dari Mistome-shi, seharusnya tidak mungkin dia tertipu. ”
+l"Itu seharusnya tidak mungkin. Bagaimanapun, Mistome-shi dilindungi di tempat Garadin kan? Karena dia mendengar tentang situasi dari Mistome-shi, seharusnya tidak mungkin dia tertipu."
 
-"Itu benar. Dalam hal ini, Garadin dan Pastor Cien bisa menjadi teman si pembunuh atau klien mereka. "
+g"Itu benar. Dalam hal ini, Garadin dan Pendeta Cien bisa menjadi teman si pembunuh atau klien mereka. "
 
-“Saya juga merasa itu tidak mungkin. Saya tidak dapat mengatakan dengan pasti tanpa mengetahui hubungan mereka tetapi saya mendengar bahwa Garadin dan yang lainnya di party itu rukun dan terkenal di antara petualang C-rank dan di atas bahwa Garadin akan selalu memuji Mistome-shi setiap kali dia minum alkohol. . ”
+g"aku juga merasa itu tidak mungkin. aku tidak dapat mengatakan dengan pasti tanpa mengetahui hubungan mereka tetapi aku mendengar bahwa Garadin dan yang lainnya di tim itu rukun dan terkenal di antara petualang peringkat-C dan juga bahwa Garadin akan selalu memuji Mistome-shi setiap kali dia minum alkohol..."
 
-“Itu benar, Garadin tampaknya bukan tipe orang yang akan melakukan pembunuhan.”
+l"Itu benar, Garadin tampaknya bukan tipe orang yang akan melakukan pembunuhan."
 
-Hanya tugas kecil untuk berbicara dengan Moen berubah menjadi kasus yang mengakar begitu dalam.
+Hanya hal kecil untuk berbicara dengan Moen berubah menjadi kasus yang mengakar begitu dalam.
 
-“Merah, apa yang kita lakukan dari sini? Sepertinya situasinya aneh. "
+l"red, apa yang kita lakukan dari sini? Sepertinya situasinya aneh."
 
-"... Saya mengatakan kepada Ruti bahwa saya akan bertanya pada Moen."
+g"... aku mengatakan kepada Ruti bahwa aku akan bertanya pada Moen."
 
-Aku tidak ingin kembali sebagai petualang tapi…
+Aku tidak ingin kembali sebagai petualang tapi...
 
-“Saya ingin setidaknya menepati janji saya. Saya kira saya akan memberikan semangat ke dalamnya? "
+g"aku ingin setidaknya menepati janjiku. aku kira aku akan mencoba bersemangat?"
 
-“Ya, aku membayangkan kamu akan mengatakan itu.”
+l"Ya, aku sudah menduga kamu akan mengatakan itu."
 
 Lit tertawa dan mengangguk.
 
