@@ -191,3 +191,5 @@ Republik Zoltan tidak lebih dari sebuah negara kota yang didirikan oleh para per
 "Kalau begitu, silahkan pandu saya untuk masuk."
 
 Meski suaranya sedikit bergetar, walikota tersenyum ke arah Ririnrara dan menjawabnya.
+
+<gambar> vol6 06.jpg

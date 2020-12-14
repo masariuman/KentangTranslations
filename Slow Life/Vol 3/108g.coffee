@@ -93,6 +93,8 @@ Tise berterima kasih kepada rekannya yang kecil namun dapat diandalkan yang meny
 
 Ugeuge-san dengan lembut menggerakkan kedua lengannya seolah menunjukkan bahwa itu adalah tugas yang mudah.
 
+<gambar> vol6 08.jpg
+
 ☆☆
 
 Suara sesuatu yang mengetuk lantai papan kayu bisa terdengar.
@@ -117,12 +119,12 @@ Namun, gadis kecil yang menjadi pengawal walikota dengan baik menangkis serangan
 
 "Jangan meremehkan negara ini. Senyuman itu mengandung arti itu. "
 
-Menambah rencana Zoltan untuk mendapatkan waktu yang mereka angkat, dia harus setuju bahwa Zoltan bukanlah lawan yang semudah yang mereka kira. Ririnrara merasa perlu untuk melakukan penyelidikan menyeluruh terhadap para pahlawan Zoltan dan mengambil tindakan terhadap mereka.
+Menambah rencana Zoltan untuk mendapatkan waktu yang mereka minta, dia setuju bahwa Zoltan bukanlah lawan yang semudah yang mereka kira. Ririnrara merasa perlu untuk melakukan penyelidikan menyeluruh terhadap para pahlawan Zoltan dan mengambil tindakan terhadap mereka.
 
-“Saya ceroboh dalam menyelidiki harta macam apa yang dimiliki orang-orang yang tinggal di sini. Itu salah langkah yang memalukan sebagai bajak laut. "
+"aku ceroboh dalam menyelidiki harta macam apa yang dimiliki orang-orang yang tinggal di sini. Itu salah langkah yang memalukan sebagai bajak laut. "
 
 Bibir Ririnrara meregang secara horizontal. Senyuman garang yang belum ditunjukkan Ririnrara belakangan ini terlihat di wajahnya.
 
-"Ayo!"
+"Ayo Maju!"
 
 Ririnrara bergumam tajam dan mulai mempertimbangkan peran mana yang akan diberikan kepada siapa saat dia memikirkan bawahannya yang dia bawa.
