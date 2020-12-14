@@ -172,12 +172,10 @@ Catatan penulis (Zappon):
 
 Bagaimana? Ini buku panduan strategi Zappon?
 
-Saya mungkin akan menulisnya dengan probabilitas di bawah angka desimal untuk memunculkan rute kelangsungan hidup Gideon.
+aku mungkin menulisnya dengan probabilitas di bawah angka desimal untuk memunculkan rute kelangsungan hidup Gideon.
 
- 
+aku akhirnya menulis pengaturan rinci yang tidak ada gunanya untuk Dunia Palsu (Tertawa)
 
-Saya akhirnya menulis pengaturan rinci yang tidak ada gunanya untuk Dunia Palsu (Tertawa)
+Hampir semua karakter akan ada dan disebutkan di suatu tempat dalam novel yang sebenarnya kecuali yang terakhir yaitu karakter ???.
 
-Hampir semua karakter akan ada dan disebutkan di suatu tempat dalam novel yang sebenarnya kecuali yang terakhir ??? karakter.
-
-Saya harap Anda menikmati cerita sampingan kecil ini!
+aku harap kamu menikmati cerita sampingan kecil ini!
