@@ -1,19 +1,16 @@
-Bab 108: Bajak Laut Wanita dalam kekaguman
-
-Penerjemah: Tseirp
-
+Bab 108: Bajak Laut Wanita terkagum-kagum
 
 Pangeran Sarius, Ririnrara, dan Walikota Tonedo duduk mengelilingi meja.
 
-Di belakang pangeran ada dua penjaga High-Elf. Pedang yang tak terhitung jumlahnya dan luka bakar yang melintas di wajah elf elf mereka menunjukkan bahwa mereka adalah marinir veteran yang telah melalui pertempuran yang menakutkan.
+Di belakang pangeran ada dua penjaga High-Elf. Pedang yang tak terhitung jumlahnya dan luka bakar yang melintas di wajah elf mereka menunjukkan bahwa mereka adalah marinir veteran yang telah melalui pertempuran yang menakutkan.
 
-“Nah, apakah kamu membawa kabar baik?”
+“apakah kamu membawa kabar baik?”
 
 Pangeran berkata dengan nada ramah tetapi tatapannya seolah-olah dia sedang melihat makhluk kurang ajar yang memasuki rumahnya sendiri.
 
-Walikota sedikit mengernyit karena ketidaksenangan tetapi senyumnya tidak hancur.
+Walikota sedikit mengerutkan kening karena ketidaksenangan tetapi senyumnya tidak hancur.
 
-“Masalahnya, kami menghadapi reaksi keras dari gereja. Bagaimanapun, belum ada preseden untuk ini. Saya berharap untuk pengertian Anda. Saat ini, kami mencoba meyakinkan uskup. Saya datang hari ini untuk memberi tahu Anda bahwa saya yakin kami akan memiliki jawaban yang baik jika kami diberi lebih banyak waktu. Uskup, pada kenyataannya, memahami situasi Anda tetapi dia harus menunjukkan beberapa penolakan terhadapnya. Ya, tidak ada masalah. Itu semua akan terselesaikan jika kita punya lebih banyak waktu. Eselon atas Zoltan ingin membantu Pangeran Sarius Veronia dalam permintaan Anda dengan segala cara. "
+"Masalahnya, kami menghadapi reaksi keras dari gereja. belum ada preseden untuk ini. aku berharap untuk pengertianmu. Saat ini, kami mencoba meyakinkan pendeta. aku datang hari ini untuk memberi tahumu bahwa aku yakin kami akan memiliki jawaban yang baik jika kami diberi lebih banyak waktu. pendeta, pada kenyataannya, memahami situasiku tetapi dia menunjukkan beberapa penolakan terhadapnya. Ya, tidak ada masalah. Itu semua akan terselesaikan jika kita punya lebih banyak waktu. Eselon atas Zoltan ingin membantu Pangeran Sarius Veronia dalam permintaanmu dengan segala cara."
 
 Walikota menggunakan sapu tangan untuk menyeka keringat di dahinya setelah dia selesai berbicara.
 
