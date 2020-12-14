@@ -22,7 +22,7 @@ aku menuju dapur untuk menyiapkan kopi yang diisi dengan gula sebagai apresiasi 
 
 45 tahun yang lalu.
 
-Para goblin di benua itu tiba-tiba melancarkan pemberontakan terkoordinasi dan meskipun Ordo Ksatria Bahamut membunuh Raja Goblin Besar Murgarga, sisa-sisa pasukan goblin masih menyia-nyiakan permukiman di seluruh benua.
+Para goblin di benua itu tiba-tiba melancarkan pemberontakan terkoordinasi dan meskipun ksatria Ordo Bahamut membunuh Raja Goblin Besar Murgarga, sisa-sisa pasukan goblin masih ada di permukiman di seluruh benua.
 
 Para goblin yang dikalahkan dalam perang melawan pasukan Kerajaan Avalonia melarikan diri ke perbatasan satu per satu.
 
@@ -30,7 +30,7 @@ Zoltan yang tadinya damai juga tidak luput dari serangan tentara goblin yang mas
 
 Petualang muda Garadin dan Cien bertarung melawan lebih dari sepuluh goblin.
 
-“Hei Cien! Apa bala bantuan belum datang ?! ”
+“Hei Cien! Apa bala bantuan belum datang ?!”
 
 Garadin berteriak. Para goblin dilengkapi dengan tombak, pedang, busur, dan baju besi dan jelas lebih kuat dari para goblin yang biasa mereka lawan di Zoltan.
 
@@ -38,13 +38,13 @@ Mereka telah meningkatkan level perlindungan ilahi mereka dengan bertarung dan m
 
 “Hai-ha !!!”
 
-Para goblin mengangkat teriakan perang dan menyerang. Garadin mengayunkan palu di tangannya dan menghancurkan kepala goblin yang melompat lebih dulu.
+Para goblin berteriak dengan teriakan perang mereka dan menyerang. Garadin mengayunkan palu di tangannya dan menghancurkan kepala goblin yang melompat lebih dulu.
 
-Dia meninju goblin kedua dengan tangan kirinya dilindungi oleh tantangan. Setelah menyerang goblin ketiga di rahangnya dengan palu dan menjepit tombak goblin keempat di antara lengan kiri dan tubuh, Garadin akhirnya berhenti bergerak.
+Dia meninju goblin kedua dengan tangan kirinya. Setelah itu menyerang goblin ketiga di rahangnya dengan palu dan menjepit tombak goblin keempat di antara lengan kiri dan tubuh, Garadin akhirnya berhenti bergerak.
 
 Enam tombak ditusukkan ke arahnya dan Garadin membeku sesaat karena takut mati.
 
-"Dimension Whip!"
+"Cambuk Dimensi!"
 
 Sosok Garadin bergeser dan menghilang.
 
@@ -52,7 +52,7 @@ Kemudian, dia muncul 10 meter di belakang posisi aslinya.
 
 "Ledakan Suci!"
 
-Cien secara berurutan menembakkan mantra cahaya suci. Dia meraih tangan Garadin selama celah ketika para goblin tersentak karena cahaya dan panas.
+Cien secara berurutan menembakkan mantra cahaya suci. Dia meraih tangan Garadin ketika para goblin tersentak karena cahaya dan panas.
 
 “Ayo mundur!”
 
@@ -60,21 +60,21 @@ Cien secara berurutan menembakkan mantra cahaya suci. Dia meraih tangan Garadin 
 
 Para goblin tidak lebih dari satu regu. Mereka tidak tahu jumlah totalnya tetapi ada laporan bahwa ada lebih dari seratus. Lokasi itu bukanlah situasi yang baik untuk mempertaruhkan nyawa mereka.
 
-“Goblin itu… menjarah negara kita!”
+“Goblin itu... menjarah negara kita!”
 
-Krisis seperti itu tidak cocok untuk Zoltan. Zoltan harus menjadi tempat yang lebih damai, riang, dan membosankan. Garadin gemetar karena marah.
+Krisis seperti itu tidak cocok untuk Zoltan. Zoltan harusnya menjadi tempat yang lebih damai, riang, dan membosankan. Garadin gemetar karena marah.
 
-Namun, situasinya tidak ada harapan. Meskipun lawannya adalah sisa, mereka adalah tentara goblin yang bersaing dengan elit pengendara drake. Prajurit Zoltan yang lahir di dunia yang damai tidak bisa bersaing dengan mereka.
+Namun, situasinya tidak ada harapan. Meskipun lawannya adalah sisa goblin, mereka adalah tentara goblin yang bersaing dengan penunggang drake elit. Prajurit Zoltan yang lahir di dunia yang damai tidak bisa bersaing dengan mereka.
 
 Saat mereka melihat para goblin mengalahkan kelompok peringkat B Zoltan pada saat itu dan mengangkat kepala mereka sebagai bendera pertempuran mungkin saat Zoltan kalah.
 
 Tentara Zoltan tidak melakukan serangan mendadak meskipun pemukiman diserang. Semua orang takut.
 
-“Garadin. Tidak ada bala bantuan. "
+"Garadin. Tidak ada bala bantuan. "
 
-"Mengapa!? Lawannya mungkin tentara elit tetapi jumlah mereka hanya seratus! Zoltan akan dihancurkan hanya oleh 100 musuh !? ”
+"Mengapa!? Lawannya mungkin tentara elit tetapi jumlah mereka hanya seratus! Zoltan akan dihancurkan hanya oleh 100 musuh !?"
 
-“Mereka adalah penjahat sejati yang berjuang melalui sejarah pertempuran di wilayah tengah. Kami, peran pendukung yang bahkan tidak ada di sudut buku sejarah… ”
+“Mereka adalah penjahat sejati yang berjuang melalui sejarah pertempuran di wilayah tengah. kita, peran pendukung yang bahkan tidak ada di sudut buku sejarah... ”
 
 Untuk menyelamatkan permukiman yang terkepung, petualang muda dan bersemangat Garadin dan wakil diaken gereja Cien berlari ke luar kota dan berencana untuk mengumpulkan prajurit desa dan memimpin mereka untuk melarikan diri ke lokasi yang aman seperti desa nelayan, pelabuhan Zoltan, atau bahkan negara lain.
 
@@ -88,15 +88,15 @@ Kemudian,
 
 Cien berteriak putus asa. Garadin berdiri di sana tertegun juga.
 
-Di depan mereka berdiri sebuah desa yang terbakar. Api besar membakar desa-desa yang mereka berdua mempertaruhkan nyawa untuk diselamatkan.
+Di depan mereka berdiri sebuah desa yang terbakar. Api besar membakar desa-desa yang mereka berdua mati matian selamatkan dengan mempertaruhkan nyawa mereka.
 
-“Stoppppp !!!”
+“BERHENTIII !!!”
 
 Garadin meraung dan berlari sambil menggenggam palu miliknya.
 
-Dia harus menghentikan Garadin. Pengisian sekarang adalah bunuh diri.
+Dia harus menghentikan Garadin. pergi sekarang hanyalah bunuh diri.
 
-Tapi, sebelum dia menyadarinya, dia juga menagih. Perlindungan ilahi Cien dari 『Monk』 meneteskan air mata untuk nyawa yang hilang dengan sia-sia.
+Tapi, sebelum dia menyadarinya, dia juga pergi menyerang. Perlindungan ilahi Cien dari 『Biksu』 meneteskan air mata untuk nyawa yang hilang dengan sia-sia.
 
 Jadi mereka berdua menuju kematian ...
 
@@ -104,15 +104,15 @@ Jadi mereka berdua menuju kematian ...
 
 Ini adalah artikel yang cukup emosional.
 
-Lit membaca artikel yang saya berikan kepadanya dan berkomentar. Berita Zoltan lebih untuk hiburan daripada sarana untuk mendapatkan informasi. Saya tidak yakin apakah gaya reportase itu diterima dengan baik tetapi ditulis seolah-olah penulisnya hadir di tempat itu.
+Lit membaca artikel yang aku berikan kepadanya dan berkomentar. Berita Zoltan lebih untuk hiburan daripada sarana untuk mendapatkan informasi. aku tidak yakin apakah gaya reportase itu diterima dengan baik tetapi ditulis seolah-olah penulisnya hadir di tempat itu.
 
-“Setelah itu, cerita berlanjut dengan sihir es yang meniup api di desa dan pengguna sihir cantik muncul di depan mereka berdua, kan? Itu sama dengan artikel yang saya baca. Faktanya beberapa kali. Bagaimanapun, surat kabar menceritakan sejarah mereka setiap kali mereka melakukan perbuatan. "
+l"Setelah itu, cerita berlanjut dengan sihir es yang meniup api di desa dan pengguna sihir cantik muncul di depan mereka berdua, kan? Itu sama dengan artikel yang aku baca. bahkan sudah berapa kali kubaca. Bagaimanapun juga, koran ini menceritakan sejarah mereka setiap kali mereka melakukan sesuatu. "
 
-Kata Lit sambil tersenyum pahit. Saya membaca artikel seperti itu beberapa kali juga di surat kabar dari tanggal lain.
+Kata Lit sambil tersenyum pahit. aku membaca artikel seperti itu beberapa kali juga di koran dari tanggal lain.
 
-"Baiklah, lanjutkan dan baca lebih lanjut."
+g"yaaah, cobalah untuk tetap membaca."
 
-“Hn? Baiklah."
+l"Hn? Baiklah."
 
 Lit sedikit memiringkan kepalanya sebelum dia melirik koran di tangannya sekali lagi.
 
@@ -124,11 +124,11 @@ Para goblin tidak tahu apa yang terjadi dan berdiri diam tanpa berusaha melarika
 
 Tapi setelah asap dari nyala api mereda, mereka berdua akhirnya melihatnya.
 
-"Mulai!"
+"Sekarang!"
 
 Gadis itu berteriak.
 
-Dua puluh pria berotot yang memegang kacamata hitam menyerang para goblin yang linglung karena sihir es.
+Dua puluh pria berotot yang memegang pedang pendek menyerang para goblin yang linglung karena sihir es.
 
 Sebuah kapal layar berlabuh di pantai berpasir dan kru di dek menembak jatuh goblin satu demi satu dengan busur mereka.
 
@@ -136,59 +136,59 @@ Orang yang berdiri untuk menyelamatkan Zoltan dari ancaman goblin adalah bajak l
 
 Para goblin dikalahkan dalam sekejap dan bajak laut wanita itu berjalan menuju Garadin dan Cien.
 
-“Petualang dari negeri ini! Saya tahu bahwa Anda telah berjuang dengan berani dari luka di tubuh Anda! "
+"Petualang dari negeri ini! aku tahu bahwa kamu telah berjuang dengan berani dari luka di tubuhmu!"
 
 Mistome mengulurkan tangannya ke mereka berdua.
 
-“Aku punya pengalaman melawan goblin! Selama ada kekuatan militer, kami tidak akan kalah dari goblin. "
+"Aku punya pengalaman melawan goblin! Selama ada kekuatan militer, kita tidak akan kalah dari goblin. "
 
 "Kekuatan militer!?"
 
-“Bimbing saya ke Zoltan! Saya akan mengambil alih komando! Aku bersumpah di kapal Rex, aku akan membasmi setiap goblin terakhir! "
+"Bimbing aku ke Zoltan! aku akan mengambil alih komando! Aku bersumpah di kapal Rex, aku akan membasmi setiap goblin terakhir!"
 
 Mistome memamerkan senyum garang seorang bajak laut.
 
-Meski anak muda Garadin dan Cien bingung, mereka terpikat oleh wajah bajak laut wanita cantik…
+Meski anak muda Garadin dan Cien bingung, mereka terpikat oleh wajah bajak laut wanita cantik...
 
 ☆☆
 
-“Tunggu sebentar… Tunggu sebentar.”
+l"Tunggu sebentar... Tunggu sebentar."
 
 Lit meninggikan suaranya tanpa berhenti.
 
-"Ini salah! Ini benar-benar berbeda dari karakter Mistome-shi yang dijelaskan di artikel lain. ”
+l"Ini salah! Ini benar-benar berbeda dari karakter Mistome-shi yang dijelaskan di artikel lain."
 
-"Itu betul. Di artikel lain, Mistome-shi digambarkan sebagai wanita yang bijaksana dan bijaksana. Dia menekan Garadin yang selalu impulsif, dia membimbing Moen muda dengan baik, dia kadang-kadang menyemangati Cien ketika dia bermasalah dan menjadi sosok seperti ibu di pesta. Karena dia memiliki kepribadian itu, dia diberi gelar Master (-shi) setelah pensiun untuk mengakui keunggulannya sebagai pengguna sihir. ”
+g"iya. Di artikel lain, Mistome-shi digambarkan sebagai wanita yang kuat dan bijaksana. Dia menekan Garadin yang selalu impulsif, dia membimbing Moen muda dengan baik, dia kadang-kadang menyemangati Cien ketika dia bermasalah dan menjadi sosok seperti ibu di tim. Karena dia memiliki kepribadian itu, dia diberi gelar Master (-shi) setelah pensiun untuk mengakui keunggulannya sebagai pengguna sihir."
 
 Selama menjadi walikota, Mistome-shi selalu menekankan pada dialog ketika ada masalah dan melakukan sejumlah arbitrase. Sangat kontras dengan Walikota Tonedo saat ini yang lebih suka menyelesaikan masalah dengan cepat.
 
-"Apa artinya ini?"
+l"Apa artinya ini?"
 
-“Koran ini diterbitkan sehari setelah Mistome-shi memimpin para pengungsi dari desa yang terbakar ke Zoltan. Sepertinya itu adalah artikel yang ditulis setelah mewawancarai para pengungsi. Pengungsi itu sepertinya telah berbicara dengan Garadin juga. Karena itulah dia bisa menulis tentang apa yang terjadi pada Garadin dan Cien sebelum mereka datang ke desa. ”
+g"Koran ini diterbitkan sehari setelah Mistome-shi memimpin para pengungsi dari desa yang terbakar ke Zoltan. Sepertinya itu adalah artikel yang ditulis setelah mewawancarai para pengungsi. Pengungsi itu sepertinya telah berbicara dengan Garadin juga. Karena itulah dia bisa menulis tentang apa yang terjadi pada Garadin dan Cien sebelum mereka datang ke desa."
 
-Apakah itu dapat diandalkan?
+l"Apakah ini bisa dipercaya?"
 
-“Bagian bajak laut wanita mungkin salah informasi. Sangat mudah untuk mengetahuinya setelah berbicara dengan Mistome-shi. ”
+g"Bagian bajak laut wanita mungkin salah informasi. Sangat mudah untuk mengetahuinya setelah berbicara dengan Mistome-shi."
 
 Aku mengangkat bahu.
 
-Orang itu mungkin melihat kapal Mistome-shi dan krunya yang datang membantu mereka dan mengira mereka sebagai bajak laut.
+g"Orang itu mungkin melihat kapal Mistome-shi dan krunya yang datang membantu mereka dan mengira mereka sebagai bajak laut."
 
-“Namun, dalam artikel yang saya baca, tidak disebutkan bahwa Mistome-shi datang dengan kapal, belum lagi memiliki lebih dari dua puluh teman.”
+l"Namun, dalam artikel yang aku baca, tidak disebutkan bahwa Mistome-shi datang dengan kapal, belum lagi memiliki lebih dari dua puluh orang."
 
-"Tepat sekali. Kapal dan kru hanya muncul selama penaklukan goblin. Setelah itu, tiba-tiba tidak ada lagi artikel tentang kru dan Mistome-shi tetap tinggal di Zoltan sendirian untuk menaklukkan goblin dengan Garadin dan Cien. Saya tidak percaya penduduk desa akan membayangkan sebuah kapal, awaknya serta menamai kapal itu, Rex, yang artinya raja. ”
+g"Tepat sekali. Kapal dan kru hanya muncul selama penaklukan goblin. Setelah itu, tiba-tiba tidak ada lagi artikel tentang kru dan Mistome-shi tetap tinggal di Zoltan sendirian untuk menaklukkan goblin dengan Garadin dan Cien. aku tidak percaya penduduk desa akan membayangkan sebuah kapal, awaknya serta menamai kapal itu, Rex, yang artinya raja."
 
-"Begitu."
+l"jadi..."
 
-“Kemana kru dan kapal layar bernama Rex ini menghilang? Dan siapa kru yang mengikuti Mistome-shi? ”
+g"Kemana kru dan kapal layar bernama Rex ini menghilang? Dan siapa kru yang mengikuti Mistome-shi?"
 
-"... Dengan kata lain, orang yang dicari Pangeran Sarius adalah ..."
+l"... Dengan kata lain, orang yang dicari Pangeran Sarius adalah ..."
 
-“Paling tidak, Garadin dan partynya percaya bahwa Pangeran Sarius sedang mencari Mistome-shi atau krunya.”
+g"Paling tidak, Garadin dan timnya percaya bahwa Pangeran Sarius sedang mencari Mistome-shi atau krunya."
 
 Mereka kebetulan mengantisipasi dikejar oleh Kerajaan Veronia.
 
-“Jadi mereka menginstruksikan surat kabar untuk tidak menulis tentang masa lalu Mistome-shi tentang awak dan kapalnya. Para kru adalah pahlawan di mana tidak aneh jika semua nama mereka terdaftar dan diawetkan. Kali ini, mereka menentang penyerahan daftar gereja dan mengambil tindakan tertentu. ”
+g"Jadi mereka menginstruksikan surat kabar untuk tidak menulis tentang masa lalu Mistome-shi tentang awak dan kapalnya. Para kru adalah pahlawan di mana tidak aneh jika semua nama mereka terdaftar dan diawetkan. Kali ini, mereka menentang penyerahan daftar gereja dan mengambil tindakan tertentu."
 
 “Tapi ingatan orang akan tetap ada meskipun mereka mencoba mengubur berita sebesar itu.”
 
