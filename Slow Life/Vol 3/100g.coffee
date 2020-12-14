@@ -58,6 +58,8 @@ g"Pertarungan!"
 
 Gideon menyerang lawan dengan pedangnya.
 
+<gambar> Vol3 13.jgp
+
 Setelah pertempuran sengit, Mesin Jam jatuh berlutut dan berhenti bergerak.
 
 “mengapa level perlindungan ilahi kita tidak naik setelah mengalahkan mesin jam Knight.”
