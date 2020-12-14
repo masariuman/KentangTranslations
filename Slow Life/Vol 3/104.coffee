@@ -66,74 +66,74 @@ Ruti mengangguk dan membalas ajakanku.
 
 ☆☆
 
-Lit dan saya sedang berjalan melalui jalan kongres di distrik pusat.
+Lit dan aku sedang berjalan melalui jalan kongres di distrik pusat.
 
 Rumah besar Penjaga Kapten Moen berada di utara.
 
-“Lit, kamu bisa saja beristirahat di rumah, tahu?”
+g"Lit, kamu bisa saja beristirahat di rumah lho..."
 
-“Tidak ada yang bisa dilakukan di rumah tanpa Red.”
+l"tidak ada yang bisa dilakukan di rumah tanpa Red."
 
-“Anda bisa membaca buku atau sesuatu. Saya mendengar bahwa toko persewaan buku membawa manuskrip baru yang populer di wilayah tengah. "
+g"kamu bisa membaca buku atau sesuatu. aku mendengar bahwa toko persewaan buku membawa manuskrip baru yang populer di wilayah tengah."
 
-“Saya lebih suka membaca buku sambil menggunakan perut Red sebagai bantal.”
+l"aku lebih suka membaca buku sambil menggunakan perut Red sebagai bantal."
 
-" … Saya melihat."
+g" ... begitu ya."
 
-Lit tidak bercanda, dia serius. Aku tidak tahu apa yang menyenangkan tentang menggunakan perut atau paha pria sebagai bantal tapi Lit akan datang ke sisiku dan meletakkan kepalanya di perutku setiap kali aku berbaring. Dia akan meminta bantal pangkuan setiap kali saya duduk.
+Lit tidak bercanda, dia serius. Aku tidak tahu apa yang menyenangkan menggunakan perut atau paha pria sebagai bantal tapi Lit akan datang ke sisiku dan meletakkan kepalanya di perutku setiap kali aku berbaring. Dia akan meminta bantal pangkuan setiap kali aku duduk.
 
-Yah, itu bukan seolah-olah aku berada di ujung yang kalah jadi kurasa itu baik-baik saja.
+Yah, aku pun tidak akan kalah jadi kurasa itu baik-baik saja.
 
-"Aku bisa melihat rumah Moen."
+l"Aku bisa melihat rumah Moen."
 
-“Nn. Aku ingin tahu apakah Moen sudah kembali. ”
+g"Nn. Aku ingin tahu apakah Moen sudah pulang."
 
 Kami mencapai pintu masuk mansion Moen dan mengetuk menggunakan pengetuk yang dipasang di pintu.
 
 Suara ketukan keras bergema di dalam gedung.
 
-“Maaf, ini Red dari apotek.”
+g"Maaf, ini Red dari apotek."
 
-Saya segera mendengar langkah kaki mendekat dan pintu terbuka.
+aku segera mendengar langkah kaki mendekat dan pintu terbuka.
 
 Seorang pelayan wanita paruh baya yang montok muncul.
 
-"Maafkan saya Red-san tapi tuan belum kembali ke rumah."
+"Maafkan aku Red-san tapi tuan belum kembali ke rumah."
 
-“Dia masih bekerja?”
+g"dia masih bekerja?"
 
-“Kemungkinan besar… dia belum kembali sama sekali sejak kemarin.”
+“Kemungkinan besar iya... dia belum kembali sama sekali sejak kemarin.”
 
-"Dari Kemarin?"
+g"Dari Kemarin?"
 
 Itu tidak biasa bagi Moen yang mencintai istri dan keluarganya.
 
-"Merah!"
+"red!"
 
-Saya mendengar suara dari atas saat saya sedang berpikir.
+aku mendengar suara dari atas saat aku sedang berpikir.
 
-Mendongak, saya melihat Ademi menggantung tubuhnya dari jendela dan melambaikan tangannya.
+aku melihat Ademi menggantung tubuhnya dari jendela dan melambaikan tangannya.
 
-“Ademi! Bagaimana perasaanmu!"
+g"Ademi! Bagaimana keadaanmu!"
 
-“Hn, aku masih belum bisa mengendalikan impulsiku dengan baik tapi ini jauh lebih baik dari sebelumnya!”
+“Hn, aku masih belum bisa mengendalikan impulsku dengan baik tapi ini jauh lebih baik dari sebelumnya!”
 
-“Begitu, kamu telah bekerja keras!”
+g"Begitu ya, kamu telah berusaha keras!"
 
 "Ya!"
 
-Ademi menarik wajahnya dari jendela. Aku bisa mendengar langkah kaki berisik datang dari dalam mansion saat dia berlari menuruni tangga dan pelayan wanita itu dengan marah memarahi 'Ademi! Jangan lari ke dalam rumah! '.
+Ademi menarik wajahnya dari jendela. Aku bisa mendengar langkah kaki berisik datang dari dalam mansion karena dia berlari menuruni tangga dan pelayan wanita itu dengan marah memarahi 'Ademi! Jangan lari di dalam rumah! '.
 
 Pelayan itu menunjukkan senyum bermasalah tapi penuh kasih sayang.
 
 “Red-san, karena kamu datang jauh-jauh ke sini, maukah kamu bertemu tuan muda sebentar?”
 
-"Ya, awalnya aku datang untuk melihat bagaimana Ademi melakukannya jadi haruskah aku mengganggu sebentar?"
+g"Ya, awalnya aku datang untuk melihat bagaimana keadaan Ademi jadi bolehkah aku menganggu waktunya sebentar?"
 
 “Ya, silakan masuk!”
 
-"Merah!"
+"red!"
 
-Saya tidak bisa mendeteksi bayangan insiden perlindungan ilahi iblis dari sosok Ademi yang ceria. Saya kira memang benar bahwa dia bisa mengendalikan impuls dari perlindungan ilahi-nya.
+aku tidak bisa mendeteksi bayangan insiden perlindungan ilahi iblis dari sosok Ademi yang ceria. aku kira dia bisa mengendalikan impuls dari perlindungan ilahi-nya.
 
-Saya senang dia baik-baik saja dan bersemangat.
+aku senang dia baik-baik saja dan bersemangat.
