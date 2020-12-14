@@ -1,34 +1,34 @@
 Bab 104: Red sedikit membantu Ruti
 
-“Ooo, jadi hal seperti itu terjadi.”
+g"Ooo, jadi itu yang terjadi."
 
-"Ya."
+r"Ya."
 
-Aku meletakkan pasta tomat yang disajikan di piring di atas meja sambil mendengarkan Ruti.
+Aku meletakkan pasta tomat yang disajikan di piring ke atas meja sambil mendengarkan Ruti.
 
-Maaf, ini hanya sisa makanan.
+g"Maaf, ini hanya sisa makanan."
 
-Ruti dan Tise diajak saat mereka baru mau istirahat makan siang jadi belum makan siang. Nah, jika Ruti menggunakan skill divine protection Invalidate, dia bisa menjaga tubuhnya pada kondisi terbaiknya dan sepenuhnya kebal terhadap rasa lapar dan kelelahan tapi dia saat ini membiarkan dirinya menjadi lapar secara alami.
+Ruti dan Tise pergi saat mereka baru mau istirahat makan siang jadi belum makan siang. Nah, jika Ruti menggunakan skill perlindungan ilahi pahlawannya, dia bisa menjaga tubuhnya pada kondisi terbaiknya dan sepenuhnya kebal terhadap rasa lapar dan kelelahan tapi dia saat ini membiarkan dirinya menjadi lapar secara alami.
 
-Ruti mendesah puas setelah dia menghabiskan pasta yang ada di tanganku.
+Ruti menghembuskan nafas puas setelah dia menghabiskan pasta yang ada di tanganku.
 
-“Masakan Onii-chan enak seperti biasanya.”
+r"Masakan Onii-chan enak seperti biasanya."
 
 Aku pun ikut tersenyum saat melihat ekspresi senang Ruti.
 
-"Onii-chan, apa menurutmu masalah ini ada hubungannya dengan pembunuhan Mistome-shi?"
+r"Onii-chan, apa menurutmu masalah ini ada hubungannya dengan pembunuhan Mistome-shi?"
 
-“Saya tidak bisa mengatakan dengan pasti pada tahap ini. Namun… tapi saya yakin Mistome-shi bermigrasi ke Zoltan sekitar 40 hingga 50 tahun yang lalu. ”
+g"aku tidak bisa mengatakannya dengan pasti pada tahap ini. tapi... aku yakin Mistome-shi bermigrasi ke Zoltan sekitar 40 hingga 50 tahun yang lalu."
 
-“Di mana dia tinggal sebelum itu?”
+r"Di mana dia tinggal sebelummua?"
 
-"Saya tidak punya ide. Dia tampaknya tidak berbicara tentang pengalaman masa lalunya. Saya tidak benar-benar menyelidiki secara mendalam tetapi sebelum Albert datang ke Zoltan, dia adalah pahlawan yang mendukung Zoltan jadi banyak orang harus tahu jika dia tidak menyembunyikannya. ”
+g"aku tidak tahu. Dia tampaknya tidak berbicara tentang pengalaman masa lalunya. aku tidak benar-benar menyelidikinya secara mendalam tetapi sebelum Albert datang ke Zoltan, dia adalah pahlawan yang mendukung Zoltan jadi harusnya banyak orang yang tahu jika dia tidak menyembunyikannya."
 
-“Tapi sudah lebih dari 40 tahun.”
+t"Tapi sudah lebih dari 40 tahun."
 
 Tise memiringkan kepalanya.
 
-“Apakah orang akan mengungkit sesuatu dari masa lalu yang begitu jauh? Apakah Mistome-shi meninggalkan Zoltan baru-baru ini? ”
+t"Apakah orang akan mengungkit masa lalu yang sudah begitu jauh lampaunya? Apakah Mistome-shi meninggalkan Zoltan baru-baru ini?"
 
 “Saya juga tidak mendengar tentang itu. Namun demikian, Mistome-shi telah tinggal sendirian di suatu tempat di luar Zoltan sejak dia pensiun. Jadi bahkan warga Zoltan tidak tahu banyak detail tentang keberadaannya. ”
 
