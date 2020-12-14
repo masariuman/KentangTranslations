@@ -26,7 +26,7 @@ Tentu saja Raja Veronia, Raja Geyserik tidak menunjukkan kelemahan seperti berba
 
 Namun, tidak peduli seberapa keras dia berusaha menyembunyikannya, nasib mereka yang hampir mati tidak dapat diubah. Pembunuh Bayaran seperti Tise yang telah menyaksikan berbagai kematian secara sensitif dapat menangkap aroma kematian Raja Geyserik dari informasi yang mereka kumpulkan.
 
-(Tentang waktu?)
+(Sudah Saatnya?)
 
 Ada beberapa ratus meter lagi ke mansion tempat Ruti dan Tise tinggal. Setelah memasuki gang terpencil, Tise menurunkan tasnya di sisi kirinya dan mengeluarkan pedang pendeknya yang tersembunyi.
 
@@ -36,49 +36,49 @@ Seorang pria bertelinga panjang muncul dari bayang-bayang di belakangnya.
 
 Itu adalah salah satu High-Elf yang berada di belakang Pangeran Sarius.
 
-"Seperti yang diharapkan, kamu sepertinya bukan orang biasa."
+"Sudah kuduga, kamu sepertinya bukan orang biasa."
 
 High-Elf menggenggam trisula di tangan kanannya. Dan di tangan kirinya ada jaring terlipat.
 
-(Bahkan saya tahu dengan peralatan itu. Dia memiliki perlindungan ilahi dari 『Gladiator』.)
+(Bahkan aku tahu dengan peralatan itu, Dia memiliki perlindungan ilahi dari 『Gladiator』.)
 
 Tise menebak perlindungan ilahi lawannya. Ada sejumlah kecil perlindungan ilahi yang berspesialisasi dalam kombinasi senjata tertentu.
 
-『Gladiator』 adalah perlindungan ilahi yang berspesialisasi dalam pertempuran pertempuran kompetitif di depan penonton. Tentu saja, bahkan tanpa kerumunan, sebagian besar skill tempur mereka masih bisa digunakan.
+『Gladiator』 adalah perlindungan ilahi yang berspesialisasi dalam pertempuran kompetitif di depan penonton. Tentu saja, bahkan tanpa kerumunan, sebagian besar skill tempur mereka masih bisa digunakan.
 
-Mulut High-Elf yang tegas berubah menjadi seringai.
+Mulut High-Elf yang tegas berubah menjadi tersenyum.
 
-"Sangat kuat. Tapi saya di sini bukan untuk bertarung. "
+"Sangat kuat. Tapi aku di sini bukan untuk bertarung. "
 
-"Apa yang kamu inginkan?"
+t"Apa yang kamu inginkan?"
 
-“Kami memiliki rekan Anda. Jika Anda ingin mereka kembali dengan selamat, tolong temani saya ke kapal kami. "
+"Kami memiliki rekanmu. Jika kamu ingin mereka kembali dengan selamat, tolong temani aku ke kapal kami."
 
-”……”
+t”...”
 
 Tise merenung setelah mendengar apa yang dikatakan High-Elf.
 
-(Rekan saya satu-satunya adalah Ruti-sama tetapi tidak mungkin bagi manusia untuk menangkap Ruti-sama. Dengan kata lain, itu bisa jadi Red-san atau Lit-san tetapi bahkan jika mereka diremehkan, mereka tidak akan ditangkap kecuali mereka membawa sekitar 10 kapal perang Veronia… yang menyisakan saya… Saya hanya bisa memikirkan kucing liar yang tinggal di mansion.)
+(Rekanku satu-satunya adalah Ruti-sama tetapi tidak mungkin bagi manusia untuk menangkap Ruti-sama. Dengan kata lain, itu bisa jadi Red-san atau Lit-san tetapi bahkan jika mereka diremehkan, mereka tidak akan ditangkap kecuali mereka membawa sekitar 10 kapal perang Veronia... yang tersisa yaitu aku... aku hanya bisa memikirkan kucing liar yang tinggal di mansion.)
 
 Ugeuge-san di bahu Tise memiringkan kepalanya bersamaan dengan dia saat mereka merenung.
 
-“Kamu sepertinya terkejut. Tapi perlindungan ilahi saya memiliki keterampilan deteksi yang disebut 'Insight Musuh Kuat' yang mampu memberi tahu saya jika tingkat perlindungan ilahi lawan saya lebih besar atau lebih rendah dari milik saya. Perlindungan ilahi Anda lebih kuat dari perlindungan ilahi saya sendiri dari Lv39. Hanya segelintir orang yang lebih kuat dari saya bahkan di Veronia tapi saya terkejut seorang pahlawan seperti Anda dapat ditemukan di daerah terpencil. "
+"kamu sepertinya terkejut. Tapi perlindungan ilahiku memiliki skill deteksi yang disebut 'Insight Musuh Kuat' yang mampu memberi tahuku jika tingkat perlindungan ilahi lawanku lebih besar atau lebih rendah dari milikku. Perlindungan ilahimu lebih kuat dari perlindungan ilahiku sendiri yaitu Lv39. Hanya segelintir orang yang lebih kuat dariku bahkan di Veronia tapi aku terkejut seorang pahlawan seperti kamu dapat ditemukan di daerah terpencil. "
 
-Lv39, Tise merasa cukup tinggi. Seseorang pada level itu di Pembunuh Bayaran Guild akan menjadi cukup elit atau pangkat kapten di Knight Order. Klaimnya sebagai salah satu pejuang terbaik Kerajaan Veronia bukanlah gertakan.
+Lv39, Tise merasa cukup tinggi. Seseorang pada level itu di Guild Pembunuh Bayaran akan menjadi cukup elit atau pangkat kapten di Knight Order. Klaimnya sebagai salah satu pejuang terbaik Kerajaan Veronia bukanlah gertakan.
 
 Meskipun tingkat perlindungan ilahi Tise melebihi 60.
 
-“Itulah mengapa saya mengerti. Teman wanitamu yang mengenakan baju besi. Gadis itu sangat lemah. "
+"Itulah mengapa aku mengerti. Teman wanitamu yang mengenakan baju besi. Gadis itu sangat lemah."
 
-"?"
+t"?"
 
-“Tidak ada gunanya bersikap bodoh. Levelnya lebih rendah dariku. Dan rekan saya di samping saya memiliki perlindungan ilahi dari 『Pemburu Budak』. Dia memiliki keterampilan yang menguntungkan lawan yang lebih lemah darinya. Tingkat perlindungan ilahi-Nya sama dengan milikku. Rekan Anda tidak memiliki peluang untuk menang sama sekali. ”
+"Tidak ada gunanya bersikap bodoh. Levelnya lebih rendah dariku. Dan rekanku di sampingku memiliki perlindungan ilahi dari 『Pemburu Budak』. Dia memiliki keterampilan yang menguntungkan lawan yang lebih lemah darinya. Tingkat perlindungan ilahi-Nya sama dengan milikku. Rekanmu tidak memiliki peluang untuk menang sama sekali."
 
-“???”
+t"???"
 
-“Masih mencoba untuk berpura-pura tidak tahu? Tapi saya tahu seperti punggung tangan saya bahwa di balik wajah tanpa ekspresi Anda ada pusaran kecemasan. "
+"Masih mencoba untuk berpura-pura tidak tahu? Tapi aku tahu seperti punggung tanganku bahwa di balik wajah tanpa ekspresimu ada pusaran kecemasan."
 
-(Wajah tanpa ekspresi saya berasal dari pelatihan saya dan satu-satunya emosi yang berputar-putar di belakangnya hanyalah pertanyaan.)
+(Wajah tanpa ekspresiku berasal dari pelatihanku dan satu-satunya emosi yang ada di belakangnya hanyalah pertanyaan.)
 
 Tise semakin bingung.
 
@@ -88,19 +88,19 @@ Mengapa level Ruti ditemukan rendah ketika diselidiki dengan 'Insight Musuh Kuat
 
 (Apakah itu mungkin mendeteksi level 『Shin』?)
 
-Tise dan Lit, dan tentu saja Red juga, tidak memiliki keterampilan apa pun untuk memahami perlindungan ilahi orang lain. Red bisa menyimpulkan perlindungan ilahi dari lawan-lawannya hanya melalui pengetahuan.
+Tise dan Lit, dan tentu saja Red juga, tidak memiliki skill apa pun untuk memahami perlindungan ilahi orang lain. Red bisa menyimpulkan perlindungan ilahi dari lawan-lawannya hanya melalui pengetahuan.
 
-Namun, mereka tidak memiliki cara untuk mengetahui jenis informasi apa yang akan muncul jika keterampilan persepsi perlindungan dewa digunakan pada Ruti.
+Namun, mereka tidak memiliki cara untuk mengetahui jenis informasi apa yang akan muncul jika skill persepsi perlindungan dewa digunakan pada Ruti.
 
 (Jadi 『Shin』 lebih diutamakan daripada 『Hero』 yang berlevel lebih tinggi. Meskipun kami tidak mengharapkan perlindungan ilahi seperti 『Sage』 atau 『Saint』 yang memiliki 'Appraisal' untuk datang ke Zoltan, ada perlindungan ilahi lainnya seperti 『Penyelidik』 atau 『Pemburu Penyihir』 yang memiliki keterampilan yang dapat mendeteksi keterampilan dan level tertentu. Akan merepotkan jika orang seperti itu bertemu Ruti-sama dan merasakan anomali dalam keberadaan 『Shin』.)
 
 Ugeuge-san juga melompat dengan sikap yang serius. Mereka harus memberitahu Ruti-sama.
 
-“Oi, kenapa kamu linglung? Apakah Anda sebenarnya lebih tinggi dari saya? ”
+“Oi, kenapa kamu bingung? Apakah kamu sebenarnya lebih hebat dariku?”
 
 Tise marah dengan ketidaksopanannya tetapi karena itu tidak terlihat di wajahnya, High-Elf lebih meremehkan Tise.
 
-"Lupakan. Mitra saya akan segera menyeret rekan Anda. Duduk saja sampai dia datang. ”
+t"Lupakan. temanku akan segera menyeret rekanmu. Duduk saja sampai dia datang."
 
 Oh, benar.
 
