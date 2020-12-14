@@ -100,9 +100,9 @@ Ugeuge-san juga melompat dengan sikap yang serius. Mereka harus memberitahu Ruti
 
 Tise marah dengan ketidaksopanannya tetapi karena itu tidak terlihat di wajahnya, High-Elf lebih meremehkan Tise.
 
-t"Lupakan. temanku akan segera menyeret rekanmu. Duduk saja sampai dia datang."
+"Lupakan. temanku akan segera menyeret rekanmu. Duduk saja sampai dia datang."
 
-Oh, benar.
+t"Oh, iya."
 
 Tise akhirnya menyadari bahwa itu akan berdampak buruk bagi pihak lain. Rasanya dia sedang memikirkan urusan orang lain, tetapi dia merasa lebih baik jika dia menghentikan orang yang akan bunuh diri.
 
