@@ -122,10 +122,10 @@ Kami akan berusaha untuk mengumpulkan informasi tentang tim peringkat-B generasi
 
 l"Jadi, kemana kita harus pergi dulu?"
 
-Saya menjawab dengan tegas pertanyaan Lit dengan anggukan.
+aku menjawab dengan tegas pertanyaan Lit dengan anggukan.
 
-Toko buku persewaan.
+g"Toko sewa buku."
 
-Toko buku sewa di pusat kota. Sesuai namanya, itu adalah toko yang meminjamkan buku yang dimaksudkan untuk hiburan dengan biaya tertentu.
+Toko sewa buku di pusat kota. Sesuai namanya, itu adalah toko yang meminjamkan buku yang dimaksudkan untuk hiburan dengan biaya tertentu.
 
-Itu adalah toko yang kadang-kadang masih saya gunakan dan kami menuju ke sana lebih dulu.
+Itu adalah toko yang kadang-kadang masih aku datangi dan kami menuju ke sana.
