@@ -10,15 +10,15 @@ g"Raja Badai seperti di sarang badai di jalur perdagangan Barat? Tidak mungkin, 
 
 Ilusi itu melintasi lautan badai dan memproyeksikan hamparan tanah abu-abu.
 
-Geyserik dan kelompoknya menyerang pelabuhan tempat tinggal para kurcaci dan orc berjanggut dengan gading yang menonjol. Dari proyeksinya, saya melihat banyak senjata, armor, dan monster yang belum pernah saya lihat sebelumnya.
+Geyserik dan kelompoknya menyerang pelabuhan tempat tinggal para kurcaci dan orc berjanggut dengan gading yang menonjol. Dari proyeksinya, aku melihat banyak senjata, armor, dan monster yang belum pernah aku lihat sebelumnya.
 
 Pedang berbilah tipis yang tampak seperti cambuk, palu berbentuk jarum jam yang dibuat dengan bahan peledak alkimia yang dimaksudkan untuk menembakkan jangkar, dan senjata aneh dengan rantai yang terpasang di tengkorak raksasa.
 
-Para kurcaci menarik pelatuk pada busur mekanis mereka dan hujan panah ditembakkan ke arah para perompak.
+Para kurcaci menarik pelatuk pada busur mekanis mereka dan hujan panah ditembakkan ke arah para bajak laut.
 
-Orc 『Drake Riders』 mengendalikan drake mereka yang tidak bersisik untuk turun ke dek dan menelan para pelaut yang malang.
+Orc 『Penunggang Drake』 mengendalikan drake mereka yang tidak bersisik untuk turun ke dek dan menelan para pelaut yang malang.
 
-“Bajingan! Saya tidak takut!"
+"Bajingan! aku tidak takut!"
 
 Geyserik berteriak.
 
