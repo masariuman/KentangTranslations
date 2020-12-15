@@ -314,9 +314,9 @@ Sejujurnya, itu sulit untuk ditonton.
 
 Melihat ekspresi kami, Mistome-shi menutup matanya dan membungkuk.
 
-"Aku minta maaf karena menunjukkan sesuatu yang tidak menyenangkan. Tapi kalian tidak akan mengerti jika Aku menunjukkan ini dari awal, bukan? Ini menjadi cerita yang panjang tapi… inilah akhirnya. "
+"Aku minta maaf karena menunjukkan sesuatu yang tidak menyenangkan. Tapi kalian tidak akan mengerti jika Aku menunjukkan ini dari awal kan? Ini menjadi cerita yang panjang tapi.... inilah akhirnya."
 
-Di balik senyum ibu suri, di balik wajah ibu yang bahagia, Misufia sedikit demi sedikit semakin lesu.
+Di balik senyum seorang ibu, di balik wajah ibu yang bahagia, Misufia sedikit demi sedikit semakin lesu.
 
 Akhirnya, dia kehilangan kekuatan untuk berdiri dan duduk sementara Leonor, adik perempuan Misufia, muncul.
 
