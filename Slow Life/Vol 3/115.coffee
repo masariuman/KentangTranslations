@@ -94,17 +94,17 @@ Shisandan menerima mangkuk dari Geyserik dan meminum cairan susu keputihan dalam
 
 Shisandan mencibir. Geyserik dengan tidak senang memanggil petugas toko.
 
-“Ou! Kamu! Bawalah alkohol terbaik yang Anda miliki di sini! ”
+“Ou! Kamu! Bawalah alkohol terbaik yang kamu miliki di sini!”
 
-“Haa, alkohol itu juga bagus. Untuk kesehatan."
+“Haa, alkohol ini juga bagus. Untuk kesehatan."
 
-“Ada apa denganmu bajingan! Tidak ada yang memikirkan hari esok saat minum alkohol! "
+"Ada apa denganmu bajingan! Tidak ada yang memikirkan hari esok saat minum alkohol!"
 
-Geyserik berteriak. Ririnrara tertawa dengan mulut terbuka lebar dan Misufia menenangkan Geyserik dengan senyum pahit saat dia memberikan mata uang Benua Hitam kepada petugas toko.
+Geyserik berteriak. Ririnrara tertawa dengan mulut terbuka lebar dan Misufia menenangkan Geyserik dengan senyum pahit saat dia memberikan mata uang Benua kegelapan kepada petugas toko.
 
-Alkohol suling yang bening dan tidak berwarna dibawa. Dia juga membawa sebotol kecil air.
+Alkohol yang bening dan tidak berwarna dibawa. Dia juga membawa sebotol kecil air.
 
-"Apa apaan. Tidak ada cara untuk mengetahui alkohol mana dengan cara ini. "
+"Apa apaan. Tidak ada cara untuk mengetahui mana yang alkohol dengan cara ini."
 
 Geyserik berkomentar sambil menuangkan alkohol baru ke dalam mangkuk yang dia gunakan untuk alkohol susu dan meminumnya sekaligus.
 
