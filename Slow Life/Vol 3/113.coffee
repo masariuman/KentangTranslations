@@ -86,23 +86,23 @@ Tepuk tangan terdengar lagi. Mistome muda melihat ke atas panggung dengan ekspre
 
 Kemungkinan besar... aku bisa membayangkan sesuatu akan terjadi.
 
-"Orang-orang Veronaku yang terkasih, hari ini, di sini, aku berharap kamu akan menjadi saksi sumpah pernikahan antara putri terkasihku Leonor‧of‧Veronia dan punggawa setia terkasihku Pietro‧Zaki‧Aller."
+"Orang-orang Veronaku yang terkasih, hari ini, di sini, aku berharap kamu akan menjadi saksi sumpah pernikahan antara putri terkasihku Leonor‧of‧Veronia dan pengikut setia terkasihku Pietro‧Zaki‧Aller."
 
 Tempat itu menjadi sunyi. Kemudian, orang-orang mulai saling berbisik dengan ekspresi bingung.
 
-“Yo-Yang Mulia… Leonor-sama? Bukankah maksudmu Misufia-sama? ”
+“Ya-Yang Mulia… Leonor-sama? Bukankah maksudmu Misufia-sama?”
 
-"Iya. Saya tidak mengatakannya salah, itu akan menjadi Leonor dan Pietro. ”
+"Iya. aku tidak salah mengatakannya, itu adalah Leonor dan Pietro."
 
 Misufia. Nama asli Mistome-shi mungkin adalah Misufia‧of‧Veronia.
 
-Misufia menatap kedua orang di atas panggung dengan tidak percaya dan saat melihat seringai di wajah pria itu, dia mengerti sesuatu dan mengepalkan kedua tinju dengan wajah pucat.
+Misufia menatap kedua orang di atas panggung dengan tidak percaya dan saat melihat tertawa sinis di wajah pria itu, dia mengerti apa yang terjadi dan mengepalkan kedua tinju dengan wajah pucat.
 
 "Dan."
 
 Melihat sosok Adipati Oslo naik ke atas panggung, para bangsawan Veronia mengerti sesuatu akan terjadi dan mengalihkan pandangan mereka.
 
-"Saya ... Subjek saya yang paling tepercaya ... Duke of Oslo sangat menghargai bakat putri saya Misufia."
+"subjek ... Subjekku yang paling tepercaya ... Bangsawan Oslo sangat menghargai bakat putriku Misufia."
 
 Suara gemetar raja gagal menyembunyikan rasa malu. Keringat menetes di wajahnya dan matanya merah.
 
