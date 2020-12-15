@@ -160,22 +160,25 @@ Ruti menyentuhkan pipinya ke pipiku.
 
 r"Maaf telah meragukanmu. Keberadaanku di sini adalah bukti bahwa perasaan Onii-chan lebih kuat dari perlindungan ilahimu. Meskipun Aku harusnya tahu apa yang terbaik."
 
-Suara Ruti sedikit bergetar. Kehangatan dari pipi Ruti yang menyentuh dan pelukannya di punggung Aku menyampaikan keinginannya untuk menghargai kali ini dan ketakutannya akan kehilangan momen sekilas ini.
+Suara Ruti sedikit bergetar. Kehangatan dari pipi Ruti yang menyentuh dan pelukannya di punggungku menyampaikan keinginannya kali ini dan ketakutannya akan kehilangan momen sekilas ini.
 
-Alih-alih dengan kata-kata, ini akan menjadi cara yang lebih baik untuk menjawab.
+daripada dengan kata-kata, inilah cara yang lebih baik untuk menjawab.
 
-Akhirnya, Ruti terlihat lega dan bersandar pada Aku sebelum menghembuskan napas. Nafasnya di leherku sedikit geli.
+Akhirnya, Ruti terlihat lega dan bersandar padaku sebelum menghela napas. Nafasnya di leherku sedikit geli.
 
-"Aku baik-baik saja sekarang."
+r"Aku baik-baik saja sekarang."
 
 Kata Ruti sambil enggan dan perlahan melepaskanku.
 
 Dengan pipi merah, Ruti menatap mataku dan tersenyum.
 
-"Terima kasih, Onii-chan."
+r"Terima kasih, Onii-chan."
 
 Senyuman terindah, lagipula Ruti paling imut.
 
+
+---------------------------
+
 Catatan penulis:
 
-Apa yang disembunyikan, Merah adalah siscon.
+Apa yang perlu kusembunyikan? RED adalah SISCON.
