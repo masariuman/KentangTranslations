@@ -98,11 +98,11 @@ r"Perahu wisata?"
 
 g"Ya, ada tempat-tempat yang meminjamkan mereka dan kita akan bisa menyaksikan Zoltan dari sungai."
 
-r"Di atas kapal hanya dengan Onii-chan...”
+r"Di atas kapal hanya dengan Onii-chan..."
 
 Ruti sedikit menunduk. Bibirnya sedikit mengembang secara horizontal dan tawa 'Fufufu' keluar dari bibirnya.
 
-"Saya sangat bahagia."
+r"Aku sangat bahagia."
 
 Ruti mengangkat kepalanya dan berkata dengan mata berbinar.
 
@@ -114,107 +114,107 @@ Pasar barang pengiriman sangat ramai setiap kali kapal datang. Namun, saat ini p
 
 Aku dihentikan oleh sebuah suara saat kami berjalan melalui pasar.
 
-Seorang pria dengan wajah teduh memanggil Aku. Dia adalah Pasquale, pengrajin aksesori palsu yang juga bekerja sebagai navigator di samping. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu migran mereka. Aku juga tidak berpikir untuk bertanya.
+Seorang pria dengan wajah teduh memanggilku. Dia adalah Pasquale, pengrajin aksesori yang juga bekerja sebagai navigator. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu mereka. Aku juga tidak berpikir untuk bertanya.
 
-"Apa ini? Selingkuh? Kamu sudah memiliki Hero Lit. "
+"Apa ini? Selingkuhanmu? Kamu sudah memiliki pahlawan Lit."
 
-"Dia adik perempuanku. Ruti‧Ruru. "
+g"Dia adik perempuanku. Ruti‧Ruru."
 
 "Eh, kamu punya adik perempuan? Dia manis."
 
-"Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. "
+g"Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk menggodanya."
 
-"Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan? "
+"Serius? pahlawan Lit dan adik perempuan? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan?"
 
-Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
+Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah...?
 
-"Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? "
+g"Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikanku? "
 
 "Yah, aku yakin kamu sedang berkencan dan ini akan menjadi kesempatan yang sempurna bagimu untuk mendapatkan hadiah untuk pacarmu."
 
 Pasquale berkata sambil menunjuk ke anting-anting dan tiara yang bertatahkan semua jenis permata yang berbaris di depannya.
 
-"Bukankah itu semua tiruan? Mungkin kaca. "
+g"Bukankah itu semua palsu? Mungkin kaca."
 
-"Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu. "
+"Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu."
 
-"Kamu tidak akan meminta harga rip-off, kan?"
+g"Kamu tidak akan meminta harga palsu, kan?"
 
-"Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja Aku. "
+"Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerjaku."
 
-Umu.
+d"Umu."
 
-Kalau begitu… aku melirik Ruti.
+Kalau begitu... aku melirik Ruti.
 
 Ruti diam-diam melihat asesoris yang ditata.
 
-Sederhananya, Ruti adalah orang yang kaya raya. Dia memperoleh harta karun legendaris selama perjalanannya dan menjual persediaan yang mereka curi dari Tentara Raja Iblis.
+Sederhananya, Ruti adalah orang yang kaya raya. Dia memperoleh harta karun legendaris selama perjalanannya dan menjual barang yang mereka curi dari Tentara Raja Iblis.
 
 Harta karun yang dimilikinya sangat mahal sehingga mustahil untuk dijual dalam perekonomian Zoltan. Dengan kata lain, dia memiliki cukup aset untuk dengan mudah menghabiskan anggaran nasional Zoltan.
 
-Aku bertanya-tanya berapa banyak koin perak peryl yang dia miliki.
+Aku penasaran berapa banyak koin perak peryl yang dia miliki.
 
-Hmm, memberi Ruti aksesori bola kaca? Dia tidak memakainya sekarang tetapi dia memiliki banyak aksesoris seperti anting-anting mithril dan gesper yang dibuat dari besi meteorik yang sangat langka dan indah bernama Red Sky.
+Hmm, aksesori bola kaca? Dia tidak memakainya sekarang tetapi dia memiliki banyak aksesoris seperti anting-anting mithril dan gesper yang dibuat dari besi meteorik yang sangat langka dan indah bernama Red Sky.
 
 Namun,
 
-"Onii Chan …"
+r"Onii Chan..."
 
-"Hn, apakah kamu benar-benar menginginkannya?"
+g"Hn, apakah kamu benar-benar menginginkannya?"
 
-"Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu."
+r"Yup... Aku tidak masalah dengan yang termurah tapi Aku ingin sesuatu."
 
-Aku melihat …
+begitu ya...
 
-"Baiklah, kalau begitu aku akan memberimu hadiah yang paling cocok untukmu."
+g"Baiklah, kalau begitu aku akan memberimu hadiah yang paling cocok untukmu."
 
-"Yay, aku mendapatkan hadiah."
+r"Yay, aku mendapatkan hadiah."
 
-Aku menemukan bahwa pipi Ruti agak sedikit lebih merah.
+Aku melihat pipi Ruti agak sedikit lebih merah.
 
 Selanjutnya, setelah Aku bertarung dengan Pasquale yang ingin menjual barang-barangnya dengan harga setinggi mungkin, Aku membeli anting-anting yang dibuat dengan sangat baik dan memberikannya kepada Ruti.
 
 ☆☆
 
-Perahu kecil tamasya itu adalah kapal dengan tiang tunggal dan layar segitiga. Ketika tidak ada angin, perahu dapat digerakkan dengan menggunakan dayung tetapi fakta bahwa satu orang lebih dari cukup untuk memindahkan perahu dengan dayung menunjukkan ukuran perahu.
+Perahu kecil wisata itu adalah perahu dengan tiang tunggal dan layar segitiga. Ketika tidak ada angin, perahu dapat digerakkan dengan menggunakan dayung tetapi fakta bahwa satu orang lebih dari cukup untuk memindahkan perahu dengan dayung menunjukkan ukuran perahu yang kecil.
 
-Yah, itu hanya kapal yang dimaksudkan untuk jalan-jalan. Itu memiliki fungsionalitas yang cukup untuk tujuannya.
+Yah, itu hanya perahu untuk jalan-jalan. Itu memiliki fungsionalitas yang cukup untuk tujuannya.
 
-Yotto.
+g"Yotto."
 
 Aku menyesuaikan layar yang tidak sejajar dari arah angin.
 
-Perahu perlahan-lahan naik ke hulu.
+Perahu perlahan-lahan berjalan ke hulu.
 
-"Baiklah, mari kita makan."
+g"Baiklah, ayp kita makan."
 
 Aku membuka kantong kertas berisi ikan putih dan kentang goreng yang Aku beli dari warung pinggir jalan.
 
 Ruti dan Aku menikmati makanan jalanan Zoltan.
 
-"Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan."
+g"Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan."
 
-"Lain kali aku ingin makan bersama."
+r"aku ingin memakannya bersamamu kalau bisa."
 
-"Baiklah, lain kali mari kita kelilingi distrik utara."
+g"Baiklah, lain kali mari kita berjalan-jalan ke distrik utara."
 
-"Ya."
+r"Ya."
 
-Di atas perahu yang didorong ke depan oleh angin di layarnya, Ruti dan aku menyaksikan kota Zoltan perlahan mengalir oleh kami.
+Di atas perahu yang didorong ke depan oleh angin di layarnya, Ruti dan aku menyaksikan kota Zoltan dengan perlahan.
 
-"Ini kota yang hebat."
+r"Ini kota yang hebat."
 
 Kata Ruti.
 
-"Aku ada di satu-satunya kelompok petualang peringkat B kota ini. Namun, Aku tidak pernah dipaksa untuk ikut serta dalam perkelahian. Ketika Aku mengatakan Aku tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
+r"Aku ada di satu-satunya kelompok petualang peringkat-B kota ini. Namun, Aku tidak pernah dipaksa untuk ikut serta dalam pertarungan. Ketika Aku mengatakan Aku tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
 
-"Semua orang suka bersantai."
+g"Semua orang suka bersantai."
 
-"Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. "
+r"Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kita berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit."
 
 Ruti menatap langsung ke wajahku.
 
-"Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? "
+r"Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya?"
 
 Sebelumnya, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ordo Ksatria Bahamut jadi Aku tidak bisa memberinya jawaban.
 
