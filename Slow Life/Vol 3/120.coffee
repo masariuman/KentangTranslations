@@ -62,33 +62,33 @@ bayangan menyelimuti ekspresi Ruti ketika aku menyebutkan 'Sejak kecil' jadi aku
 
 g"Mungkin, ini tentang dorongan perlindungan ilahiku?"
 
-"Un. Apakah Onii-chan dipaksa untuk mencintaiku… lagipula, peran 『Guide』 adalah untuk melindungi dan memimpin 『Hero』? Dalam hal ini, 『Guide』 seharusnya memiliki dorongan untuk menghargai 『Hero』 ... "
+r"Un. Apakah Onii-chan dipaksa untuk mencintaiku... lagipula, peran 『Pemandu』 adalah untuk melindungi dan memandu 『Pahlawan』kan ? Dalam hal ini, 『Pemandu』 seharusnya memiliki dorongan untuk menghargai 『Pahlawan』 ... "
 
 Begitu, jadi Ruti merasa bahwa pembicaraan tentang Geyserik mencintai Misufia karena dorongan perlindungan ilahi juga diterapkan pada dirinya sendiri ya?
 
-"Dorongan perlindungan ilahi sangat ditentukan oleh peran perlindungan ilahi. Dorongan dari 『Guide』 yang hanya ada untuk satu 『Hero』 mungkin lebih lemah daripada Warrior 』."
+g"Dorongan perlindungan ilahi sangat ditentukan oleh peran perlindungan ilahi. Dorongan dari 『Pemandu』 yang hanya ada untuk satu 『Pahlawan』 mungkin lebih lemah daripada Warrior 』."
 
-"Tapi ini bukan nol, kan?"
+r"Tapi tidak nol, kan?"
 
-"Yah, tentu saja."
+g"Yah, tentu saja."
 
-"Kalau begitu, perasaan Onii-chan saat ini…"
+r"Kalau begitu, perasaan Onii-chan saat ini..."
 
-Bagi orang-orang yang hidup di dunia ini, sulit untuk membedakan seberapa jauh tindakan seseorang disebabkan oleh ego diri atau karena dorongan hatinya. Seorang 『Pengguna Sihir』 akan merasakan kegembiraan mengumpulkan pengetahuan dengan membaca buku tapi mungkin mereka sendiri tidak akan bisa membedakan seberapa banyak itu karena kepribadian mereka sendiri dan berapa banyak karena dorongan perlindungan ilahi mereka.
+Bagi orang-orang yang hidup di dunia ini, sulit untuk membedakan seberapa jauh tindakan seseorang disebabkan oleh ego diri atau karena dorongan hatinya. Seorang 『Pengguna Sihir』 akan merasakan kegembiraan mengumpulkan pengetahuan dengan membaca buku tapi mungkin mereka sendiri tidak akan bisa membedakan itu karena kepribadian mereka sendiri atau karena dorongan perlindungan ilahi mereka.
 
-"Terus?"
+g"Terus?"
 
-"Onii Chan … ?"
+r"Onii Chan ... ?"
 
-"Apakah cinta Aku untuk Ruti berasal dari hati Aku atau dari perlindungan ilahi Aku, apa bedanya?"
+g"maupun cintaku untuk Ruti berasal dari hatiku atau dari perlindungan ilahiku, apa bedanya?"
 
 Aku melanjutkan dengan emosi.
 
-"Tidak peduli bagaimana itu dimulai, cinta Aku saat ini pada Ruti tidak ada hubungannya dengan perlindungan ilahi. Aku sangat mencintai Ruti. Aku tidak akan membiarkan perlindungan ilahi Aku atau bahkan Tuhan untuk menyangkal perasaan ini. Ini bukan sesuatu dari 『Guide』 tapi dorongan Aku sendiri! "
+g"Tidak peduli bagaimana semuanya dimulai, cintaku saat ini pada Ruti tidak ada hubungannya dengan perlindungan ilahi. Aku sangat mencintai Ruti. Aku tidak akan membiarkan perlindungan ilahiku atau bahkan dewa menyangkal perasaan ini. Ini bukan sesuatu dari 『Pemandu』 diriku sendiri! "
 
-Tidak ada teknik negosiasi atau kata-kata yang dihitung. Murni hanya perasaan Aku.
+semuanya Murni dari perasaanku.
 
-Bagiku, Ruti adalah adik perempuan tercantik di dunia. Semua yang Aku lakukan, bertujuan untuk menjadi lebih kuat, bergabung dengan Ordo Ksatria, melakukan perjalanan, semuanya untuk menjadi kekuatan Ruti dan untuk melindunginya.
+Bagiku, Ruti adalah adik perempuan tercantik dan terimut di dunia. Semua yang Aku lakukan, bertujuan untuk menjadi lebih kuat, bergabung dengan ksatria ordo, melakukan perjalanan, semuanya untuk menjadi kekuatan Ruti dan untuk melindunginya.
 
 "Jika『 Pahlawan 』adalah orang lain dan bukan Ruti, Aku mungkin tidak akan berada di sini."
 
