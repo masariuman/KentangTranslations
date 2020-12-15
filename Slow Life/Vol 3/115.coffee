@@ -78,17 +78,17 @@ Bajak laut bawahan ketakutan tetapi seperti yang diharapkan dari keberanian Geys
 
 "Kamu melakukannya dengan baik."
 
-Shisandan menyeringai sambil menatap Geyserik. Geyserik menuangkan alkohol ke dalam mangkuk dan memberikannya ke Shisandan.
+Shisandan tersenyum sambil menatap Geyserik. Geyserik menuangkan alkohol ke dalam mangkuk dan memberikannya ke Shisandan.
 
-“Minum dulu. Ini adalah sebuah kedai. ”
+“Minum dulu. Ini adalah sebuah bar.”
 
-"Itu benar."
+"benar juga."
 
 Shisandan menerima mangkuk dari Geyserik dan meminum cairan susu keputihan dalam sekali teguk.
 
-"Bukan minuman keras suling?"
+"Bukan minuman keras liquor?"
 
-"Ah? Saya tidak mengatakan saya akan memilikinya. "
+"Ah? aku tidak mengatakan aku memilikinya. "
 
 “Kamu akan tampak seperti orang miskin.”
 
