@@ -112,25 +112,29 @@ Monster itu dengan ringan menghancurkan pagar kayu yang menahan para Orc dengan 
 
 <gambar>
 
-“Hee .. haiiiiii….”
+“Hee .. haiiiiii...”
 
-Jeritan kering keluar dari mulut prajurit veteran Kekaisaran yang telah bertempur dalam pertempuran yang tak terhitung jumlahnya melawan bandit dan goblin yang mencoba menerobos pos pemeriksaan. Gigi mereka bergemeretak dan mereka mati-matian menahan kehilangan kekuatan di lengan pedang mereka.
+Jeritan kering keluar dari mulut prajurit veteran Kekaisaran yang telah bertempur dalam pertempuran yang tak terhitung jumlahnya melawan bandit dan goblin yang mencoba menerobos pos pemeriksaan. Gigi mereka bergetar dan mereka mati-matian menahan kehilangan kekuatan di lengan pedang mereka.
 
-Monster itu membuka mulutnya dengan taring dan menjilat mulutnya dengan lidah panjang berwarna merah tua.
+Monster itu membuka mulutnya yang memiliki taring dan menjilat mulutnya dengan lidah panjang berwarna merah tua.
 
-“Hu-Demon besar! Monster kelas perwira dari Tentara Raja Iblis! "
+"Ib-Iblis besar! Monster kelas perwira dari Tentara Raja Iblis! "
 
-Setan Besar memandang rendah para prajurit Kekaisaran yang berteriak dengan puas.
+Iblis Besar memandang rendah para prajurit Kekaisaran yang berteriak.
 
-Demon Besar: Lv28
+-----------------------------
 
-Pekerjaan: Setan Besar
+iblis Besar: Lv28
 
-Keahlian Unik: Atrocious, Advanced Arcane Magic
+Pekerjaan: iblis Besar
+
+Keahlian Unik: Atrocious, sihir Arcane tingkat lanjut
+
+-----------------------------
 
 Ruti menyiapkan pedangnya dan memikirkan cara untuk mengulur waktu. Meskipun dia memiliki Perlindungan Ilahi terkuat dari 『Pahlawan』 umat manusia, kekuatannya saat ini hanya pada tingkat pertempuran melawan kelompok pendahulu Raja Iblis.
 
-(Aku harus bertahan sampai Onii-chan datang…)
+(Aku harus bertahan sampai Onii-chan datang...)
 
 Pahlawan tidak takut. Karena dia memiliki 'Kekebalan Penuh terhadap Ketakutan'.
 
@@ -144,31 +148,35 @@ Sebuah suara datang dari belakangnya.
 
 Ruti melihat kembali ke arah Ares sambil tetap memegang pedangnya.
 
+----------------------------
+
 Ares‧Suroa: Lv13
 
 Pekerjaan: Sage
 
-Keahlian Unik: Sihir Misteri Menengah, Sihir Biara Menengah
+Keahlian Unik: Sihir arcane Menengah, Sihir perjanjian Menengah
 
-Ares, pria dengan Perlindungan Ilahi dari Sage yang bergabung dengannya sebagai pendamping di Ibukota Kekaisaran, memiliki ekspresi tekad di wajahnya yang dihiasi dengan kaca kacamata berlensa.
+-----------------------------
 
-“Mari berhenti mengandalkan bala bantuan. Hanya ada desa kecil di dekatnya. Sejumlah kecil bala bantuan tidak akan mengubah perbedaan di sini! "
+Ares, pria dengan Perlindungan Ilahi dari Sage yang bergabung dengannya sebagai pendamping di Ibukota Kekaisaran, memiliki ekspresi tekad di wajahnya yang dihiasi dengan kacamata berlensa.
+
+"Mari berhenti mengandalkan bala bantuan. Hanya ada desa kecil di dekat sini. Sejumlah kecil bala bantuan tidak akan mengubah perbedaan di sini!"
 
 Ares berdiri di samping Ruti dengan tongkat sihir di tangan.
 
-“Sebaliknya, kamu dan aku akan mengalahkan monster ini. Mengabdikan diri untuk bertahan tidak akan memberi Anda kemenangan. "
+"Sebaliknya, kamu dan aku akan mengalahkan monster ini. bertahan tidak akan memberimu kemenangan."
 
 Ares tersenyum dengan ekspresi percaya diri. Dia mungkin bermaksud untuk meyakinkan Ruti.
 
-“Jangan khawatir.”
+"Jangan khawatir."
 
-”……”
+r”......”
 
-"Jika aku, dengan Perlindungan Ilahi dari Sage, dan kamu, dengan Perlindungan Ilahi dari Pahlawan, bergabung, tidak ada yang harus kita takuti!"
+"Jika aku, dengan Perlindungan Ilahi dari Sage, dan kamu, dengan Perlindungan Ilahi dari Pahlawan, bersatu, tidak ada yang harus kita takuti!"
 
 Ruti menatap Ares dengan pupil merah dalam diam. Ares tersentak sedikit tapi,
 
-“Serahkan padaku, aku akan mulai!”
+“Serahkan padaku, aku akan mulai menyerang!”
 
 Dia sepertinya mengartikan tatapan Ruti sebagai ekspresi kepercayaan.
 
