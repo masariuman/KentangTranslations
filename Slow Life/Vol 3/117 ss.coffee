@@ -426,11 +426,11 @@ g"kita menang, Ruti."
 
 r"Ya!"
 
-『Pahlawan』 dan ksatria saling menatap. Para prajurit Kekaisaran merasakan keberanian dan harapan yang meningkat dari melihat dua keberadaan heroik.
+『Pahlawan』 dan ksatria saling menatap. Para prajurit Kekaisaran merasakan keberanian dan harapan yang meningkat dari melihat dua keberadaan yang heroik.
 
 "... Cih."
 
-Di antara mereka semua, hanya ada satu orang. Hanya Sage Ares yang memelototi punggung Gideon dengan tatapan menjijikkan ...
+Di antara mereka semua, hanya ada satu orang. Hanya Sage Ares yang memelototi punggung Gideon dengan tatapan menjijikkan...
 
 ☆☆
 
