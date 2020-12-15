@@ -350,15 +350,15 @@ Dia hanya takut pada monster dengan ambisi di depannya.
 
 Leonor dengan lembut memeluk Misufia yang duduk.
 
-"Onee-sama menyelamatkan hidupku. Jadi Aku akan memberikan belas kasihan sekali saja. "
+"Onee-sama menyelamatkan hidupku. Jadi Aku akan memberikan belas kasihan sekali saja."
 
-Leonor ...
+"Leonor ..."
 
-"Misufia. Buang nama itu. Anda bukan lagi ibu suri atau bangsawan. Hanya seorang 『Arch Mage』 yang tinggal di negeri terpencil jauh dari Veronia. Kamu boleh melakukan apapun yang kamu inginkan selama kamu tidak menghalangiku. "
+"Misufia. Buang nama itu. kamu bukan lagi ratu atau bangsawan. Hanya seorang 『Arch Mage』 yang tinggal di negeri terpencil jauh dari Veronia. Kamu boleh melakukan apapun yang kamu inginkan selama kamu tidak menghalangiku."
 
 Wajah Leonor berubah menjadi kebencian. Kebencian yang dia pegang di dalam hatinya selama ini muncul.
 
-"Kamu bahkan bisa masuk biara dan terus iri pada kebahagiaan Aku."
+"Kamu bahkan bisa masuk biara dan terus iri pada kebahagiaanku."
 
 Suara sekejap terdengar dan ilusi itu menghilang.
 
