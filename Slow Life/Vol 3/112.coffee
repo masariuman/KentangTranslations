@@ -214,19 +214,19 @@ Setelah melihat kami, kabut... Kabut Horor dengan cepat bersembunyi di balik Mis
 
 Mistome-shi dengan lembut berbicara kepada Kabut Horor. Hampir tidak ada penelitian yang dilakukan tentang kecerdasan Kabut Horor tetapi dilihat dari pemandangan saat ini, mereka mungkin lebih pintar dari anjing.
 
-Cedera Horror Fog sepertinya sudah dirawat. Mungkin melalui sihir Uskup Cien. Meski terlihat seperti itu, Horror Fogs dikategorikan sebagai spesies kental, subspesies dari lendir.
+Cedera Kabut horror sepertinya sudah diobati. Mungkin melalui sihir pendeta Cien. Meski terlihat seperti itu, Kabut Horor dikategorikan sebagai spesies kental, subspesies dari lendir.
 
-“Jangan khawatir, orang-orang ini tidak akan menyakitimu lagi, kan?”
+“Jangan khawatir, orang-orang ini tidak akan menyakitimu lagi, iya kan?”
 
-“Ya, kami tidak akan melakukannya.”
+g"Ya, kami tidak akan melakukannya."
 
-Saya menjawab pertanyaan Mistome-shi dengan jujur. Aku ragu apakah Kabut Horor bisa mengerti kata-kata tapi setidaknya aku menunjukkan bahwa aku tidak memiliki permusuhan terhadapnya sehingga tubuh kabut itu berkibar dan keluar dari belakang Mistome-shi.
+aku menjawab pertanyaan Mistome-shi dengan jujur. Aku ragu apakah Kabut Horor bisa mengerti kata-kataku tapi setidaknya aku menunjukkan bahwa aku tidak memiliki permusuhan terhadapnya sehingga tubuh kabut itu muncul dan keluar dari belakang Mistome-shi.
 
 “Benar, karena anak ini ada di sini, aku akan menunjukkannya padamu.”
 
-"Menunjukkan?"
+g"Menunjukkan?"
 
-"Masa laluku. Anak ini bisa memproyeksikan ingatanku dalam kabutnya. Nyaman kan? ”
+"Masa laluku. Anak ini bisa memproyeksikan ingatanku dalam kabutnya. lebih simpel kan?"
 
 Mistome-shi meletakkan tangannya ke dalam kabut dengan ekspresi lembut. Seperti anak anjing yang melingkari pemiliknya, kabut menempel di tangan tua Mistome-shi dan menari.
 
