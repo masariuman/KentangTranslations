@@ -140,19 +140,19 @@ Tindakan yang keterlaluan. Kerajaan Veronia yang diakui oleh semua orang saat in
 
 “Selama waktu itu, satu-satunya tempat Keluarga Kerajaan Veronia dapat bertindak dengan kebebasan adalah di Ibukota Veron. Sebidang tanah seluas Zoltan... tapi aku tidak putus asa karenanya.”
 
-Para bangsawan hantu menghilang seolah tertiup angin. Hanya Misufia, Pietro dan Leonor yang tersisa.
+Para bayangan bangsawan menghilang seolah tertiup angin. Hanya Misufia, Pietro dan Leonor yang tersisa.
 
-“Ini…”
+“Ini...”
 
 Pietro dan Leonor saling menatap. Lalu, mereka tertawa.
 
 “Apakah kamu menikmati situasi ini?”
 
-Keduanya dengan polosnya senang dengan situasinya. Senyuman di wajah mereka mengatakan bahwa mungkin salah satu dari mereka mengipasi minat Duke of Oslo dalam insiden ini.
+Keduanya dengan polosnya senang dengan situasinya. Senyuman di wajah mereka mengatakan bahwa mungkin salah satu dari mereka mendukung minat Oslo dalam insiden ini.
 
 Leonor menoleh ke belakang dan menatap Misufia dengan mata penuh kemenangan.
 
-"Selamat atas pertunangan anda. Saya berharap Anda bahagia ... ramuan obat pahit-san. "
+"Selamat atas pertunanganmu. aku berharap kamu bahagia ... ramuan obat pahit-san."
 
 Misufia hancur di bawah kata-kata Leonor.
 
