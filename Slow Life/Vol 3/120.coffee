@@ -24,23 +24,23 @@ Aku duduk di sebelah Ruti.
 
 Ruti menatap ke bawah dan diam.
 
-Aku masih belum tahu… alasan kenapa Ruti begitu tertekan.
+Aku masih belum tahu... alasan kenapa Ruti begitu tertekan.
 
 Aku bisa mengerti jika Lit yang depresi karena dia mungkin akan bersimpati dengan pilihan untuk meninggalkan identitasnya sebagai seorang putri.
 
 Namun, situasi Lit dan Mistome-shi sangat berbeda.
 
-Raja Logavia pada dasarnya adalah raja yang hebat dan kuat. Dia dalam semangat rendah setelah kematian Gayus tetapi dia berdiri kembali untuk pertempuran terakhir dan mengambil komando garis depan dengan Pengawal Kerajaan yang tersisa.
+Raja Logavia pada dasarnya adalah raja yang hebat dan kuat. Dia depresi setelah kematian Gayus tetapi dia berdiri kembali untuk pertempuran terakhir dan mengambil komando garis depan dengan Pengawal Kerajaan yang tersisa.
 
 Jadi Lit kemungkinan besar tidak akan sepenuhnya mendukung tindakan Mistome-shi untuk merebut takhta. Lit bersimpati padanya tetapi tidak tampak berempati atau merasa tertekan.
 
-"Ruti, bagaimana kamu menemukan cerita Mistome-shi?"
+g"Ruti, bagaimana pendapatmu tentang cerita Mistome-shi?"
 
-"Informasinya cocok. Dengan mendukung dan melengkapinya dengan informasi dari gereja, kami hanya perlu memutuskan bagaimana menyelesaikannya. "
+r"Informasinya cocok. Dengan mendukung dan melengkapinya dengan informasi dari gereja, kami hanya perlu memutuskan bagaimana menyelesaikannya. "
 
-"Bagaimana perasaanmu secara pribadi, Ruti?"
+g"Bagaimana perasaanmu secara pribadi, Ruti?"
 
-"Aku…"
+r"Aku..."
 
 Ruti ragu-ragu dan terdiam.
 
