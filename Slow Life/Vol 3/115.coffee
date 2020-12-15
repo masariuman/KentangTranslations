@@ -152,15 +152,15 @@ Percakapan yang terjadi di depanku sepertinya penting. Namun, sungguh ironis bah
 
 “Persiapan kami juga sudah selesai. Meskipun kami tidak akan bisa berpartisipasi dalam pertempuran dengan Raja Iblis.”
 
-“Mendapatkan senjata lebih dari cukup. Seperti yang dijanjikan, kami telah menentukan lokasi dermaga tersembunyi. Kami akan mentransfer dua Asura Warriors kepada Anda. Saya tidak keberatan bahkan jika Anda membawa mereka ke Benua yang Mempesona. Saya memberi tahu mereka untuk kembali dengan berbaur di kapal dagang begitu mereka sampai di sana. Jika rencanamu berhasil, itu akan berdampak besar pada perang kita jadi gunakanlah sesuai keinginanmu… tapi kamu adalah orang yang berani. ”
+“Mendapatkan senjata lebih dari cukup. Seperti yang dijanjikan, kami telah menentukan lokasi dermaga tersembunyi. Kami akan mentransfer dua pejuang Asura kepadamu. aku tidak keberatan bahkan jika kamu membawa mereka ke Benua yang Mempesona. aku memberi tahu mereka untuk kembali dengan berbaur di kapal dagang begitu mereka sampai di sana. Jika rencanamu berhasil, itu akan berdampak besar pada perang kita jadi gunakanlah sesuai keinginanmu... tapi kamu adalah orang yang berani.”
 
-Shisandan menatap Geyserik, yang sedang meminum alkohol yang disebut Alhi, dengan ketertarikan saat bibirnya berubah menjadi seringai karena kagum.
+Shisandan menatap Geyserik, yang sedang meminum alkohol yang disebut Alhi, dengan ketertarikan saat bibirnya berubah menjadi tersenyum karena kagum.
 
-“Untuk merebut andalan Raja Iblis 'Kotoran Wendy'. Aku akan meminjamkanmu peta dan bawahan tapi ... Pengguna Golem di bawah Desmond dari Bumi Empat Raja Surgawi menjaganya. Kalian tampaknya memiliki beberapa keahlian tetapi tidak ada kesempatan. Sekarang kamu masih punya waktu untuk menyerah. ”
+“Untuk merebut andalan Raja Iblis 'Kotoran Wendy'. Aku akan meminjamkanmu peta dan bawahan tapi ... Pengguna Golem Desmond si Bumi dari Empat Raja langit menjaganya. Kalian tampaknya memiliki beberapa keahlian tetapi tidak ada kesempatan. Sekarang kamu masih punya waktu untuk menyerah.”
 
 Menanggapi nada menyelidik Shisandan, Misufia meraih mangkuk di depannya, meminumnya sekaligus dan membanting mangkuk di atas meja.
 
-“Kamu tidak bisa menjadi bajak laut jika melarikan diri dalam ketakutan meski ada harta karun di depan matamu! Jika saya mengutip seseorang. "
+"Kamu tidak bisa menjadi bajak laut jika melarikan diri dalam ketakutan meski ada harta karun di depan matamu! itu kata seseorang yang kutahu."
 
 Geyserik tertawa dan menepuk lututnya setelah mendengar pernyataan Misufia.
 
