@@ -96,7 +96,7 @@ Shisandan mencibir. Geyserik dengan tidak senang memanggil petugas toko.
 
 “Ou! Kamu! Bawalah alkohol terbaik yang kamu miliki di sini!”
 
-“Haa, alkohol ini juga bagus. Untuk kesehatan."
+"Haa, alkohol ini juga bagus. Untuk kesehatan."
 
 "Ada apa denganmu bajingan! Tidak ada yang memikirkan hari esok saat minum alkohol!"
 
@@ -110,7 +110,7 @@ Geyserik berkomentar sambil menuangkan alkohol baru ke dalam mangkuk yang dia gu
 
 "!?"
 
-Wajah Geyserik mengeras. Petugas toko dan Shisandan memperhatikan dan menyeringai melihat reaksinya.
+Wajah Geyserik mengeras. Petugas toko dan Shisandan memperhatikan dan tersenyum melihat reaksinya.
 
 Geyserik mengabaikan mereka dan menghabiskan mangkuk sambil gemetar.
 
@@ -118,9 +118,9 @@ Geyserik mengabaikan mereka dan menghabiskan mangkuk sambil gemetar.
 
 Wajah Geyserik memerah. Alkoholnya mungkin cukup kuat.
 
-Pelanggan yang terhormat, kami biasanya meminum ini dengan mengencerkannya dengan air.
+"Pelanggan yang terhormat, kami biasanya meminum ini dengan mengencerkannya dengan air."
 
-Kata pelayan toko sambil menuangkan alkohol ke dalam mangkuk dan mengencerkannya dengan air. "
+Kata pelayan toko sambil menuangkan alkohol ke dalam mangkuk dan mengencerkannya dengan air.
 
 "Ah!"
 
