@@ -232,23 +232,23 @@ Mistome-shi meletakkan tangannya ke dalam kabut dengan ekspresi lembut. Seperti 
 
 "Aku akan menyerahkannya padamu."
 
-Kabut Horor bergetar seolah-olah dia mencium pipinya dan dengan kotoran, dengan cepat menyebar ke seluruh ruangan.
+Kabut Horor bergetar seolah-olah dia mencium pipinya dan dengan cepat menyebar ke seluruh ruangan.
 
-Akhirnya, meja dan kursi menghilang dan saya bisa mendengar teriakan burung camar dari jauh.
+Akhirnya, meja dan kursi menghilang dan aku bisa mendengar teriakan burung camar dari jauh.
 
-“Laut… aku di dalam kapal?”
+g"Laut... aku di dalam kapal?"
 
-Ruangan itu berubah total. Aku bisa mendengar suara berderit dan seluruh ruangan perlahan bergoyang. Saya tidak benar-benar bergoyang tetapi seluruh penglihatan saya bergoyang jadi saya merasa seolah-olah tubuh saya juga bergoyang.
+Ruangan itu berubah total. Aku bisa mendengar suara berderit dan seluruh ruangan perlahan bergoyang. aku tidak benar-benar bergoyang tetapi seluruh penglihatanku bergoyang jadi aku merasa seolah-olah tubuhku juga bergoyang.
 
 Di tengah ruangan, ada seorang gadis yang melihat ke bawah dengan ekspresi sedih sambil mengenakan gaun putih yang mahal.
 
-"Saat itulah Mistome-shi masih muda?"
+l"Saat itulah Mistome-shi masih muda?"
 
-"Iya. Dia masih sangat muda saat itu. "
+g"Iya. Dia masih sangat muda saat itu. "
 
-Cincin itu.
+l"Cincin itu."
 
-Lit segera menyadarinya. Aku mengalihkan pandanganku ke jari gadis itu dan melihat cincin emas yang diembos dengan lambang.
+Lit segera menyadarinya. Aku mengalihkan pandanganku ke jari gadis itu dan melihat cincin emas yang memiliki sebuah lambang.
 
 Lambang itu milik keluarga kerajaan Veron.
 
