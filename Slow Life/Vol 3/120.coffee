@@ -44,13 +44,13 @@ r"Aku..."
 
 Ruti ragu-ragu dan terdiam.
 
-Karena dia merasa kesulitan mengatakannya padaku, apakah dia merasa kesusahan karena aku?
+Karena dia merasa kesulitan mengatakannya padaku, apakah dia merasa semuanya karena aku?
 
-Ruti dan Aku, Geyserik dan Mistome. Poin umum… adalah?
+Ruti dan Aku, Geyserik dan Mistome. Poin umumnya... apa?
 
-"Apakah Aku memenuhi syarat untuk menerima cinta Onii-chan?"
+r"Apakah Aku memenuhi syarat untuk menerima cinta Onii-chan?"
 
-"Eh?"
+g"Eh?"
 
 Aku tanpa sadar menjawab dengan suara aneh. Itu adalah pertanyaan yang tidak terduga.
 
