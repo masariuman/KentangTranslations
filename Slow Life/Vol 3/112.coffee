@@ -74,27 +74,27 @@ Mata lelaki tua itu terbuka lebar karena terkejut.
 
 Meskipun Tise pada dasarnya berada pada jarak yang sangat dekat dari tembakan itu, dia memegang panah tepat sebelum titik di antara alisnya.
 
-Ketika Tise dengan acuh tak acuh melemparkan panah ke samping, lelaki tua itu menutup jarak di antara mereka dengan kelincahan yang tak terduga dari seorang lansia, tetapi dia terhanyut.
+Ketika Tise dengan acuh tak acuh melemparkan panah ke samping, lelaki tua itu menutup jarak di antara mereka dengan kelincahan yang tak terduga dari seorang orang tua, tetapi dia tersandung.
 
-Orang tua itu jatuh ke tanah. Namun, dia menghentikan kejatuhannya dengan tangan kirinya dan mencoba untuk berdiri kembali tanpa berhenti.
+Orang tua itu jatuh ke tanah. Namun, dia menghentikan jatuhnya dengan tangan kirinya dan mencoba untuk berdiri kembali tanpa berhenti.
 
-“Gu, nu… kapan kamu menyapu kakiku? Kamu kuat."
+"Gu, nu... kapan kamu menyandung kakiku? Kamu kuat."
 
-Tapi ketika lelaki tua itu menyadari pedang pendek Tise tertancap di antara alisnya, dia menyerah dan menurunkan bahunya.
+Tapi ketika lelaki tua itu menyadari pedang pendek Tise mengarah di antara alisnya, dia menyerah dan menurunkan bahunya.
 
 Kemudian,
 
-"Wanita muda! Pengejar! Tolong segera kabur! "
+"Wanita muda! Seseorang Mengejarmu! Tolong segera kabur! "
 
 Orang tua itu berteriak, bersiap untuk kematiannya.
 
-Saya menuangkan kekuatan ke 'Kaki Petir' saya untuk memotongnya. Tapi sepertinya aku tidak harus mengejar mereka.
+aku mengaktifkan kekuatan ke 'Kaki kilat'ku untuk mengejar. Tapi sepertinya aku tidak harus mengejar mereka.
 
-"Wanita muda …"
+"Wanita muda..."
 
 Seorang pria maskulin memegang tombak.
 
-Seorang pria tinggi berwajah kasar memegang kapak perang.
+Seorang pria tinggi berwajah seram memegang kapak perang.
 
 Seorang pria memegang gada dengan topi menutupi rambut putihnya.
 
@@ -104,7 +104,7 @@ Moen, Garadin, Cien dan Mistome, empat mantan petualang datang berjalan mendekat
 
 ☆☆
 
-"Cara ini."
+"Kesini."
 
 Mengikuti di belakang Mistome-shi, kami dibawa ke sebuah desa kecil di dalam hutan.
 
