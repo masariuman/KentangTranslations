@@ -50,23 +50,23 @@ Selain itu, dorongan hatinya mendesaknya untuk tetap konservatif tanpa membiarka
 
 Setelah mendengarkan pendeta itu, anak laki-laki dengan perlindungan ilahi dari 『Prajurit』 mengepalkan tinjunya dan bersiap untuk pergi.
 
-Setelah hari itu, anak laki-laki itu memukuli anak laki-laki lain di desa yang bangga dengan keterampilan berkelahi mereka dan memerintah sebagai jenderal anak tirani tetapi tidak ada orang lain yang tahu bahwa dia mendapatkan dorongan dari kata-kata pendeta hari itu.
+Setelah hari itu, anak laki-laki itu memukuli anak laki-laki lain di desa yang bangga dengan skill berkelahi mereka dan memerintah sebagai jenderal kepada yang kalah tetapi tidak ada orang lain yang tahu bahwa dia mendapatkan dorongan dari kata-kata pendeta hari itu.
 
 Sebaliknya, ekspresi Ruti terlihat dingin.
 
 ☆☆
 
-(Dalam hal ini, perlindungan ilahi Onii-chan atas dorongan 『Guide』 adalah ...)
+(Dalam hal ini, perlindungan ilahi Onii-chan atas dorongan 『Pemandu』 adalah ...)
 
-Di luar gelap. Dia bisa pulang tapi Mistome-shi menyebutkan bahwa mereka bisa menginap dan dia tidak punya alasan untuk menolak sehingga Ruti dan party tetap tinggal di pemukiman untuk malam itu.
+Di luar gelap. Dia bisa pulang tapi Mistome-shi bilang bahwa mereka bisa menginap dan dia tidak punya alasan untuk menolak sehingga Ruti dan timnya tetap tinggal di pemukiman untuk malam itu.
 
-Ruti tidak lagi punya dorongan hati. Keterampilan perlindungan ilahi dari 『True (Shin)』 yang baru diperolehnya membatalkan impuls dari 『Hero』.
+Ruti tidak lagi punya dorongan hati. skill perlindungan ilahi dari 『(Shin) Asli』 yang baru diperolehnya membatalkan impuls dari 『Pahlawan』.
 
-Sekarang, Ruti menikmati setiap hari setelah dia dibebaskan dari impuls 『Hero』 yang telah menyiksanya selamanya. Matahari yang cerah, pucuk-pucuk hijau bermunculan dari tanah, telur dadar yang dibuat oleh Onii-chan, dunia yang dipenuhi warna-warna cerah adalah sesuatu yang Ruti tidak pernah sadari sampai sekarang.
+Sekarang, Ruti menikmati kehidupannya setiap hari setelah dia dibebaskan dari impuls 『Pahlawan』 yang telah menyiksanya selama ini. Matahari yang cerah, pucuk-pucuk hijau bermunculan dari tanah, telur dadar yang dibuat oleh Onii-chan, dunia yang dipenuhi warna-warna cerah adalah sesuatu yang Ruti tidak pernah sadari sampai sekarang.
 
 Dunia sangat indah.
 
-Ironisnya, Ruti yang terlahir sebagai pahlawan untuk melindungi dunia baru mulai mencintai dunia setelah ia kehilangan perlindungan ilahi dari 『Hero』.
+Ironisnya, Ruti yang terlahir sebagai pahlawan untuk melindungi dunia baru mulai mencintai dunia setelah ia kehilangan perlindungan ilahi dari 『Pahlawan』.
 
 (Ini adalah dunia tanpa impuls.)
 
@@ -76,11 +76,11 @@ Di tengah malam di luar jendela, katak gelisah yang bangun dari hibernasi menang
 
 Bulan purnama yang indah di langit. Bulan bersinar samar melalui awan tipis yang menggantung di langit.
 
-(Meskipun saya telah bepergian selama ini. Saya melihat dunia secara berbeda. Semuanya abu-abu kecuali Onii-chan.)
+(Meskipun aku telah bepergian selama ini. aku melihat dunia secara berbeda. Semuanya abu-abu kecuali Onii-chan.)
 
-Dalam ingatan Ruti, Red menatap gunung dengan tatapan kekaguman yang dalam.
+Dalam ingatan Ruti, Red menatap gunung dengan tatapan terkagum.
 
-Di depan mata mereka adalah Tanah Suci Peri Kayu, gunung suci yang disebut 'Jejak Kaki Rarael'. Munculnya gunung yang menonjol keluar dari hutan sekitarnya sepertinya menimbulkan semacam emosi unik dari Peri dan manusia.
+Di depan mata mereka adalah Tanah Suci wood-elf, gunung suci yang disebut 'Jejak Kaki Rarael'. Munculnya gunung yang menonjol keluar dari hutan sekitarnya sepertinya menimbulkan semacam emosi unik dari elf dan manusia.
 
 "Cantiknya."
 
@@ -88,11 +88,11 @@ Red bergumam. Gunung itu berbentuk segitiga seolah-olah dibentuk oleh penggaris 
 
 Ruti berpikir sendiri tanpa merasa tersentuh.
 
-(Jika saya tidak memiliki dorongan hati saat itu, saya mungkin bisa berbagi pemandangan indah dengan Onii-chan.)
+(Jika aku tidak memiliki dorongan hati saat itu, aku mungkin bisa berbagi pemandangan indah dengan Onii-chan.)
 
 Ruti berpikir kembali dengan sedih. Melihat serangga yang terpikat oleh nyala lilin beterbangan melalui jendela, Ruti menutup jendela.
 
-(Saya telah dibebaskan dari dorongan hati saya. Saya melihat dunia secara berbeda. Kalau begitu, bagaimana dengan dunia Onii-chan?)
+(aku telah dibebaskan dari dorongan hatiku. aku melihat dunia secara berbeda. Kalau begitu, bagaimana dengan dunia Onii-chan?)
 
 Persis seperti bagaimana dunia yang dilihatnya berubah setelah tidak lagi memiliki impuls, bukan berarti dunia yang dilihat Red dengan impulsnya dari 『Guide』 berbeda dari dunia yang dilihat Ruti?
 
