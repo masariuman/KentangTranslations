@@ -166,25 +166,25 @@ Leonor tidak lagi memiliki kebanggaan yang sebelumnya dia miliki dalam ekspresin
 
 "Itu tidak akan pernah terjadi."
 
-"Apakah begitu? Bagaimanapun juga, jangan lengah... Jika tidak, aku akan kehilangan bahkan senyuman yang kudapatkan dari hidup seperti ini sebagai seorang biarawati. "
+"Apakah begitu? Bagaimanapun juga, jangan lengah... Jika tidak, aku akan kehilangan bahkan senyuman yang kudapatkan dari hidup seperti ini sebagai seorang biarawati."
 
-Leonor berkata dan menundukkan kepalanya saat dia meninggalkan ruangan.
+Leonor berkata dan menundukkan kepalanya dan dia meninggalkan ruangan.
 
-Leonor menawarkan leher Pietro, suaminya, dan memilih untuk keluar dari istana kerajaan untuk hidup sebagai seorang biarawati untuk menyelamatkan nyawanya. "
+"Leonor memberikan leher Pietro, suaminya, dan memilih untuk keluar dari istana kerajaan untuk hidup sebagai seorang biarawati untuk menyelamatkan nyawanya."
 
 Kata Mistome-shi.
 
 Bahkan Bajak Laut Misufia tidak tega membunuh adik perempuannya yang memohon nyawanya.
 
-"Mereka adalah bangsawan yang selamat dari kekacauan keluarga kerajaan. Jadi wajar kalau mereka bisa menunjukkan kekuatan kepribadian sebesar itu. "
+g"Mereka adalah bangsawan yang selamat dari kekacauan keluarga kerajaan. Jadi wajar kalau mereka bisa menunjukkan kekuatan kepribadian sebesar itu."
 
-Putri Kerajaan Logavia, Lit, mengangguk pada kata-kataku dan mendesah.
+Putri Kerajaan Logavia, Lit, mengangguk pada kata-kataku dan menghela nafas.
 
-"Tapi Aku buruk dalam hal itu. Aku ingin hidup lebih sederhana. "
+l"Tapi Aku buruk dalam hal itu. Aku ingin hidup lebih sederhana."
 
-Aku memeluk Lit saat dia mengatakan itu.
+Aku memeluk Lit ketika dia mengatakan itu.
 
-"Aku lebih suka jika aku selalu bisa bersama dan menyentuh orang yang kucintai seperti ini."
+l"Aku lebih suka jika aku selalu bisa bersama dan menyentuh orang yang kucintai seperti ini."
 
 Bagaimana di depan umum?
 
