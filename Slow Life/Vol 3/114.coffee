@@ -1,12 +1,12 @@
 Bab 114: Benua Kegelapan
 
-Kapal Geyserik adalah kapal layar dengan tiga tiang yang disebut carack. Kapal tentara Veronian adalah kapal dapur jadi saya sedikit terkejut.
+Kapal Geyserik adalah kapal layar dengan tiga tiang yang disebut carack. Kapal tentara Veronian adalah kapal gali jadi aku sedikit terkejut.
 
-“Kapal orang itu pada masa pembajakannya disebut Mother‧Elvir. Itu adalah kapal yang mengalami Storm King dan melihat ujung samudera Biru yang Hening. Pria itu tidak tinggal di satu lokasi dan pergi ke seluruh dunia setiap kali dia mendengar pembicaraan tentang harta karun. "
+"Kapal orang itu pada masa pembajakannya disebut Mother‧Elvir. Itu adalah kapal yang pernah menerjang raja badai dan melihat ujung samudera Biru yang Hening. Pria itu tidak tinggal di satu lokasi dan pergi ke seluruh dunia setiap kali dia mendengar pembicaraan tentang harta karun."
 
-“Storm King seperti di sarang badai di jalur perdagangan Barat? Tidak mungkin, apakah kalian memasuki Benua Hitam? ”
+g"Raja Badai seperti di sarang badai di jalur perdagangan Barat? Tidak mungkin, apakah kalian memasuki Benua Kegelapan?"
 
-“Ya, kami berada di sana sekitar lima bulan. Kami dan Bajak Laut Peri Ririnrara memimpin tujuh armada kapal ke Benua Hitam. Kami menyerang pelabuhan di Benua Kegelapan dan memperoleh berbagai harta karun yang mustahil ditemukan di Benua Avalon. ”
+“Ya, kami berada di sana sekitar lima bulan. Kami dan Bajak Laut Peri Ririnrara memimpin tujuh armada kapal ke Benua kegelapan. Kami menyerang pelabuhan di Benua Kegelapan dan memperoleh berbagai harta karun yang mustahil ditemukan di Benua Avalon.”
 
 Ilusi itu melintasi lautan badai dan memproyeksikan hamparan tanah abu-abu.
 
