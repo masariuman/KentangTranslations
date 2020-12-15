@@ -318,33 +318,33 @@ Melihat ekspresi kami, Mistome-shi menutup matanya dan membungkuk.
 
 Di balik senyum seorang ibu, di balik wajah ibu yang bahagia, Misufia sedikit demi sedikit semakin lesu.
 
-Akhirnya, dia kehilangan kekuatan untuk berdiri dan duduk sementara Leonor, adik perempuan Misufia, muncul.
+Akhirnya, dia kehilangan kekuatan untuk berdiri dan duduk. sementara Leonor, adik perempuan Misufia, muncul.
 
 Di pelukannya ada bayi kecil.
 
 "Onee-sama."
 
-Leonor ...
+"Leonor ..."
 
 Mata Misufia gelap dan mendung. Tidak ada lagi fitur dari putri yang bijaksana.
 
-"Aku juga telah menjadi bapak putra Yang Mulia."
+"Aku juga telah menjadi ibu dari Yang Mulia."
 
-"Selamat…"
+"Selamat..."
 
-"Jadi Onee-sama juga harus senang… itu pasti melelahkan, terus berbohong kepada kekasihmu sepanjang waktu."
+"Jadi Onee-sama juga harus senang... itu pasti melelahkan, terus berbohong kepada kekasihmu sepanjang waktu."
 
-"Mengapa Anda …"
+"Mengapa kamu..."
 
 Misufia tidak lagi memiliki kekuatan untuk menghadapi Leonor.
 
 Dia hanya takut pada monster dengan ambisi di depannya.
 
-"Aku tahu semua yang terjadi di istana kerajaan, Onee-sama. Jika tidak, Aku tidak akan bisa bertahan. "
+"Aku tahu semua yang terjadi di istana kerajaan, Onee-sama. Jika tidak, Aku tidak akan bisa bertahan."
 
 "Apa yang kamu inginkan?"
 
-"Mungkin Aku harus berbicara dengan Yang Mulia segera. Aku ingin melihat Yang Mulia putus asa atas pengkhianatan oleh orang yang dicintainya dan kebenciannya pada Onee-sama. "
+"Mungkin Aku harus berbicara dengan Yang Mulia segera. Aku ingin melihat Yang Mulia putus asa atas pengkhianatan oleh orang yang dicintainya dan kebenciannya pada Onee-sama."
 
 "Tolong, apa pun selain itu ... aku akan melakukan apa pun yang kamu katakan."
 
