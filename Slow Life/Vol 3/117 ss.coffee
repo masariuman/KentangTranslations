@@ -182,29 +182,29 @@ Dia sepertinya mengartikan tatapan Ruti sebagai ekspresi kepercayaan.
 
 Dengan tatapan tajam, dia memegang tongkatnya dengan kedua tangannya.
 
-“Ini aku datang, Iblis!”
+“Bersiaplah, Iblis!”
 
-Sambil memegang tongkatnya, Ares membuat segel, mengumpulkan kekuatan sihir dan melepaskan mantranya dengan kekuatan penuh.
+Sambil memegang tongkatnya, Ares membuat segel, mengumpulkan kekuatan sihir dan melepaskan sihirnya dengan kekuatan penuh.
 
-“Sihir Tingkat Menengah! Ledakan api!!"
+"Sihir Tingkat Menengah! Ledakan api!!"
 
-Bersamaan dengan ledakan menderu, api yang berada di kekuatan magis membungkus tubuh Iblis besar dalam teratai api merah.
+Bersamaan dengan ledakan, api yang berada di kekuatan magis membungkus tubuh Iblis besar dalam api merah.
 
-Fire Blast adalah mantra ofensif terkuat yang bisa digunakan Ares saat ini. Kisaran serangannya sempit tetapi dia telah membunuh Hill Giants dengan satu pukulan dengan mantra itu. Tidak ada musuh yang bisa mengambil mantra itu secara langsung dan keluar tanpa cedera.
+ledakan Fire adalah sihir ofensif terkuat yang bisa digunakan Ares saat ini. Kisaran serangannya sempit tetapi dia telah membunuh raksasa bukit dengan satu serangan dengan sihir itu. Tidak ada musuh yang bisa menerima sihir itu secara langsung dan tanpa cedera.
 
 Itulah yang dipikirkan Ares.
 
-“Hahaha, suam-suam kuku, rasanya suam-suam kuku.”
+“Hahaha, hangat, rasanya hangat juga.”
 
 Iblis itu mengejek Ares saat seluruh tubuhnya dimandikan api.
 
-“Apa ini, bisakah itu melelehkan mentega? Apakah Anda benar-benar berencana untuk menyakiti saya dengan sesuatu yang lemah ini? Mari saya tunjukkan, 『Sage』, api ... seharusnya seperti ini! ”
+“Apa ini, bisakah ini melelehkan mentega? Apakah kamu benar-benar berencana untuk menyakitiku dengan sesuatu yang lemah ini? biar aku tunjukkan kepadamu『Sage』, api itu ... seharusnya seperti ini!”
 
 Di dalam nyala api, iblis itu membentuk segel dengan tangan kirinya dengan aura ketenangan.
 
 "Badai api."
 
-Saat mantera itu dilemparkan, api yang mengelilingi iblis itu meledak dan nyala api yang berkali-kali lebih besar menyerang Tentara Kekaisaran.
+Saat sihir itu dilemparkan, api yang mengelilingi iblis itu meledak dan nyala api yang berkali-kali lebih besar menyerang Tentara Kekaisaran.
 
 Prajurit Kekaisaran tidak bisa menahan apapun dan dibakar sampai rata dengan tanah.
 
@@ -212,13 +212,13 @@ Melihat para prajurit yang menggeliat kesakitan di tanah, Ares menjadi bingung.
 
 "Mustahil!"
 
-Itu adalah 'Advanced Arcane Magic', tingkat yang lebih tinggi dari 'Intermediate Arcane Magic' yang digunakan Ares. Ares merasa bahwa tidak hanya dia tidak bisa mengukur kekuatan fisik iblis, dia juga tidak bisa dibandingkan dengan kemampuan sihirnya.
+Itu adalah 'sihir aracne lanjuta', tingkat yang lebih tinggi dari 'sihir arcane menengah' yang digunakan Ares. Ares merasa bahwa tidak hanya dia tidak bisa mengukur kekuatan fisik iblis, dia juga tidak bisa dibandingkan dengan kemampuan sihirnya.
 
-“Iblis itu, kuat…”
+“Iblis itu, kuat...”
 
-Lawan yang memiliki kekuatan fisik untuk menebas Tentara Kekaisaran yang mengenakan baju besi dan mampu menggunakan mantra yang lebih kuat daripada yang digunakan oleh Sage Ares. Ruti jelas tahu bahwa tidak mungkin menang dengan kecepatan seperti itu.
+Lawan yang memiliki kekuatan fisik untuk menebas Tentara Kekaisaran yang mengenakan baju besi dan mampu menggunakan sihir yang lebih kuat daripada yang digunakan oleh Sage Ares. Ruti jelas tahu bahwa tidak mungkin menang dengan pada saat itu.
 
-“Guhaha,『 Hero 』dan『 Sage 』. Anda mungkin memiliki Perlindungan Ilahi yang mengesankan tetapi level Anda terlalu rendah untuk melawan saya yang memiliki Perlindungan Ilahi dari 『Setan Besar』.
+"Guhaha,『 Pahlawan 』dan『 Sage 』. kamu mungkin memiliki Perlindungan Ilahi yang mengesankan tetapi levelmu terlalu rendah untuk melawanku yang memiliki Perlindungan Ilahi dari 『iblis Besar』."
 
 Iblis itu mengangkat pedang besarnya.
 
@@ -228,29 +228,29 @@ Pada saat itu, satu tombak terbang ke arah iblis dengan kekuatan meteor.
 
 Giiiiin!
 
-Pekikan logam terhadap logam bergema di seluruh medan perang.
+suaran logam terhadap logam bergema di seluruh medan perang.
 
-Setan itu dengan sempit bertahan melawan tombak.
+iblis itu sulit menahan tombak itu.
 
-"WHO?"
+"SIAPA?"
 
-Iblis itu memelototi Ruti dan party.
+Iblis itu memelototi Ruti dan timnya.
 
 Namun, orang yang melempar tombak itu tidak ada.
 
-Tombak? Dari mana!?"
+"Tombak? Dari mana!?"
 
 Ares berteriak dan melihat ke belakang.
 
-Ekspresi wajah pertama kali muncul di wajah Ruti saat dia menoleh ke belakang. Kebahagiaan bersinar di pupil merahnya.
+Ekspresi wajah yang pertama kali muncul di wajah Ruti saat dia menoleh ke belakang adalah Kebahagiaan yang bersinar di pupil merahnya.
 
-"Itu adalah … !!"
+"Itu adalah ... !!"
 
 Prajurit Kekaisaran dihebohkan oleh kemunculan sosok ksatria.
 
-Ksatria itu mengenakan sepiring penuh hitam legam, mantel yang berwarna merah saat nafas naga menutupi bahunya dan tangan kanannya menggenggam pedang panjang yang sangat bagus yang dibuat oleh 『Blacksmith』 eksklusif keluarga kerajaan yang hanya menjadi ksatria pilihan yang diizinkan untuk meminta.
+Ksatria itu mengenakan armor penuh hitam legam, mantel yang berwarna merah saat nafas naga menutupi bahunya dan tangan kanannya menggenggam pedang panjang yang sangat bagus yang dibuat oleh 『Blacksmith』 eksklusif keluarga kerajaan yang hanya menjadi ksatria pilihan yang diizinkan untuk meminta.
 
-
+<gambar>
 
 “Baju besi itu adalah baju besi dari Ordo Ksatria Bahamut elit Ibukota Kekaisaran!”
 
