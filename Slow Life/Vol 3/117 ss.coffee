@@ -306,11 +306,11 @@ Pipi Ruti mengendur setelah mendengar itu. Dia sangat gembira karena kakaknya pe
 
 g"Dalam kebingungan, kekuatan kecil lebih dari cukup untuk bertarung secara merata. Ares-kun, tolong dukung pasukan dengan sihir!"
 
-Ares mengangguk sedikit ketika dia dipanggil. Namun, Ares memiliki ekspresi gelap di wajahnya saat dia memelototi punggung Gideon.
+Ares mengangguk sedikit ketika dia dipanggil. Namun, Ares memiliki ekspresi gelap di wajahnya ketika dia melihat punggung Gideon.
 
-“Ruti! Kami akan membidik iblis besar itu! "
+g"Ruti! kita akan melawan iblis besar itu!"
 
-"Oke, Onii-chan."
+r"Oke, Onii-chan."
 
 Ruti dan Gideon sama-sama memegang pedang dan menyerang.
 
