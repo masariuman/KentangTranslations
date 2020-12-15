@@ -108,35 +108,35 @@ Karena itu, Aku tidak punya dorongan apapun. Meskipun itu wajar untuk perlindung
 
 Karena dewa dan dunia tidak lagi membutuhkanku.
 
-g"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Ruti Aku yang imut. Aku mencari cara untuk menghilangkan dorongan untuk 『Hero』 secara detail juga karena Ruti. "
+g"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Rutiku yang imut. Aku mencari cara untuk menghilangkan dorongan untuk 『Pahlawan』 secara detail juga karena Ruti."
 
 Wajah Ruti perlahan memerah setelah mendengar kata-kataku.
 
-"Aku mungkin akan bisa melanjutkan hidup Aku bahkan tanpa『 Panduan 』. Tapi jika Aku tidak memiliki Ruti, Aku yakin Aku tidak akan bisa melanjutkan. "
+g"Aku mungkin akan bisa melanjutkan hidupku bahkan tanpa『 Pemandu 』. Tapi jika Aku tidak memiliki Ruti, Aku yakin Aku tidak akan bisa melanjutkan. "
 
 Aku mengambil tangan Ruti.
 
-"Onii Chan …"
+r"Onii Chan..."
 
-"Coba singkirkan impuls Aku."
+g"Coba singkirkan impulsku."
 
-"Tapi."
+r"Tapi."
 
-"Semuanya akan menjadi jelas setelah kamu melakukannya, kan?"
+g"Semuanya akan menjadi jelas setelah kamu melakukannya, kan?"
 
-Wajah Ruti menunjukkan kegelisahan dan dia ragu-ragu beberapa kali tetapi di bawah 'aturan' 『Shin, impuls Aku sementara batal.
+Wajah Ruti menunjukkan kegelisahan dan dia ragu-ragu beberapa kali tetapi di bawah 'aturan' 『Shin』, impulsku sementara dihilangkan.
 
-Sensasi ketika orang menghubungi perlindungan ilahi mereka sendiri, sensasi pisau es yang menembus dan berlari ke tulang belakang Kamu, menghilang dalam sekejap.
+Sensasi ketika orang menghubungi perlindungan ilahi mereka sendiri, sensasi pisau es yang menembus dan berlari ke tulang belakangmu, menghilang dalam sekejap.
 
-"Bagaimana perasaanmu?"
+r"Bagaimana perasaanmu?"
 
-"... Ruti."
+g"... Ruti."
 
 Aku memeluk Ruti dengan erat.
 
-"Ah sheesh, kamu benar-benar imut!"
+g"Ah sheesh, kamu benar-benar imut!"
 
-"Eh, ah, Onii-chan?"
+r"Eh, ah, Onii-chan?"
 
 Bahkan saat memiliki kekuatan terbesar umat manusia, adik perempuanku yang manis merasa tidak nyaman dan bermasalah demi diriku.
 
