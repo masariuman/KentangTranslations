@@ -494,11 +494,11 @@ Aku bergumam dengan tekad sederhana saat aku berjalan di bawah langit biru yang 
 
 Seorang gadis berjubah berjalan melewati Red di jalan.
 
-Ada jarak antara mereka berdua dan wajah gadis itu ditutupi oleh tudung di jubahnya sehingga mereka tidak melihat wajah satu sama lain.
+Ada jarak antara mereka berdua dan wajah gadis itu ditutupi oleh hoodie di jubahnya sehingga mereka tidak melihat wajah satu sama lain.
 
-Gadis itu mencapai mansionnya sendiri dan meletakkan kopernya sambil mendesah.
+Gadis itu mencapai mansionnya sendiri dan meletakkan kopernya sambil menghela nafas.
 
-“Tidak ada hasil dari petualang hari ini juga ya?”
+l"Tidak ada hasil dari petualang hari ini juga ya?"
 
 Gadis itu melepas jubah yang dia kenakan dan memperlihatkan rambut pirang dan pupil birunya yang seperti memantulkan langit. Bandana merah yang melilit lehernya adalah barang berkualitas tinggi dan shotel yang tergantung di pinggangnya dihiasi dengan bulu griffon.
 
