@@ -186,11 +186,11 @@ Aku memeluk Lit ketika dia mengatakan itu.
 
 l"Aku lebih suka jika aku selalu bisa bersama dan menyentuh orang yang kucintai seperti ini."
 
-Bagaimana di depan umum?
+g"Bagaimana kalau di depan umum?"
 
-Aku memegang tubuh Lit tetapi Eksekutif Guild Petualang Garadin dan Uskup Cien dibuat bingung oleh penampilan Hero Lit.
+Aku memegang tubuh Lit tetapi Eksekutif Guild Petualang Garadin dan pendeta Cien dibuat bingung oleh penampilan pahlawan Lit.
 
-"Tepat sekali. Aku senang berada di sisi Geyserik… tapi Geyserik adalah seorang 『Emperor』. Aku harus menjadikan Geyserik raja. Jika tidak, dia tidak lagi membutuhkan Aku. "
+"Tepat sekali. Aku senang berada di sisi Geyserik... tapi Geyserik adalah seorang 『kaisar』. Aku harus menjadikan Geyserik raja. Jika tidak, dia tidak lagi membutuhkanku."
 
 Adegan berubah.
 
@@ -208,23 +208,23 @@ Jelas apa yang terjadi.
 
 Anak pertama Misufia lahir mati.
 
-"Eh?"
+l"Eh?"
 
 Lit bingung.
 
-"Apakah Pangeran Sarius lahir setelah itu?"
+l"Apakah Pangeran Sarius lahir setelah itu?"
 
-"……"
+"......"
 
 Mistome-shi diam. Ekspresinya berubah drastis dari sikap rendah hati sebelumnya.
 
-Adegan berubah sekali lagi. Itu berubah satu demi satu.
+Adegan berubah sekali lagi. semuanya berubah satu per satu.
 
-"Dua bayi yang meninggal berturut-turut… dengan ini, ahli waris…"
+"Dua bayi yang meninggal berturut-turut... dengan ini, ahli waris..."
 
-"Seorang bajak laut yang asal-usulnya diragukan menjadi raja jadi mungkin Dewa Demis sedang marah? Perlindungan ilahi 『Kaisar』? Itu jelas tidak masuk akal. "
+"Seorang bajak laut yang asal-usulnya diragukan menjadi raja jadi mungkin Dewa Demis sedang marah? Perlindungan ilahi 『Kaisar』? Itu jelas tidak masuk akal."
 
-"Sepertinya dia hamil anak ketiganya tapi jika itu tidak berhasil juga…"
+"Sepertinya dia hamil anak ketiganya tapi jika itu tidak berhasil juga..."
 
 Misufia terpojok dan akhirnya hanya bisa menutup telinganya dengan kedua tangan.
 
