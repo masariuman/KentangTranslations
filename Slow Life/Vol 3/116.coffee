@@ -1,0 +1,245 @@
+Bab 116: Jadi sang putri kembali ke Veronia
+
+Penerjemah: Tseirp
+
+Desmond dari Earth.
+
+Satu-satunya Demon Lord Army Four Heavenly King yang aku lawan dan lawan yang Ruti tidak punya pilihan selain mengakuinya adalah penghalang karena dia tidak bisa mendapatkan pukulan yang kuat selama pertarungan.
+
+Satu tahun yang lalu.
+
+Republik Kota-Negara Bagian Kazan.
+
+Setelah kami mengalahkan satu batalion Marionette Demons, walikota Kazan mengadakan pesta kecil untuk kami.
+
+Kemenangan itu istimewa. Meskipun itu hanya Republik Kota-Negara, kami akhirnya mendapatkan kembali negara yang diduduki oleh Tentara Raja Iblis.
+
+Penunggang Drake yang dikirim dari Kerajaan Avalon bergabung dalam perayaan saat mereka minum anggur dan bernyanyi.
+
+Hari yang cerah itu berakhir hanya dalam satu hari.
+
+"Apa itu?"
+
+Ketika kami melihat satu setan berjalan melalui hutan belantara dengan pakaian compang-camping, Ruti bertanya sementara yang lainnya, termasuk saya, menatap dengan tidak percaya.
+
+“Empat Raja Surgawi Desmond dari Bumi. Dia akhirnya keluar. "
+
+Ruti satu-satunya orang yang bisa melihat dan mengatakan itu dengan tenang.
+
+Sendirian. Desmond berjalan sendirian menuju kastil Kazan dengan lebih dari 6000 tentara termasuk bala bantuan dari Avalonia.
+
+Namun, tidak ada yang menertawakan kecerobohannya. Yang tertawa adalah ...
+
+"Bajingan itu sedang tertawa."
+
+Danan mengerang.
+
+Di wajah Desmond di mana kulitnya menempel pada tulangnya adalah seringai seorang pemburu brutal menghadapi mangsa yang tak berdaya.
+
+“Semua pasukan mengambil perlengkapanmu! Busur siap! Sesuatu akan terjadi! ”
+
+Bel berbunyi dan para prajurit dengan cepat mengambil senjata dan baju besi mereka.
+
+Pasukan berbaris menembakkan panah yang tak terhitung jumlahnya ke arah satu target.
+
+Dengan mengangkat tangannya, bayangan muncul dari bumi dan melindungi Desmond dengan perisai.
+
+“Apa… pada… tidak mungkin.”
+
+Ares sepertinya tidak bisa mempercayai tontonan di depan matanya.
+
+Semua orang merasakan hal yang sama. Bagaimana mungkin sesuatu yang begitu tidak masuk akal bisa terjadi?
+
+“J-hanya satu orang yang menciptakan golem yang menutupi cakrawala…”
+
+Bumi bergetar saat golem naik satu demi satu. Golem berbentuk manusia, berbentuk binatang, dengan lengan trebuchet, golem menara pengepungan yang memungkinkan golem lain untuk mengendarainya, golem dengan tubuh serudukan untuk mendobrak gerbang yang terbuka…
+
+“Lihat-lihat! Bahkan ada golem bersayap! Bisakah mereka benar-benar terbang !? ”
+
+Golem berjumlah sekitar seratus ribu. Ada 6000 tentara di kastil jadi… ada perbedaan 15 kali lipat jumlahnya. Tidak ada harapan.
+
+“Kerja bagus menyeretku ke medan perang, Pahlawan. Kerja bagus. ”
+
+Desmond bertepuk tangan.
+
+Suara Desmond terdengar kering seolah sedang mengikis pohon mati. Namun, meski medan perangnya luas, suara itu secara misterius bergema di seluruh area.
+
+“Sekarang, untuk menebus kesalahan bawahanku, aku akan menyerang kastil ini. Saya satu-satunya tentara. Tapi pasukan saya tidak ada habisnya. "
+
+Desmond mengacungkan lengannya yang seperti cabang ke Ruti.
+
+"Pahlawan. Tidak mungkin menang melawan saya dengan angka. Hanya individu yang luar biasa yang bisa menantangku. Akankah kecakapan bela diri Anda, yang mampu merobek pasukan saya seperti badai pasir yang merobek daging, mencapai saya? Saya salah satu dari Empat Raja Surgawi dari Tentara Raja Iblis, Desmond of Earth. Raja tentara prajurit yang berada di bumi. Ayo tantang aku jika kamu tidak takut dengan namaku. ”
+
+Desmond menurunkan lengannya. Para golem mulai berbaris segera ke sinyal itu. Bumi bergetar.
+
+"Onii-chan, aku masih belum bisa menang melawan itu."
+
+Ruti berkata padaku.
+
+Dia benar. Tapi berapa banyak tentara yang kita korbankan untuk mendapatkan kembali negara ini?
+
+Kami merencanakan dan merencanakan dan merencanakan dan menumpahkan banyak darah dan berjuang demi hari ini, tetapi itu dibatalkan dengan sangat tidak masuk akal.
+
+“Jadi itu adalah Demon Lord Army Four Heavenly King… sialan! Walikota, mundur! "
+
+Saat itu adalah pertama kalinya kami membebaskan sebuah negara dari pendudukan Tentara Raja Iblis dan pertama kalinya kami mengalami sebuah negara direnggut dari kami oleh Tentara Raja Iblis saat kami hadir dalam pertarungan.
+
+Setelah itu, kami menggunakan item sihir yang disebut jantung Naga Es untuk membekukan kastil Desmond dan mengalahkan Desmond dengan merebut kendali atas bumi.
+
+Banyak persiapan yang dibutuhkan untuk melawan Desmond.
+
+☆☆
+
+Misufia dan yang lainnya dengan cepat.
+
+Mereka dianggap beruntung karena yang berjaga adalah bawahan Empat Raja Surgawi Desmond dari Bumi, para pengguna Golem.
+
+Golem yang merupakan kekuatan pertahanan utama tidak memiliki pemikiran independen dan dikendalikan oleh pengguna Golem. Ledakan tiba-tiba membingungkan pengguna Golem dan para golem menjadi tidak berdaya.
+
+Mereka juga memiliki tata letak yang diperoleh Shisandan sehingga Misufia dan party dengan cepat mencapai kapal Raja Iblis dan menjatuhkan Tentara Iblis di atasnya.
+
+Itu juga karena fakta bahwa dua Asura Demons, Gashasura dan Chugara, ada disana. Kedua Asura menebas Prajurit Setan dalam sekejap mata.
+
+Sepertinya Ririnrara mengerti bagaimana mengemudikannya. Karena penguasaan skill Pilot-nya 'Perfect Pilot', dia bisa mengemudikan kapal apa pun pada pandangan pertama selama kapal dioperasikan dengan cara fisik.
+
+“Saya tidak begitu memahami mekanismenya dengan baik tapi saya bisa mengendarainya! Kalian pergi ke tungku dan membuang batu bara! ”
+
+Ya-ya!
+
+Kapal Raja Iblis Wendy Dart mengeluarkan uap dari cerobong asapnya dan roda luar yang terpasang di sisi kapal mulai bergerak.
+
+Dermaga itu dilumpuhkan oleh kapal bajak laut yang menghancurkan dirinya sendiri. Misufia dan strategi party berjalan dengan sempurna sesuai rencana.
+
+Namun, kesialan Misufia dan party adalah bahwa Empat Raja Surgawi Desmond dari Bumi menjaga tempat itu.
+
+"Bawahan yang mengecewakan, saya tidak akan bisa pensiun selama 100 tahun lagi dengan kecepatan seperti ini."
+
+Desmond, dengan pakaian compang-camping, berjalan ke tepi laut dan meletakkan tangannya di tanah.
+
+“A-apa yang kamu rencanakan !?”
+
+Kolom air naik satu demi satu dari permukaan laut yang mengelilingi Wendy Dart.
+
+Muncul dari kolom air adalah kapal dengan roda luar seperti kapal Wendy Dart. Namun, mereka tidak memiliki cerobong asap atau tiang, hanya satu ton golem tipe prajurit yang berkerumun di dek mereka.
+
+“Tidak mungkin, apakah dia baru saja membuat golem tipe kapal dari bumi di dasar laut !?”
+
+Ada delapan kapal itu. Kapal golem muncul di sekitar Wendy Dart. Misufia melihat sekelilingnya dengan tidak sabar.
+
+"Sekakmat. Sampah laut membuang-buang waktuku. Aku akan menyegel kepalamu di golem dan menenggelamkanmu di laut selama kamu hidup. "
+
+Desmond meraung dengan suara kering dan mengerikan. Ririnrara dengan sabar mengamati sekelilingnya untuk mencari celah di pengepungan tapi… tidak ada celah.
+
+“Guh… maafkan aku, Geyserik!”
+
+Ririnrara berteriak ke arah setir.
+
+Kolom air lain naik ke udara.
+
+"Apa?"
+
+Kejutan menyebar di wajah Desmond.
+
+"Itu kapal Carack. Bukan salah satu golem saya. Apakah ada kapal yang tenggelam di air dengan sihir? "
+
+Pria itu mencengkeram kemudi kapal yang melesat ke permukaan laut dengan senyum miring di mulut berjanggutnya.
+
+“Bakar ini ke matamu, Demon Lord Army! Ini adalah Bajak Laut Hebat Benua Avalon, mitra tepercaya Geyserik, Mother‧Elvir! ”
+
+"Itu buruk!"
+
+Desmond memanipulasi golemnya untuk melakukan manuver mengelak, tetapi,
+
+"Sangat terlambat!"
+
+Pada saat yang sama Geyserik mulai berlari di geladak dan melompat ke laut, Mother‧Elvir meledak.
+
+Salah satu kapal golem yang menerima ledakan langsung tenggelam sementara kapal di sampingnya terkena dampak ledakan dan bertabrakan dengan kapal golem lainnya. Golem yang berbaris di geladak jatuh ke laut satu demi satu.
+
+“Misufia!”
+
+"Aku tahu! Arcane Escape! ”
+
+Dengan cepat mengambil Geyserik dengan sihir, Wendy Dart menerobos dari dalam api Mother‧Elvir.
+
+Kulit Desmond berubah dan dia menciptakan golem dengan sayap dan membawa dirinya ke kapal golem.
+
+“Aku tidak akan membiarkanmu pergi!”
+
+Wendy Dart meninggalkan Mother‧Elvir yang compang-camping dan tenggelam di belakang dan melarikan diri ke laut terbuka saat Desmond mengejar mereka.
+
+☆☆
+
+“Desmond mengejar kami secara berurutan selama tiga hari tetapi lautan terbuka bukanlah tempat yang kuat bagi Raja Surgawi Empat Bumi. Kami terhubung dengan kapal Breit yang sedang mengumpulkan makanan dan air dan kembali ke Benua Avalon. "
+
+Mereka sebenarnya mencuri kapal dari bawah hidung Desmond.
+
+Saya tidak percaya pesta Geyserik lebih kuat dari Desmond. Namun, mereka pasti lebih baik dari Desmond dalam pertunangan itu.
+
+Seorang bajak laut biasa naik ke peringkat 『Kaisar』 dari negara besar.
+
+Aku tidak tahu skill macam apa yang dia gunakan tapi dia adalah pria yang cocok untuk disebut Pahlawan.
+
+Adegan kembali ke tempat yang kami kenal, benua hijau Avalon.
+
+"Heeeee!"
+
+Duke of Oslo berlutut. Dia adalah bangsawan terbesar di Kerajaan Veronia yang mencoba menikahi Misufia dan mengambilnya sebagai selirnya.
+
+Saat ini, Geyserik, Half-Elf Ririnrara, dan Misufia sedang menatapnya.
+
+Di sekitar mereka ada tentara pribadi Duke of Oslo yang roboh. Dua Asura duduk di atas mayat yang mengobrol.
+
+Misufia berbicara dengan Duke of Oslo.
+
+“Yang Mulia, terima kasih telah mengadopsi gadis tidak berguna seperti saya. Saya di sini hari ini untuk menerima hak itu. "
+
+“Ka-kau adalah Putri Misufia yang diculik oleh bajak laut !?”
+
+“Ya, sudah lama sekali. Aku datang untuk menerima semua warisan untuk menjadi istrimu. "
+
+“Pra-tidak masuk akal! Kami tidak menukar upacara pernikahan apa pun dan saya tidak akan memberikan sebutir beras pun kepada selir! "
+
+“Bukankah kamu mengajarkan ini padaku dulu?”
+
+"Apa …"
+
+“Pelanggaran hukum dimungkinkan dengan kekuatan yang cukup.”
+
+“Gah !?”
+
+Tongkat sihir logam Misufia yang tajam dan runcing menembus punggung Duke of Oslo.
+
+“Pertama, kita tidak bisa mulai jika kamu tidak mati. Aku sebenarnya tidak membencimu atau apapun. Sejak saya bertemu Geyserik karena Anda. "
+
+“Seorang putri yang bertindak sebagai bajak laut… Ugahhhh !!”
+
+Misufia menusukkan tongkatnya lebih dalam dan Duke of Oslo mengeluarkan seruan kematian terakhirnya dan mengejang beberapa kali sebelum dia berhenti bergerak.
+
+“Mendengar Anda berkhotbah tentang bangsawan itu tidak menyenangkan.”
+
+Setelah mendapatkan kapal terkuat di dunia, Geyserik dan partynya menyerang wilayah Duke of Oslo dan membunuhnya. Mereka menduduki wilayahnya dan mengambil kendali efektif atasnya.
+
+“Saat itu, tidak ada seorang pun di Kerajaan Veronia yang bisa menentang Duke of Oslo. Dalam hal ini, mereka juga tidak bisa melawan Geyserik yang mengalahkan Duke of Oslo. Pelanggaran hukum dimungkinkan dengan kekuatan yang cukup. Fakta itu berlaku di Kerajaan Veronia selama usia itu. "
+
+Misufia memproklamirkan dirinya sendiri ke posisi Adipati Oslo dan kembali ke keluarga kerajaan Veron.
+
+Geyserik mengambil kendali atas para bajak laut di perairan dangkal dekat Veronia dan hanya membutuhkan waktu dua bulan setelah dia kembali untuk ditakuti oleh alias Juara Bajak Laut.
+
+Juara Bajak Laut Geyserik dan Penjarah Duchess Misufia.
+
+“Kemudian, pergolakan oleh Raja Goblin Murgarga dimulai dan Kerajaan Veronia tidak mampu menangani para goblin dan bajak laut yang memanfaatkan kekacauan itu. Pada saat itu, saya kembali ke Istana Kerajaan dan menugaskan setengah dari wilayah Duke of Oslo di bawah kendali langsung keluarga kerajaan dan setengah lainnya ke Geyserik sebagai wilayahnya bersama dengan gelar Earl of Oslo. Saya membuat ayah saya menyetujui kontrak itu. "
+
+Mistome-shi menyipitkan matanya dan menghembuskan napas.
+
+“Maaf telah membawamu ke sepanjang sejarah masa laluku. Sedikit lagi. Tapi saya yakin Anda semua lelah karena berdiri begitu lama. Sebelum saya tunjukkan ingatan terakhir saya tentang alasan mengapa saya ada di sini, mengapa Sarius mencari saya, dan mengapa Ririnrara ingin membunuh saya ... mari kita istirahat sejenak. Saya akan menyiapkan minuman segar. "
+
+Ilusi menghilang dan Kabut Horor, puas dengan makanan dari semua jenis emosi, melayang ke sudut rumah.
+
+Mistome-shi memutar tangannya seolah hendak menepuk Kabut Horor dan pergi ke dapur.
+
+Catatan penulis:
+
+Versi komikal di Comic Walker tersedia secara gratis! (Prolog dan Bab 1 bagian 1) https://comic-walker.com/viewer/?tw=2&dlcl=ja&cid=KDCW_KS01200352010001_68
+
+Untuk memperingati, saya akan memposting versi novel terbalik dari episode 1 komikal berikutnya untuk dinikmati pembaca novel web juga!
