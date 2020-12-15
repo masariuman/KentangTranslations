@@ -200,15 +200,15 @@ g"Rum mentega panas ya?"
 
 Itu adalah minuman panas yang sangat baik untuk hari-hari yang dingin. aku diajari resep oleh seorang teman selama waktu aku masih menjadi ksatria.
 
-"Di Veronia, para pelaut membawa pulang rum yang tersisa dan ibu atau istri mereka akan menggunakannya untuk memasak atau untuk minuman. Rasa rum adalah simbol pertemuan keluarga kami. "
+"Di Veronia, para pelaut membawa pulang rum yang tersisa dan ibu atau istri mereka akan menggunakannya untuk memasak atau untuk minuman. Rasa rum adalah simbol pertemuan keluarga kami."
 
-“Seperti yang diharapkan, kamu adalah Veronia ...”
+g"sudah kuduga, kamu dari Veronia ..."
 
 "Iya."
 
 Gumpalan kabut melayang dari ruang belakang.
 
-Setelah melihat kami, kabut… Kabut Horor dengan cepat bersembunyi di balik Mistome-shi.
+Setelah melihat kami, kabut... Kabut Horor dengan cepat bersembunyi di balik Mistome-shi.
 
 "Maaf, aku membuatmu terluka."
 
