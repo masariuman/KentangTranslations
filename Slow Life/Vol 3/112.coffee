@@ -254,7 +254,7 @@ Lambang itu milik keluarga kerajaan Veron.
 
 Tiba-tiba, ada keributan di dekatnya. Ada tangisan marah dan suara benturan logam.
 
-Mistome muda melihat sekeliling dengan cemas dan mengambil staf yang berdiri di dalam ruangan.
+Mistome muda melihat sekeliling dengan cemas dan mengambil tongkat yang berdiri di dalam ruangan.
 
 Pintu itu terbuka dengan keras.
 
@@ -262,17 +262,17 @@ Pintu itu terbuka dengan keras.
 
 Kata pria yang muncul. Pria itu terlihat mirip dengan Pangeran Sarius tetapi tatapannya tajam dan ekspresinya menunjukkan kepercayaan dirinya.
 
-"Seperti yang diharapkan, kapal ini memiliki harta karun terbesar."
+"Sudah kuduga, kapal ini memiliki harta karun terbesar."
 
-“Apa yang diinginkan seorang bajak laut? Anda menyerang kapal ini karena mengetahui bahwa itu milik keluarga kerajaan Veronia! ”
+“Apa yang diinginkan seorang bajak laut? kamu menyerang kapal ini karena mengetahui bahwa itu milik keluarga kerajaan Veronia!”
 
-“Keluarga kerajaan Veronia? Ha, keluarga kerajaan yang menjual putri mereka kepada adipati untuk menjadi selir tidak memiliki otoritas. "
+"Keluarga kerajaan Veronia? Ha, keluarga kerajaan yang menjual putri mereka kepada adipati untuk menjadi selir tidak memiliki otoritas."
 
 Wajah Mistome memerah karena malu di bawah ejekan bajak laut itu.
 
-"Diam! Biarpun harga diriku tercoreng di tanah hari ini, aku pasti akan mendapatkan kembali Kerajaan Veronia! Rumah Adipati Oslo sangat besar, jika dia menyukaiku, jika aku bisa membiarkan anak-anakku mewarisi beberapa wilayahnya… ”
+"Diam! Biarpun harga diriku tercoreng hari ini, aku pasti akan mendapatkan kembali Kerajaan Veronia! Rumah Adipati Oslo sangat besar, jika dia menyukaiku, jika aku bisa membiarkan anak-anakku mewarisi beberapa wilayahnya..."
 
-“Itu tidak mungkin bagi seorang selir. Orang tua itu hanya cabul. Dia tidak mencari keberanian pada wanita. Minatnya pada… ”
+“Itu tidak mungkin bagi seorang selir. Orang tua itu hanya cabul. Dia tidak mencari keberanian pada wanita. Minatnya pada...”
 
 Bajak laut itu mendekati Mistome dan menempelkan jarinya di dadanya.
 
