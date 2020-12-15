@@ -104,13 +104,13 @@ Ruti mampu menahan dorongan dari 『Pahlawan』 dan mempertahankan kepribadianny
 
 Jika dia menjadi 『Pahlawan』, dia akan kehilangan perasaannya terhadap Red. Bahkan jika Red meninggal, dia tidak akan meneteskan air mata dan hanya akan menunjukkan kesedihan karena orang-orang di sekitarnya berharap 『Pahlawan』 akan sedih ketika kakaknya meninggal.
 
-Ruti sama sekali tidak bisa menerima hal seperti itu. Dia tidak bisa menahan dirinya menjadi orang seperti itu. Dia tidak akan kehilangan perasaannya terhadap kakaknya bahkan jika Tuhan ingin merenggutnya. Itulah inti ( Shin ) hati Ruti.
+Ruti sama sekali tidak bisa menerima hal seperti itu. Dia tidak bisa menahan dirinya menjadi orang seperti itu. Dia tidak akan kehilangan perasaannya terhadap kakaknya bahkan jika dewa ingin merenggutnya. Itulah inti ( Shin ) hati Ruti.
 
 Karena itu, apapun dorongan hati yang diterimanya, Ruti tidak berhenti menjadi dirinya sendiri.
 
 Red memanjakan Ruti. Ruti sangat menyadarinya.
 
-Bagaimanapun juga, orang tua Ruti menemukan keberadaannya berbeda dan dia dalam kondisi selangkah lagi dari penelantaran anak. Hanya Red, saudara laki-lakinya, yang mencurahkan semua cintanya sebagai ayah, ibu, dan saudara laki-laki dan terus melindunginya dari tatapan penasaran dan jahat penduduk desa serta dari 『Hero』.
+Bagaimanapun juga, orang tua Ruti menemukan keberadaannya berbeda dan dia dalam kondisi selangkah lagi menjadi anak terlantar. Hanya Red, saudara laki-lakinya, yang mencurahkan semua cintanya sebagai ayah, ibu, dan saudara laki-laki dan terus melindunginya dari tatapan penasaran dan jahat penduduk desa serta dari 『Pahlawan』.
 
 Di dunia di mana dia terpaksa menyelamatkan orang lain, Red adalah satu-satunya orang yang menyelamatkan Ruti.
 
