@@ -158,9 +158,9 @@ Misufia hancur di bawah kata-kata Leonor.
 
 “Saat itulah rasa kekalahan sebagai seorang wanita, kekecewaan terhadap Pietro yang bisa menjadi raja dan keputusasaan untuk masa depan Kerajaan Veronia, segala macam pemikiran berputar-putar di kepalaku.”
 
-Kata Mistome-shi sambil mendesah.
+Kata Mistome-shi sambil menghela nafas.
 
-“Jika saya tidak bertemu Geyserik, saya mungkin akan menjalani hidup saya sebagai mainan Duke of Oslo.”
+“Jika aku tidak bertemu Geyserik, aku mungkin akan menjalani hidupku sebagai mainan Oslo.”
 
 Ilusi yang terbentuk dari ingatan Mistome-shi mengubah adegan satu demi satu.
 
@@ -168,9 +168,9 @@ Ilusi yang terbentuk dari ingatan Mistome-shi mengubah adegan satu demi satu.
 
 “Ya, nona muda!”
 
-Mistome beralih dari gaun dan rok ke kemeja dan celana panjang yang lebih mudah untuk dimasuki dan memberikan instruksi kepada bajak laut sambil memegang tongkat yang meningkatkan kekuatan sihir. Tongkat itu disempurnakan dengan logam sehingga mungkin juga bisa digunakan sebagai pedang penusuk seperti rapier Epee. Dia bahkan memiliki sarung di ikat pinggangnya.
+Mistome beralih dari gaun dan rok ke kemeja dan celana panjang yang lebih mudah untuk dipakai dan memberikan instruksi kepada bajak laut sambil memegang tongkat yang meningkatkan kekuatan sihirnya. Tongkat itu disempurnakan dengan logam sehingga mungkin juga bisa digunakan sebagai pedang penusuk seperti rapier. Dia bahkan memiliki sarungnya di ikat pinggangnya.
 
-Para perompak membawa rampasan mereka dari kapal musuh di bawah instruksi Misufia.
+Para bajak laut membawa rampasan mereka dari kapal musuh di bawah instruksi Misufia.
 
 "Kamu sudah terbiasa dengan bisnis bajak laut."
 
@@ -178,6 +178,6 @@ Geyserik dan High-Elf bertelinga panjang, Ririnrara, berkata sambil tertawa. Ham
 
 “Ririnrara-sama.”
 
-“Hentikan dengan -sama. Anda bisa memanggil saya Ririnrara. ”
+“Hentikan dengan -sama. kamu bisa memanggilku Ririnrara. ”
 
 Mungkin tertarik oleh senyuman di wajah mereka, Misufia yang berjemur tersenyum juga.
