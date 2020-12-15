@@ -160,35 +160,35 @@ Ekspresi Moen menjadi mendung.
 
 g"Aku tahu."
 
-Selama insiden perlindungan ilahi iblis, karena rencana jahat Big Hawk, Southmarsh berada di ambang kerusuhan tetapi Moen mengambil tindakan untuk Zoltan tanpa keuntungan pribadi sehingga saya bisa mempercayainya. Cintanya kepada keluarganya adalah titik lemahnya, tapi saya percaya itu menambahkan sentuhan manusia pada kapten penjaga yang melindungi Zoltan jadi tidak apa-apa.
+Selama insiden perlindungan ilahi iblis, karena rencana jahat Big Hawk, marsh selatan berada di ambang kerusuhan tetapi Moen mengambil tindakan untuk Zoltan tanpa keuntungan pribadi sehingga aku bisa mempercayainya. Cintanya kepada keluarganya adalah titik lemahnya, tapi aku percaya itu menambahkan sentuhan manusia pada kapten penjaga yang melindungi Zoltan jadi tidak apa-apa.
 
-“Saya senang Anda setuju… tapi Red. Sama seperti kejadian lainnya, hanya siapa kamu sebenarnya. ”
+“aku senang kamu setuju... tapi Red. Sama seperti kejadian lainnya, siapa kamu sebenarnya. ”
 
-Seorang apoteker.
+g"Seorang apoteker."
 
 Moen mengerutkan kening, tidak puas dengan jawabanku.
 
-"Adalah aturan Zoltan untuk tidak mengorek masa lalu orang lain jika memang tidak perlu."
+"aturan Zoltan tidak mengorek masa lalu orang lain jika memang tidak perlu."
 
 Mistome-shi memotongnya.
 
-“Kali ini, para pahlawan yang saat ini melindungi Zoltan perlu mengetahui masa laluku. Itu semuanya. Biasanya, kami tidak akan mendengar sesuatu yang kasar seperti mengapa Anda ada di sini. Benar kan, Garadin, Cien. ”
+“Kali ini, para pahlawan yang saat ini melindungi Zoltan perlu mengetahui masa laluku. Itu saja. Biasanya, kita tidak akan mendengar sesuatu yang membosankan seperti mengapa kamu ada di sini. Benar kan, Garadin, Cien.”
 
-Garadin dan Uskup Cien mengangguk. Mistome-shi menatapku dan tersenyum.
+Garadin dan pendeta Cien mengangguk. Mistome-shi menatapku dan tersenyum.
 
-“Nah, itu rumahku. Jangan dicadangkan, silakan masuk. "
+"Nah, itu rumahku. Jangan sungkan, silakan masuk. "
 
 Di ujung pemukiman ada gubuk kecil yang sedikit lebih mengesankan dibandingkan dengan gubuk kecil lainnya.
 
 ☆☆
 
-"Sini."
+"ini."
 
-Rum diletakkan di atas meja. Nah, biar akuratnya sudah diencerkan dengan air jadi harus minuman beralkohol.
+Rum diletakkan di atas meja. Lebih tepatnya sudah diencerkan dengan air jadi menjadi minuman keras biasa.
 
 Ruti dan Tise tidak terlalu minum alkohol jadi mereka sedikit bermasalah.
 
-"Saya bercanda. Aku hanya merasa bahagia karena kalian adalah orang pertama yang menyadari identitas asliku setelah Moen. "
+"aku bercanda. Aku hanya merasa bahagia karena kalian adalah orang pertama yang menyadari identitas asliku setelah Moen. "
 
 Kulit tua Mistome-shi menunjukkan senyum nakal sebelum dia mengganti cangkir dengan cangkir teh hitam dan dia mencampur hanya satu sendok rum minuman beralkohol ke dalam teh hitam.
 
