@@ -314,21 +314,21 @@ r"Oke, Onii-chan."
 
 Ruti dan Gideon sama-sama memegang pedang dan menyerang.
 
-Setan itu membuat segel dengan tangan kirinya sekali lagi.
+iblis itu membuat segel dengan tangan kirinya sekali lagi.
 
-Jika dia bisa menghadapi 『Hero』 dan ksatria yang baru saja muncul, yang lain tidak akan bisa lagi bertarung. Hanya ketika harapan yang mereka lihat hancur, mereka akan merasakan keputusasaan terbesar.
+Jika dia bisa menghadapi 『Pahlawan』 dan ksatria yang baru saja muncul, yang lain tidak akan bisa lagi bertarung. Hanya ketika harapan yang mereka lihat hancur, mereka akan merasakan keputusasaan terbesar.
 
-“Hmph! Semut kurang ajar, aku akan mengubahmu menjadi arang bersama! "
+"Hmph! Semut kurang ajar, aku akan mengubahmu menjadi arang bersamaan!"
 
-Advanced Arcane Magic Fire Storm. Kekuatan nyala api sangat mengesankan dan udara panas intens yang dihasilkan juga berfungsi untuk menghalangi pergerakan. Huge Demon dengan tubuh besar kemungkinan akan mampu menahannya tapi itu mungkin mustahil bagi tubuh manusia yang lemah untuk bertahan.
+Sihir Arcane Tingkat Lanjut Badai Api. Kekuatan nyala api sangat mengesankan dan udara panas yang kuat yang dihasilkan juga berfungsi untuk menghalangi pergerakan. iblis besar dengan tubuh besar kemungkinan akan mampu menahannya tapi itu mungkin mustahil bagi tubuh manusia yang lemah untuk bertahan.
 
 Iblis tidak pernah meragukan keunggulannya.
 
-Aku tidak akan membiarkanmu.
+r"Aku tidak akan membiarkanmu."
 
 Ruti membungkuk dan memfokuskan energinya pada kakinya.
 
-“Teknik Pertempuran, Pedang Tersembunyi.”
+r"Teknik Pertempuran, Pedang Tersembunyi."
 
 Ruti menghilang.
 
