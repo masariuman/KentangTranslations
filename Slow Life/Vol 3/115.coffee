@@ -172,27 +172,27 @@ Setengah bulan kemudian. Dermaga tersembunyi Tentara Raja Iblis.
 
 "Hn, ya."
 
-Yang berjaga-jaga adalah tentara reguler Tentara Raja Iblis, Tentara Iblis dengan baju besi pelat lengkap. Bukan tentara Orc yang terdiri dari mayoritas pasukan penyerang Benua Avalon.
+Yang berjaga-jaga adalah tentara reguler Tentara Raja Iblis, Tentara Iblis dengan baju besi lengkap. Bukan tentara Orc yang terdiri dari mayoritas pasukan penyerang Benua Avalon.
 
 Dan.
 
 "Apakah itu kapal Raja Iblis?"
 
-Digambarkan dalam ilusi adalah sebuah kapal besar yang belum pernah saya lihat sebelumnya.
+Digambarkan dalam ilusi bayangan adalah sebuah kapal besar yang belum pernah aku lihat sebelumnya.
 
-Saya juga terkejut ketika saya diperlihatkan kapal terbang yang dikendarai Ruti tetapi itu masih termasuk dalam kategori kapal yang bisa dilihat di Benua Avalon dan tidak dapat dikatakan dibangun dengan aneh.
+aku juga terkejut ketika aku diperlihatkan kapal terbang yang dikendarai Ruti tetapi itu masih termasuk dalam kategori kapal yang bisa dilihat di Benua Avalon dan tidak dapat dikatakan dengan aneh.
 
-Bahkan kapal galea terbesar di benua Avalon memiliki panjang sekitar 50 meter tetapi Wendy Dart dari Raja Iblis lebih dari dua kali lipat, dengan panjang mungkin sekitar 120 meter.
+Bahkan kapal gali terbesar di benua Avalon memiliki panjang sekitar 50 meter tetapi Wendy Dart dari Raja Iblis lebih dari dua kali lipat, dengan panjang mungkin sekitar 120 meter.
 
-Berbeda dengan tubuh besar, hanya ada dua tiang. Tetapi untuk beberapa alasan, tidak ada layar. Ada kincir air yang sangat besar di sisi-sisinya dan putaran roda tersebut tampaknya menyediakan tenaga penggerak yang dibutuhkan.
+Berbeda dengan bentuk besar, hanya ada dua tiang. Tetapi untuk beberapa alasan, tidak ada layar. Ada kincir air yang sangat besar di sisi-sisinya dan putaran roda tersebut tampaknya menyediakan tenaga penggerak yang dibutuhkan.
 
 Ada dua cerobong asap di tengah kapal dan ketapel berjejer di sisinya.
 
-Namun, fitur yang paling tidak normal… adalah bahwa seluruh lambungnya sepertinya terbuat dari logam.
+Namun, fitur yang paling tidak normal... adalah bahwa seluruh lambungnya sepertinya terbuat dari logam.
 
-Lit yang lahir di pedalaman negeri Logavia sepertinya tidak menyadari ketidakteraturan itu tapi Ruti dan Ugeuge-san sepertinya sangat terkejut dan mereka sibuk membicarakan sesuatu.
+Lit yang lahir di negeri Logavia sepertinya tidak menyadari ketidakteraturan itu tapi Ruti dan Ugeuge-san sepertinya sangat terkejut dan mereka sibuk membicarakan sesuatu.
 
-… Wow, Ugeuge-san juga memiliki pengetahuan tentang kapal. Ini benar-benar laba-laba spesifikasi tinggi.
+... Wow, Ugeuge-san juga memiliki pengetahuan tentang kapal. dia benar-benar laba-laba spesifikasi tinggi.
 
 Situasi berlanjut ke arah lain dari keterkejutan kami.
 
