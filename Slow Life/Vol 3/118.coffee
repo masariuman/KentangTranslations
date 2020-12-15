@@ -238,7 +238,7 @@ Leonor ada di sana, sekali lagi dengan gaun.
 
 "Eh, ah…"
 
-"Jangan salah, cinta Yang Mulia tidak berubah. Tapi… "
+"Jangan salah, cinta Yang Mulia tidak berubah. Tapi..."
 
 Leonor dengan lembut berbisik ke telinga Misufia.
 
@@ -252,29 +252,29 @@ Itu mirip dengan membaca sebuah cerita yang mengetahui bahwa itu akan mengarah p
 
 Misufia sedang mengandung anak ketiganya.
 
-Akhirnya, bayi yang lahir… tidak menangis.
+Akhirnya, bayi yang lahir... tidak menangis.
 
 Kelahiran seorang anak adalah pemandangan yang aneh.
 
 Jika bayi menangis, ibu akan tersenyum. Tetapi jika bayi tidak menangis, orang tuanya akan menangis.
 
-Lit mengalihkan pandangannya dari tempat kejadian dan meletakkan dahinya di punggung Aku.
+Lit mengalihkan pandangannya dari tempat kejadian dan meletakkan dahinya di punggungku.
 
 Ruti meringkuk di sisiku dan mengerutkan alisnya.
 
-"Aku tidak pernah tahu alasannya. Saat itu masih banyak bayi lahir mati sehingga mungkin ada penyakit yang sedang menyebar. Tapi, itu disalahkan pada Geyserik. Demis-sama itu marah pada Geyserik. "
+"Aku tidak pernah tahu alasannya. Saat itu masih banyak bayi lahir mati mungkin ada penyakit yang sedang menyebar. Tapi, semua disalahkan pada Geyserik. Demis-sama marah pada Geyserik."
 
-"Raja adalah orang dengan otoritas yang ditentukan oleh rakyat. Siapa raja seharusnya tidak menjadi masalah bagi Tuhan. "
+g"Raja adalah orang dengan otoritas yang ditentukan oleh rakyat. Siapa raja seharusnya tidak menjadi masalah bagi dewa."
 
-"Warga akan resah jika tidak mengetahui penyebab kemalangan mereka. Jadi Geyserik membutuhkan ahli waris sesegera mungkin. "
+"Warga akan resah jika tidak mengetahui penyebab kemalangan mereka. Jadi Geyserik membutuhkan ahli waris sesegera mungkin."
 
 Namun, anak ketiga Misufia juga tidak menangis. Fakta bahwa dia adalah alasan kesulitan Geyserik dan ketakutannya bahwa adik perempuannya akan merebut kekasihnya, Misufia jatuh dalam keputusasaan.
 
-Pada saat itu… High-Elf Ririnrara muncul.
+Pada saat itu... High-Elf Ririnrara muncul.
 
 Dia memiliki satu bayi yang baru lahir di pelukannya.
 
-"Misufia. Geyserik membelakangi dinding. "
+"Misufia. Geyserik menutup mata."
 
 "Ririnrara, anak itu?"
 
@@ -282,17 +282,17 @@ Dia memiliki satu bayi yang baru lahir di pelukannya.
 
 "A-apa yang kamu katakan?"
 
-"Ibu anak ini meninggal hari ini. Dia adalah anak dari seseorang yang tidak Anda kenal. "
+"Ibu anak ini meninggal hari ini. Dia adalah anak dari seseorang yang tidak kamu kenal."
 
 "Jangan bercanda! Untuk menjadikan anak itu ... "
 
-"Aku tidak bercanda. Seperti yang Aku katakan, Geyserik membelakangi dinding. "
+"Aku tidak bercanda. Seperti yang Aku katakan, Geyserik menutup mata."
 
 Misufia terdiam dan Ririnrara memandang anak yang tertidur di pelukannya.
 
-"Semuanya akan baik-baik saja jika Anda melahirkan anak lagi dan membuat anak itu mewarisi takhta karena alasan tertentu. Bahkan Geyserik tidak akan menunggu lebih lama dari itu. Dia akan meninggalkanmu, meskipun itu kamu. "
+"Semuanya akan baik-baik saja jika kamu melahirkan anak lagi dan membuat anak itu mewarisi takhta karena alasan tertentu. Bahkan Geyserik tidak akan menunggu lebih lama dari itu. Dia akan meninggalkanmu, meskipun itu kamu."
 
-"Geyserik… akan meninggalkanku?"
+"Geyserik... akan meninggalkanku?"
 
 Misufia tampak ketakutan.
 
@@ -302,9 +302,9 @@ Waktu yang ditunjukkan dalam ilusi terus berlalu.
 
 Pangeran Sarius tumbuh dewasa. Raja Geyserik menyayangi putranya.
 
-Dan di belakang mereka, ibu suri Misufia meringkuk, terkoyak dengan ekspresi kesedihan.
+Dan di belakang mereka, ibu Misufia meringkuk, terkoyak dengan ekspresi kesedihan.
 
-"Aku mengkhianatinya. Dan aku terus mengkhianatinya bahkan sampai sekarang. "
+"Aku mengkhianatinya. Dan aku terus mengkhianatinya bahkan sampai sekarang."
 
 Kenangan yang terpantul dalam ilusi yang dibuat oleh kabut horor bukanlah reproduksi dari pemandangan yang sebenarnya tetapi perasaan Misufia pada saat itu.
 
