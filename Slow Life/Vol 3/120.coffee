@@ -140,25 +140,25 @@ r"Eh, ah, Onii-chan?"
 
 Bahkan saat memiliki kekuatan terbesar umat manusia, adik perempuanku yang manis merasa tidak nyaman dan bermasalah demi diriku.
 
-Bahkan tanpa perlindungan dan dorongan ilahi, wajar untuk mencintai adik perempuan Kamu sepenuhnya sebagai kakak laki-laki.
+Bahkan tanpa perlindungan dan dorongan ilahi, wajar untuk mencintai adik perempuanmu sepenuhnya sebagai kakak laki-laki.
 
-Dengarkan ini Ruti, aku sangat mencintai Ruti.
+g"Dengarkan ini Ruti, aku sangat mencintai Ruti."
 
-"Un… kamu sudah memberitahuku berkali-kali."
+r"Un... kamu sudah memberitahuku berkali-kali."
 
-"Aku akan memberi tahu Ruti berapa kali Kamu mau kapan pun Kamu merasa tidak nyaman."
+g"Aku akan memberi tahu Ruti sebanyakpun ketika kamu tidak merasa nyaman."
 
-"Un."
+r"Un."
 
-Ruti melingkarkan tangannya di punggung Aku dan memeluk Aku kembali dengan erat.
+Ruti melingkarkan tangannya di punggungku dan memelukku kembali dengan erat.
 
-"Aku juga sangat mencintai Onii-chan. Jika Onii-chan tidak ada, aku akan menghilang dari dunia ini sejak lama. Aku tidak menghilang karena Onii-chan bilang kau mencintaiku. "
+r"Aku juga sangat mencintai Onii-chan. Jika Onii-chan tidak ada, aku akan menghilang dari dunia ini sejak lama. Aku tidak menghilang karena Onii-chan bilang kau mencintaiku."
 
-"Aku tidak akan bisa menerimanya jika Ruti menghilang."
+g"Aku tidak akan bisa menerimanya jika Ruti menghilang."
 
 Ruti menyentuhkan pipinya ke pipiku.
 
-"Maaf telah meragukanmu. Keberadaan Aku di sini adalah bukti bahwa perasaan Onii-chan lebih kuat dari perlindungan ilahi Kamu. Meskipun Aku harus tahu yang terbaik. "
+r"Maaf telah meragukanmu. Keberadaanku di sini adalah bukti bahwa perasaan Onii-chan lebih kuat dari perlindungan ilahimu. Meskipun Aku harusnya tahu apa yang terbaik."
 
 Suara Ruti sedikit bergetar. Kehangatan dari pipi Ruti yang menyentuh dan pelukannya di punggung Aku menyampaikan keinginannya untuk menghargai kali ini dan ketakutannya akan kehilangan momen sekilas ini.
 
