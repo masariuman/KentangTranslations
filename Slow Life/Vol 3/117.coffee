@@ -14,19 +14,19 @@ Orang tua itu ingin melanjutkan tapi,
 
 "Miguel, apakah kamu akan berbicara tentang kenangan kepada orang-orang yang datang beristirahat dari pembicaraan tentang kenangan?"
 
-Wanita tua di sampingnya menghentikannya. Orang tua bernama Miguel memukul dahi botaknya dan tertawa saat dia membungkuk.
+Wanita tua di sampingnya menghentikannya. Orang tua bernama Miguel memukul dahi botaknya dan tertawa dan dia membungkuk.
 
-"Maaf maaf. Sudah beberapa dekade sejak kami memiliki pengunjung. "
+"Maaf maaf. Sudah beberapa dekade sejak kami memiliki pengunjung."
 
 Kami balas tersenyum pada pasangan tua itu dan meninggalkan tempat itu, pindah ke alun-alun kecil yang cerah.
 
 Tidak ada orang di sana. Sebuah meja tua berdiri di tengah.
 
-"Meja Skala Emas? Ini meja dari selatan. "
+g"Meja bersisik Emas? Ini meja dari selatan. "
 
-Bahan langka yang dikenal sangat tahan terhadap korosi itu adalah pohon khusus yang ditemukan di bagian selatan benua Avalon seperti di Kerajaan Veronia. Itu mungkin sesuatu yang mereka muat ke kapal mereka ketika mereka sampai di Zoltan. Tak terbayangkan bahwa benda itu telah terpapar cuaca selama 50 tahun sehingga mungkin ditempatkan di sana setelah tidak bisa digunakan di dalam salah satu rumah.
+Bahan langka yang dikenal sangat tahan terhadap korosi itu adalah pohon khusus yang ditemukan di bagian selatan benua Avalon seperti di Kerajaan Veronia. Itu mungkin sesuatu yang mereka ambil ke kapal mereka ketika mereka sampai di Zoltan. Tak terbayangkan bahwa benda itu telah terpapar cuaca selama 50 tahun dan mungkin ditempatkan di sana karena tidak bisa digunakan di dalam salah satu rumah.
 
-"Onii Chan."
+r"Onii Chan."
 
 Aku mendengar suara Ruti dari belakang tepat saat aku menyentuh meja. Nadanya sedikit lebih rendah, perubahan halus yang hanya bisa aku deteksi.
 
