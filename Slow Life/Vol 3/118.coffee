@@ -360,36 +360,36 @@ Wajah Leonor berubah menjadi kebencian. Kebencian yang dia pegang di dalam hatin
 
 "Kamu bahkan bisa masuk biara dan terus iri pada kebahagiaanku."
 
-Suara sekejap terdengar dan ilusi itu menghilang.
+ilusi itu menghilang.
 
 Mistome-shi meletakkan tangannya di dahinya dan duduk di kursi tampak lelah.
 
-Uskup Cien dan Horror Fog dengan penuh perhatian memperhatikannya dengan cermat.
+pendeta Cien dan kabut horor dengan penuh perhatian memperhatikannya dengan cermat.
 
-Itulah akhirnya.
+"Itulah akhirnya."
 
 Kata Mistome-shi dengan suara gemetar.
 
-"Leonor menjadi istri resmi dengan Aku pergi. Putra Leonor menerima hak warisan pertama. Sarius, kedudukan anak itu sebagai putra mahkota dan hak waris direnggut dalam sekejap. Tapi Geyserik tidak memutuskan perceraian antara dia dan aku. Jika Aku ditemukan dan kembali ke Veronia, hak waris anak itu akan kembali dulu. Selama Geyserik tidak menentangnya. "
+"Leonor menjadi istri resmi dengan Aku pergi. Putra Leonor menerima hak warisan pertama. Sarius, kedudukan anak itu sebagai putra mahkota dan hak waris direnggut dalam sekejap. Tapi Geyserik tidak memutuskan perceraian antara dia dan aku. Jika Aku ditemukan dan kembali ke Veronia, hak waris anak itu akan kembali. Selama Geyserik tidak menentangnya."
 
-"Jadi itulah mengapa Pangeran Sarius mencarimu."
+g"Jadi itulah mengapa Pangeran Sarius mencarimu."
 
-"Tapi jika aku kembali, Leonor akan mengungkap rahasia anak itu. Aku pada saat itu tidak memiliki kemauan untuk menyelidiki apakah dia benar-benar memiliki bukti tapi ... itu akan membawa kehancuran bagi anak itu. Juga untuk Ririnrara yang berusaha semaksimal mungkin sebagai walinya. "
+"Tapi jika aku kembali, Leonor akan mengungkap rahasia anak itu. Aku pada saat itu tidak memiliki kemauan untuk menyelidiki apakah dia benar-benar memiliki bukti tapi ... itu akan membawa kehancuran bagi anak itu. Juga untuk Ririnrara yang berusaha semaksimal mungkin sebagai walinya."
 
 Itulah mengapa Ririnrara ingin membunuh Mistome-shi sebelum dia melakukan kontak dengan Pangeran Sarius.
 
-Ririnrara bahkan mungkin mengirim orang untuk memeriksa Mistome-shi secara teratur.
+Ririnrara bahkan mungkin mengirim orang untuk memeriksa Mistome-shi secara rutin.
 
-"Aku tahu bahwa saya… ibu yang buruk dan istri yang egois. Aku tidak akan mengeluh bahkan jika Demis-sama mengirim Aku ke neraka. Tapi Aku hanya takut dibenci oleh orang itu. Aku tidak tahu apakah orang itu mencintaiku, atau perlindungan ilahi orang itu mencintaiku karena takhta ... aku hanya takut dibuang. "
+"Aku tahu bahwa aku... ibu yang buruk dan istri yang egois. Aku tidak akan mengeluh bahkan jika Demis-sama mengirimku ke neraka. Tapi Aku hanya takut dibenci oleh orang itu. Aku tidak tahu apakah orang itu mencintaiku, atau perlindungan ilahi orang itu mencintaiku karena takhta ... aku hanya takut dibuang."
 
 Jadi, itulah sisi balik dari kasus ini.
 
-Kehidupan seorang nenek, masa depan sebuah kerajaan, dan sebab dan akibat sedang diselesaikan di perbatasan terpencil Zoltan.
+Kehidupan seorang nenek, masa depan sebuah kerajaan, dan sebab dan akibat yang sedang diselesaikan di perbatasan terpencil Zoltan.
 
-(Tetapi masih ada tempat-tempat yang Aku tidak mengerti.)
+(Tetapi masih ada beberapa hal yang Aku tidak mengerti.)
 
 Tise mengangguk ringan, seolah memahami keraguan di hatiku.
 
-"Kami telah mengumpulkan semua kartu untuk negosiasi. Yang tersisa hanyalah bertanya langsung pada Ririnrara tentang rahasianya. "
+t"Kami telah mengumpulkan semua hal untuk negosiasi. Yang tersisa hanyalah bertanya langsung pada Ririnrara tentang rahasianya."
 
-Tise berkata dengan tujuan yang jelas dalam pikirannya, tetapi mata merah Ruti tertunduk saat dia berduka untuk paruh kedua hidup Mistome-shi.
+Tise berkata dengan tujuan yang jelas dalam pikirannya, tetapi mata merah Ruti tertunduk karena dia berduka untuk kehidupan Mistome-shi.
