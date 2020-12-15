@@ -128,14 +128,14 @@ Geyserik berteriak keras setelah menertawakan kekhawatiran para bajak laut yang 
 
 Kata Misufia dengan putus asa.
 
-“Bajak laut mengalami setiap hari dengan tidak masuk akal! Kuhahahaha !! ”
+“Bajak laut mengalami sesuatu yang tidak masuk akal setiap harinya! Kuhahahaha !!”
 
 "... Itu memang benar."
 
 Meski berada dalam situasi berbahaya, Misufia ikut tertawa bersama Geyserik.
 
-"Kamu seharusnya mengajariku bagaimana berperilaku seperti raja tapi ... kamu akhirnya berperilaku seperti bajak laut dulu!"
+"Kamu seharusnya mengajariku bagaimana berperilaku seperti raja tapi ... kamu akhirnya berperilaku seperti bajak laut duluan!"
 
-“Itu semua salahmu, Geyserik! … Mohon bertanggung jawab. ”
+“Itu semua salahmu, Geyserik! ... tanggung jawablah. ”
 
-Paruh kedua kalimat Misufia hilang tertiup angin dan sepertinya belum mencapai Geyserik pada saat itu.
+setengah kalimat Misufia hilang tertiup angin dan sepertinya belum mencapai Geyserik pada saat itu.
