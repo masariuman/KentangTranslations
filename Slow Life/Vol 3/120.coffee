@@ -174,7 +174,7 @@ Dengan pipi merah, Ruti menatap mataku dan tersenyum.
 
 r"Terima kasih, Onii-chan."
 
-Senyuman terindah, lagipula Ruti paling manis.
+Senyumannya sangat indah, senyum terindah, Ruti memang yang paling manis.
 
 
 ---------------------------
