@@ -50,17 +50,17 @@ Kata Ruti senang.
 
 Aku berjanji pada Ruti bahwa Aku akan menemaninya ke distrik pelabuhan Zoltan hari ini.
 
-Baru hari ini, pengganti ramuan obat Blood Needle ... koloni monster tipe tumbuhan 「Rumput Pemakan Ular」 ditemukan. Tampaknya ada korban jiwa dan para petualang telah menerima permintaan itu tetapi mereka mungkin akan membakar semuanya.
+Baru hari ini, pengganti ramuan obat Jarum Darah ... kumpulan monster tipe tumbuhan 「Rumput Pemakan Ular」 ditemukan. Tampaknya ada korban jiwa dan para petualang telah menerima permintaan itu tetapi mereka mungkin akan membakar semuanya.
 
-Aku ingin mengalahkannya dan mengembalikannya sebelum itu terjadi tapi… Aku punya rencana dengan Ruti untuk janji yang kubuat dengannya sebelumnya jadi Lit menawarkan untuk menggantikanku.
+Aku ingin mengalahkannya dan mengembalikannya sebelum itu terjadi tapi... Aku punya rencana dengan Ruti dengan janji yang kubuat dengannya sebelumnya jadi Lit menawarkan untuk menggantikanku.
 
-“Baiklah, mungkin kita bisa sarapan di luar untuk kembalian.”
+g"Baiklah, mungkin kita bisa sarapan di luar sesekali."
 
-“Aku paling suka masakan Onii-chan tapi… aku juga tertarik dengan makanan Zoltan.”
+r"Aku paling suka masakan Onii-chan tapi... aku juga tertarik dengan makanan Zoltan."
 
 Aku senang dan tanpa sadar tersenyum.
 
-Sebenarnya aku bisa mendengar kata 'tertarik' dari mulut Ruti.
+aku bisa mendengar kata 'tertarik' dari mulut Ruti.
 
 Saat aku dengan lembut menepuk kepala Ruti, Ruti memiringkan kepalanya dengan tatapan kosong pada awalnya sebelum dia menyipitkan matanya dan sepertinya dia merasa nyaman.
 
@@ -92,17 +92,17 @@ Roti yang disajikan adalah roti tawar yang lembut. Kami minum wine meski masih p
 
 Ruti makan dengan senang. Aku senang dia menyukainya.
 
-“Karena kita di distrik pelabuhan, mungkin kita harus melihat pasar barang yang dikirim. Setelah itu, mari kita pinjam perahu wisata. ”
+“Karena kita di distrik pelabuhan, mungkin kita harus melihat pasar barang yang dikirim. Setelah itu, mari kita pinjam perahu wisata. "
 
-“Perahu tamasya.”
+“Perahu tamasya."
 
-“Ya, ada tempat-tempat yang meminjamkan mereka dan kita akan bisa menyaksikan Zoltan dari sungai.”
+“Ya, ada tempat-tempat yang meminjamkan mereka dan kita akan bisa menyaksikan Zoltan dari sungai."
 
 “Di atas kapal hanya dengan Onii-chan…”
 
 Ruti sedikit menunduk. Bibirnya sedikit mengembang secara horizontal dan tawa 'Fufufu' keluar dari bibirnya.
 
-“Saya sangat bahagia.”
+“Saya sangat bahagia."
 
 Ruti mengangkat kepalanya dan berkata dengan mata berbinar.
 
@@ -116,19 +116,19 @@ Aku dihentikan oleh sebuah suara saat kami berjalan melalui pasar.
 
 Seorang pria dengan wajah teduh memanggil Aku. Dia adalah Pasquale, pengrajin aksesori palsu yang juga bekerja sebagai navigator di samping. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu migran mereka. Aku juga tidak berpikir untuk bertanya.
 
-"Apa ini? Selingkuh? Kamu sudah memiliki Hero Lit. ”
+"Apa ini? Selingkuh? Kamu sudah memiliki Hero Lit. "
 
-“Dia adik perempuanku. Ruti‧Ruru. ”
+“Dia adik perempuanku. Ruti‧Ruru. "
 
 “Eh, kamu punya adik perempuan? Dia manis."
 
-“Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. ”
+“Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. "
 
 “Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan? "
 
 Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
 
-“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? ”
+“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? "
 
 "Yah, aku yakin kamu sedang berkencan dan ini akan menjadi kesempatan yang sempurna bagimu untuk mendapatkan hadiah untuk pacarmu."
 
@@ -160,15 +160,15 @@ Namun,
 
 "Onii Chan …"
 
-“Hn, apakah kamu benar-benar menginginkannya?”
+“Hn, apakah kamu benar-benar menginginkannya?"
 
-“Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu.”
+“Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu."
 
 Aku melihat …
 
 "Baiklah, kalau begitu aku akan memberimu hadiah yang paling cocok untukmu."
 
-“Yay, aku mendapatkan hadiah.”
+“Yay, aku mendapatkan hadiah."
 
 Aku menemukan bahwa pipi Ruti agak sedikit lebih merah.
 
@@ -186,23 +186,23 @@ Aku menyesuaikan layar yang tidak sejajar dari arah angin.
 
 Perahu perlahan-lahan naik ke hulu.
 
-“Baiklah, mari kita makan.”
+“Baiklah, mari kita makan."
 
 Aku membuka kantong kertas berisi ikan putih dan kentang goreng yang Aku beli dari warung pinggir jalan.
 
 Ruti dan Aku menikmati makanan jalanan Zoltan.
 
-“Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan.”
+“Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan."
 
 "Lain kali aku ingin makan bersama."
 
-“Baiklah, lain kali mari kita kelilingi distrik utara.”
+“Baiklah, lain kali mari kita kelilingi distrik utara."
 
 "Ya."
 
 Di atas perahu yang didorong ke depan oleh angin di layarnya, Ruti dan aku menyaksikan kota Zoltan perlahan mengalir oleh kami.
 
-“Ini kota yang hebat.”
+“Ini kota yang hebat."
 
 Kata Ruti.
 
@@ -210,11 +210,11 @@ Kata Ruti.
 
 "Semua orang suka bersantai."
 
-“Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. ”
+“Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. "
 
 Ruti menatap langsung ke wajahku.
 
-“Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? ”
+“Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? "
 
 Sebelumnya, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ordo Ksatria Bahamut jadi Aku tidak bisa memberinya jawaban.
 
