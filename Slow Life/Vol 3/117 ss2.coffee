@@ -74,35 +74,35 @@ Para tetua dari Half-Elf berkomentar bahwa mereka mengingat generasi kakek nenek
 
 Tampaknya memiliki banyak nama yang berbeda seperti sungai yang diterangi oleh matahari pagi, sungai hitam malam, sungai musim panas yang berkilauan, dan sungai musim dingin yang jernih. Itu berasal dari budaya ras Wood-Elf di mana mereka menganggap semua materi ada dan percaya bahwa bahkan sungai tidak sama setiap saat tetapi keberadaan yang sama sekali berbeda tergantung pada hari dan musim.
 
-Di sisi lain, manusia yang menetap di sini dan menciptakan negara Zoltan hanya menyebutnya 'sungai'. Meskipun sungai adalah keberadaan yang memberi manfaat besar bagi manusia dan ada kebutuhan untuk membedakannya dengan namanya, mereka mungkin memutuskan bahwa menyebutnya 'sungai' sudah cukup jika itu bisa membuat pendengar tahu apa yang dimaksud pembicara.
+Di sisi lain, manusia yang menetap di sini dan menciptakan negara Zoltan hanya menyebutnya 'sungai'. Meskipun sungai adalah keberadaan yang memberi manfaat besar bagi manusia dan ada kebutuhan untuk membedakannya dengan namanya, mereka mungkin memutuskan bahwa menyebutnya 'sungai' sudah cukup jika itu bisa membuat pendengar tahu sungai apa yang dimaksud.
 
-Sekarang, meskipun Aku ingin berbicara dengan mereka sekali, ras Wood-Elf telah menemui kehancurannya.
+Sekarang, meskipun Aku ingin berbicara dengan mereka sekali saja, ras Wood-Elf telah punah.
 
-Para Peri Hutan sudah tidak ada lagi tapi sungai masih mengalir sampai hari ini. Dan bahkan bagi kita manusia, kita tidak dapat bertahan hidup tanpa sungai.
+Para wood-elf sudah tidak ada lagi tapi sungai masih mengalir sampai hari ini. Dan bahkan bagi kami manusia, kami tidak dapat bertahan hidup tanpa sungai.
 
-"Dan berkat sungainya kami bisa makan tombak kukus ini."
+g"Dan berkat sungainya kami bisa makan tombak kukus ini."
 
 Di kawasan pelabuhan, banyak toko yang sering dikunjungi para pekerja dan pelaut yang menawarkan sup ikan siap saji. Namun, toko tempat kami berada adalah toko yang digunakan oleh para kapten dan navigator kapal yang berlabuh sehingga juga membuat sarapan yang layak.
 
-Ikan tombak yang dikukus dengan kuah menghasilkan cita rasa ikan air tawar yang unik dan menyegarkan. Selain itu, ada bawang bombay yang dibumbui di samping dan rasa cuka dan bawang bombaynya enak.
+Ikan tombak yang dikukus dengan kuah menghasilkan cita rasa ikan air tawar yang unik dan menyegarkan. Selain itu, ada bawang bombay yang dibumbui dengan rasa cuka dan bawang bombaynya enak.
 
 Roti yang disajikan adalah roti tawar yang lembut. Kami minum wine meski masih pagi.
 
-"Lezat."
+r"enak."
 
 Ruti makan dengan senang. Aku senang dia menyukainya.
 
-“Karena kita di distrik pelabuhan, mungkin kita harus melihat pasar barang yang dikirim. Setelah itu, mari kita pinjam perahu wisata. "
+g"Karena kita di distrik pelabuhan, mungkin kita harus melihat pasar barang yang dikirim. Setelah itu, mari kita pinjam perahu wisata."
 
-“Perahu tamasya."
+r"Perahu wisata?"
 
-“Ya, ada tempat-tempat yang meminjamkan mereka dan kita akan bisa menyaksikan Zoltan dari sungai."
+g"Ya, ada tempat-tempat yang meminjamkan mereka dan kita akan bisa menyaksikan Zoltan dari sungai."
 
-“Di atas kapal hanya dengan Onii-chan…”
+r"Di atas kapal hanya dengan Onii-chan...”
 
 Ruti sedikit menunduk. Bibirnya sedikit mengembang secara horizontal dan tawa 'Fufufu' keluar dari bibirnya.
 
-“Saya sangat bahagia."
+"Saya sangat bahagia."
 
 Ruti mengangkat kepalanya dan berkata dengan mata berbinar.
 
@@ -118,29 +118,29 @@ Seorang pria dengan wajah teduh memanggil Aku. Dia adalah Pasquale, pengrajin ak
 
 "Apa ini? Selingkuh? Kamu sudah memiliki Hero Lit. "
 
-“Dia adik perempuanku. Ruti‧Ruru. "
+"Dia adik perempuanku. Ruti‧Ruru. "
 
-“Eh, kamu punya adik perempuan? Dia manis."
+"Eh, kamu punya adik perempuan? Dia manis."
 
-“Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. "
+"Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. "
 
-“Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan? "
+"Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan? "
 
 Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
 
-“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? "
+"Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? "
 
 "Yah, aku yakin kamu sedang berkencan dan ini akan menjadi kesempatan yang sempurna bagimu untuk mendapatkan hadiah untuk pacarmu."
 
 Pasquale berkata sambil menunjuk ke anting-anting dan tiara yang bertatahkan semua jenis permata yang berbaris di depannya.
 
-“Bukankah itu semua tiruan? Mungkin kaca. "
+"Bukankah itu semua tiruan? Mungkin kaca. "
 
-“Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu. "
+"Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu. "
 
 "Kamu tidak akan meminta harga rip-off, kan?"
 
-“Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja Aku. "
+"Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja Aku. "
 
 Umu.
 
@@ -160,15 +160,15 @@ Namun,
 
 "Onii Chan …"
 
-“Hn, apakah kamu benar-benar menginginkannya?"
+"Hn, apakah kamu benar-benar menginginkannya?"
 
-“Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu."
+"Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu."
 
 Aku melihat …
 
 "Baiklah, kalau begitu aku akan memberimu hadiah yang paling cocok untukmu."
 
-“Yay, aku mendapatkan hadiah."
+"Yay, aku mendapatkan hadiah."
 
 Aku menemukan bahwa pipi Ruti agak sedikit lebih merah.
 
@@ -186,41 +186,41 @@ Aku menyesuaikan layar yang tidak sejajar dari arah angin.
 
 Perahu perlahan-lahan naik ke hulu.
 
-“Baiklah, mari kita makan."
+"Baiklah, mari kita makan."
 
 Aku membuka kantong kertas berisi ikan putih dan kentang goreng yang Aku beli dari warung pinggir jalan.
 
 Ruti dan Aku menikmati makanan jalanan Zoltan.
 
-“Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan."
+"Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan."
 
 "Lain kali aku ingin makan bersama."
 
-“Baiklah, lain kali mari kita kelilingi distrik utara."
+"Baiklah, lain kali mari kita kelilingi distrik utara."
 
 "Ya."
 
 Di atas perahu yang didorong ke depan oleh angin di layarnya, Ruti dan aku menyaksikan kota Zoltan perlahan mengalir oleh kami.
 
-“Ini kota yang hebat."
+"Ini kota yang hebat."
 
 Kata Ruti.
 
-“Aku ada di satu-satunya kelompok petualang peringkat B kota ini. Namun, Aku tidak pernah dipaksa untuk ikut serta dalam perkelahian. Ketika Aku mengatakan Aku tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
+"Aku ada di satu-satunya kelompok petualang peringkat B kota ini. Namun, Aku tidak pernah dipaksa untuk ikut serta dalam perkelahian. Ketika Aku mengatakan Aku tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
 
 "Semua orang suka bersantai."
 
-“Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. "
+"Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. "
 
 Ruti menatap langsung ke wajahku.
 
-“Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? "
+"Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? "
 
 Sebelumnya, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ordo Ksatria Bahamut jadi Aku tidak bisa memberinya jawaban.
 
 Namun, kali ini berbeda. Tujuan Aku adalah hidup yang lambat.
 
-“Ya, selama Ruti menginginkannya. Aku akan bersamamu selamanya. "
+"Ya, selama Ruti menginginkannya. Aku akan bersamamu selamanya. "
 
 Saat aku mengatakan itu, murid Ruti bergetar dan dia mengepalkan tinjunya dengan erat.
 
