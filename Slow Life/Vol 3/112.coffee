@@ -8,15 +8,15 @@ r"Masih menyenangkan, berpetualang dengan Onii-chan seperti ini."
 
 Ruti memegang lengan bajuku.
 
-Yah, kurasa tidak apa-apa kali ini. Ruti bersenang-senang.
+Yah, kurasa tidak apa-apa kali ini. Ruti juga senang.
 
 Telinga serigala Lit bergerak-gerak. Aku bisa mendengar suara siulan.
 
 Lit memutar tubuh bagian atasnya dengan ringan dan panah di depan matanya mengenai tanah dan memantul.
 
-"Tise."
+g"Tise."
 
-“Dimengerti.”
+t"Oke."
 
 Tise berlari ke pohon terdekat dengan kecepatan yang tidak bisa dilihat oleh mata.
 
@@ -24,43 +24,43 @@ Tise berlari ke pohon terdekat dengan kecepatan yang tidak bisa dilihat oleh mat
 
 Ada jeritan dan seorang pria jatuh dari pohon.
 
-“Aduh… Kenapa kamu melakukan itu?”
+“Aduh... Kenapa kamu melakukan itu?”
 
-Itu adalah pria tua berusia lebih dari 70 tahun yang memegang punggungnya yang sepertinya kesakitan. Dia memiliki wajah yang belum pernah saya lihat di Zoltan sebelumnya.
+Itu adalah pria tua berusia lebih dari 70 tahun yang memegang punggungnya yang sepertinya kesakitan. Dia memiliki wajah yang belum pernah aku lihat di Zoltan sebelumnya.
 
-“Itulah yang seharusnya kami tanyakan. Menembakkan panah ke arah kami tanpa peringatan. Kamu tidak bisa mengeluh jika aku membunuhmu. "
+l"Itulah yang seharusnya kami tanyakan. Menembakkan panah ke arah kami tanpa peringatan. Kamu tidak bisa mengeluh jika aku membunuhmu. "
 
 Kata Lit kesal.
 
-“Anak panah tadi tidak memiliki anak panah. Sepertinya itu Sleeping Arrow. ”
+g"Anak panah tadi tidak memiliki mata tajam. Sepertinya itu panah tidur."
 
 Aku mengambil panah yang jatuh ke tanah dan menunjukkannya pada Lit. Sebagai ganti mata panah, ada beban kayu bundar di ujungnya.
 
-Rune dua huruf yang tertulis di panah mungkin adalah segel untuk mantra Sleep.
+Rune dua huruf yang tertulis di panah mungkin adalah Mantra untuk sihir Tidur.
 
-“Aku hanya ingin membuatmu tidur sebentar dan mengirimmu pulang. Aku tidak bermaksud melukaimu. "
+"Aku hanya ingin membuatmu tidur sebentar dan membawa kalian pulang. Aku tidak bermaksud melukaimu."
 
 Orang tua itu melemparkan busurnya ke samping dan mengangkat kedua tangannya untuk menyerah.
 
-“Saya seorang pemburu yang tinggal di hutan ini. Saya tidak ingin kehidupan damai saya terganggu. Hanya saya yang tinggal di hutan ini. Saya mengacau sedikit di Zoltan di masa lalu dan saya yakin semua orang sudah lupa sekarang, tetapi waspada telah menjadi kebiasaan saya. Maaf."
+"aku seorang pemburu yang tinggal di hutan ini. aku tidak ingin kehidupan damaiku terganggu. Hanya aku yang tinggal di hutan ini. aku mengacau sedikit di Zoltan di masa lalu dan aku yakin semua orang sudah lupa sekarang, tetapi waspada telah menjadi kebiasaanku. Maaf."
 
 Wajah keriput lelaki tua itu berubah menjadi senyuman lebar.
 
-"Aku akan memberimu bulu yang aku punya sebagai permintaan maaf, jadi bisakah kamu memaafkanku?"
+"Aku akan memberimu baju yang aku punya sebagai permintaan maaf, jadi bisakah kamu memaafkanku?"
 
 Orang tua itu menunjuk ke pakaian bulu di tubuhnya.
 
 Kemungkinan besar itu adalah kulit beruang.
 
-Lit terhirup dengan hidungnya.
+Lit mencium dengan hidungnya.
 
-“Tapi pak tua, aku mencium bau orang lain pada dirimu, aroma orang yang kita cari.”
+l"Tapi pak tua, aku mencium bau orang lain pada dirimu, aroma orang yang kita cari."
 
 "Hah?"
 
 Orang tua itu memiringkan kepalanya.
 
-Saat berikutnya, lengan lelaki tua itu kabur karena bayangan saat dia mengeluarkan anak panah dari tempat panah di punggungnya kali ini dan mengayunkannya ke bawah pada Tise yang berada di belakangnya.
+Saat berikutnya, lengan lelaki tua itu menjadi berbayang ketika dia mengeluarkan anak panah dari tempat panah di punggungnya dan kali ini mengayunkannya ke bawah pada Tise yang berada di belakangnya.
 
 Tise mundur setengah langkah dan menghindari pukulan itu.
 
