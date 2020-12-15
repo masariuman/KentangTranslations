@@ -198,24 +198,24 @@ Situasi berlanjut ke arah lain dari keterkejutan kami.
 
 "Hei, sebuah kapal akan datang."
 
-“Di tengah malam? Mungkin tidak ada yang dijadwalkan… terlebih lagi, kapal jenis apa itu? Sepertinya barang antik dibawa keluar dari museum. Apakah mereka melakukan semacam upacara? "
+"Di tengah malam? Mungkin tidak ada dijadwalkan... terlebih lagi, kapal jenis apa itu? Sepertinya barang antik dibawa keluar dari museum. Apakah mereka melakukan semacam upacara? "
 
-Sebuah kapal karung menyerbu langsung menuju dermaga tanpa menurunkan kecepatannya. Seketika, tiga kapal kecil keluar dari dermaga. Itu adalah kapal kayu tetapi mereka memiliki desain aneh yang sama dengan roda luar yang berputar dan asap keluar dari cerobong asap.
+Sebuah kapal karung menyerbu langsung menuju dermaga tanpa menurunkan kecepatannya. Seketika, tiga kapal kecil keluar dari dermaga. Itu adalah kapal kayu tetapi memiliki desain aneh yang sama dengan roda luar yang berputar dan asap keluar dari cerobong asap.
 
-Ada balista besar di dekat haluan kapal dengan anak panah seukuran pengepungan yang disebut pemecah gerbang sudah digantung.
+Ada balista besar di dekat haluan kapal dengan anak panah yang disebut pemecah gerbang sudah digantung.
 
-Anak panah yang ditembakkan menembus lambung mobil. Air laut mengalir deras ke dalam lubang di lambung kapal.
+Anak panah yang ditembakkan menembus lambung kapal. Air laut mengalir deras ke dalam lubang di lambung kapal.
 
-Selanjutnya, seutas tali diikat ke anak panah dan meskipun ukuran kecil dari tiga kapal aneh Benua Gelap, mereka benar-benar menghentikan tenaga pendorong dari karung yang lebih besar.
+Selanjutnya, seutas tali diikat ke anak panah dan meskipun ukuran kecil dari tiga kapal aneh Benua kegelapan, mereka benar-benar menghentikannya.
 
 Saat berikutnya, ledakan keras terjadi bersamaan dengan kilatan api.
 
 "A-apa!"
 
-“Kapal itu meledak! Itu membawa tiga kapal bersamanya! "
+"Kapal itu meledak! dia membawa tiga kapal bersamanya meledak! "
 
 Bel untuk pertemuan darurat berbunyi. Para prajurit iblis meninggalkan daerah itu dengan terburu-buru.
 
-Misufia dan Ririnrara yang sedang menonton dari balik bayangan, bersama dengan para bawahannya, menyeringai lebar.
+Misufia dan Ririnrara yang sedang menonton dari balik bayangan, bersama dengan para bawahannya, tersenyum lebar.
 
-“Sekarang, mari kita membantu diri kita sendiri ke kapal Raja Iblis.”
+“Sekarang, mari kita berjalan ke kapal Raja Iblis.”
