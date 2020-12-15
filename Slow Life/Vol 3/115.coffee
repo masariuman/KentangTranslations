@@ -6,21 +6,21 @@ Seorang bajak laut berkata dengan ekspresi serius kepada Geyserik yang sedang me
 
 “Hn?”
 
-“Kami pasti telah mengumpulkan segerombolan harta karun yang luar biasa tapi kami hanya memiliki tiga kapal yang tersisa, Mother‧Elvir, Saint‧Marie, dan Breit dengan Ririnrara sebagai kapten ... Saint‧Marie dalam keadaan menyesal dengan satu tiang rusak dan sebuah tambalan darurat untuk lubang di palka. Kami tidak tahu apakah dia bisa kembali ke Benua Avalon. ”
+“Kita pasti telah mengumpulkan segerombolan harta karun yang luar biasa tapi kita hanya memiliki tiga kapal yang tersisa, Mother‧Elvir, Saint‧Marie, dan Breit dengan Ririnrara sebagai kapten ... Saint‧Marie dalam keadaan tidak baik dengan satu tiang rusak dan sebuah tambalan darurat untuk lubang di palka. Kami tidak tahu apakah dia bisa kembali ke Benua Avalon.”
 
-“Ya…”
+“Ya...”
 
 Geyserik minum alkohol sekali lagi.
 
-Saya bertanya-tanya apa itu alkohol putih.
+aku penasaran apa itu alkohol putih.
 
 "Itu adalah alkohol yang terbuat dari kuda dan susu sapi."
 
 Kata Mistome-shi.
 
-“Itu rupanya alkohol yang biasa dikonsumsi di daerah pedalaman Benua Hitam. Tidak banyak tanaman yang bisa ditanam di darat sehingga alkohol mereka dibuat dari susu. ”
+“sepertinya itu alkohol yang biasa dikonsumsi di daerah pedalaman Benua kegelapan. Tidak banyak tanaman yang bisa ditanam di darat sehingga alkohol mereka dibuat dari susu.”
 
-“Jadi susu kuda bisa dibuat menjadi alkohol.”
+g"Jadi susu kuda bisa dibuat menjadi alkohol ya."
 
 "Itu memiliki keasaman yang kuat dan kandungan alkoholnya tidak tinggi."
 
