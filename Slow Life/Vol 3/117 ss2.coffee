@@ -68,11 +68,11 @@ Saat aku dengan lembut menepuk kepala Ruti, Ruti memiringkan kepalanya dengan ta
 
 Distrik pelabuhan Zoltan berbatasan dengan sungai.
 
-Hal yang meresahkan adalah masyarakat Zoltan tidak mengetahui nama sungai tersebut. Aku percaya itu punya nama, mungkin pada zaman Peri Hutan.
+Hal yang meresahkan adalah masyarakat Zoltan tidak mengetahui nama sungai tersebut. Aku percaya itu punya nama, mungkin pada zaman wood-elf.
 
 Para tetua dari Half-Elf berkomentar bahwa mereka mengingat generasi kakek nenek mereka yang memanggilnya dengan nama yang dimulai dengan 'Mi'. Namun, sungai tersebut sepertinya memiliki berbagai nama tergantung lokasi dan waktunya.
 
-Tampaknya disebut semua jenis nama yang berbeda seperti sungai yang diterangi oleh matahari pagi, sungai hitam malam, sungai musim panas yang berkilauan, dan sungai musim dingin yang jernih. Itu berasal dari budaya ras Wood-Elf di mana mereka menganggap semua materi ada di aliran besar dan percaya bahwa bahkan sungai tidak sama setiap saat tetapi keberadaan yang sama sekali berbeda tergantung pada hari dan musim.
+Tampaknya memiliki banyak nama yang berbeda seperti sungai yang diterangi oleh matahari pagi, sungai hitam malam, sungai musim panas yang berkilauan, dan sungai musim dingin yang jernih. Itu berasal dari budaya ras Wood-Elf di mana mereka menganggap semua materi ada dan percaya bahwa bahkan sungai tidak sama setiap saat tetapi keberadaan yang sama sekali berbeda tergantung pada hari dan musim.
 
 Di sisi lain, manusia yang menetap di sini dan menciptakan negara Zoltan hanya menyebutnya 'sungai'. Meskipun sungai adalah keberadaan yang memberi manfaat besar bagi manusia dan ada kebutuhan untuk membedakannya dengan namanya, mereka mungkin memutuskan bahwa menyebutnya 'sungai' sudah cukup jika itu bisa membuat pendengar tahu apa yang dimaksud pembicara.
 
