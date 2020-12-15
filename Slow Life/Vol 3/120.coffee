@@ -54,13 +54,13 @@ g"Eh?"
 
 Aku tanpa sadar menjawab dengan suara aneh. Itu adalah pertanyaan yang tidak terduga.
 
-"Aku sangat mencintai Ruti, jadi apa lagi yang perlu dibicarakan tentang kualifikasi? Aku mencintai Ruti sejak kamu masih muda dan cinta itu tidak berubah bahkan sampai sekarang. "
+g"Aku sangat mencintai Ruti, jadi apa lagi yang perlu dipertanyakan? Aku mencintai Ruti sejak kamu masih muda dan cinta itu tidak berubah bahkan sampai sekarang."
 
-Aku menyampaikan perasaan Aku dengan jujur ​​tetapi Ruti tetap sedih.
+Aku menyampaikan perasaanku dengan jujur ​​tetapi Ruti tetap sedih.
 
-Tapi bayangan menyelimuti ekspresi Ruti ketika aku menyebutkan 'Sejak kecil' jadi aku akhirnya mengerti apa yang membuat Ruti bermasalah.
+bayangan menyelimuti ekspresi Ruti ketika aku menyebutkan 'Sejak kecil' jadi aku akhirnya mengerti apa yang membuat Ruti bermasalah.
 
-"Mungkin, ini tentang dorongan perlindungan ilahi Aku?"
+g"Mungkin, ini tentang dorongan perlindungan ilahiku?"
 
 "Un. Apakah Onii-chan dipaksa untuk mencintaiku… lagipula, peran 『Guide』 adalah untuk melindungi dan memimpin 『Hero』? Dalam hal ini, 『Guide』 seharusnya memiliki dorongan untuk menghargai 『Hero』 ... "
 
