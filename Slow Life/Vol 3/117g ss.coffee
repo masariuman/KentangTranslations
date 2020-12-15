@@ -504,6 +504,6 @@ Gadis itu melepas jubah yang dia kenakan dan memperlihatkan rambut pirang dan pu
 
 Keduanya adalah barang mewah.
 
-“Tapi aku tidak akan menyerah… Aku pasti akan menemukanmu, Gideon!”
+l"Tapi aku tidak akan menyerah... Aku pasti akan menemukanmu, Gideon!"
 
 Gadis itu bergumam sendiri dengan tekad yang kuat juga.
