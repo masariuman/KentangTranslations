@@ -8,45 +8,45 @@ Pendeta desa memberi tahu anak-anak yang berkumpul di gereja kecil itu.
 
 Ada anak-anak yang kesulitan duduk diam, tapi Ruti dan Gideon dengan patuh duduk di kursi. Melihat perilaku mereka, daripada menganggap perilaku mereka baik, orang dewasa akan menganggapnya tidak wajar dan pendeta merasa itu menyeramkan.
 
-“Priest-sama!”
+“Pendeta-sama!”
 
-Seorang anak laki-laki bernama Tap mengangkat tangannya. Dia adalah anak laki-laki menawan dengan pipi montok.
+Seorang anak laki-laki bernama Tap mengangkat tangannya. Dia adalah anak laki-laki menawan dengan pipi temben.
 
-"Mengapa monster memiliki『 Perlindungan Ilahi 』juga? Bukankah monster itu penjahat? ”
+"Mengapa monster memiliki『 Perlindungan Ilahi 』juga? Bukankah monster itu penjahat?"
 
-Ada bermacam-macam monster dan mereka tidak bisa semuanya digeneralisasikan ke dalam satu kategori tapi memang benar bahwa mayoritas monster berbahaya bagi manusia dan itu bukan hanya untuk makan, ada banyak monster yang memiliki naluri brutal untuk membunuh manusia. . Dengan kata lain, bahkan perwujudan kejahatan seperti monster memiliki 『Perlindungan Ilahi』.
+Ada bermacam-macam monster dan mereka tidak bisa semuanya digeneralisasikan ke dalam satu kategori tapi memang benar bahwa mayoritas monster berbahaya bagi manusia dan itu bukan hanya untuk makan, ada banyak monster yang memiliki naluri brutal untuk membunuh manusia.. Dengan kata lain, bahkan perwujudan kejahatan seperti monster memiliki 『Perlindungan Ilahi』.
 
-Seseorang pernah berkata bahwa ... jika kejahatan tidak memiliki 『Perlindungan Ilahi』, manusia akan berkembang sebagai suku kebajikan seperti High-Elf.
+Seseorang pernah berkata bahwa ... jika kejahatan tidak memiliki 『Perlindungan Ilahi』, manusia akan berkembang sebagai suku yang bijak seperti High-Elf.
 
 Pendeta yang memiliki perlindungan ilahi dari 『Adept』 pernah menanyakan pertanyaan yang sama kepada pendeta desa ketika dia masih kecil dan ingat alasan dia mendirikan gereja.
 
-“Tap-kun, jawabannya adalah『 Divine Protection 』kami juga.”
+“Tap-kun, jawabannya adalah『 perlindunga ilahi 』kita juga.”
 
 "『 Perlindungan Ilahi 』?"
 
-“『 Perlindungan Ilahi 』tumbuh dengan membunuh mereka yang memiliki『 Perlindungan Ilahi 』. Tetapi jika dunia ini hanya terdiri dari orang-orang yang berbudi luhur, lalu siapa yang bisa kita bunuh? God-sama ingin kita melawan kejahatan untuk berjuang hidup di jalan yang lebih benar. Untuk alasan itu, kejahatan diberikan 『Perlindungan Ilahi』 juga. "
+"『 Perlindungan Ilahi 』tumbuh dengan membunuh mereka yang memiliki『 Perlindungan Ilahi 』. Tetapi jika dunia ini hanya terdiri dari orang-orang yang berbudi luhur, lalu siapa yang bisa kita bunuh? dewa-sama ingin kita melawan kejahatan untuk berjuang hidup di jalan yang lebih benar. Untuk alasan itu, kejahatan diberikan 『Perlindungan Ilahi』 juga."
 
-Tap sepertinya memahami kata-kata pendeta itu saat dia mengangguk beberapa kali. Anak laki-laki dewasa sebelum waktunya yang mengaktifkan perlindungan ilahi dari 『Prajurit』 yang duduk lebih awal di sampingnya mengumumkan kepada sekelilingnya bahwa 'Aku akan membunuh lebih banyak monster!'. Level perlindungan ilahi-nya adalah 3. Dia sudah bercampur dengan orang dewasa dan berpartisipasi dalam perburuan monster dengan sebuah tongkat di tangan.
+Tap sepertinya memahami kata-kata pendeta itu dan dia mengangguk beberapa kali. Anak laki-laki dewasa sebelum waktunya yang mengaktifkan perlindungan ilahi dari 『Prajurit』 yang duduk lebih awal di sampingnya mengatakan kepada sekelilingnya bahwa 'Aku akan membunuh lebih banyak monster!'. Level perlindungan ilahi-nya adalah 3. Dia sudah ikut dengan orang dewasa dan berpartisipasi dalam perburuan monster dengan sebuah tongkat di tangan.
 
-“Erm.”
+r"Erm."
 
-Suara lembut tapi kuat yang bisa didengar meskipun suara itu disertai dengan tangan kecil yang terangkat. Anak-anak yang gaduh menahan diri untuk tidak berbicara dan mereka menoleh untuk melihat gadis muda itu.
+Suara lembut tapi kuat yang bisa didengar meskipun suara itu disertai dengan tangan kecil yang terangkat. Anak-anak yang ribut menahan diri untuk tidak berbicara dan mereka menoleh untuk melihat gadis muda itu.
 
-Ada apa, Ruti?
+"Ada apa, Ruti?"
 
-Pastor itu tersentak sedikit. Ini adalah pertama kalinya dia ditanyai oleh gadis misterius itu.
+pendeta itu terkejut sedikit. Ini adalah pertama kalinya dia ditanyai oleh gadis misterius itu.
 
-Untuk apa dorongan itu?
+r"Untuk apa impuls itu?"
 
-“A-ah, itu benar. Itu pertanyaan yang bagus. "
+"A-ah, itu benar. Itu pertanyaan yang bagus."
 
-Pastor itu memegangi dadanya dengan lega. Arti impuls adalah pertanyaan yang sepele. Itu seperti mengajar 1 + 1 dalam matematika. Pendeta itu mengevaluasi kembali gadis abnormal itu karena dia normal meskipun interiornya luar biasa.
+Pendeta itu memegangi dadanya dengan lega. Arti impuls adalah pertanyaan yang sepele. Itu seperti mengajar 1 + 1 dalam matematika. Pendeta itu mengevaluasi kembali gadis abnormal itu karena dia normal meskipun interiornya luar biasa.
 
-“Seperti yang diketahui semua orang,『 Perlindungan Ilahi 』memiliki impuls. Dalam kasus 『Adept』 saya, dorongan saya adalah menjaga pikiran yang tenang untuk semua orang seperti yang saya lakukan sekarang dan menyelamatkan orang-orang yang menderita menggunakan kekuatan magis saya. Itu berkat dorongan yang membuatku berpikir untuk menjadi pendeta. "
+"Seperti yang diketahui semua orang,『 Perlindungan Ilahi 』memiliki impuls. Dalam kasus 『Adept』ku, doronganku adalah menjaga pikiran yang tenang untuk semua orang seperti yang aku lakukan sekarang dan menyelamatkan orang-orang yang menderita dengan menggunakan kekuatan magicku. berkat dorongan itulah membuatku berpikir untuk menjadi pendeta. "
 
-Selain itu, dorongan hatinya mendesaknya untuk tetap konservatif tanpa membiarkan ide-ide baru, tetapi pastor tersebut tidak merasa perlu mengatakan itu dan menyimpannya untuk dirinya sendiri.
+Selain itu, dorongan hatinya mendesaknya untuk tetap konservatif tanpa membiarkan ide-ide baru, tetapi pendeta tersebut tidak merasa perlu mengatakan itu dan menyimpannya untuk dirinya sendiri.
 
-“『 Perlindungan Ilahi 』yang Tuhan-sama berikan kepada kita sangat kuat. Namun, untuk memastikan bahwa daya tidak digunakan secara sembarangan, impuls diatur untuk menunjukkan kepada kita jalan ke depan. Anda akan merasakan rasa aman saat Anda mematuhi dorongan hati Anda. Hidup untuk mendapatkan rasa aman adalah tip untuk menjalani kehidupan yang menyenangkan dan benar. ”
+“『 Perlindungan Ilahi 』yang dewa-sama berikan kepada kita sangat kuat. Namun, untuk memastikan bahwa tidak digunakan secara sembarangan, impuls diatur untuk menunjukkan kepada kita jalannya. kamu akan merasakan rasa aman saat kamu mematuhi dorongan hatimu. Hidup untuk mendapatkan rasa aman adalah tip untuk menjalani kehidupan yang menyenangkan dan benar.”
 
 Setelah mendengarkan pendeta itu, anak laki-laki dengan perlindungan ilahi dari 『Prajurit』 mengepalkan tinjunya dan bersiap untuk pergi.
 
