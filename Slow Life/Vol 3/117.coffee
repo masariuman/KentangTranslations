@@ -104,20 +104,20 @@ Aku harus menemukannya.
 
 ☆☆
 
-Dia awalnya menarik tangan Red tetapi sebelum dia menyadarinya, dia telah menyusul Ruti dan berdiri di depan Ruti saat dia membimbingnya.
+Dia awalnya menarik tangan Red tetapi sebelum dia menyadarinya, dia telah menyusul Ruti dan berdiri di depan Ruti dan dia membimbingnya.
 
-(Peran 『Guide』 adalah untuk memandu 『Hero』 ...)
+(Peran 『Pemandu』 adalah untuk memandu 『Pahlawan』 ...)
 
 Ruti menderita karena pikiran yang berputar-putar di dalam hatinya.
 
-(Onii-chan adalah 『Guide』, dan saya…)
+(Onii-chan adalah 『Pemandu』, dan aku...)
 
 Punggung Red berubah menjadi punggung Geyserik dan tangannya sendiri yang dipimpin berubah menjadi Putri Misufia.
 
 Perlindungan ilahi Geyserik adalah 『Kaisar』. Perannya adalah menjadi seorang 「Raja」.
 
-Untuk alasan itu, Putri Misufia…
+Untuk alasan itu, Putri Misufia...
 
-Ruti?
+g"Ruti?"
 
-Red berhenti dan menatap Ruti dengan wajah cemas sehingga Ruti menggelengkan kepalanya untuk mengusir keraguannya.
+Red berhenti dan menatap Ruti dengan wajah cemas tapi Ruti menggelengkan kepalanya untuk mengusir keraguannya.
