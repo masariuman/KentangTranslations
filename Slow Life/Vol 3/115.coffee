@@ -156,7 +156,7 @@ Percakapan yang terjadi di depanku sepertinya penting. Namun, sungguh ironis bah
 
 Shisandan menatap Geyserik, yang sedang meminum alkohol yang disebut Alhi, dengan ketertarikan saat bibirnya berubah menjadi tersenyum karena kagum.
 
-“Untuk merebut andalan Raja Iblis 'Kotoran Wendy'. Aku akan meminjamkanmu peta dan bawahan tapi ... Pengguna Golem Desmond si Bumi dari Empat Raja langit menjaganya. Kalian tampaknya memiliki beberapa keahlian tetapi tidak ada kesempatan. Sekarang kamu masih punya waktu untuk menyerah.”
+“Untuk merebut andalan Raja Iblis 'Wendy dart'. Aku akan meminjamkanmu peta dan bawahan tapi ... Pengguna Golem Desmond si Bumi dari Empat Raja langit menjaganya. Kalian tampaknya memiliki beberapa keahlian tetapi tidak ada kesempatan. Sekarang kamu masih punya waktu untuk menyerah.”
 
 Menanggapi nada menyelidik Shisandan, Misufia meraih mangkuk di depannya, meminumnya sekaligus dan membanting mangkuk di atas meja.
 

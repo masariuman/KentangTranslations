@@ -94,15 +94,15 @@ Mereka dianggap beruntung karena yang berjaga adalah bawahan Empat Raja langit D
 
 Golem yang merupakan kekuatan pertahanan utama tidak memiliki pemikiran independen dan dikendalikan oleh pengguna Golem. Ledakan tiba-tiba membingungkan pengguna Golem dan para golem menjadi tidak berdaya.
 
-Mereka juga memiliki tata letak yang diperoleh Shisandan sehingga Misufia dan party dengan cepat mencapai kapal Raja Iblis dan menjatuhkan Tentara Iblis di atasnya.
+Mereka juga memiliki peta yang diperoleh Shisandan sehingga Misufia dan tim dengan cepat mencapai kapal Raja Iblis dan menjatuhkan Tentara Iblis dikapalnya.
 
-Itu juga karena fakta bahwa dua Asura Demons, Gashasura dan Chugara, ada disana. Kedua Asura menebas Prajurit Setan dalam sekejap mata.
+Itu juga karena dua iblis Asura, Gashasura dan Chugara, ada disana. Kedua Asura menebas Prajurit iblis dalam sekejap mata.
 
-Sepertinya Ririnrara mengerti bagaimana mengemudikannya. Karena penguasaan skill Pilot-nya 'Perfect Pilot', dia bisa mengemudikan kapal apa pun pada pandangan pertama selama kapal dioperasikan dengan cara fisik.
+Sepertinya Ririnrara mengerti bagaimana mengemudikannya. Karena penguasaan skill Pilot-nya 'Pilot sempurna', dia bisa mengemudikan kapal apa pun pada pandangan pertama selama kapal dioperasikan dengan cara fisik.
 
-“Saya tidak begitu memahami mekanismenya dengan baik tapi saya bisa mengendarainya! Kalian pergi ke tungku dan membuang batu bara! ”
+“aku tidak begitu memahami mekanismenya dengan baik tapi aku bisa mengendarainya! Kalian pergi ke tungku dan buang batu bara!”
 
-Ya-ya!
+"Ya-ya!"
 
 Kapal Raja Iblis Wendy Dart mengeluarkan uap dari cerobong asapnya dan roda luar yang terpasang di sisi kapal mulai bergerak.
 
