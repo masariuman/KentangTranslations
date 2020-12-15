@@ -1,8 +1,5 @@
 Bab 112: Sang Putri bertemu dengan Bajak Laut
 
-Penerjemah: Tseirp
-
-
 Kami melakukan perjalanan jauh ke dalam hutan.
 
 Namun demikian, ini merupakan jalan memutar yang sangat besar hanya untuk menanyakan sesuatu kepada kenalan saya Moen.
