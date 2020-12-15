@@ -276,13 +276,11 @@ Wajah Mistome memerah karena malu di bawah ejekan bajak laut itu.
 
 Bajak laut itu mendekati Mistome dan menempelkan jarinya di dadanya.
 
-Kya!
+"Kya!"
 
 Mistome terkejut dan menutupi dadanya dengan kedua tangannya.
 
-"Hanya itu. Begitu dia bosan denganmu, kamu akan dipaksa masuk ke dalam harem dan Dia
-
-hanya akan hidup tanpa mencapai apa pun dalam hidup Anda. "
+"Hanya itu. Begitu dia bosan denganmu, kamu akan dipaksa masuk ke dalam harem dan kamu...hanya akan hidup tanpa mencapai apa pun dalam hidupmu. "
 
 Bajak laut itu bersiul pelan setelah melihat tatapan tajam dalam pandangan Mistome.
 
