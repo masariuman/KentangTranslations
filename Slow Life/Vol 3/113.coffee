@@ -102,7 +102,7 @@ Misufia menatap kedua orang di atas panggung dengan tidak percaya dan saat melih
 
 Melihat sosok Adipati Oslo naik ke atas panggung, para bangsawan Veronia mengerti sesuatu akan terjadi dan mengalihkan pandangan mereka.
 
-"subjek ... Subjekku yang paling tepercaya ... Bangsawan Oslo sangat menghargai bakat putriku Misufia."
+"subjek ... Subjekku yang paling tepercaya ... Adipati Oslo sangat menghargai bakat putriku Misufia."
 
 Suara gemetar raja gagal menyembunyikan rasa malu. Keringat menetes di wajahnya dan matanya merah.
 
@@ -110,35 +110,35 @@ Suara gemetar raja gagal menyembunyikan rasa malu. Keringat menetes di wajahnya 
 
 Kata Mistome-shi. Pujian terhadap Adipati Oslo keluar satu demi satu dari mulut raja.
 
-“Saya ingin berbagi dengan semua orang kegembiraan saya menikahkan putri saya dengan Adipati Oslo. Hari ini adalah hari yang penuh keberuntungan. "
+"aku ingin berbagi dengan semua orang kegembiraanku menikahkan putriku dengan Adipati Oslo. Hari ini adalah hari yang penuh keberuntungan."
 
 “T-Tapi Yang Mulia, Adipati Oslo sudah punya istri.”
 
 Seorang bangsawan tua berkata dengan ketakutan. Para bangsawan sekitarnya juga mengangguk.
 
-Adipati Oslo menyeringai dan menjawab menggantikan raja. Giginya yang gelap penuh dengan karies bisa dilihat saat dia menyeringai.
+Adipati Oslo tersenyum licik dan menjawab menggantikan raja. Giginya yang gelap penuh dengan karies bisa dilihat saat dia tertawa.
 
-"Saya akan menyambut Misufia-sama sebagai selir."
+"aku akan menyambut Misufia-sama sebagai selir."
 
-“Pra-tidak masuk akal !!”
+“Ti-tidak masuk akal !!”
 
 Bangsawan militer tidak tahan lagi dan berteriak.
 
 "Sir Duran."
 
-“Misufia adalah putri pertama dari Keluarga Kerajaan Veronian! Bahkan, meskipun itu kamu, Duke, kamu tidak dapat melakukan sesuatu yang begitu tidak masuk akal… ”
+“Misufia adalah putri pertama dari Keluarga Kerajaan Veronian! Bahkan, meskipun itu kamu, Duke, kamu tidak dapat melakukan sesuatu yang begitu tidak masuk akal...”
 
 "Apa masalahnya?"
 
-Para bangsawan tidak bisa berkata-kata. Duke of Oslo mengangguk puas setelah melihat reaksi mereka.
+Para bangsawan tidak bisa berkata-kata. adipati Oslo mengangguk puas setelah melihat reaksi mereka.
 
-“Jadi dia tidak akan membuat alasan apapun.”
+l"Jadi dia tidak akan membuat alasan apapun."
 
 Lit bergumam.
 
-Tindakan yang keterlaluan. Kerajaan Veronia yang diakui oleh semua orang saat ini begitu lemah hanya dalam 50 tahun yang lalu. Saya tahu tentang sejarahnya tetapi menyakitkan melihatnya begitu jelas dalam ilusi.
+Tindakan yang keterlaluan. Kerajaan Veronia yang diakui oleh semua orang saat ini begitu lemah hanya dalam 50 tahun yang lalu. aku tahu tentang sejarahnya tetapi menyakitkan melihatnya begitu jelas dalam ilusi.
 
-“Selama waktu itu, satu-satunya tempat Keluarga Kerajaan Veronia dapat bertindak dengan kebebasan adalah di Ibukota Veron. Sebidang tanah seluas Zoltan… tapi aku tidak putus asa karenanya. ”
+“Selama waktu itu, satu-satunya tempat Keluarga Kerajaan Veronia dapat bertindak dengan kebebasan adalah di Ibukota Veron. Sebidang tanah seluas Zoltan... tapi aku tidak putus asa karenanya.”
 
 Para bangsawan hantu menghilang seolah tertiup angin. Hanya Misufia, Pietro dan Leonor yang tersisa.
 
