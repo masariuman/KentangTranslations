@@ -24,9 +24,9 @@ g"Jadi susu kuda bisa dibuat menjadi alkohol ya."
 
 "Itu memiliki keasaman yang kuat dan kandungan alkoholnya tidak tinggi."
 
-Sekilas tentang situasi makanan Benua Hitam memberi tahu kami bahwa itu berbeda dari Benua Avalon seperti yang diharapkan. Saya hanya sedikit tertarik dengan jenis hidangan yang mereka miliki.
+Sekilas tentang situasi makanan Benua kegelapan, berbeda dari Benua Avalon seperti yang kuduga. aku hanya sedikit tertarik dengan jenis hidangan yang mereka miliki.
 
-“Ketertarikanmu pada itu?”
+l"Kamu malah tertarik dengan itu?"
 
 Lit menatapku dan tersenyum kecut.
 
