@@ -284,43 +284,43 @@ Mistome terkejut dan menutupi dadanya dengan kedua tangannya.
 
 Bajak laut itu bersiul pelan setelah melihat tatapan tajam dalam pandangan Mistome.
 
-“Kamu tidak suka hidup seperti itu ya? Anda mungkin tidak dapat meninggalkan warisan tetapi Anda akan hidup dalam kemewahan. ”
+“Kamu tidak suka hidup seperti itu ya? kamu mungkin tidak dapat meninggalkan warisan tetapi kamu akan hidup dalam kemewahan.”
 
-“Saya seorang putri, saya hidup untuk Veronia, mati untuk Veronia dan saya lahir demi itu!”
+“aku seorang putri, aku hidup untuk Veronia, mati untuk Veronia dan aku lahir demi itu!”
 
 "Benar-benar cara hidup yang kaku."
 
 "Bajak laut sepertimu tidak akan pernah tahu cara hidup keluarga kerajaan!"
 
-Bajak laut itu menyeringai.
+Bajak laut itu tersenyum sinis.
 
-"Tepat sekali. Saya tertarik dengan cara hidup keluarga kerajaan. Bagaimana, maukah Anda mengajari saya? ”
+"Tepat sekali. aku tertarik dengan cara hidup keluarga kerajaan. Bagaimana, maukah kamu mengajariku?"
 
-"Apa …"
+"Apa..."
 
 “Kamu adalah harta yang berharga 1000 emas, sayang sekali jika diberikan kepada Duke.”
 
 “Kya !!”
 
-“Aku akan membawamu. Bagaimanapun, aku adalah seorang bajak laut. "
+“Aku akan membawamu. Bagaimanapun juga, aku adalah seorang bajak laut. "
 
-“Yo-kamu !!”
+“Ka-kamu !!”
 
-“Jangan khawatir, kamu tidak perlu menyerah pada impianmu… aku akan menjadi raja.”
+“Jangan khawatir, kamu tidak perlu menyerah pada impianmu... aku akan menjadi raja.”
 
-“Raja…? Seorang bajak laut?"
+“Raja...? Seorang bajak laut?"
 
-“Perlindungan ilahi saya adalah『 Kaisar 』. Jarang bahkan di antara perlindungan ilahi langka yang hanya dimiliki oleh Raja Avalonia generasi sebelumnya. "
+"Perlindungan ilahiku adalah『 Kaisar 』. Jarang sekali ada bahkan di antara perlindungan ilahi langka yang hanya dimiliki oleh Raja Avalonia generasi sebelumnya."
 
 Perlindungan ilahi dari 『Kaisar』?
 
-Tanpa mempedulikan keterkejutan saya, ilusi itu berteriak.
+Tanpa mempedulikan keterkejutanku, ilusi itu berteriak.
 
-“Nama saya Geyserik! Saya tidak punya nama keluarga, saya bahkan tidak tahu wajah orang tua saya, hanya Geyserik! Tapi aku akan menjadi raja Avalonia! Raja yang perkasa! ”
+“Namaku Geyserik! aku tidak punya nama keluarga, aku bahkan tidak tahu wajah orang tuaku, hanya Geyserik! Tapi aku akan menjadi raja Avalonia! Raja yang perkasa!”
 
-“Eh, ah…”
+“Eh, ah...”
 
-"Putri! Saya ingin Anda menjadi tangan kanan saya! Saya ingin Anda mengajari bajak laut Geyserik ini bagaimana hidup seperti seorang Raja! Sebagai gantinya, aku akan mereformasi Kerajaan Veronia menjadi kerajaan besar yang tidak bisa dipandang rendah oleh bangsawan brengsek itu! ”
+"Putri! aku ingin kamu menjadi tangan kananku! aku ingin kamu mengajari bajak laut Geyserik ini bagaimana hidup seperti seorang Raja! Sebagai gantinya, aku akan mereformasi Kerajaan Veronia menjadi kerajaan besar yang tidak bisa dipandang rendah oleh bangsawan brengsek itu!"
 
 Juara Bajak Laut Geyserik. Raja Veronia di masa depan dengan paksa menarik lengan Mistome.
 
