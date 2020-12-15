@@ -30,41 +30,41 @@ r"Onii Chan."
 
 Aku mendengar suara Ruti dari belakang tepat saat aku menyentuh meja. Nadanya sedikit lebih rendah, perubahan halus yang hanya bisa aku deteksi.
 
-"Mari kita duduk."
+g"ayo duduk."
 
-"Un."
+r"Un."
 
 Kami duduk bersebelahan di meja.
 
-"Jadi ada apa?"
+r"Jadi ada apa?"
 
-"Un… Tentang Mistome-shi."
+g"Un... Tentang Mistome-shi."
 
-Sepertinya Ruti agak putus asa.
+Sepertinya Ruti agak lesu.
 
-"Apakah ada sesuatu dalam pikiranmu?"
+g"Apakah ada sesuatu dalam pikiranmu?"
 
-"Sampai saat kami mendengar, Mistome, tidak, Misufia tampaknya berhubungan baik dengan Geyserik."
+r"Sampai yang kita dengar, Mistome, tidak, Misufia tampaknya berhubungan baik dengan Geyserik."
 
-"Itu benar. Romansa seorang putri dan bajak laut. Nanti, bajak laut itu akan mengambil alih sebuah negara dan menjadi raja, sebuah cerita yang dramatis. "
+g"Itu benar. Romansa seorang putri dan bajak laut. Nanti, bajak laut itu akan mengambil alih sebuah negara dan menjadi raja, sebuah cerita yang dramatis."
 
-"Tapi Misufia meninggalkan sisi Geyserik, meninggalkan namanya dan tinggal di sini di Zoltan selama lebih dari 40 tahun… kenapa?"
+r"Tapi Misufia meninggalkan sisi Geyserik, meninggalkan namanya dan tinggal di sini di Zoltan selama lebih dari 40 tahun... kenapa?"
 
 Mata Ruti serius. Keadaan Misufia sepertinya ada di benak Ruti.
 
-"Dalam buku sejarah di Ibukota Kekaisaran Avalonia, Putri Misufia yang mendukung Geyserik putus asa atas kesalahannya setelah Geyserik membunuh penguasa sebelumnya, ayahnya, serta sebagian besar keluarga kerajaan dan dia meninggalkan kastil. Ada teori bahwa dia bunuh diri pada waktu itu, tapi Geyserik menyembunyikan fakta itu. "
+g"Dalam buku sejarah di Ibukota Kekaisaran Avalonia, Putri Misufia yang mendukung Geyserik putus asa atas kesalahannya setelah Geyserik membunuh penguasa sebelumnya, ayahnya, serta sebagian besar keluarga kerajaan dan dia meninggalkan istana. Ada teori bahwa dia bunuh diri pada waktu itu, tapi Geyserik menyembunyikan fakta itu."
 
-"Tapi Aku tidak mendapatkan kesan seperti itu dari Misufia saat ini."
+r"Tapi Aku tidak mendapatkan kesan seperti itu dari Misufia saat ini."
 
-"Ya. Tampaknya Misufia putus asa setelah dia dijual kepada sang duke. Selain kesediaannya untuk berubah menjadi pembajakan, dia seharusnya mengerti bahwa penguasa sebelumnya adalah penghalang agar Geyserik mencapai tujuannya untuk menjadi raja. "
+g"Ya. Tampaknya Misufia putus asa setelah dia dijual kepada sang duke. Selain kesediaannya untuk berubah menjadi bajak laut, dia seharusnya mengerti bahwa penguasa sebelumnya adalah penghalang agar Geyserik mencapai tujuannya untuk menjadi raja. "
 
-"Lalu mengapa?"
+r"Lalu mengapa?"
 
-"Aku bisa memikirkan beberapa kemungkinan tapi… sekarang kita harus mendengarkan ceritanya langsung dari Mistome-shi."
+g"Aku bisa memikirkan beberapa kemungkinan tapi... sekarang kita harus mendengarkan ceritanya langsung dari Mistome-shi."
 
 Ruti memeluk lenganku dengan kedua tangannya dan menekannya ke dadanya saat dia meletakkan dahinya di pundakku.
 
-Ruti?
+g"Ruti?"
 
 Aku merasa tidak nyaman. Aku tidak mengerti mengapa Ruti begitu tertekan.
 
@@ -74,27 +74,27 @@ Dadaku sakit dan aku marah pada diriku sendiri karena tidak memahami kesedihan R
 
 Apakah ada sesuatu dalam cerita Mistome-shi?
 
-"Maaf, Onii-chan."
+r"Maaf, Onii-chan."
 
-"Mengapa Anda meminta maaf… sebaliknya, Aku minta maaf karena tidak memahami perasaan Anda. Tapi bisakah Anda memberi tahu Aku apa yang ada di pikiran Anda? "
+g"Mengapa kamu meminta maaf... sebaliknya, Aku minta maaf karena tidak memahami perasaanmu. Tapi bisakah kamu memberi tahu Aku apa yang ada di pikiranmu?"
 
-"Onii Chan …"
+r"Onii Chan..."
 
-"Merah ~! Ruti! "
+l"red ~! Ruti! "
 
 Lit memanggil kami.
 
 Ruti berdiri sebelum aku bisa menjawab.
 
-"Ruti."
+g"Ruti."
 
-"Aku suka Onii-chan."
+r"Aku mencintai Onii-chan."
 
-"Yup, aku juga cinta Ruti."
+g"Yup, aku juga cinta Ruti."
 
 Saat itu, Aku melihat raut duka yang belum pernah Aku lihat di wajah Ruti. Aku tanpa sadar kehilangan kata-kata.
 
-"Ayo pergi, Onii-chan."
+r"Ayo pergi, Onii-chan."
 
 Ruti meraih tanganku dan kami berjalan kembali ke rumah Mistime-shi sambil bergandengan tangan.
 
