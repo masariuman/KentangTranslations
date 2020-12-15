@@ -106,7 +106,7 @@ Sepertinya Ririnrara mengerti bagaimana mengemudikannya. Karena penguasaan skill
 
 Kapal Raja Iblis Wendy Dart mengeluarkan uap dari cerobong asapnya dan roda luar yang terpasang di sisi kapal mulai bergerak.
 
-Dermaga itu dilumpuhkan oleh kapal bajak laut yang menghancurkan dirinya sendiri. Misufia dan strategi party berjalan dengan sempurna sesuai rencana.
+Dermaga itu dilumpuhkan oleh kapal bajak laut yang menghancurkan dirinya sendiri. Misufia dan strategi timnya berjalan dengan sempurna sesuai rencana.
 
 Namun, kesialan Misufia dan party adalah bahwa Empat Raja Surgawi Desmond dari Bumi menjaga tempat itu.
 
