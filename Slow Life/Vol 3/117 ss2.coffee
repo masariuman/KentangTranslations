@@ -16,35 +16,35 @@ Aku tidak kaget, itu adalah pemandangan yang sudah biasa ketika kami bepergian.
 
 Ruti tidak melakukan apa-apa di malam hari jadi dia menatap wajahku sepanjang malam.
 
-Aku menyarankan kepadanya untuk mungkin membaca buku atau sesuatu tetapi dia menjawab bahwa dia tidak ingin membaca buku jadi akan aneh untuk memaksa dirinya sendiri membaca hanya karena dia ada waktu luang.
+Aku menyarankan kepadanya untuk membaca buku atau sesuatu tetapi dia menjawab bahwa dia tidak ingin membaca buku jadi akan aneh untuk memaksa dirinya sendiri membaca hanya karena dia ada waktu luang.
 
-Alhasil, Ruti bisa berbuat semaunya di malam hari selama tidak membangunkan Aku.
+Alhasil, Ruti bisa berbuat semaunya di malam hari selama tidak membangunkanku.
 
-Di dalam tenda yang gelap, Ruti akan duduk di hadapanku dengan badan sedikit condong ke depan dan menatap wajahku sepanjang malam… membayangkan dia melakukan itu adalah semacam…
+Di dalam tenda yang gelap, Ruti akan duduk di hadapanku dengan badan sedikit condong ke depan dan menatap wajahku sepanjang malam... membayangkan dia melakukan itu...
 
 Imut!
 
-Lagipula, dia menatap wajahku dengan saksama, kamu tahu? Hati Aku terasa hangat mengetahui bahwa dia sangat bergantung pada Aku dan mengetahui bahwa Ruti ada di samping Aku sepanjang malam menenangkan hati Aku dan memberi Aku mimpi indah.
+Lagipula, dia menatap wajahku dengan saksama lho... Hatiku terasa hangat mengetahui bahwa dia sangat bergantung padaku dan mengetahui bahwa Ruti ada di sampingku sepanjang malam menenangkan hatiku dan memberiku mimpi indah.
 
-Tise dan Ugeuge-san sangat terkejut saat aku memberi tahu mereka. Aku bertanya-tanya mengapa tapi sekitar dua jam setelah itu, Tise bergerak dengan gerakan tersentak-sentak seolah dia adalah golem yang dibuat dengan buruk.
+Tise dan Ugeuge-san sangat terkejut saat aku memberi tahu mereka. Aku penasaran mengapa tapi sekitar dua jam setelah itu, Tise bergerak dengan gerakan tersentak-sentak seolah dia adalah golem yang dibuat dengan buruk.
 
-"Onii Chan."
+r"Onii Chan."
 
-“Ah, maaf, sepertinya aku masih sedikit pusing. Aku sudah bangun sekarang. "
+g"Ah, maaf, sepertinya aku masih sedikit pusing. Aku sudah bangun sekarang."
 
 Ruti dengan cepat menghindar saat aku mengangkat tubuhku.
 
-“Apakah Anda mengaktifkan Toleransi Tidur Anda kemarin?”
+g"Apakah Kamu mengaktifkan Toleransi Tidurmu kemarin?"
 
-“Yup, sudah lama sekali jadi aku ingin menatap wajah Onii-chan.”
+r"Yup, sudah lama sekali jadi aku ingin menatap wajah Onii-chan."
 
-Melihat ke luar jendela, Aku melihat pemandangan pagi Zoltan yang remang-remang di musim dingin. Itu adalah waktu yang biasa.
+Melihat ke luar jendela, Aku melihat pemandangan pagi Zoltan yang remang-remang di musim dingin. Itu adalah hari seperti biasanya.
 
-Lit pergi ke desa yang agak jauh untuk mengumpulkan ramuan obat. Dia menginap semalam jadi dia harus kembali sekitar hari ini di malam hari.
+Lit pergi ke desa yang agak jauh untuk mengumpulkan tanaman obat. Dia menginap semalam jadi dia kembali sekitar hari ini di malam hari.
 
-Biasanya Aku akan pergi tetapi…
+Biasanya Aku akan pergi tetapi...
 
-"Onii-chan, terima kasih sudah menepati janjimu."
+r"Onii-chan, terima kasih sudah menepati janjimu."
 
 Kata Ruti senang.
 
@@ -116,19 +116,19 @@ Aku dihentikan oleh sebuah suara saat kami berjalan melalui pasar.
 
 Seorang pria dengan wajah teduh memanggil Aku. Dia adalah Pasquale, pengrajin aksesori palsu yang juga bekerja sebagai navigator di samping. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu migran mereka. Aku juga tidak berpikir untuk bertanya.
 
-"Apa ini? Selingkuh? Anda sudah memiliki Hero Lit. ”
+"Apa ini? Selingkuh? Kamu sudah memiliki Hero Lit. ”
 
 “Dia adik perempuanku. Ruti‧Ruru. ”
 
 “Eh, kamu punya adik perempuan? Dia manis."
 
-“Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Anda tidak akan berakhir dengan baik jika Anda mencoba untuk bergerak. ”
+“Ngomong-ngomong, dia adalah petualang peringkat-B yang baru. Kamu tidak akan berakhir dengan baik jika Kamu mencoba untuk bergerak. ”
 
-“Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Anda memiliki perlindungan ilahi yang memunculkan pahlawan? "
+“Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Kamu memiliki perlindungan ilahi yang memunculkan pahlawan? "
 
 Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
 
-“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Anda menghentikan Aku? ”
+“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Kamu menghentikan Aku? ”
 
 "Yah, aku yakin kamu sedang berkencan dan ini akan menjadi kesempatan yang sempurna bagimu untuk mendapatkan hadiah untuk pacarmu."
 
@@ -138,7 +138,7 @@ Pasquale berkata sambil menunjuk ke anting-anting dan tiara yang bertatahkan sem
 
 “Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu. "
 
-"Anda tidak akan meminta harga rip-off, kan?"
+"Kamu tidak akan meminta harga rip-off, kan?"
 
 “Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja Aku. "
 
