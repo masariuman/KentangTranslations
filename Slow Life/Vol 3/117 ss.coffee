@@ -268,43 +268,43 @@ Senyuman cerah muncul di wajah Ruti.
 
 Dia akhirnya datang untuknya.
 
-“Kamu melakukannya dengan baik dalam bertahan. Kerja bagus."
+g"Kamu melakukannya dengan baik dalam bertahan. Kerja bagus."
 
-"Ya! Bagaimana dengan Onii-chan? ”
+r"Ya! Bagaimana dengan Onii-chan? ”
 
-“Ah, itu…”
+g"Ah, itu...""
 
 Teriakan dan jeritan marah datang dari tentara orc di belakang.
 
-"Apa …"
+"Apa..."
 
-Setan itu melihat ke belakang, sosoknya yang besar membuatnya sedemikian rupa sehingga dia bisa melihat cukup jauh.
+iblis itu melihat ke belakang, sosoknya yang besar membuatnya bisa melihat cukup jauh.
 
 “Gya !!”
 
 “Guaa !?”
 
-Di belakangnya, tentara manusia dengan pedang dan tombak membunuh satu tentara Orc demi Orc yang sedang berjuang dari serangan mendadak.
+Di belakangnya, tentara manusia dengan pedang dan tombak membunuh satu tentara Orc yang sedang berjuang dari serangan mendadak.
 
-“Serangan mendadak dari belakang !? Mustahil!"
+"Serangan mendadak dari belakang !? Mustahil!"
 
-Setan itu meraung marah. Namun, mungkin karena iblis itu masih jauh dari mereka, para prajurit yang melancarkan serangan mendadak terus bertarung tanpa menunjukkan rasa takut.
+iblis itu meraung marah. Namun, mungkin karena iblis itu masih jauh dari mereka, para prajurit yang melancarkan serangan mendadak terus bertarung tanpa menunjukkan rasa takut.
 
-(Karena prospek kemenangan, para orc terlalu jauh ke depan dan yang tertinggal hanya dengan yang lebih lemah? Selain itu, mereka memiliki momentum. Saya tidak melihat ada tentara tingkat tinggi tetapi mereka tidak takut ketika menghadapi orc tentara ... karena kehadirannya?)
+(Karena prospek kemenangan, para orc terlalu jauh ke depan dan yang tertinggal hanya yang lebih lemah? Selain itu, mereka memiliki momentum. aku tidak melihat ada tentara tingkat tinggi tetapi mereka tidak takut ketika menghadapi orc ... karena kehadirannya?)
 
-Setan itu memelototi Gideon dengan mata merah.
+iblis itu memelototi Gideon dengan mata merah.
 
 Namun, Gideon terlihat tenang.
 
-“Jumlah pasukan dan moral terlalu rendah untuk pertempuran frontal. Aku menyuruh mereka mengelilingi musuh tanpa mereka sadari. "
+g"Jumlah pasukan dan moral terlalu rendah untuk pertempuran frontal. Aku menyuruh mereka mengelilingi musuh tanpa mereka sadari."
 
 Gideon memandang Ruti yang berbaris di sampingnya dan tersenyum.
 
-“Menyiapkan serangan mendadak akan memakan waktu, tapi aku yakin Ruti akan mampu bertahan sampai kita tiba.”
+g"Menyiapkan serangan mendadak akan memakan waktu, tapi aku yakin Ruti akan mampu bertahan sampai kami tiba."
 
 Pipi Ruti mengendur setelah mendengar itu. Dia sangat gembira karena kakaknya percaya padanya dan dia memenuhi harapannya.
 
-“Dalam kebingungan, kekuatan kecil lebih dari cukup untuk bertarung secara merata. Ares-kun, tolong dukung pasukan dengan sihir! ”
+g"Dalam kebingungan, kekuatan kecil lebih dari cukup untuk bertarung secara merata. Ares-kun, tolong dukung pasukan dengan sihir!"
 
 Ares mengangguk sedikit ketika dia dipanggil. Namun, Ares memiliki ekspresi gelap di wajahnya saat dia memelototi punggung Gideon.
 
