@@ -106,7 +106,7 @@ Meski bingung, para warga sangat antusias dengan kemunculan seorang raja yang ku
 
 Para bangsawan yang memberontak telah ditindas dan kepala mereka digantikan oleh bawahan dan sekutu Geyserik.
 
-Ririnrara sekarang adalah seorang Earl. Banyak wakil pejabat Geyserik sekarang adalah bangsawan dengan gelar bangsawan. Duke Clark yang menciptakan yanah suci clark menyerang dengan dalih permintaan dari banyak bangsawan yang melarikan diri tetapi tentara Veron yang direstrukturisasi Geyserik menghancurkan mereka. Mereka melanjutkan untuk maju ke wilayah Clark dan mampu memenuhi keinginan lama mereka untuk memulihkan wilayah yang hilang. Orang-orang kerajaan bersorak untuk kekuatan raja baru.
+Ririnrara sekarang adalah seorang Earl. Banyak wakil pejabat Geyserik sekarang adalah bangsawan dengan gelar bangsawan. Duke Clark yang menciptakan tanah suci clark menyerang dengan dalih permintaan dari banyak bangsawan yang melarikan diri tetapi tentara Veron yang direstrukturisasi Geyserik menghancurkan mereka. Mereka melanjutkan untuk maju ke wilayah Clark dan mampu memenuhi keinginan lama mereka untuk memulihkan wilayah yang hilang. Orang-orang kerajaan bersorak untuk kekuatan raja baru.
 
 Semuanya baik-baik saja.
 
@@ -120,7 +120,7 @@ Kerajaan Veronia, yang telah jatuh ke tingkat negara kota, telah kembali menjadi
 
 "Itu adalah perampasan berdarah tapi aku senang ..."
 
-Mistome-shi mendesah.
+Mistome-shi menghela nafas.
 
 Adegan berubah dan Misufia dan Leonor saling berhadapan untuk ketiga kalinya.
 
@@ -132,41 +132,41 @@ Leonor tidak mengenakan pakaian mewah yang biasa, tetapi pakaian religius yang b
 
 Tapi Misufia lebih menarik. Di bawah gaun longgar itu ada perut yang membengkak.
 
-"Permaisuri-sama, ini tentang waktu."
+"Permaisuri-sama, suda waktunya."
 
 Leonor selamat dari pembersihan keluarga kerajaan.
 
 "Ya, kata dokter, itu akan terjadi sekitar akhir bulan depan atau sebulan setelah itu."
 
-"Yang Mulia akan lega jika Anda melahirkan seorang ahli waris. Anda memiliki tanggung jawab yang sangat besar. Bukankah kamu lebih suka menjadi seperti Aku, bisa pergi ke mana pun yang Aku inginkan dan menjaga diri Aku sendiri di istana kekaisaran? "
+"Yang Mulia akan lega jika kamu melahirkan seorang ahli waris. kamu memiliki tanggung jawab yang sangat besar. Bukankah kamu lebih suka menjadi sepertiku, bisa pergi ke mana pun yang Aku inginkan dan menjaga diriku sendiri di istana kekaisaran?"
 
-"Ara, apa kamu mengkhawatirkanku? Tapi Aku baik-baik saja. Aku bisa bergerak dengan kereta dan dokter memberi tahu Aku bahwa akan lebih baik untuk sedikit menggerakkan tubuh Aku. "
+"Ara, apa kamu mengkhawatirkanku? Tapi Aku baik-baik saja. Aku bisa bergerak dengan kereta dan dokter memberi tahuku bahwa akan lebih baik untuk sedikit menggerakkan tubuhku."
 
 "Senang mendengarnya."
 
-"Bagaimana denganmu? Apakah Anda terbiasa tinggal di biara? "
+"Bagaimana denganmu? Apakah kamu terbiasa tinggal di biara? "
 
 Leonor tersenyum lembut.
 
-"Ya, sunyi dan tenang dan Aku tidak perlu khawatir posisi Aku berdiri bisa runtuh kapan saja. Semua anggota tertib dan hidup bersama dengan menggabungkan perlindungan ilahi masing-masing. "
+"Ya, sunyi dan tenang dan Aku tidak perlu khawatir posisiku berdiri bisa jatuh kapan saja. Semua anggota tertib dan hidup bersama dengan menggabungkan perlindungan ilahi masing-masing."
 
 "Hidup bersama dengan menggabungkan perlindungan ilahi?"
 
-"Perlindungan ilahi Aku adalah『 Fighter 』yang umum. Jadi Aku menenun dan membongkar serta sesekali menyalin manuskrip. "
+"Perlindungan ilahiku adalah『 Fighter 』yang umum. Jadi Aku menenun dan membongkar serta sesekali menyalin manuskrip."
 
-Leonor tidak lagi memiliki kebanggaan yang sebelumnya dia miliki dalam ekspresinya. Setidaknya, tidak di permukaan.
+Leonor tidak lagi memiliki kebanggaan yang sebelumnya dia miliki dalam ekspresinya. Setidaknya, tidak di permukaan wajahnya.
 
-"... Jika Anda mau, Aku bisa memindahkan Anda ke biara dengan sedikit tenaga kerja."
+"... Jika kamu mau, Aku bisa memindahkanmu ke biara dengan sedikit bekerja."
 
-"Tidak apa-apa, aku suka tempat ini. Selain itu, Aku bisa bertemu ibu suri-sama seperti ini. "
+"Tidak apa-apa, aku suka tempat ini. Selain itu, Aku bisa bertemu dengamu seperti ini. "
 
-"Aku melihat. Aku mengerti, maaf telah menanyakan sesuatu yang aneh. "
+"begitu.. Aku mengerti, maaf telah menanyakan sesuatu yang aneh. "
 
-"Onee-sama. Aku puas dengan hidup Aku yang damai dan bahagia. Tapi istana kerajaan adalah tempat yang berbahaya. Dan ambisi Yang Mulia kuat. Aku khawatir jika cinta Yang Mulia untuk Onee-sama akan hilang suatu hari nanti. "
+"Onee-sama. Aku puas dengan hidupku yang damai dan bahagia. Tapi istana kerajaan adalah tempat yang berbahaya. Dan ambisi Yang Mulia kuat. Aku khawatir jika cinta Yang Mulia untuk Onee-sama akan hilang suatu hari nanti."
 
-Itu tidak akan pernah terjadi.
+"Itu tidak akan pernah terjadi."
 
-"Apakah begitu? Bagaimanapun juga, jangan lengah… Jika tidak, aku akan kehilangan bahkan senyuman yang kudapatkan dari hidup seperti ini sebagai seorang biarawati. "
+"Apakah begitu? Bagaimanapun juga, jangan lengah... Jika tidak, aku akan kehilangan bahkan senyuman yang kudapatkan dari hidup seperti ini sebagai seorang biarawati. "
 
 Leonor berkata dan menundukkan kepalanya saat dia meninggalkan ruangan.
 
