@@ -84,13 +84,13 @@ Tapi ketika lelaki tua itu menyadari pedang pendek Tise mengarah di antara alisn
 
 Kemudian,
 
-"Wanita muda! Seseorang Mengejarmu! Tolong segera kabur! "
+"Putri! Seseorang Mengejarmu! Tolong segera kabur! "
 
 Orang tua itu berteriak, bersiap untuk kematiannya.
 
 aku mengaktifkan kekuatan ke 'Kaki kilat'ku untuk mengejar. Tapi sepertinya aku tidak harus mengejar mereka.
 
-"Wanita muda..."
+"Putri..."
 
 Seorang pria maskulin memegang tombak.
 
@@ -108,25 +108,25 @@ Moen, Garadin, Cien dan Mistome, empat mantan petualang datang berjalan mendekat
 
 Mengikuti di belakang Mistome-shi, kami dibawa ke sebuah desa kecil di dalam hutan.
 
-Ada delapan gubuk kecil. Namun, ada tanda-tanda bahwa ketiganya sudah lama tidak digunakan.
+Ada delapan gubuk kecil. Namun, ada sepertinya tigak gubuk sudah lama tidak digunakan.
 
-"Wanita muda."
+"Putri."
 
 Kami disambut oleh enam orang tua bersenjatakan busur dan pedang. Selain itu, di dalam gubuk kecil, ada dua orang lain yang bahkan lebih tua dari yang ada di luar dengan busur mengarah ke luar jendela.
 
-"Tenang. Mereka adalah pahlawan Zoltan. Mereka melindungi Zoltan menggantikan saya sekarang. ”
+"Tenang. Mereka adalah pahlawan Zoltan. Mereka melindungi Zoltan menggantikanku sekarang."
 
-Orang tua itu menurunkan senjatanya setelah Mistome-shi mengatakan itu. Namun, mereka terus menatap dengan tatapan tajam dan siap memasuki posisi pertempuran pada saat pemberitahuan.
+Orang tua itu menurunkan senjatanya setelah Mistome-shi mengatakan itu. Namun, mereka terus menatap dengan tatapan tajam dan siap memasuki posisi pertempuran jika diperlukan.
 
-“Mereka semua cukup kuat.”
+g"Mereka semua cukup kuat."
 
-Masing-masing memiliki kekuatan yang setara dengan para ksatria Capital. Tubuh fisik mereka telah merosot tetapi, kecuali Ruti, mereka adalah lawan di mana kami bertiga tidak bisa meremehkan.
+Masing-masing memiliki kekuatan yang setara dengan para ksatria ibukota. Tubuh fisik mereka telah melemah tetapi, kecuali Ruti, mereka adalah lawan di mana kami bertiga tidak bisa meremehkan.
 
 "Mereka adalah bawahan kebanggaanku."
 
 Mistome-shi menanggapi kata-kataku dengan senyuman.
 
-“Hei, Red. Orang-orang ini? "
+l"Hei, Red. Orang-orang ini?"
 
 “Ah, mereka adalah orang-orang yang kamu baca di berita.”
 
