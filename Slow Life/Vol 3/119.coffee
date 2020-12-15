@@ -94,15 +94,15 @@ Ruti berpikir kembali dengan sedih. Melihat serangga yang terpikat oleh nyala li
 
 (aku telah dibebaskan dari dorongan hatiku. aku melihat dunia secara berbeda. Kalau begitu, bagaimana dengan dunia Onii-chan?)
 
-Persis seperti bagaimana dunia yang dilihatnya berubah setelah tidak lagi memiliki impuls, bukan berarti dunia yang dilihat Red dengan impulsnya dari 『Guide』 berbeda dari dunia yang dilihat Ruti?
+Persis seperti bagaimana dunia yang dilihatnya berubah setelah tidak lagi memiliki impuls, bukankah itu berarti dunia yang dilihat Red dengan impulsnya dari 『Pemandu』 berbeda dari dunia yang dilihat Ruti?
 
-(Jika itu masalahnya ... ketika Onii-chan tidak lagi memiliki dorongan hati, aku bertanya-tanya bagaimana dia akan melihatku?)
+(Jika itu masalahnya ... ketika Onii-chan tidak lagi memiliki dorongan hati, aku penasaran bagaimana dia akan melihatku?)
 
 Membayangkannya saja sudah membuat tulang punggung Ruti gemetar ketakutan.
 
-Ruti mampu menahan dorongan dari 『Hero』 dan mempertahankan kepribadiannya sepenuhnya karena keberadaan Red.
+Ruti mampu menahan dorongan dari 『Pahlawan』 dan mempertahankan kepribadiannya sepenuhnya karena keberadaan Red.
 
-Jika dia menjadi 『Hero』, dia akan kehilangan perasaannya terhadap Red. Bahkan jika Red meninggal, dia tidak akan meneteskan air mata dan hanya akan menunjukkan kesedihan karena orang-orang di sekitarnya berharap 『Hero』 akan sedih ketika kakaknya meninggal.
+Jika dia menjadi 『Pahlawan』, dia akan kehilangan perasaannya terhadap Red. Bahkan jika Red meninggal, dia tidak akan meneteskan air mata dan hanya akan menunjukkan kesedihan karena orang-orang di sekitarnya berharap 『Pahlawan』 akan sedih ketika kakaknya meninggal.
 
 Ruti sama sekali tidak bisa menerima hal seperti itu. Dia tidak bisa menahan dirinya menjadi orang seperti itu. Dia tidak akan kehilangan perasaannya terhadap kakaknya bahkan jika Tuhan ingin merenggutnya. Itulah inti ( Shin ) hati Ruti.
 
