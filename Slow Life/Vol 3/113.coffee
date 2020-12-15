@@ -68,23 +68,23 @@ Mistome-shi menatap adik perempuannya dengan mata menyipit dan pandangan nostalg
 
 "aku ingin menjadi ramuan obat yang dapat menyembuhkan penyakit daripada bunga untuk dicintai."
 
-Mistome menjawab dengan tegas. Leonor menyembunyikan mulutnya di balik kipas angin dan membiarkan bocor tertawa.
+Mistome menjawab dengan tegas. Leonor menyembunyikan mulutnya di balik kipas angin dan menampakkan sedikit tertawa.
 
-“Benar-benar bagus. Sangat menyenangkan berbicara dengan kakak perempuan. Aku tidak akan merindukan kakak perempuan setelah kamu meninggalkan istana kerajaan. "
+"Benar-benar bagus. Sangat menyenangkan berbicara dengan kakak. Aku tidak akan merindukan kakak setelah kamu meninggalkan istana kerajaan."
 
 "Aku juga masih memiliki segunung hal untuk diberitahukan kepadamu."
 
-“Ku-ku ku… seseorang seperti kakak perempuan…”
+“Ku-ku ku... seseorang seperti kakak...”
 
 Raja Veronia naik ke atas panggung. Dia sepertinya akan mengumumkan sesuatu.
 
 Di sampingnya adalah Pietro. Para bangsawan di sekitarnya bertepuk tangan.
 
-"Saya senang merayakan hari yang makmur ini dengan semua orang di sini sebagai Raja Veronia dan junjungan Anda."
+"aku senang merayakan hari yang makmur ini dengan semua orang di sini sebagai Raja Veronia dan junjunganmu."
 
-Tepuk tangan lagi. Mistome muda melihat ke atas panggung dengan ekspresi penasaran dari campuran kegembiraan dan melankolis. Mistome-shi yang sudah tua mengawasi masa lalunya dengan tatapan suka.
+Tepuk tangan terdengar lagi. Mistome muda melihat ke atas panggung dengan ekspresi penasaran. Mistome-shi yang sudah tua melihat masa lalunya dengan tatapan suka.
 
-Kemungkinan besar… Saya bisa membayangkan sesuatu akan terjadi.
+Kemungkinan besar... aku bisa membayangkan sesuatu akan terjadi.
 
 "Orang-orang Veronaku yang terkasih, hari ini, di sini, aku berharap kamu akan menjadi saksi sumpah pernikahan antara putri terkasihku Leonor‧of‧Veronia dan punggawa setia terkasihku Pietro‧Zaki‧Aller."
 
