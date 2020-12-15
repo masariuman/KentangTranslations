@@ -90,25 +90,25 @@ semuanya Murni dari perasaanku.
 
 Bagiku, Ruti adalah adik perempuan tercantik dan terimut di dunia. Semua yang Aku lakukan, bertujuan untuk menjadi lebih kuat, bergabung dengan ksatria ordo, melakukan perjalanan, semuanya untuk menjadi kekuatan Ruti dan untuk melindunginya.
 
-"Jika『 Pahlawan 』adalah orang lain dan bukan Ruti, Aku mungkin tidak akan berada di sini."
+g"Jika『 Pahlawan 』adalah orang lain dan bukan Ruti, Aku mungkin tidak akan berada di sini."
 
-"Maksud kamu apa?"
+r"Maksudnya?"
 
-"Kalau bukan karena Ruti yang Aku hargai, Aku tidak akan berpikir untuk menjadi lebih kuat. Berada di Lv31 sudah cukup untuk memimpin 『Hero』 dalam perjalanannya. Tidak ada makhluk bermusuhan di mana kita tinggal yang bisa menyaingi Aku, bukan? Aku bahkan bisa mengalahkan lawan sekelas perwira dari Tentara Raja Iblis. Setelah 『Pahlawan』 dikenali oleh ibu kota, para elit dari Ordo Ksatria Bahamut atau Ordo Ksatria Tiamat dapat menggantikan Aku. "
+g"Kalau bukan karena Ruti yang sangat Aku Hargai, Aku tidak akan berpikir untuk menjadi lebih kuat. Berada di Lv31 sudah cukup untuk membimbing 『Pahlawan』 dalam perjalanannya. Tidak ada makhluk yang bisa menyaingiku, bukan? Aku bahkan bisa mengalahkan lawan sekelas perwira dari Tentara Raja Iblis. Setelah 『Pahlawan』 dikenali oleh ibu kota, para elit dari Ksatria Ordo Bahamut atau Ksatria Ordo Tiamat dapat menggantikanku. "
 
-Sebenarnya, ada rencana agar Ordo Ksatria Tiamat bepergian dengan 『Pahlawan』. Meskipun itu menandakan bahwa 『Pahlawan』 memulai perjalanannya di bawah perintah Kerajaan Avalonia.
+Sebenarnya, ada rencana agar Ksatria Ordo Tiamat bepergian dengan 『Pahlawan』. Meskipun itu menandakan bahwa 『Pahlawan』 memulai perjalanannya di bawah perintah Kerajaan Avalonia.
 
-"Selain itu, setelah Aku meninggalkan sisi Ruti, perlindungan ilahi Aku tidak menimbulkan dorongan apapun. Peran Aku mungkin telah berakhir. "
+g"Selain itu, setelah Aku meninggalkan sisi Ruti, perlindungan ilahiku tidak menimbulkan dorongan apapun. Peranku mungkin telah berakhir. "
 
-『Panduan』 adalah perlindungan ilahi yang sangat unik. Untuk perlindungan ilahi lainnya, tidak peduli seberapa umum mereka, mereka semua memiliki peran untuk dimainkan bagi dunia.
+『Pemandu』 adalah perlindungan ilahi yang sangat unik. Untuk perlindungan ilahi lainnya, tidak peduli seberapa umum mereka, mereka semua memiliki peran untuk dimainkan bagi dunia.
 
-Namun, 『Panduan』 tidak berperan di dunia. 『Panduan』 hanya ada untuk 『Hero』. Ketika 『Hero』 tidak lagi membutuhkan 『Guide』, 『Guide』 tidak lagi memiliki peran untuk dimainkan.
+Namun, 『Pemandu』 tidak berperan di dunia. 『Pemandu』 hanya ada untuk 『Pahlawan』. Ketika 『Pahlawan』 tidak lagi membutuhkan 『Pemandu』, 『Pemandu』 tidak lagi memiliki peran untuk dimainkan.
 
-Karena itu, Aku tidak punya dorongan apapun. Meskipun itu wajar untuk perlindungan ilahi apa pun, perlindungan ilahi 『Panduan』 Aku tidak memiliki dorongan untuk tumbuh sendiri atau keterampilan unik apa pun.
+Karena itu, Aku tidak punya dorongan apapun. Meskipun itu wajar untuk perlindungan ilahi apa pun, perlindungan ilahi 『Pemandu』ku tidak memiliki dorongan atau skill unik apa pun.
 
-Karena Tuhan dan dunia tidak lagi membutuhkan Aku.
+Karena dewa dan dunia tidak lagi membutuhkanku.
 
-"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Ruti Aku yang imut. Aku mencari cara untuk menghilangkan dorongan untuk 『Hero』 secara detail juga karena Ruti. "
+g"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Ruti Aku yang imut. Aku mencari cara untuk menghilangkan dorongan untuk 『Hero』 secara detail juga karena Ruti. "
 
 Wajah Ruti perlahan memerah setelah mendengar kata-kataku.
 
