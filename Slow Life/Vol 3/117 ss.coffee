@@ -2,23 +2,23 @@ Cerita sampingan peringatan komik: Prolog baru versi komik
 
 Penulis: Chapter ini ditulis setelah rilis prolog komik.
 
-Versi komikal diserialkan di Shonen Ace dan juga tersedia di pasar di Comic Walker dan Nico Nico Seikei!
+Versi komik diserialkan di Shonen Ace dan juga tersedia di pasar di Comic Walker dan Nico Nico Seikei!
 
-Penafian: Semua gambar di halaman ini milik perusahaan penerbitan, penulis, dan ilustrator dan tersedia online secara gratis di Nico Nico Seikei .
+Disclaimer: Semua gambar di halaman ini milik perusahaan penerbitan, penulis, dan ilustrator dan tersedia online secara gratis di Nico Nico Seikei .
 
-Tseirp: Di samping catatan, harap kalian menikmati bab ini! Ini hampir dua kali lebih lama dari biasanya dan saya menambahkan beberapa layar manga yang diadaptasi. 🙂
+---------------------------------------------------------
 
-Sudah tiga tahun sejak invasi Benua Avalon oleh Taraxon, Raja Iblis Fury, yang mengendalikan Benua Hitam.
+Sudah tiga tahun sejak invasi Benua Avalon oleh Taraxon, Raja Iblis kemarahan, yang mengendalikan Benua kegelapan.
 
 Hanya dalam tiga tahun, empat negara hancur dan separuh benua jatuh ke tangan Raja Iblis.
 
 Sebuah kota orang dikelilingi oleh api. Langit yang menjulang di atas kota berwarna merah karena pantulan api yang membakar kota.
 
-Kavaleri udara Tentara Raja Iblis yang dipimpin oleh Gandol of the Wind melayang di langit merah itu.
+Kavaleri udara Tentara Raja Iblis yang dipimpin oleh Gandol si angin melayang di langit merah itu.
 
 Iblis menunggangi wyvern secara sepihak membunuh para pejuang manusia.
 
-Umat ​​manusia berada di ujung akal mereka… tetapi Tuhan tidak meninggalkan kemanusiaan.
+Umat ​​manusia berada di ujung akal mereka... tetapi dewa tidak meninggalkan kemanusiaan.
 
 Ibukota Kekaisaran. Di depan tahta.
 
@@ -28,11 +28,11 @@ Raja menatap gadis muda di depannya dengan campuran harapan dan kecemasan.
 
 Namun, pupil merah dari gadis muda yang berlutut di depan raja tidak goyah sedikitpun saat dia menatap lurus ke arah raja.
 
-
+<gambar>
 
 Ramalan kelahiran seorang Pahlawan.
 
-Dan seorang gadis muda yang memimpin unit lokal dengan hampir tidak ada kekuatan pertahanan untuk memukul mundur pasukan pendahulu Tentara Iblis.
+Dan seorang gadis muda yang memimpin unit lokal dengan hampir tidak ada kekuatan pertahanan untuk memukul mundur pasukan Tentara Iblis.
 
 Pahlawan Ruti‧Lugason muncul di Ibukota Kekaisaran dengan 『Perlindungan Ilahi Pahlawan』 sebagai bukti yang bisa dipahami semua orang.
 
@@ -42,9 +42,9 @@ Di pos pemeriksaan jalan raya.
 
 Itu biasanya merupakan gerbang yang damai tempat para penjaja yang bepergian dari Ibukota Kekaisaran masuk dan keluar.
 
-Namun, hari ini…
+Namun, hari ini...
 
-"Sial! Ada terlalu banyak musuh! "
+"Sial! Ada terlalu banyak musuh!"
 
 Prajurit Kekaisaran yang menjaga pos pemeriksaan berteriak. Mereka berhasil bertahan dengan menggunakan pagar kayu tetapi jumlah musuh dari Tentara Raja Iblis jelas lebih besar dibandingkan dengan tentara Kekaisaran. Dengan pedang satu tangan dan perisai bundar, para prajurit Kekaisaran dapat menahan tentara Orc, yang telah mengembangkan otot dan taring yang menonjol dari wajah mereka yang seperti binatang, tetapi rasa putus asa mulai menyebar.
 
@@ -58,13 +58,15 @@ Para Orc berhenti karena terkejut setelah melihat kepala pemimpin peleton orc me
 
 Seorang gadis muda dengan rambut biru dan pupil merah berdiri di jalan mereka.
 
+<gambar>
 
-
-“Semuanya, kamu tidak boleh menyerah.”
+r"Semuanya, kalian tidak boleh menyerah."
 
 "Pahlawan-sama!"
 
-“Jika pos pemeriksaan ini dihancurkan, kota dan desa di luar ini akan mengalami kerusakan besar.”
+r"Jika pos pemeriksaan ini dihancurkan, kota dan desa di luar ini akan mengalami kerusakan besar."
+
+-----------------------
 
 Ruti‧Lugason: Lv14
 
@@ -72,19 +74,19 @@ Pekerjaan: Pahlawan
 
 Keahlian Unik: Teknik Pertempuran Menengah, Kekebalan Penuh terhadap Ketakutan
 
+------------------------
+
 Pahlawan Ruti memegang replika Pedang Suci yang dipegang oleh para pahlawan dengan kedua tangannya dan mengarahkannya ke para Orc.
 
 Meskipun itu disebut replika, Raja memerintahkan untuk mereproduksi Pedang Suci sehingga itu adalah pedang yang sangat bagus yang ditempa oleh kumpulan 『Blacksmith』, 『Pengguna Sihir』 dan 『Alchemist. Itu seharusnya dengan mudah membelah monster seperti orc.
 
-“Jangan khawatir. Jika kita bisa bertahan, Onii-chan akan datang dengan bala bantuan. "
+r"Jangan khawatir. Jika kita bisa bertahan, Onii-chan akan datang dengan bala bantuan."
 
 Ruti berkata dengan nada tenang tetapi kata-kata dan punggung manisnya memiliki kekuatan untuk menginspirasi tentara Kekaisaran.
 
-"Kami tidak takut pada orc jika Hero-sama bersama kami!"
+"Kami tidak takut pada orc jika Pahlawan-sama bersama kami!"
 
 Para prajurit muda berbaris di samping Pahlawan. Wajah mereka dipenuhi dengan keberanian dan harapan dan pedang mereka bersinar di bawah sinar matahari seolah mencerminkan kemauan para prajurit.
-
-Memerciki.
 
 "!"
 
@@ -92,23 +94,23 @@ Detik berikutnya, dua prajurit yang berdiri di samping Ruti terbang ke udara. Pe
 
 Seolah-olah sebagai pembalasan atas apa yang telah dilakukan Ruti, kepala mereka dipisahkan dari torso mereka persis seperti bagaimana Ruti membunuh orc barusan.
 
-Namun, ada perbedaan mencolok dalam kondisi mereka dibandingkan dengan apa yang dilakukan Ruti dengan menggunakan pedangnya. Alih-alih menyayat dengan pisau, para prajurit berada dalam kondisi tragis seolah-olah mereka robek dengan paksa.
+Namun, ada perbedaan mencolok dalam kondisi mereka dibandingkan dengan apa yang dilakukan Ruti dengan menggunakan pedangnya. daripada terbelah dengan pisau, para prajurit berada dalam kondisi tragis seolah-olah mereka robek dengan paksa.
 
-“Apa…”
+“Apa...”
 
 Tentara Kekaisaran kehilangan kata-kata setelah melihat pedang besar yang membunuh dua tentara pemberani dalam sekejap.
 
-Bilah pedang itu sendiri memiliki panjang lebih dari tiga meter. Bilahnya tebal dan ujung tombaknya tumpul. Itu adalah pedang yang mengandalkan bobot dan kekuatan penghancurnya dibandingkan dengan ketajamannya. Dibandingkan dengan pedang halus prajurit Kekaisaran, itu adalah pedang biadab yang sangat kasar dan kasar.
+Bilah pedang itu sendiri memiliki panjang lebih dari tiga meter. Bilahnya tebal dan ujung tombaknya tumpul. Itu adalah pedang yang mengandalkan bobot dan kekuatan penghancurnya dibandingkan dengan ketajamannya. Dibandingkan dengan pedang halus prajurit Kekaisaran, itu adalah pedang biadab yang sangat keras dan kasar.
 
-“Kuhahaha, begitu. Meskipun Anda adalah 『Pahlawan』, Anda hanya memiliki kekuatan ini saat ini. ”
+“Kuhahaha, begitu. Meskipun kamu adalah 『Pahlawan』, kamu hanya memiliki kekuatan segini saja saat ini.”
 
 Dan yang lebih menakutkan adalah sosok monster dengan wajah iblis bertanduk yang menghembuskan api saat ia memegang pedang barbar raksasa dengan mudah dengan satu tangan.
 
-Tingginya mungkin lebih dari tujuh meter. Menutupi kerangka besarnya adalah armor dengan otot yang berkembang secara tidak normal yang membuat otot orc menjadi pucat jika dibandingkan. Bertindak melawannya akan membuat seseorang merasa putus asa.
+Tingginya mungkin lebih dari tujuh meter. ia ditutupi armor dengan otot yang berkembang secara tidak normal yang membuat otot orc menjadi pucat jika dibandingkan dengannya. melawannya akan membuat seseorang merasa putus asa.
 
 Monster itu dengan ringan menghancurkan pagar kayu yang menahan para Orc dengan kakinya yang berkuku. Pagar yang rusak berserakan di tanah.
 
-
+<gambar>
 
 “Hee .. haiiiiii….”
 
