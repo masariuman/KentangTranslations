@@ -116,29 +116,29 @@ Di dunia di mana dia terpaksa menyelamatkan orang lain, Red adalah satu-satunya 
 
 Bagi Ruti, kakaknya, Red, adalah eksistensi yang sulit digambarkan dengan kata-kata.
 
-Dia memegang cinta untuk dia sebagai orang tua yang membesarkannya, cinta untuk dia sebagai saudara yang melindunginya, cinta untuk dia sebagai dermawan yang menyelamatkannya, dan cinta untuk dia sebagai kekasih untuk menghabiskan seumur hidup bersama.
+Dia memegang cinta untuknya sebagai orang tua yang membesarkannya, cinta untuk dia sebagai saudara yang melindunginya, cinta untuk dia sebagai dermawan yang menyelamatkannya, dan cinta untuk dia sebagai kekasih untuk menghabiskan seumur hidup bersama.
 
 Ruti merasakan cinta yang begitu besar, seakan-akan semua cinta yang ada di dunia dipadatkan menjadi satu titik, untuk sang kakak.
 
 Dengan kata lain, pada level di mana dia tidak bisa hidup jika kakaknya membencinya.
 
-“U, uuuu…”
+r"U, uuuu..."
 
 Isak tangis keluar dari mulutnya tanpa sadar.
 
-Bahkan ketika organ dalamnya dihancurkan oleh taring naga, Ruti akan mereproduksinya dengan 'Healing Hand' tanpa mengedipkan alis tetapi dia sekarang menderita dari keraguan 'mungkin' yang hanya ada di kepalanya.
+Bahkan ketika organ dalamnya dihancurkan oleh taring naga, Ruti akan mereproduksinya dengan 'tangan penyembuh' tanpa mengedipkan alis tetapi dia sekarang menderita dari keraguan 'mungkin' yang hanya ada di kepalanya.
 
-Bagaimana jika cinta Red padanya hanya karena dorongan hatinya dan dia sebenarnya tidak menyukainya sama sekali dan dipaksa untuk menyukainya.
+Bagaimana jika cintanya Red padanya hanya karena dorongan hatinya dan dia sebenarnya tidak menyukainya sama sekali dan dipaksa untuk menyukainya.
 
-Hanya dengan memikirkannya saja sudah membuat kekuatan untuk meninggalkan tubuh Ruti dan dia duduk di ranjang yang keras.
+Hanya dengan memikirkannya saja sudah membuat kekuatannya menghilang dan dia terduduk di ranjang yang keras.
 
 Sebelum dia menyadarinya, air mata mengalir dari kedua matanya.
 
-Jika… jika dia harus berpisah dengan kakaknya seperti yang Mistome lakukan…
+Jika... jika dia harus berpisah dengan kakaknya seperti yang Mistome lakukan...
 
-"Saya tidak mau."
+r"aku tidak mau."
 
-Tapi bagaimana jika kakaknya menderita impuls dari 『Guide』 sama seperti bagaimana dia menderita impuls dari 『Hero』? Saat ini, dia bisa menghilangkan impuls orang lain yang dia sentuh untuk sementara. Jika dia bisa menyelamatkan kakaknya dengan itu ...
+Tapi bagaimana jika kakaknya menderita impuls dari 『Pemandu』 sama seperti bagaimana dia menderita impuls dari 『Pahlawn』? Saat ini, dia bisa menghilangkan impuls orang lain yang dia sentuh untuk sementara. Jika dia bisa menyelamatkan kakaknya dengan itu ...
 
 (Aku tidak ingin dibenci oleh Onii-chan. Tapi aku tidak ingin Onii-chan menderita. Aku hanya ingin dia bahagia.)
 
