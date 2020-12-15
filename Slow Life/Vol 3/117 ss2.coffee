@@ -216,14 +216,14 @@ Ruti menatap langsung ke wajahku.
 
 r"Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya?"
 
-Sebelumnya, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ordo Ksatria Bahamut jadi Aku tidak bisa memberinya jawaban.
+dulu, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ksatria ordo Bahamut jadi Aku tidak bisa memberinya jawaban.
 
-Namun, kali ini berbeda. Tujuan Aku adalah hidup yang lambat.
+Namun, kali ini berbeda. Tujuanku adalah hidup yang santai.
 
-"Ya, selama Ruti menginginkannya. Aku akan bersamamu selamanya. "
+g"Ya, selama Ruti menginginkannya. Aku akan bersamamu selamanya."
 
-Saat aku mengatakan itu, murid Ruti bergetar dan dia mengepalkan tinjunya dengan erat.
+Saat aku mengatakan itu, mata Ruti bergetar dan dia mengepalkan tinjunya dengan erat.
 
-"Ya!"
+r"Ya!"
 
 Dia tersenyum dan mengangguk.
