@@ -396,13 +396,13 @@ Iblis dengan kerangka besar seperti monster, menjerit sampai kematian terakhirny
 
 <gambar>
 
-Tentara Orc goyah setelah mereka melihat tontonan itu. Mereka tidak pernah membayangkan bahwa Demon Besar kelas perwira akan dikalahkan.
+Tentara Orc goyah setelah mereka melihat itu. Mereka tidak pernah membayangkan bahwa iblis Besar kelas perwira akan dikalahkan.
 
 “Gyaaa !!”
 
-Salah satu orc melemparkan tombaknya ke bawah dan melarikan diri. Itu memicu awal dari para orc yang berusaha untuk menjadi yang pertama melarikan diri.
+Salah satu orc melemparkan tombaknya ke bawah dan melarikan diri. itulah pemicu awal orc untuk melarikan diri.
 
-"Mereka melakukannya! Mereka melakukannya! Musuh mundur! "
+"Mereka Berhasil! Mereka Berhasil! Musuh sudah mundur!"
 
 Tentara Kekaisaran berteriak. Pertarungan tanpa harapan telah berubah menjadi kemenangan yang brilian.
 
@@ -410,21 +410,21 @@ Gideon bertukar pandang dengan Ruti dan tersenyum ringan.
 
 Gideon mengangkat pedangnya langsung ke udara. Armornya mengeluarkan suara dentingan.
 
-“Ini adalah kemenangan kita! Angkat tangisan kemenanganmu! ”
+g"Ini adalah kemenangan kita! Teriakkan Suara kemenanganmu!"
 
-Ruti dan Prajurit Kekaisaran yang mempertahankan pos pemeriksaan meniru Gideon dan mengangkat pedang mereka secara sinkron.
+Ruti dan Prajurit Kekaisaran yang mempertahankan pos pemeriksaan meniru Gideon dan mengangkat pedang mereka secara Bersamaan.
 
 “Oooooo !!!!”
 
 Para prajurit Kekaisaran mengangkat teriakan kemenangan besar.
 
-Sorak-sorai bergema di sepanjang jalan raya. Pertempuran itu tidak lebih dari sebuah kemenangan kecil untuk mempertahankan sebuah pos pemeriksaan tapi teriakan kemenangan itu mengalir melalui jalan raya untuk menyemangati para prajurit lain yang bertempur melawan pasukan Raja Iblis.
+Teriakan bergema di sepanjang jalan raya. Pertempuran itu tidak lebih dari sebuah kemenangan kecil untuk mempertahankan sebuah pos pemeriksaan tapi teriakan kemenangan itu mengalir melalui jalan raya untuk menyemangati para prajurit lain yang bertempur melawan pasukan Raja Iblis.
 
 Para prajurit Kekaisaran tidak bisa menahan diri untuk berpikir seperti itu.
 
-Kami menang, Ruti.
+g"kita menang, Ruti."
 
-"Ya!"
+r"Ya!"
 
 『Pahlawan』 dan ksatria saling menatap. Para prajurit Kekaisaran merasakan keberanian dan harapan yang meningkat dari melihat dua keberadaan heroik.
 
