@@ -56,11 +56,11 @@ Bajak laut menendang pintu takhta.
 
 Misufia, berdiri di samping Geyserik, menerima teriakan ayahnya, Raja Veronia dengan tatapan tenang.
 
-"Ayah, negara harus kuat. Dengan membiarkan bangsawan korup yang menuruti keinginan pribadi mereka seperti Duke of Oslo lakukan sesuka mereka, kami telah kehilangan sebagian besar wilayah kami dari kekalahan berturut-turut dan kami tidak dapat menyelamatkan desa yang diserang oleh Raja Goblin ... Terlepas dari situasinya, apakah ada nilai anggota keluarga kerajaan yang berjuang untuk tujuan berpegang pada kekuasaan yang dibangun di atas pasir? "
+"Ayah, negara harus kuat. Dengan membiarkan bangsawan korup yang menuruti keinginan pribadi mereka seperti Oslo lakukan sesuka mereka, kita telah kehilangan sebagian besar wilayah kita dari kekalahan berturut-turut dan kita tidak dapat menyelamatkan desa yang diserang oleh Raja Goblin ... Terlepas dari situasinya, apakah ada nilai anggota keluarga kerajaan yang berjuang untuk tujuan berpegang pada kekuasaan yang dibangun di atas pasir?"
 
-"Lalu apa yang kamu ingin aku lakukan! Aku hanya seorang raja dalam nama dan satu-satunya hal yang Aku terima adalah militer yang buruk yang bahkan tidak bisa mengalahkan pencuri dan bangsawan yang menggelapkan harta nasional! Apa yang bisa Aku lakukan dalam situasi seperti ini! "
+"Lalu apa yang kamu ingin aku lakukan! Aku hanya seorang raja dengan nama dan satu-satunya hal yang Aku terima adalah militer yang buruk yang bahkan tidak bisa mengalahkan pencuri dan bangsawan yang menggelapkan harta nasional! Apa yang bisa Aku lakukan dalam situasi seperti ini!"
 
-"Tidak melakukan apa-apa adalah dosa! Bagaimana raja akan menyelamatkan warga yang bergantung pada keluarga kerajaan jika raja menyesali ketidakmampuannya !? "
+"Tidak melakukan apa-apa adalah dosa! Bagaimana raja akan menyelamatkan warga yang bergantung pada keluarga kerajaan jika raja menyesali ketidakmampuannya !?"
 
 Raja Veronia kewalahan oleh kecaman Misufia dan menundukkan kepalanya.
 
@@ -70,27 +70,27 @@ Raja Veronia kewalahan oleh kecaman Misufia dan menundukkan kepalanya.
 
 Raja Veronia memandang Geyserik sebagai generasi Raja Veronia berikutnya.
 
-"Geyserik. Tidak seperti Aku, Anda memiliki kekuatan, kebijaksanaan, dan keberanian. "
+"Geyserik. Tidak seperti Aku, kamu memiliki kekuatan, kebijaksanaan, dan keberanian."
 
-"……"
+"......"
 
-"Aku hanya ingin memberitahumu satu hal ... tidak punya belas kasihan."
+"Aku hanya ingin memberitahumu satu hal ... jangan ada belas kasihan."
 
 "Apa?"
 
-"Jika kamu meninggalkan bahkan satu orang dari keluarga kerajaan, akan ada orang yang pasti akan mengibarkan bendera karena darah dan taring telanjang untuk keluarga kerajaan yang baru. Belas kasihan tidak dibutuhkan untuk menggantikan seorang raja. Belas kasihan akan bertemu dengan balas dendam, toleransi bertemu dengan darah. Seorang raja adalah eksistensi seperti itu. "
+"Jika kamu meninggalkan bahkan satu orang dari keluarga kerajaan, akan ada orang yang pasti akan mengibarkan bendera perperangan untuk keluarga kerajaan yang baru. Belas kasihan tidak dibutuhkan untuk menggantikan seorang raja. Belas kasihan akan bertemu dengan balas dendam, toleransi bertemu dengan darah. Seorang raja adalah eksistensi seperti itu."
 
 Raja Veronia mencabut pedangnya dan meletakkannya di tenggorokannya sendiri.
 
-"Geyserik, apakah Anda benar-benar memegang perlindungan ilahi『 Kaisar 』?"
+"Geyserik, apakah Kamu benar-benar memegang perlindungan ilahi『 Kaisar 』?"
 
-Ya, Aku lakukan.
+"Ya, Aku memilkinya."
 
-"Kalau begitu, ini tidak bisa dihindari. Sangat membuat iri. Apakah Anda tahu perlindungan ilahi Aku? "
+"Kalau begitu, ini tidak bisa dihindari. sungguh kamu membuatku iri. Apakah kamu tahu perlindungan ilahiku?"
 
-"Tidak, aku tidak tahu, Misufia mengatakan bahwa dia juga tidak tahu."
+"Tidak, aku tidak tahu, Misufia bilang dia juga tidak tahu."
 
-"Karena tidak menyebar. Hanya sedikit orang yang tahu. Perlindungan ilahi Aku adalah 『Herbalist』. Tidak cocok untuk hidup sebagai Raja sejak awal ... Aku tidak ingin menjadi raja tetapi sebaliknya, Aku ingin menghabiskan hidup Aku dengan menjual obat di toko kecil. "
+"Karena tidak tersebar. Hanya sedikit orang yang tahu. Perlindungan ilahiku adalah 『Herbalist』. Tidak cocok untuk hidup sebagai Raja sejak awal ... Aku tidak ingin menjadi raja tetapi sebaliknya, Aku ingin menghabiskan hidupku dengan menjual obat di toko kecil."
 
 Raja Veronia tertawa sedih dan menusukkan pedang ke tenggorokannya dengan mata tertutup.
 
