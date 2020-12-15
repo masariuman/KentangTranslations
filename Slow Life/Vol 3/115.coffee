@@ -218,4 +218,4 @@ Bel untuk pertemuan darurat berbunyi. Para prajurit iblis meninggalkan daerah it
 
 Misufia dan Ririnrara yang sedang menonton dari balik bayangan, bersama dengan para bawahannya, tersenyum lebar.
 
-“Sekarang, mari kita berjalan ke kapal Raja Iblis.”
+“Sekarang, ayo kita ke kapal Raja Iblis.”
