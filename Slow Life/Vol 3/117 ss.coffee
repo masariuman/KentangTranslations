@@ -334,63 +334,67 @@ Ruti menghilang.
 
 Detik berikutnya, Ruti muncul dari bayang-bayang di kaki iblis dan dia memotong tumit iblis itu.
 
-Tubuh besar iblis itu bergoyang. Konsentrasi mentalnya rusak dan sihir yang coba diaktifkannya tersebar.
+Tubuh besar iblis itu bergoyang. Konsentrasi mentalnya rusak dan sihir yang coba diaktifkannya kacau.
 
-“Nuu! Kamu sudah melakukannya sekarang, gadis kecil… ”
+“Nuu! Kamu sudah melakukannya sekarang, gadis kecil...”
 
-Setan itu memelototi gadis muda di kakinya. Dia mengangkat pedang barbar dengan maksud untuk menghancurkannya tapi,
+iblis itu memelototi gadis muda di kakinya. Dia mengangkat pedang barbar dengan maksud untuk menghancurkannya tapi,
 
-“Kerja bagus, Ruti! Serahkan sisanya padaku! ”
+g"Kerja bagus, Ruti! Serahkan sisanya padaku!"
 
 Gideon mengayunkan pedangnya ke arah iblis dari depan.
 
-“Serahkan aku padamu ?! Kamu bercanda! ”
+“Serahkan aku padamu ?! Kamu bercanda!”
 
-Setan itu mengamuk.
+iblis itu mengamuk.
 
-Ia menerima serangan dari 『Hero』 dan konsentrasi mentalnya terganggu tetapi itu hanya kerusakan kecil. Perbedaan dalam kemampuan tempur terlihat jelas. Selanjutnya, teknik pertempuran 『Pahlawan』 terhubung hanya karena itu adalah serangan mendadak yang tak terduga.
+Ia menerima serangan dari 『Pahlawan』 dan konsentrasi mentalnya terganggu tetapi itu hanya kerusakan kecil. Perbedaan dalam kemampuan tempur terlihat jelas. Teknik pertempuran 『Pahlawan』 berhasil hanya karena itu adalah serangan mendadak yang tak terduga.
 
 Namun, pada saat ini, knight yang mengayunkan pedangnya sepertinya tidak menggunakan teknik pertempuran apapun dan hanya menghadapinya secara langsung.
 
-"Kamu bodoh! Perlindungan ilahi 『Huge Demon』 saya adalah Lv28! Peringkat yang sama sekali berbeda darimu! ”
+"Kamu bodoh! Perlindungan ilahi 『Iblis Besar』ku adalah Lv28! level yang sama sekali berbeda darimu!"
 
-Setan itu memegang pedangnya dengan kedua tangan untuk pertama kalinya dalam pertempuran. Otot di lengannya mengembang dan ia menahan pedangnya dengan kekuatan yang cukup besar untuk menghancurkan gajah besar.
+iblis itu memegang pedangnya dengan kedua tangan untuk pertama kalinya dalam pertempuran. Otot di lengannya mengembang dan ia menahan pedangnya dengan kekuatan yang cukup besar.
 
-“Aku akan mengirimmu ke alam baka sementara kamu menyesal telah membuatku marah!”
+“Aku akan mengirimmu ke alam baka karena kamu telah membuatku marah!”
 
 Pukulan seperti angin puyuh yang mengamuk dilepaskan ke arah Gideon. Pedang tebal itu mendekati Gideon dengan tujuan menghancurkan tengkoraknya.
 
 Kiiiiin!
 
-“Apa…!?”
+“Apa...!?”
 
-Pukulan yang dilepaskan oleh iblis dengan tubuh besar lebih dari 7 meter menggunakan pedang biadab dengan panjang lebih dari 3 meter.
+Pukulan dilepaskan oleh iblis dengan tubuh besar lebih dari 7 meter menggunakan pedang besar dengan panjang lebih dari 3 meter.
 
-Namun, pukulan itu diblok oleh pedang Gideon dan dihentikan dengan sempurna.
+Namun, pukulan itu ditangkis oleh pedang Gideon dan dihentikan dengan sempurna.
 
-Gideon menyeringai ketika dia melihat iblis yang tercengang dan dia melompat.
+Gideon tersenyum ketika dia melihat iblis yang tercengang dan dia melompat.
 
-Sebelum iblis itu dapat mengangkat pedang biadabnya sekali lagi, pedang Gideon menenggelamkan kepala iblis itu.
+Sebelum iblis itu dapat mengangkat pedangnya sekali lagi, pedang Gideon masuk ke kepala iblis itu.
 
-“Level 28 ya?”
+g"Level 28 ya?"
 
 Gideon menekan lebih keras dengan kedua tangan di atas pedangnya.
 
-“Maaf, tapi aku sudah melampauimu sejak lahir.”
+g"Maaf, tapi aku sudah melampauimu sejak lahir."
+
+--------------------------------
 
 Gideon‧Lugnason: Level 46
 
-Perlindungan Ilahi: Panduan
+Perlindungan Ilahi: Pemandu
 
 Keahlian unik: Level Awal +30
 
+--------------------------------
+
 Dengan satu gerakan, Gideon menebas dengan pedang yang ditusukkan ke iblis.
 
-Tubuh iblis itu diiris sempurna menjadi dua disertai dengan percikan darah.
+Tubuh iblis itu diiris sempurna menjadi dua bagian disertai dengan percikan darah.
 
-Iblis dengan kerangka besar seperti monster menjerit sampai kematian terakhirnya saat itu runtuh menjadi dua bagian.
+Iblis dengan kerangka besar seperti monster, menjerit sampai kematian terakhirnya dan runtuh menjadi dua bagian.
 
-
+<gambar>
 
 Tentara Orc goyah setelah mereka melihat tontonan itu. Mereka tidak pernah membayangkan bahwa Demon Besar kelas perwira akan dikalahkan.
 
