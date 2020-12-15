@@ -248,11 +248,11 @@ Ekspresi wajah yang pertama kali muncul di wajah Ruti saat dia menoleh ke belaka
 
 Prajurit Kekaisaran dihebohkan oleh kemunculan sosok ksatria.
 
-Ksatria itu mengenakan armor penuh hitam legam, mantel yang berwarna merah saat nafas naga menutupi bahunya dan tangan kanannya menggenggam pedang panjang yang sangat bagus yang dibuat oleh 『Blacksmith』 eksklusif keluarga kerajaan yang hanya menjadi ksatria pilihan yang diizinkan untuk meminta.
+Ksatria itu mengenakan armor penuh hitam legam, mantel yang berwarna merah seperti nafas naga menutupi bahunya dan tangan kanannya menggenggam pedang panjang yang sangat bagus yang dibuat oleh 『Blacksmith』 eksklusif keluarga kerajaan yang hanya menjadi ksatria pilihan yang diizinkan untuk mendapatkannya.
 
 <gambar>
 
-“Baju besi itu adalah baju besi dari Ordo Ksatria Bahamut elit Ibukota Kekaisaran!”
+“Baju besi itu adalah baju besi dari Ksatria Ordo Bahamut elit Ibukota Kekaisaran!”
 
 Seorang prajurit muda berseru. Dia bercita-cita menjadi seorang prajurit karena sosok Ordo Ksatria Bahamut yang berbaris penuh kemenangan di Running Drakes mereka membakar hatinya. Dia tidak akan pernah salah.
 
