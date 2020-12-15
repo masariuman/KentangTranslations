@@ -108,9 +108,9 @@ Kapal Raja Iblis Wendy Dart mengeluarkan uap dari cerobong asapnya dan roda luar
 
 Dermaga itu dilumpuhkan oleh kapal bajak laut yang menghancurkan dirinya sendiri. Misufia dan strategi timnya berjalan dengan sempurna sesuai rencana.
 
-Namun, kesialan Misufia dan party adalah bahwa Empat Raja Surgawi Desmond dari Bumi menjaga tempat itu.
+Namun, kesialan Misufia dan timnya adalah bahwa Empat Raja langit Desmond menjaga tempat itu.
 
-"Bawahan yang mengecewakan, saya tidak akan bisa pensiun selama 100 tahun lagi dengan kecepatan seperti ini."
+"Bawahan yang mengecewakan, aku tidak akan bisa pensiun selama 100 tahun lagi dengan kalau seperti ini."
 
 Desmond, dengan pakaian compang-camping, berjalan ke tepi laut dan meletakkan tangannya di tanah.
 
