@@ -114,15 +114,15 @@ Kapal akan melaju dan menjauh semakin dekat tombak badai mendekatinya. Kapal baj
 
 “Hyahoooo!”
 
-Geyserik bersorak. Namun, tiang itu berderit dengan cemas karena tekanan berlebihan yang ditimpakan padanya dari penarik angin yang kuat.
+Geyserik bersorak. Namun, tiang kapal berderit dengan cemas karena tekanan berlebihan yang ditimpakan padanya dari penarik angin yang kuat.
 
-"Kapten! Tiang kapal akan patah jika terus begini !! ”
+"Kapten! Tiang kapal akan patah jika terus begini !!"
 
-Seorang bajak laut berkata dengan ekspresi yang terlihat seperti akan menangis. Namun, Geyserik menyeringai dan menendang tiang.
+Seorang bajak laut berkata dengan ekspresi yang terlihat seperti akan menangis. Namun, Geyserik tersenyum dan menendang tiang.
 
 Geyserik berteriak keras setelah menertawakan kekhawatiran para bajak laut yang membuat mereka menjadi pucat.
 
-“Ini tidak akan pecah! Tunjukkan beberapa tulang punggung jika Anda adalah kapalku! "
+"Ini tidak akan pecah! Tunjukkan Kehebatanmu jika kamu adalah kapalku!"
 
 “Itu tidak masuk akal.”
 
