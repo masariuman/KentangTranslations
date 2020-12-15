@@ -88,9 +88,9 @@ Banyak persiapan yang dibutuhkan untuk melawan Desmond.
 
 ☆☆
 
-Misufia dan yang lainnya dengan cepat.
+Misufia dan yang lainnya cepat.
 
-Mereka dianggap beruntung karena yang berjaga adalah bawahan Empat Raja Surgawi Desmond dari Bumi, para pengguna Golem.
+Mereka dianggap beruntung karena yang berjaga adalah bawahan Empat Raja langit Desmond dari Bumi, para pengguna Golem.
 
 Golem yang merupakan kekuatan pertahanan utama tidak memiliki pemikiran independen dan dikendalikan oleh pengguna Golem. Ledakan tiba-tiba membingungkan pengguna Golem dan para golem menjadi tidak berdaya.
 
