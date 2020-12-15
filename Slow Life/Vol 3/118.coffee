@@ -94,19 +94,19 @@ Raja Veronia mencabut pedangnya dan meletakkannya di tenggorokannya sendiri.
 
 Raja Veronia tertawa sedih dan menusukkan pedang ke tenggorokannya dengan mata tertutup.
 
-Rombongannya berteriak. Geyserik memejamkan mata sejenak untuk menunjukkan rasa hormatnya kepada raja yang sudah meninggal dan mengikuti instruksi raja yang sudah mati, tanpa ampun membasmi para korban.
+Rombongannya berteriak. Geyserik memejamkan mata sejenak untuk menunjukkan rasa hormatnya kepada raja yang sudah meninggal dan mengikuti instruksi raja yang sudah mati, tanpa ampun membasmi sisanya.
 
 ☆☆
 
 Geyserik duduk di singgasana. Di sampingnya adalah Misufia.
 
-Ada terompet yang mekar.
+Ada terompet yang berbunyi.
 
 Meski bingung, para warga sangat antusias dengan kemunculan seorang raja yang kuat yang telah mereka tunggu-tunggu.
 
 Para bangsawan yang memberontak telah ditindas dan kepala mereka digantikan oleh bawahan dan sekutu Geyserik.
 
-Ririnrara sekarang adalah seorang Earl. Banyak wakil pejabat Geyserik sekarang adalah bangsawan dengan gelar bangsawan. Duke Clark yang menciptakan Holy Clark Duchy menyerang dengan dalih permintaan dari banyak bangsawan yang melarikan diri tetapi tentara Veron yang direstrukturisasi Geyserik menghancurkan mereka. Mereka melanjutkan untuk maju ke wilayah Clark dan mampu memenuhi keinginan lama mereka untuk memulihkan wilayah yang hilang. Orang-orang kerajaan bersorak untuk kekuatan raja baru.
+Ririnrara sekarang adalah seorang Earl. Banyak wakil pejabat Geyserik sekarang adalah bangsawan dengan gelar bangsawan. Duke Clark yang menciptakan yanah suci clark menyerang dengan dalih permintaan dari banyak bangsawan yang melarikan diri tetapi tentara Veron yang direstrukturisasi Geyserik menghancurkan mereka. Mereka melanjutkan untuk maju ke wilayah Clark dan mampu memenuhi keinginan lama mereka untuk memulihkan wilayah yang hilang. Orang-orang kerajaan bersorak untuk kekuatan raja baru.
 
 Semuanya baik-baik saja.
 
