@@ -120,15 +120,15 @@ Kolom air naik satu demi satu dari permukaan laut yang mengelilingi Wendy Dart.
 
 Muncul dari kolom air adalah kapal dengan roda luar seperti kapal Wendy Dart. Namun, mereka tidak memiliki cerobong asap atau tiang, hanya satu ton golem tipe prajurit yang berkerumun di dek mereka.
 
-“Tidak mungkin, apakah dia baru saja membuat golem tipe kapal dari bumi di dasar laut !?”
+“Tidak mungkin, apakah dia baru saja membuat golem tipe kapal dari tanah di dasar laut !?”
 
-Ada delapan kapal itu. Kapal golem muncul di sekitar Wendy Dart. Misufia melihat sekelilingnya dengan tidak sabar.
+Ada delapan kapal. Kapal golem muncul di sekitar Wendy Dart. Misufia melihat sekelilingnya dengan gelisah.
 
-"Sekakmat. Sampah laut membuang-buang waktuku. Aku akan menyegel kepalamu di golem dan menenggelamkanmu di laut selama kamu hidup. "
+"Sekakmat. Sampah laut membuang-buang waktuku. Aku akan menyegel kepalamu di golem dan menenggelamkanmu di laut selama kamu hidup."
 
-Desmond meraung dengan suara kering dan mengerikan. Ririnrara dengan sabar mengamati sekelilingnya untuk mencari celah di pengepungan tapi… tidak ada celah.
+Desmond meraung dengan suara kering dan mengerikan. Ririnrara dengan sabar mengamati sekelilingnya untuk mencari celah di pengepungan tapi... tidak ada celah.
 
-“Guh… maafkan aku, Geyserik!”
+“Guh... maafkan aku, Geyserik!”
 
 Ririnrara berteriak ke arah setir.
 
@@ -138,17 +138,17 @@ Kolom air lain naik ke udara.
 
 Kejutan menyebar di wajah Desmond.
 
-"Itu kapal Carack. Bukan salah satu golem saya. Apakah ada kapal yang tenggelam di air dengan sihir? "
+"Itu kapal Carack. Bukan salah satu golemku. Apakah ada kapal yang tenggelam di air dengan sihir?"
 
 Pria itu mencengkeram kemudi kapal yang melesat ke permukaan laut dengan senyum miring di mulut berjanggutnya.
 
-“Bakar ini ke matamu, Demon Lord Army! Ini adalah Bajak Laut Hebat Benua Avalon, mitra tepercaya Geyserik, Mother‧Elvir! ”
+“Bakar ini ke matamu, Pasukan raja iblis! Ini adalah Bajak Laut Hebat Benua Avalon, mitra tepercaya Geyserik, Mother‧Elvir!”
 
-"Itu buruk!"
+"Ini tidak bagus!"
 
 Desmond memanipulasi golemnya untuk melakukan manuver mengelak, tetapi,
 
-"Sangat terlambat!"
+"terlambat!"
 
 Pada saat yang sama Geyserik mulai berlari di geladak dan melompat ke laut, Mother‧Elvir meledak.
 
@@ -156,7 +156,7 @@ Salah satu kapal golem yang menerima ledakan langsung tenggelam sementara kapal 
 
 “Misufia!”
 
-"Aku tahu! Arcane Escape! ”
+"Aku tahu! Arcane Escape!"
 
 Dengan cepat mengambil Geyserik dengan sihir, Wendy Dart menerobos dari dalam api Mother‧Elvir.
 
