@@ -28,43 +28,43 @@ l"Hubungan darah para bangsawan sangat rumit."
 
 Lit berkomentar seolah itu urusan orang lain. Tapi Lit juga berasal dari keluarga kerajaan.
 
-Hantu Pietro dan Mistome melihat ke arah Lit seolah bereaksi terhadap kata-katanya. Lit sedikit terkejut juga, tapi itu tidak terjadi karena pria yang membawa dirinya seperti kepala pelayan bertumpang tindih dengan Lit dan memanggil Pietro.
+bayangan Pietro dan Mistome melihat ke arah Lit seolah bereaksi terhadap kata-katanya. Lit sedikit terkejut juga, tapi itu terjadi hanya karena pria yang seperti kepala pelayan ada di tempat lit berdiri dan memanggil Pietro.
 
 Pietro melewati Lit dan menghilang.
 
-“Eh, kakak perempuan.”
+“Eh, kakak.”
 
 Setelah Pietro pergi, gadis lain berbicara dengan Mistome.
 
 Dia terlihat mirip dengan Mistome tetapi matanya lembut dan kontras dengan kecantikan Mistome yang terkenal, dia seperti bunga yang indah yang bisa dicintai siapa pun.
 
-Leonor.
+"Leonor."
 
-“Bukankah Pietro penari yang baik? Rasanya sangat menyenangkan saat aku berdansa dengannya. "
+"Bukankah Pietro penari yang baik? Rasanya sangat menyenangkan saat aku berdansa dengannya."
 
-"Itu benar. Tapi dia sedikit bimbang. Pietro-sama berasal dari keluarga cabang keluarga kerajaan Veron, jadi saya ingin dia lebih bermartabat saat berurusan dengan bangsawan lain. "
+"Itu benar. Tapi dia sedikit bimbang. Pietro-sama berasal dari keluarga cabang keluarga kerajaan Veron, jadi aku ingin dia lebih bermartabat saat berurusan dengan bangsawan lain."
 
-“Kakak perempuan masih sama sampai hari ini. Wanita seharusnya mendukung pria. "
+"Kakak masih sama saja sampai hari ini. Wanita seharusnya mendukung pria."
 
-“Pietro-sama akan mewarisi takhta jika ayah tidak menjadi ayah seorang pewaris. Veronia membutuhkan raja yang kuat sekarang. Bukankah baik bagi seorang istri untuk mendukung dan membimbing suaminya untuk tujuan itu? ”
+“Pietro-sama akan mewarisi takhta jika ayah bukanlah ahli waris. Veronia membutuhkan raja yang kuat sekarang. Bukankah baik bagi seorang istri untuk mendukung dan membimbing suaminya untuk tujuan itu?”
 
-“Kya! Sekarang Anda berbicara tentang suami Anda menjadi raja! Kakak perempuan sangat ambisius. "
+"Kya! Sekarang kamu berbicara tentang suamimu menjadi raja! Kakak sangat ambisius."
 
-Leonor berkata dengan suara yang sedikit lebih keras. Beberapa hantu bangsawan di sekitarnya melirik Mistome.
+Leonor berkata dengan suara yang sedikit lebih keras. Beberapa bayangan bangsawan di sekitarnya melirik Mistome.
 
-Ara, maaf.
+"Ara, maaf."
 
 Leonor meminta maaf dengan berani. Ekspresinya terdistorsi dengan niat jahat.
 
-Orang yang sangat vulgar.
+r"dasar Orang yang sangat vulgar."
 
 Ruti bergumam pelan. Mistome tersenyum kecut saat mendengar itu.
 
-“Leonor adalah adik perempuanku. Seperti yang Anda lihat, dia imut, dicintai semua orang, dan bahkan lebih ambisius daripada saya. ”
+“Leonor adalah adik perempuanku. Seperti yang kamu lihat, dia imut, dicintai semua orang, dan bahkan lebih ambisius daripada aku.”
 
-Mistome-shi menatap adik perempuannya yang bayangan dengan mata menyipit dan pandangan nostalgia, tetapi Mistome dan Leonor muda saling memelototi dengan tatapan tajam.
+Mistome-shi menatap adik perempuannya dengan mata menyipit dan pandangan nostalgia, tetapi Mistome dan Leonor muda saling memelototi dengan tatapan tajam.
 
-“Seperti yang diharapkan dari『 Archmage 』-sama. Sangat berbeda dari orang seperti saya yang memiliki perlindungan ilahi dari 『Petarung』 ... tapi saya senang saya memiliki perlindungan ilahi dari 『Petarung』. Bagaimanapun, bunga memang dimaksudkan untuk dicintai, bukan? Keterampilan unik dari 『Petarung』 adalah keterampilan penguatan kemampuan murni. Tidak banyak dorongan dan tidak banyak perlindungan ilahi yang berkonsentrasi pada mempercantik tubuh pengguna. "
+"Seperti yang diharapkan dari『 Archmage 』-sama. Sangat berbeda dari orang seperti saya yang memiliki perlindungan ilahi dari 『Petarung』 ... tapi saya senang saya memiliki perlindungan ilahi dari 『Petarung』. Bagaimanapun, bunga memang dimaksudkan untuk dicintai, bukan? Keterampilan unik dari 『Petarung』 adalah keterampilan penguatan kemampuan murni. Tidak banyak dorongan dan tidak banyak perlindungan ilahi yang berkonsentrasi pada mempercantik tubuh pengguna."
 
 "Saya ingin menjadi ramuan obat yang dapat menyembuhkan penyakit daripada bunga untuk dicintai."
 
