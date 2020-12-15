@@ -84,13 +84,13 @@ Tapi ketika lelaki tua itu menyadari pedang pendek Tise mengarah di antara alisn
 
 Kemudian,
 
-"Putri! Seseorang Mengejarmu! Tolong segera kabur! "
+"Nona Muda! Seseorang Mengejarmu! Tolong segera kabur! "
 
 Orang tua itu berteriak, bersiap untuk kematiannya.
 
 aku mengaktifkan kekuatan ke 'Kaki kilat'ku untuk mengejar. Tapi sepertinya aku tidak harus mengejar mereka.
 
-"Putri..."
+"Nona Muda..."
 
 Seorang pria maskulin memegang tombak.
 
@@ -110,7 +110,7 @@ Mengikuti di belakang Mistome-shi, kami dibawa ke sebuah desa kecil di dalam hut
 
 Ada delapan gubuk kecil. Namun, ada sepertinya tigak gubuk sudah lama tidak digunakan.
 
-"Putri."
+"Nona Muda."
 
 Kami disambut oleh enam orang tua bersenjatakan busur dan pedang. Selain itu, di dalam gubuk kecil, ada dua orang lain yang bahkan lebih tua dari yang ada di luar dengan busur mengarah ke luar jendela.
 
@@ -128,11 +128,11 @@ Mistome-shi menanggapi kata-kataku dengan senyuman.
 
 l"Hei, Red. Orang-orang ini?"
 
-“Ah, mereka adalah orang-orang yang kamu baca di berita.”
+g"Ah, mereka adalah orang-orang yang kamu baca di berita."
 
 Para pelaut yang muncul di kapal dengan Mistome-shi dan menyelamatkan Zoltan selama serangan goblin.
 
-Kamu sudah tahu segalanya.
+"Kamu sudah tahu semuanya ya."
 
 Kata Mistome-shi dengan kagum.
 
