@@ -442,23 +442,23 @@ Keduanya disebut Sayap Kembar Harapan Kemanusiaan. Mereka berdiri di garis depan
 
 ☆☆
 
-Lalu, tiga tahun kemudian…
+Lalu, tiga tahun kemudian...
 
 Bahkan sekarang, perjalanan Pahlawan terus berlanjut dan pertempurannya melawan pasukan Raja Iblis masih berlangsung. Tapi.
 
-"Rumput Henbane 3 kilogram, daun Wolfberry 2 kilogram, 1 kantong beri putih…"
+"Rumput Henbane 3 kilogram, daun Wolfberry 2 kilogram, 1 kantong beri putih..."
 
-Wanita resepsionis Guild Petualang baik. Bahkan ketika berhadapan dengan Petualang peringkat-D seperti saya, dia menanggapi saya dengan senyum bisnis yang cerah.
+Wanita resepsionis Guild Petualang sungguh baik. Bahkan ketika berhadapan dengan Petualang peringkat-D sepertiku, dia menanggapiku dengan senyum yang cerah.
 
-“Totalnya 130 peryl. Terima kasih atas kerja kerasmu seperti biasa, Red-san. ”
+“Totalnya 130 peryl. Terima kasih atas kerja kerasmu seperti biasa, Red-san.”
 
-“Haha, ini tidak terlalu sulit…”
+g"Haha, ini tidak terlalu sulit..."
 
-Ada resepsionis wanita lain yang jelas-jelas memiliki sikap yang lebih buruk ketika berurusan dengan peringkat-D. Meskipun tidak akan ada perbedaan dalam hadiah yang diterima, diberitahu bahwa saya bekerja keras terasa menyenangkan.
+Ada resepsionis wanita lain yang jelas-jelas memiliki sikap yang lebih buruk ketika berurusan dengan peringkat-D. Meskipun tidak akan ada perbedaan dalam hadiah yang diterima, aku diberitahu telah bekerja keras terasa menyenangkan.
 
 "Silahkan datang lagi."
 
-"Ya aku akan."
+g"Ya, pasti."
 
 Aku membalas resepsionis wanita yang membungkuk dengan senyum tulus dan kemudian meninggalkan Guild Petualang Zoltan.
 
