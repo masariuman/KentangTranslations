@@ -144,21 +144,21 @@ Mata Mistome-shi terlihat baik. Bahkan dalam situasi ini, dia dengan senang hati
 
 “Bagi kami, nona muda akan selalu menjadi nona muda!”
 
-Seorang lelaki tua berteriak dari sisi lain jendela. Dia mengalami kesulitan hanya berdiri tetapi dia meraih bingkai jendela dan berseru dengan kuat.
+Seorang lelaki tua berteriak dari sisi lain jendela. Dia mengalami kesulitan hanya dengan berdiri tetapi dia meraih bingkai jendela dan berseru dengan kuat.
 
 Mistome-shi tertawa sambil terlihat sedikit bermasalah saat mendengar itu. Moen dan Garadin juga tertawa.
 
-“Ah, Moen, saya mendapat pesan dari Ademi.”
+g"Ah, Moen, aku mendapat pesan dari Ademi."
 
-Mu?
+"Mu?"
 
-"Saya di sini jadi jangan khawatir tentang rumah dan semoga sukses dengan pekerjaan Anda."
+g"aku di sini jadi jangan khawatir tentang rumah dan semoga sukses dengan pekerjaanmu."
 
-Ekspresi Moen menjadi kabur.
+Ekspresi Moen menjadi mendung.
 
-"Maaf. Tapi Zoltan tidak dalam bahaya. Sebagai orang yang melindungi keamanan Zoltan, saya tidak bermaksud menentang satu hal pun. "
+"Maaf. Tapi Zoltan tidak dalam bahaya. Sebagai orang yang melindungi keamanan Zoltan, aku tidak bermaksud menentang satu hal pun. "
 
-"Aku tahu."
+g"Aku tahu."
 
 Selama insiden perlindungan ilahi iblis, karena rencana jahat Big Hawk, Southmarsh berada di ambang kerusuhan tetapi Moen mengambil tindakan untuk Zoltan tanpa keuntungan pribadi sehingga saya bisa mempercayainya. Cintanya kepada keluarganya adalah titik lemahnya, tapi saya percaya itu menambahkan sentuhan manusia pada kapten penjaga yang melindungi Zoltan jadi tidak apa-apa.
 
