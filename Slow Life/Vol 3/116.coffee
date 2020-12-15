@@ -1,42 +1,40 @@
-Bab 116: Jadi sang putri kembali ke Veronia
+Bab 116: sang putri kembali ke Veronia
 
-Penerjemah: Tseirp
+Desmond si Bumi.
 
-Desmond dari Earth.
-
-Satu-satunya Demon Lord Army Four Heavenly King yang aku lawan dan lawan yang Ruti tidak punya pilihan selain mengakuinya adalah penghalang karena dia tidak bisa mendapatkan pukulan yang kuat selama pertarungan.
+Satu-satunya dari salah satu pasukan raja iblis langit yang aku lawan dan lawan yang Ruti tidak punya pilihan selain mengakuinya merepotkan karena dia tidak bisa melakukan pukulan yang kuat selama pertarungan.
 
 Satu tahun yang lalu.
 
 Republik Kota-Negara Bagian Kazan.
 
-Setelah kami mengalahkan satu batalion Marionette Demons, walikota Kazan mengadakan pesta kecil untuk kami.
+Setelah kami mengalahkan satu batalion iblis Marionette, walikota Kazan mengadakan pesta kecil untuk kami.
 
 Kemenangan itu istimewa. Meskipun itu hanya Republik Kota-Negara, kami akhirnya mendapatkan kembali negara yang diduduki oleh Tentara Raja Iblis.
 
-Penunggang Drake yang dikirim dari Kerajaan Avalon bergabung dalam perayaan saat mereka minum anggur dan bernyanyi.
+Penunggang Drake yang dikirim dari Kerajaan Avalon bergabung dalam pesta dan mereka minum anggur dan bernyanyi.
 
 Hari yang cerah itu berakhir hanya dalam satu hari.
 
-"Apa itu?"
+g"apa itu?"
 
-Ketika kami melihat satu setan berjalan melalui hutan belantara dengan pakaian compang-camping, Ruti bertanya sementara yang lainnya, termasuk saya, menatap dengan tidak percaya.
+Ketika kami melihat satu iblis berjalan melalui hutan belantara dengan pakaian compang-camping, Ruti bertanya sementara yang lainnya, termasuk aku, menatap dengan tidak percaya.
 
-“Empat Raja Surgawi Desmond dari Bumi. Dia akhirnya keluar. "
+r"Empat Raja langit Desmond si Bumi. Dia akhirnya muncul."
 
 Ruti satu-satunya orang yang bisa melihat dan mengatakan itu dengan tenang.
 
-Sendirian. Desmond berjalan sendirian menuju kastil Kazan dengan lebih dari 6000 tentara termasuk bala bantuan dari Avalonia.
+Sendirian. Desmond berjalan sendirian menuju istana Kazan dengan lebih dari 6000 tentara termasuk bala bantuan dari Avalonia.
 
 Namun, tidak ada yang menertawakan kecerobohannya. Yang tertawa adalah ...
 
 "Bajingan itu sedang tertawa."
 
-Danan mengerang.
+Danan kesal.
 
-Di wajah Desmond di mana kulitnya menempel pada tulangnya adalah seringai seorang pemburu brutal menghadapi mangsa yang tak berdaya.
+Di wajah Desmond di mana kulitnya menempel pada tulangnya adalah tertawa kecil seorang pemburu brutal menghadapi mangsa yang tak berdaya.
 
-“Semua pasukan mengambil perlengkapanmu! Busur siap! Sesuatu akan terjadi! ”
+“Semua pasukan ambil perlengkapanmu! siapkan busur! Sesuatu akan terjadi!”
 
 Bel berbunyi dan para prajurit dengan cepat mengambil senjata dan baju besi mereka.
 
@@ -44,47 +42,47 @@ Pasukan berbaris menembakkan panah yang tak terhitung jumlahnya ke arah satu tar
 
 Dengan mengangkat tangannya, bayangan muncul dari bumi dan melindungi Desmond dengan perisai.
 
-“Apa… pada… tidak mungkin.”
+“Ap... apa... tidak mungkin.”
 
-Ares sepertinya tidak bisa mempercayai tontonan di depan matanya.
+Ares sepertinya tidak bisa mempercayai apa yang di depan matanya.
 
 Semua orang merasakan hal yang sama. Bagaimana mungkin sesuatu yang begitu tidak masuk akal bisa terjadi?
 
-“J-hanya satu orang yang menciptakan golem yang menutupi cakrawala…”
+“Ha-hanya satu orang yang menciptakan golem yang menutupi cakrawala...”
 
 Bumi bergetar saat golem naik satu demi satu. Golem berbentuk manusia, berbentuk binatang, dengan lengan trebuchet, golem menara pengepungan yang memungkinkan golem lain untuk mengendarainya, golem dengan tubuh serudukan untuk mendobrak gerbang yang terbuka…
 
-“Lihat-lihat! Bahkan ada golem bersayap! Bisakah mereka benar-benar terbang !? ”
+“Lihat-lihat! Bahkan ada golem bersayap! Bisakah mereka benar-benar terbang !?”
 
-Golem berjumlah sekitar seratus ribu. Ada 6000 tentara di kastil jadi… ada perbedaan 15 kali lipat jumlahnya. Tidak ada harapan.
+Golem berjumlah sekitar seratus ribu. Ada 6000 tentara di istana jadi... ada perbedaan 15 kali lipat jumlahnya. Tidak ada harapan.
 
-“Kerja bagus menyeretku ke medan perang, Pahlawan. Kerja bagus. ”
+“Kerja bagus menyeretku ke medan perang, Pahlawan. Kerja bagus.”
 
 Desmond bertepuk tangan.
 
 Suara Desmond terdengar kering seolah sedang mengikis pohon mati. Namun, meski medan perangnya luas, suara itu secara misterius bergema di seluruh area.
 
-“Sekarang, untuk menebus kesalahan bawahanku, aku akan menyerang kastil ini. Saya satu-satunya tentara. Tapi pasukan saya tidak ada habisnya. "
+"Sekarang, untuk menebus kesalahan bawahanku, aku akan menyerang istana ini. aku satu-satunya orang yang menyerang. Tapi pasukanku tidak ada habisnya."
 
 Desmond mengacungkan lengannya yang seperti cabang ke Ruti.
 
-"Pahlawan. Tidak mungkin menang melawan saya dengan angka. Hanya individu yang luar biasa yang bisa menantangku. Akankah kecakapan bela diri Anda, yang mampu merobek pasukan saya seperti badai pasir yang merobek daging, mencapai saya? Saya salah satu dari Empat Raja Surgawi dari Tentara Raja Iblis, Desmond of Earth. Raja tentara prajurit yang berada di bumi. Ayo tantang aku jika kamu tidak takut dengan namaku. ”
+"Pahlawan. Tidak mungkin menang melawanku dengan jumlah. Hanya individu yang luar biasa yang bisa menantangku. Akankah kecakapan bela dirimu, yang mampu merobek pasukanku seperti badai pasir yang merobek daging, mencapaiku? aku salah satu dari Empat Raja langit dari Tentara Raja Iblis, Desmond si bumi. Raja tentara prajurit yang berada di bumi. Ayo tantang aku jika kamu tidak takut dengan namaku."
 
 Desmond menurunkan lengannya. Para golem mulai berbaris segera ke sinyal itu. Bumi bergetar.
 
-"Onii-chan, aku masih belum bisa menang melawan itu."
+r"Onii-chan, aku masih belum bisa menang melawan itu."
 
 Ruti berkata padaku.
 
 Dia benar. Tapi berapa banyak tentara yang kita korbankan untuk mendapatkan kembali negara ini?
 
-Kami merencanakan dan merencanakan dan merencanakan dan menumpahkan banyak darah dan berjuang demi hari ini, tetapi itu dibatalkan dengan sangat tidak masuk akal.
+Kami merencanakan dan menumpahkan banyak darah dan berjuang demi hari ini, tetapi itu digagalkan dengan sangat tidak masuk akal.
 
-“Jadi itu adalah Demon Lord Army Four Heavenly King… sialan! Walikota, mundur! "
+"Jadi itu adalah pasukan raja iblis langit... sialan! Walikota, mundur!"
 
-Saat itu adalah pertama kalinya kami membebaskan sebuah negara dari pendudukan Tentara Raja Iblis dan pertama kalinya kami mengalami sebuah negara direnggut dari kami oleh Tentara Raja Iblis saat kami hadir dalam pertarungan.
+Saat itu adalah pertama kalinya kami membebaskan sebuah negara dari penguasaan Tentara Raja Iblis dan pertama kalinya kami mengalami sebuah negara direnggut dari kami oleh Tentara Raja Iblis ketika kami hadir dalam pertarungan.
 
-Setelah itu, kami menggunakan item sihir yang disebut jantung Naga Es untuk membekukan kastil Desmond dan mengalahkan Desmond dengan merebut kendali atas bumi.
+Setelah itu, kami menggunakan item sihir yang disebut jantung Naga Es untuk membekukan istana Desmond dan mengalahkan Desmond dengan merebut kendali atas bumi.
 
 Banyak persiapan yang dibutuhkan untuk melawan Desmond.
 
