@@ -8,11 +8,11 @@ Orang tua itu bertanya setelah memperhatikan kami. Tombak yang dipegangnya sudah
 
 g"Tidak, belum. Kami sedang istirahat saat ini dan Mistome-shi sedang menyeduh teh."
 
-"Begitu, minuman teh wanita muda selalu enak. Di tengah malam yang dingin, ketika Aku bertindak sebagai pengawas di tiang kapal, wanita muda itu berusaha memanjat tali untuk memberi Aku cangkir. Aku sangat berterima kasih. "
+"Begitu, minuman teh nona muda selalu enak. Di tengah malam yang dingin, ketika Aku bertindak sebagai pengawas di tiang kapal, nona muda itu berusaha memanjat tali untuk memberiku cangkir. Aku sangat berterima kasih."
 
 Orang tua itu ingin melanjutkan tapi,
 
-"Miguel, apakah kamu seseorang yang akan berbicara tentang kenangan kepada orang-orang yang datang untuk istirahat dari berbicara tentang kenangan?"
+"Miguel, apakah kamu akan berbicara tentang kenangan kepada orang-orang yang datang beristirahat dari pembicaraan tentang kenangan?"
 
 Wanita tua di sampingnya menghentikannya. Orang tua bernama Miguel memukul dahi botaknya dan tertawa saat dia membungkuk.
 
