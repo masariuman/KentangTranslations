@@ -20,11 +20,11 @@ Kami berada di sebuah istana. Itu mungkin adalah istana Kerajaan Veronia.
 
 Kata Mistome-shi. Mistome muda yang mengenakan gaun indah sedang menari di tengah aula. Seorang pria muda berambut pirang adalah pasangannya. Pakaian bangsawannya yang cantik dan sikapnya yang anggun menarik perhatian di aula.
 
-Dia terlihat sedikit mirip dengan Pangeran Kifa dari Kerajaan Avalonia.
+g"Dia terlihat sedikit mirip dengan Pangeran Kifa dari Kerajaan Avalonia."
 
-“Dia adalah penerus keluarga Duke of Zaki, Pietro. Ibu Ibu Ratu Avalonia saat ini adalah saudara perempuan Pietro jadi Pietro akan menjadi paman buyut Pangeran Kifa. ”
+“Dia adalah penerus keluarga bangsawan Zaki, Pietro. Ibu Ratu Avalonia saat ini adalah saudara perempuan Pietro jadi Pietro adalah paman buyut Pangeran Kifa.”
 
-Hubungan darah para bangsawan sangat rumit.
+l"Hubungan darah para bangsawan sangat rumit."
 
 Lit berkomentar seolah itu urusan orang lain. Tapi Lit juga berasal dari keluarga kerajaan.
 
