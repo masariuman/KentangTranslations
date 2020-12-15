@@ -80,13 +80,13 @@ Gandol sekali lagi menciptakan tombak badai yang besar.
 
 Geyserik berteriak. Tampaknya dia marah karena iblis itu menghina kapalnya.
 
-Namun, tampaknya Gandol tidak bingung saat dia memiringkan kepalanya dengan cemberut.
+Namun, tampaknya Gandol tidak bingung karena dia memiringkan kepalanya dengan cemberut.
 
-“Bajak laut dengan kapal itu? Saya tidak mengerti lebih banyak sekarang. Oh baiklah, bagaimanapun juga, kalian semua akan mati di sini. ”
+“Bajak laut dengan kapal itu? aku Semakin tidak mengerti. Oh baiklah, bagaimanapun juga, kalian semua akan mati di sini.”
 
-"Sialan! Berhenti terbang di langit dan lawan aku! "
+"Sialan! Berhenti terbang di langit dan lawan aku!"
 
-Geyserik mengayunkan pedangnya sambil mengutuk tetapi itu tidak mengganggu Gandol dan dia melemparkan tombak badai.
+Geyserik mengayunkan pedangnya sambil menghinanya tetapi itu tidak mengganggu Gandol dan dia melemparkan tombak badai.
 
 Saat itu.
 
