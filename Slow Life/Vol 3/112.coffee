@@ -194,13 +194,13 @@ Kulit tua Mistome-shi menunjukkan senyum nakal sebelum dia mengganti cangkir den
 
 Kemudian, dia menambahkan mentega ke dalam teh hitam.
 
-“Rum mentega panas ya?”
+g"Rum mentega panas ya?"
 
-“Ya, aku terkejut kamu tahu.”
+“Ya, aku terkejut kamu mengetahuinya.”
 
-Itu adalah minuman panas yang sangat baik untuk hari-hari yang dingin. Saya diajari resep oleh seorang rekan selama waktu saya dengan pesanan ksatria.
+Itu adalah minuman panas yang sangat baik untuk hari-hari yang dingin. aku diajari resep oleh seorang teman selama waktu aku masih menjadi ksatria.
 
-“Di Veronia, para pelaut membawa pulang rum yang tersisa dan ibu atau istri mereka akan menggunakannya untuk memasak atau untuk minuman. Rasa rum adalah simbol pertemuan keluarga kami. "
+"Di Veronia, para pelaut membawa pulang rum yang tersisa dan ibu atau istri mereka akan menggunakannya untuk memasak atau untuk minuman. Rasa rum adalah simbol pertemuan keluarga kami. "
 
 “Seperti yang diharapkan, kamu adalah Veronia ...”
 
