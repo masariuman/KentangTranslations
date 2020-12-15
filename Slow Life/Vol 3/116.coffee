@@ -168,11 +168,11 @@ Wendy Dart meninggalkan Mother‧Elvir yang compang-camping dan tenggelam di bel
 
 ☆☆
 
-“Desmond mengejar kami secara berurutan selama tiga hari tetapi lautan terbuka bukanlah tempat yang kuat bagi Raja Surgawi Empat Bumi. Kami terhubung dengan kapal Breit yang sedang mengumpulkan makanan dan air dan kembali ke Benua Avalon. "
+"Desmond mengejar kami selama tiga hari tetapi lautan terbuka bukanlah tempat yang kuat bagi Raja langit Bumi. Kami terhubung dengan kapal Breit yang sedang mengumpulkan makanan dan air dan kembali ke Benua Avalon."
 
 Mereka sebenarnya mencuri kapal dari bawah hidung Desmond.
 
-Saya tidak percaya pesta Geyserik lebih kuat dari Desmond. Namun, mereka pasti lebih baik dari Desmond dalam pertunangan itu.
+aku tidak percaya tim Geyserik lebih kuat dari Desmond. Namun, mereka pasti lebih baik dari Desmond dalam persiapan pertarungan itu.
 
 Seorang bajak laut biasa naik ke peringkat 『Kaisar』 dari negara besar.
 
@@ -182,55 +182,55 @@ Adegan kembali ke tempat yang kami kenal, benua hijau Avalon.
 
 "Heeeee!"
 
-Duke of Oslo berlutut. Dia adalah bangsawan terbesar di Kerajaan Veronia yang mencoba menikahi Misufia dan mengambilnya sebagai selirnya.
+Duke Oslo berlutut. Dia adalah bangsawan terbesar di Kerajaan Veronia yang mencoba menikahi Misufia dan mengambilnya sebagai selirnya.
 
 Saat ini, Geyserik, Half-Elf Ririnrara, dan Misufia sedang menatapnya.
 
-Di sekitar mereka ada tentara pribadi Duke of Oslo yang roboh. Dua Asura duduk di atas mayat yang mengobrol.
+Di sekitar mereka ada tentara pribadi Duke Oslo yang tumbang. Dua Asura duduk di atas mayat dan mengobrol.
 
-Misufia berbicara dengan Duke of Oslo.
+Misufia berbicara dengan Duke Oslo.
 
-“Yang Mulia, terima kasih telah mengadopsi gadis tidak berguna seperti saya. Saya di sini hari ini untuk menerima hak itu. "
+"Yang Mulia, terima kasih telah mengadopsi gadis tidak berguna sepertiku. aku di sini hari ini untuk menerima hak itu."
 
 “Ka-kau adalah Putri Misufia yang diculik oleh bajak laut !?”
 
-“Ya, sudah lama sekali. Aku datang untuk menerima semua warisan untuk menjadi istrimu. "
+"Ya, sudah lama sekali ya. Aku datang untuk menerima semua warisan untuk menjadi istrimu."
 
-“Pra-tidak masuk akal! Kami tidak menukar upacara pernikahan apa pun dan saya tidak akan memberikan sebutir beras pun kepada selir! "
+"Ti-tidak masuk akal! kita tidak melakukan upacara pernikahan apa pun dan aku tidak akan memberikan sebutir beras pun kepada selir!"
 
 “Bukankah kamu mengajarkan ini padaku dulu?”
 
-"Apa …"
+"Apa..."
 
 “Pelanggaran hukum dimungkinkan dengan kekuatan yang cukup.”
 
 “Gah !?”
 
-Tongkat sihir logam Misufia yang tajam dan runcing menembus punggung Duke of Oslo.
+Tongkat sihir logam Misufia yang tajam dan runcing menembus punggung Duke Oslo.
 
-“Pertama, kita tidak bisa mulai jika kamu tidak mati. Aku sebenarnya tidak membencimu atau apapun. Sejak saya bertemu Geyserik karena Anda. "
+"kami tidak bisa memulainya jika kamu tidak mati. Aku sebenarnya tidak membencimu. karena aku bertemu Geyserik karenamu."
 
-“Seorang putri yang bertindak sebagai bajak laut… Ugahhhh !!”
+“Seorang putri yang bertindak sebagai bajak laut... Ugahhhh !!”
 
-Misufia menusukkan tongkatnya lebih dalam dan Duke of Oslo mengeluarkan seruan kematian terakhirnya dan mengejang beberapa kali sebelum dia berhenti bergerak.
+Misufia menusukkan tongkatnya lebih dalam dan Duke Oslo mengeluarkan teriakan kematian terakhirnya dan mengejang beberapa kali sebelum dia berhenti bergerak.
 
-“Mendengar Anda berkhotbah tentang bangsawan itu tidak menyenangkan.”
+“Mendengarmu berceramah tentang bangsawan itu tidak menyenangkan.”
 
-Setelah mendapatkan kapal terkuat di dunia, Geyserik dan partynya menyerang wilayah Duke of Oslo dan membunuhnya. Mereka menduduki wilayahnya dan mengambil kendali efektif atasnya.
+Setelah mendapatkan kapal terkuat di dunia, Geyserik dan timnya menyerang wilayah Duke Oslo dan membunuhnya. Mereka menduduki wilayahnya dan mengambil kendali wilayahnya.
 
-“Saat itu, tidak ada seorang pun di Kerajaan Veronia yang bisa menentang Duke of Oslo. Dalam hal ini, mereka juga tidak bisa melawan Geyserik yang mengalahkan Duke of Oslo. Pelanggaran hukum dimungkinkan dengan kekuatan yang cukup. Fakta itu berlaku di Kerajaan Veronia selama usia itu. "
+"Saat itu, tidak ada seorang pun di Kerajaan Veronia yang bisa menentang Duke Oslo. Dalam hal ini, mereka juga tidak bisa melawan Geyserik yang mengalahkan Duke Oslo. Pelanggaran hukum dimungkinkan dengan kekuatan yang cukup. Fakta itu berlaku di Kerajaan Veronia waktu itu."
 
 Misufia memproklamirkan dirinya sendiri ke posisi Adipati Oslo dan kembali ke keluarga kerajaan Veron.
 
-Geyserik mengambil kendali atas para bajak laut di perairan dangkal dekat Veronia dan hanya membutuhkan waktu dua bulan setelah dia kembali untuk ditakuti oleh alias Juara Bajak Laut.
+Geyserik mengambil kendali atas para bajak laut di perairan dangkal dekat Veronia dan hanya membutuhkan waktu dua bulan dia kembali untuk ditakuti dengan julukan Juara Bajak Laut.
 
 Juara Bajak Laut Geyserik dan Penjarah Duchess Misufia.
 
-“Kemudian, pergolakan oleh Raja Goblin Murgarga dimulai dan Kerajaan Veronia tidak mampu menangani para goblin dan bajak laut yang memanfaatkan kekacauan itu. Pada saat itu, saya kembali ke Istana Kerajaan dan menugaskan setengah dari wilayah Duke of Oslo di bawah kendali langsung keluarga kerajaan dan setengah lainnya ke Geyserik sebagai wilayahnya bersama dengan gelar Earl of Oslo. Saya membuat ayah saya menyetujui kontrak itu. "
+"Kemudian, pergolakan oleh Raja Goblin Murgarga dimulai dan Kerajaan Veronia tidak mampu menangani para goblin dan bajak laut yang memanfaatkan kekacauan itu. Pada saat itu, aku kembali ke Istana Kerajaan dan menugaskan setengah dari wilayah Duke Oslo di bawah kendali langsung keluarga kerajaan dan setengah lainnya ke Geyserik sebagai wilayahnya bersama dengan gelar Earl Oslo. aku membuat ayahku menyetujui kontrak itu."
 
-Mistome-shi menyipitkan matanya dan menghembuskan napas.
+Mistome-shi menyipitkan matanya dan menghela napas.
 
-“Maaf telah membawamu ke sepanjang sejarah masa laluku. Sedikit lagi. Tapi saya yakin Anda semua lelah karena berdiri begitu lama. Sebelum saya tunjukkan ingatan terakhir saya tentang alasan mengapa saya ada di sini, mengapa Sarius mencari saya, dan mengapa Ririnrara ingin membunuh saya ... mari kita istirahat sejenak. Saya akan menyiapkan minuman segar. "
+"Maaf telah membawamu ke sepanjang sejarah masa laluku. Sedikit lagi. Tapi aku yakin kamu semua lelah karena berdiri begitu lama. Sebelum aku tunjukkan ingatan terakhirku tentang alasan mengapa aku ada di sini, mengapa Sarius mencariku, dan mengapa Ririnrara ingin membunuhku ... mari kita istirahat sejenak. aku akan menyiapkan minuman segar."
 
 Ilusi menghilang dan Kabut Horor, puas dengan makanan dari semua jenis emosi, melayang ke sudut rumah.
 
@@ -238,6 +238,6 @@ Mistome-shi memutar tangannya seolah hendak menepuk Kabut Horor dan pergi ke dap
 
 Catatan penulis:
 
-Versi komikal di Comic Walker tersedia secara gratis! (Prolog dan Bab 1 bagian 1) https://comic-walker.com/viewer/?tw=2&dlcl=ja&cid=KDCW_KS01200352010001_68
+Versi komik di Comic Walker tersedia secara gratis! (Prolog dan vol 1 chapter 1) https://comic-walker.com/viewer/?tw=2&dlcl=ja&cid=KDCW_KS01200352010001_68
 
-Untuk memperingati, saya akan memposting versi novel terbalik dari episode 1 komikal berikutnya untuk dinikmati pembaca novel web juga!
+Untuk memperingatinya, aku akan memposting versi novel dari chapter 1 komik untuk dinikmati pembaca web novel juga!
