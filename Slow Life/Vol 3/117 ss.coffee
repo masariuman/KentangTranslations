@@ -254,15 +254,15 @@ Ksatria itu mengenakan armor penuh hitam legam, mantel yang berwarna merah seper
 
 “Baju besi itu adalah baju besi dari Ksatria Ordo Bahamut elit Ibukota Kekaisaran!”
 
-Seorang prajurit muda berseru. Dia bercita-cita menjadi seorang prajurit karena sosok Ordo Ksatria Bahamut yang berbaris penuh kemenangan di Running Drakes mereka membakar hatinya. Dia tidak akan pernah salah.
+Seorang prajurit muda berseru. Dia bercita-cita menjadi seorang prajurit karena sosok Ksatria Ordo Bahamut yang berbaris dan berlari dengan Drakes pelari mereka membakar hatinya.
 
-“Kalau begitu, orang itu adalah wakil kapten dari Ordo Kesatria Bahamut! Adik Pahlawan Ruti, Gideon‧Lugnason !! ”
+“Kalau begitu, orang itu adalah wakil kapten dari Kesatria Ordo Bahamut! Abang Pahlawan Ruti, Gideon‧Lugnason!! ”
 
-Gideon menghampiri Ruti. Bahkan ketika berhadapan langsung dengan Demon Besar, tidak ada satu pun ekspresi ketakutan di wajahnya.
+Gideon menghampiri Ruti. Bahkan ketika berhadapan langsung dengan iblis Besar, tidak ada satu pun ekspresi ketakutan di wajahnya.
 
-"Aku membuatmu menunggu, Ruti."
+g"Aku membuatmu menunggu, Ruti."
 
-"Onii Chan!"
+r"Onii Chan!"
 
 Senyuman cerah muncul di wajah Ruti.
 
