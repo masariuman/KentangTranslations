@@ -30,49 +30,49 @@ l"Kamu malah tertarik dengan itu?"
 
 Lit menatapku dan tersenyum kecut.
 
-“Ooo, aku sudah menunggu!”
+“Ooo, aku sudah menunggumu!”
 
-Ilusi Geyserik melihat ke arah saya dan berseru.
+bayangan Geyserik melihat ke arahku dan berseru.
 
 Bayangan besar melewati punggungku.
 
-"Ah!!"
+l"Ah!!"
 
 Ekspresi Lit berubah. Aku bisa mendengar suara kepalan tangannya.
 
-Munculnya monster berlengan enam yang berjalan keluar dari belakangku menyebabkan ketertarikanku untuk memasak terbang keluar jendela.
+Munculnya monster berlengan enam yang berjalan keluar dari belakangku menyebabkan ketertarikanku untuk memasak Hilang seketika.
 
-“Shisandan…!”
+l"Shisandan...!"
 
-Berdiri di sana adalah Asura Demon yang membunuh guru Lit di Logavia dan memojokkan Ruti di Zoltan.
+iblis Asura yang membunuh guru Lit di Logavia dan memojokkan Ruti di Zoltan.
 
 Lit melepaskan niat membunuh yang sangat besar dan ekor serigala-nya terangkat. Dia tanpa sadar meletakkan tangan kanannya pada pegangan shotel yang tergantung di pinggang kirinya.
 
-Saya meletakkan tangan kanan saya di tangannya.
+aku meletakkan tangan kananku di tangannya.
 
 Ekspresi kaku Lit dengan cepat menjadi tenang. Ekornya perlahan bergoyang dari sisi ke sisi.
 
-"... Terima kasih, tanpa sadar aku menjadi seperti itu setelah melihat wajahnya."
+l"... Terima kasih, tanpa sadar aku menjadi seperti itu setelah melihat wajahnya."
 
-“Anda tidak harus menekannya. Saya dengan Anda."
+g"kamu tidak harus menahannya. aku ada disini denganmu."
 
-“Benar… ehehe.”
+l"iya.... ehehe."
 
 Lit menyembunyikan mulutnya dengan bandana dan tertawa. Dia kembali ke dirinya yang biasa sekarang.
 
-Lit tidak bisa menahan diri saat melihat Shisandan tidak hanya karena keinginannya untuk membalas dendam untuk gurunya tetapi pengaruh dorongan perlindungan ilahi 『Spirit Scout』 juga berperan. Sebagai 『Spirit Scout』 dengan dorongan untuk melindungi teman-temannya, Shisandan adalah eksistensi yang harus diakhiri sebagai balas dendam untuk teman-temannya.
+Lit tidak bisa menahan diri saat melihat Shisandan tidak hanya karena keinginannya untuk membalas dendam untuk gurunya tetapi pengaruh dorongan perlindungan ilahi 『Pemandu Roh』 juga berperan. Sebagai 『Pemandu Roh』 dengan dorongan untuk melindungi teman-temannya, Shisandan adalah eksistensi yang harus diakhiri sebagai balas dendam untuk teman-temannya.
 
-Tapi, aku senang Lit memilih hidupnya bersamaku daripada dorongan perlindungan ilahi.
+Tapi, aku senang Lit memilih hidupnya bersamaku daripada dorongan perlindungan ilahinya.
 
-Secara alami, kemarahan Lit tidak mencapai ilusi Shisandan.
+kemarahan Lit tidak sampai ke bayangan Shisandan.
 
 Shisandan, dengan tinggi lebih dari 2 meter, duduk di meja bersama Geyserik dan yang lainnya.
 
-“Sungguh pemandangan yang luar biasa untuk melihat Asura Demon muncul secara normal di sebuah bar.”
+“Sungguh pemandangan yang luar biasa untuk melihat iblis Asura muncul secara normal di sebuah bar.”
 
-“Ini mungkin pemandangan umum di Benua Hitam.”
+“Ini mungkin pemandangan umum di Benua Kegelapan.”
 
-Meskipun mayoritas orang di kedai itu adalah Orc dan Dwarf, ada beberapa Prajurit Iblis dengan kepala seperti tengkorak dan Kapak dengan kapak untuk menarik kedua lengan manusia budak.
+Meskipun mayoritas orang di bar itu adalah Orc dan Kurcaci, ada beberapa Prajurit Iblis dengan kepala seperti tengkorak.
 
 Bajak laut bawahan ketakutan tetapi seperti yang diharapkan dari keberanian Geyserik dan Ririnrara, mereka menghadapi Shisandan tanpa kekhawatiran.
 
