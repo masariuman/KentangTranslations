@@ -94,13 +94,13 @@ Saat itu.
 
 Misufia membuat segel dan mengeluarkan sihirnya.
 
-Gargantua Storm Javelin milik Gandol terbungkus angin dan ekspansi angin yang tidak wajar menjadi penarik yang kuat untuk layar kapal.
+Badai Gargantua Javelin milik Gandol terbungkus angin dan ekspansi angin yang tidak wajar menjadi penarik yang kuat untuk layar kapal.
 
 "Apa!?"
 
 Ekspresi Gandol berubah untuk pertama kalinya.
 
-Gargantua Storm Javelin dapat melacak targetnya sampai batas tertentu. Untuk menghindari tombak badai itu, target harus menghindarinya secara langsung sebelum bersentuhan. Namun, tombak badai itu diisi dengan energi petir sehingga bahkan jika serangan langsung dihindari, targetnya akan mengalami luka bakar di tubuh akibat petir.
+Badai Gargantua Javelin dapat melacak targetnya sampai batas tertentu. Untuk menghindari tombak badai itu, target harus menghindarinya secara langsung sebelum bersentuhan. Namun, tombak badai itu diisi dengan energi petir sehingga bahkan jika serangan langsung dihindari, targetnya akan mengalami luka bakar di tubuh akibat petir.
 
 Itu adalah sihir yang kuat yang cocok untuk menjadi sihir tingkat lanjut.
 
