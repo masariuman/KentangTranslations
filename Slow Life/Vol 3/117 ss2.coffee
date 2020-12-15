@@ -1,35 +1,36 @@
 Selingan: Dengan Ruti
 
-Penerjemah: Tseirp
+Catatan Penulis: Pada tanggal rilis buku, aku sedikit gugup dan pikiranku tidak bisa berfungsi dengan baik... jadi hari ini Aku akan menulis cerita tentang kencan dengan Ruti.
 
-Catatan Penulis: Pada tanggal rilis buku, saya sedikit gugup dan pikiran saya tidak bisa berfungsi dengan baik… jadi hari ini saya akan menulis cerita tentang kencan dengan Ruti.
+Aku telah menerbitkan cerita pendek tentang kencan dengan Lit tapi Aku ingin menulis kencan yang sama dengan Ruti!
 
-Saya telah menerbitkan cerita pendek tentang kencan dengan Lit tapi saya ingin menulis kencan yang sama dengan Ruti!
+-----------------------------------------------
 
 Wajah adik perempuanku yang imut ada di depanku saat aku membuka mataku.
 
-Selamat pagi, Onii-chan. 
-"Selamat pagi."
+r"Selamat pagi, Onii-chan."
 
-Saya tidak heran, itu adalah pemandangan yang biasa ketika kami bepergian.
+g"Selamat pagi."
 
-Ruti kemudian tidak melakukan apa-apa di malam hari sehingga dia menatap wajahku sepanjang malam.
+Aku tidak kaget, itu adalah pemandangan yang sudah biasa ketika kami bepergian.
 
-Saya menyarankan kepadanya untuk mungkin membaca buku atau sesuatu tetapi dia menjawab bahwa dia tidak ingin membaca buku jadi akan aneh untuk memaksa dirinya sendiri membaca hanya karena dia ada waktu luang.
+Ruti tidak melakukan apa-apa di malam hari jadi dia menatap wajahku sepanjang malam.
 
-Alhasil, Ruti bisa berbuat semaunya di malam hari selama tidak membangunkan saya.
+Aku menyarankan kepadanya untuk mungkin membaca buku atau sesuatu tetapi dia menjawab bahwa dia tidak ingin membaca buku jadi akan aneh untuk memaksa dirinya sendiri membaca hanya karena dia ada waktu luang.
+
+Alhasil, Ruti bisa berbuat semaunya di malam hari selama tidak membangunkan Aku.
 
 Di dalam tenda yang gelap, Ruti akan duduk di hadapanku dengan badan sedikit condong ke depan dan menatap wajahku sepanjang malam… membayangkan dia melakukan itu adalah semacam…
 
 Imut!
 
-Lagipula, dia menatap wajahku dengan saksama, kamu tahu? Hati saya terasa hangat mengetahui bahwa dia sangat bergantung pada saya dan mengetahui bahwa Ruti ada di samping saya sepanjang malam menenangkan hati saya dan memberi saya mimpi indah.
+Lagipula, dia menatap wajahku dengan saksama, kamu tahu? Hati Aku terasa hangat mengetahui bahwa dia sangat bergantung pada Aku dan mengetahui bahwa Ruti ada di samping Aku sepanjang malam menenangkan hati Aku dan memberi Aku mimpi indah.
 
 Tise dan Ugeuge-san sangat terkejut saat aku memberi tahu mereka. Aku bertanya-tanya mengapa tapi sekitar dua jam setelah itu, Tise bergerak dengan gerakan tersentak-sentak seolah dia adalah golem yang dibuat dengan buruk.
 
 "Onii Chan."
 
-“Ah, maaf, sepertinya aku masih sedikit pusing. Saya sudah bangun sekarang. "
+“Ah, maaf, sepertinya aku masih sedikit pusing. Aku sudah bangun sekarang. "
 
 Ruti dengan cepat menghindar saat aku mengangkat tubuhku.
 
@@ -37,17 +38,17 @@ Ruti dengan cepat menghindar saat aku mengangkat tubuhku.
 
 “Yup, sudah lama sekali jadi aku ingin menatap wajah Onii-chan.”
 
-Melihat ke luar jendela, saya melihat pemandangan pagi Zoltan yang remang-remang di musim dingin. Itu adalah waktu yang biasa.
+Melihat ke luar jendela, Aku melihat pemandangan pagi Zoltan yang remang-remang di musim dingin. Itu adalah waktu yang biasa.
 
 Lit pergi ke desa yang agak jauh untuk mengumpulkan ramuan obat. Dia menginap semalam jadi dia harus kembali sekitar hari ini di malam hari.
 
-Biasanya saya akan pergi tetapi…
+Biasanya Aku akan pergi tetapi…
 
 "Onii-chan, terima kasih sudah menepati janjimu."
 
 Kata Ruti senang.
 
-Saya berjanji pada Ruti bahwa saya akan menemaninya ke distrik pelabuhan Zoltan hari ini.
+Aku berjanji pada Ruti bahwa Aku akan menemaninya ke distrik pelabuhan Zoltan hari ini.
 
 Baru hari ini, pengganti ramuan obat Blood Needle ... koloni monster tipe tumbuhan 「Rumput Pemakan Ular」 ditemukan. Tampaknya ada korban jiwa dan para petualang telah menerima permintaan itu tetapi mereka mungkin akan membakar semuanya.
 
@@ -57,7 +58,7 @@ Aku ingin mengalahkannya dan mengembalikannya sebelum itu terjadi tapi… Aku pu
 
 “Aku paling suka masakan Onii-chan tapi… aku juga tertarik dengan makanan Zoltan.”
 
-Saya senang dan tanpa sadar tersenyum.
+Aku senang dan tanpa sadar tersenyum.
 
 Sebenarnya aku bisa mendengar kata 'tertarik' dari mulut Ruti.
 
@@ -67,7 +68,7 @@ Saat aku dengan lembut menepuk kepala Ruti, Ruti memiringkan kepalanya dengan ta
 
 Distrik pelabuhan Zoltan berbatasan dengan sungai.
 
-Hal yang meresahkan adalah masyarakat Zoltan tidak mengetahui nama sungai tersebut. Saya percaya itu punya nama, mungkin pada zaman Peri Hutan.
+Hal yang meresahkan adalah masyarakat Zoltan tidak mengetahui nama sungai tersebut. Aku percaya itu punya nama, mungkin pada zaman Peri Hutan.
 
 Para tetua dari Half-Elf berkomentar bahwa mereka mengingat generasi kakek nenek mereka yang memanggilnya dengan nama yang dimulai dengan 'Mi'. Namun, sungai tersebut sepertinya memiliki berbagai nama tergantung lokasi dan waktunya.
 
@@ -75,7 +76,7 @@ Tampaknya disebut semua jenis nama yang berbeda seperti sungai yang diterangi ol
 
 Di sisi lain, manusia yang menetap di sini dan menciptakan negara Zoltan hanya menyebutnya 'sungai'. Meskipun sungai adalah keberadaan yang memberi manfaat besar bagi manusia dan ada kebutuhan untuk membedakannya dengan namanya, mereka mungkin memutuskan bahwa menyebutnya 'sungai' sudah cukup jika itu bisa membuat pendengar tahu apa yang dimaksud pembicara.
 
-Sekarang, meskipun saya ingin berbicara dengan mereka sekali, ras Wood-Elf telah menemui kehancurannya.
+Sekarang, meskipun Aku ingin berbicara dengan mereka sekali, ras Wood-Elf telah menemui kehancurannya.
 
 Para Peri Hutan sudah tidak ada lagi tapi sungai masih mengalir sampai hari ini. Dan bahkan bagi kita manusia, kita tidak dapat bertahan hidup tanpa sungai.
 
@@ -89,7 +90,7 @@ Roti yang disajikan adalah roti tawar yang lembut. Kami minum wine meski masih p
 
 "Lezat."
 
-Ruti makan dengan senang. Saya senang dia menyukainya.
+Ruti makan dengan senang. Aku senang dia menyukainya.
 
 “Karena kita di distrik pelabuhan, mungkin kita harus melihat pasar barang yang dikirim. Setelah itu, mari kita pinjam perahu wisata. ”
 
@@ -111,9 +112,9 @@ Pasar barang pengiriman sangat ramai setiap kali kapal datang. Namun, saat ini p
 
 "Yo, apoteker."
 
-Saya dihentikan oleh sebuah suara saat kami berjalan melalui pasar.
+Aku dihentikan oleh sebuah suara saat kami berjalan melalui pasar.
 
-Seorang pria dengan wajah teduh memanggil saya. Dia adalah Pasquale, pengrajin aksesori palsu yang juga bekerja sebagai navigator di samping. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu migran mereka. Aku juga tidak berpikir untuk bertanya.
+Seorang pria dengan wajah teduh memanggil Aku. Dia adalah Pasquale, pengrajin aksesori palsu yang juga bekerja sebagai navigator di samping. Dia memiliki berbagai bekas luka di tulang keringnya, tetapi aturan implisit Zoltan adalah tidak mengorek masa lalu migran mereka. Aku juga tidak berpikir untuk bertanya.
 
 "Apa ini? Selingkuh? Anda sudah memiliki Hero Lit. ”
 
@@ -125,9 +126,9 @@ Seorang pria dengan wajah teduh memanggil saya. Dia adalah Pasquale, pengrajin a
 
 “Serius? Baik Hero Lit dan adik perempuan yang hebat? Apoteker, apakah Anda memiliki perlindungan ilahi yang memunculkan pahlawan? "
 
-Saya tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
+Aku tanpa sadar tersenyum pahit. Dia tidak sepenuhnya benar tapi dia juga tidak salah…?
 
-“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Anda menghentikan saya? ”
+“Tidak ada perlindungan ilahi seperti itu. Jadi, mengapa Anda menghentikan Aku? ”
 
 "Yah, aku yakin kamu sedang berkencan dan ini akan menjadi kesempatan yang sempurna bagimu untuk mendapatkan hadiah untuk pacarmu."
 
@@ -135,11 +136,11 @@ Pasquale berkata sambil menunjuk ke anting-anting dan tiara yang bertatahkan sem
 
 “Bukankah itu semua tiruan? Mungkin kaca. "
 
-“Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah saya poles satu per satu. "
+“Itu benar tapi bukankah mereka cantik? Mereka adalah permata yang dengan susah payah Aku poles satu per satu. "
 
 "Anda tidak akan meminta harga rip-off, kan?"
 
-“Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Saya akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja saya. "
+“Aku tidak akan melakukan itu pada seseorang yang berpengetahuan. Aku akan menjual dengan harga yang sesuai dengan mempertimbangkan biaya material dan tenaga kerja Aku. "
 
 Umu.
 
@@ -151,7 +152,7 @@ Sederhananya, Ruti adalah orang yang kaya raya. Dia memperoleh harta karun legen
 
 Harta karun yang dimilikinya sangat mahal sehingga mustahil untuk dijual dalam perekonomian Zoltan. Dengan kata lain, dia memiliki cukup aset untuk dengan mudah menghabiskan anggaran nasional Zoltan.
 
-Saya bertanya-tanya berapa banyak koin perak peryl yang dia miliki.
+Aku bertanya-tanya berapa banyak koin perak peryl yang dia miliki.
 
 Hmm, memberi Ruti aksesori bola kaca? Dia tidak memakainya sekarang tetapi dia memiliki banyak aksesoris seperti anting-anting mithril dan gesper yang dibuat dari besi meteorik yang sangat langka dan indah bernama Red Sky.
 
@@ -161,17 +162,17 @@ Namun,
 
 “Hn, apakah kamu benar-benar menginginkannya?”
 
-“Yup… Saya baik-baik saja dengan yang termurah tapi saya ingin satu.”
+“Yup… Aku baik-baik saja dengan yang termurah tapi Aku ingin satu.”
 
-Saya melihat …
+Aku melihat …
 
 "Baiklah, kalau begitu aku akan memberimu hadiah yang paling cocok untukmu."
 
 “Yay, aku mendapatkan hadiah.”
 
-Saya menemukan bahwa pipi Ruti agak sedikit lebih merah.
+Aku menemukan bahwa pipi Ruti agak sedikit lebih merah.
 
-Selanjutnya, setelah saya bertarung dengan Pasquale yang ingin menjual barang-barangnya dengan harga setinggi mungkin, saya membeli anting-anting yang dibuat dengan sangat baik dan memberikannya kepada Ruti.
+Selanjutnya, setelah Aku bertarung dengan Pasquale yang ingin menjual barang-barangnya dengan harga setinggi mungkin, Aku membeli anting-anting yang dibuat dengan sangat baik dan memberikannya kepada Ruti.
 
 ☆☆
 
@@ -181,15 +182,15 @@ Yah, itu hanya kapal yang dimaksudkan untuk jalan-jalan. Itu memiliki fungsional
 
 Yotto.
 
-Saya menyesuaikan layar yang tidak sejajar dari arah angin.
+Aku menyesuaikan layar yang tidak sejajar dari arah angin.
 
 Perahu perlahan-lahan naik ke hulu.
 
 “Baiklah, mari kita makan.”
 
-Saya membuka kantong kertas berisi ikan putih dan kentang goreng yang saya beli dari warung pinggir jalan.
+Aku membuka kantong kertas berisi ikan putih dan kentang goreng yang Aku beli dari warung pinggir jalan.
 
-Ruti dan saya menikmati makanan jalanan Zoltan.
+Ruti dan Aku menikmati makanan jalanan Zoltan.
 
 “Jajanan kaki lima dari distrik utara bernama Takoyaki juga enak tapi jauh dari distrik pelabuhan.”
 
@@ -205,19 +206,19 @@ Di atas perahu yang didorong ke depan oleh angin di layarnya, Ruti dan aku menya
 
 Kata Ruti.
 
-“Aku ada di satu-satunya kelompok petualang peringkat B kota ini. Namun, saya tidak pernah dipaksa untuk ikut serta dalam perkelahian. Ketika saya mengatakan saya tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
+“Aku ada di satu-satunya kelompok petualang peringkat B kota ini. Namun, Aku tidak pernah dipaksa untuk ikut serta dalam perkelahian. Ketika Aku mengatakan Aku tidak bisa, mereka akan menyerah dan menjawab bahwa mereka mengerti. "
 
 "Semua orang suka bersantai."
 
-“Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Saya tidak pernah berpikir bahwa saya akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. ”
+“Aku tidak menyangka akan datang hari dimana aku bisa menghabiskan waktu bersama Onii-chan hanya dengan kami berdua. Aku tidak pernah berpikir bahwa Aku akan mendapatkan teman seperti Tise, Ugeuge-san, dan Lit. ”
 
 Ruti menatap langsung ke wajahku.
 
 “Terima kasih Onii-chan. Mulai sekarang, bisakah kita tetap bersama selamanya? ”
 
-Sebelumnya, ketika saya ditanyai pertanyaan ini, saya akan memasuki Ordo Ksatria Bahamut jadi saya tidak bisa memberinya jawaban.
+Sebelumnya, ketika Aku ditanyai pertanyaan ini, Aku akan memasuki Ordo Ksatria Bahamut jadi Aku tidak bisa memberinya jawaban.
 
-Namun, kali ini berbeda. Tujuan saya adalah hidup yang lambat.
+Namun, kali ini berbeda. Tujuan Aku adalah hidup yang lambat.
 
 “Ya, selama Ruti menginginkannya. Aku akan bersamamu selamanya. "
 
