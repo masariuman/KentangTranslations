@@ -464,29 +464,29 @@ Aku membalas resepsionis wanita yang membungkuk dengan senyum tulus dan kemudian
 
 Tiga tahun telah berlalu sejak itu.
 
-Aku, yang dulu disebut Sayap Harapan Kembar Kemanusiaan, telah mengubah namaku menjadi Merah dan saat ini tinggal di wilayah terpencil Zoltan mengumpulkan rumput obat.
+Aku, yang dulu disebut Sayap Harapan Kembar Kemanusiaan, telah mengubah namaku menjadi red dan saat ini tinggal di wilayah terpencil Zoltan mengumpulkan tanaman obat.
 
 ☆☆
 
-Saya memiliki perlindungan ilahi dari 『Panduan』. Keahlian uniknya adalah 'Level Awal +30.'
+aku memiliki perlindungan ilahi dari 『Pemandu』. Keahlian uniknya adalah 'Level Awal +30.'
 
-Saya level 31 sejak lahir. Itu mendekati level seorang pensiunan ksatria yang menghabiskan hidupnya dalam pertempuran.
+aku level 31 sejak lahir. Itu mendekati level seorang  ksatria yang sudah pensiun yang menghabiskan hidupnya dalam pertempuran.
 
-Namun, titik kuat saya juga merupakan titik lemah.
+Namun, titik kuatku juga merupakan titik lemah.
 
-Saya tidak memiliki kelebihan selain memiliki level yang lebih tinggi dari awal.
+aku tidak memiliki kelebihan selain memiliki level yang lebih tinggi dari awal.
 
-Saya tidak bisa menggunakan teknik pertempuran atau sihir. Setelah orang lain mencapai levelku, itu adalah perlindungan ilahi tanpa apa-apa, di bawah 『Prajurit』.
+aku tidak bisa menggunakan teknik pertempuran atau sihir. Setelah orang lain mencapai levelku, itu adalah perlindungan ilahi tanpa apa-apa, di bawah 『Prajurit』.
 
-Saya tidak bisa lagi mengikuti pertempuran dan akhirnya… diusir.
+aku tidak bisa lagi mengikuti pertempuran dan akhirnya... diusir.
 
-“Bukan teman sejati… huh.”
+g"Bukan rekan sejati... huh."
 
 Itu tak tertahankan.
 
-Saya menghela nafas dengan keras setelah mengingat saat ketika saya diusir.
+aku menghela nafas dengan keras setelah mengingat saat ketika aku diusir.
 
-“Yah, itu tidak masalah. Saya akan hidup damai mulai sekarang! Saya akan membuka apotek di Zoltan dan menjalani kehidupan pensiun yang tenang dan nyaman! Aku akan menyerahkan Raja Iblis kepada orang-orang itu dan hidup bukan sebagai ksatria tapi sebagai petualang demi diriku sendiri.
+g"Yah, itu tidak masalah. aku akan hidup damai mulai sekarang! aku akan membuka apotek di Zoltan dan menjalani kehidupan pensiun yang tenang dan nyaman! Aku akan menyerahkan Raja Iblis kepada mereka dan hidup bukan sebagai ksatria tapi sebagai petualang demi diriku sendiri."
 
 Aku bergumam dengan tekad sederhana saat aku berjalan di bawah langit biru yang tersebar di atas Zoltan.
 
