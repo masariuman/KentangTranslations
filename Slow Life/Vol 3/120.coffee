@@ -1,4 +1,4 @@
-Bab 120: Adik perempuanku adalah orang yang paling imut di dunia
+Bab 120: Adik perempuanku adalah orang yang paling manis di dunia
 
 g"Ruti. Bolehkah Aku masuk? "
 
@@ -108,7 +108,7 @@ Karena itu, Aku tidak punya dorongan apapun. Meskipun itu wajar untuk perlindung
 
 Karena dewa dan dunia tidak lagi membutuhkanku.
 
-g"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Rutiku yang imut. Aku mencari cara untuk menghilangkan dorongan untuk 『Pahlawan』 secara detail juga karena Ruti."
+g"Aku menjadi sekuat ini dan entah bagaimana bisa berkontribusi dalam pertarungan dengan Desmond semua karena Rutiku yang manis. Aku mencari cara untuk menghilangkan dorongan untuk 『Pahlawan』 secara detail juga karena Ruti."
 
 Wajah Ruti perlahan memerah setelah mendengar kata-kataku.
 
@@ -134,7 +134,7 @@ g"... Ruti."
 
 Aku memeluk Ruti dengan erat.
 
-g"Ah sheesh, kamu benar-benar imut!"
+g"Ah sheesh, kamu benar-benar Manis!"
 
 r"Eh, ah, Onii-chan?"
 
@@ -174,7 +174,7 @@ Dengan pipi merah, Ruti menatap mataku dan tersenyum.
 
 r"Terima kasih, Onii-chan."
 
-Senyuman terindah, lagipula Ruti paling imut.
+Senyuman terindah, lagipula Ruti paling manis.
 
 
 ---------------------------
