@@ -142,14 +142,14 @@ Tapi bagaimana jika kakaknya menderita impuls dari 『Pemandu』 sama seperti ba
 
 (Aku tidak ingin dibenci oleh Onii-chan. Tapi aku tidak ingin Onii-chan menderita. Aku hanya ingin dia bahagia.)
 
-Pikirannya berputar-putar saat Ruti memeluk lututnya dan menangis sendirian.
+Pikirannya berputar-putar dan Ruti memeluk lututnya dan menangis sendirian.
 
 Pada saat itu, ada ketukan di pintunya.
 
-“Ruti. Bolehkah saya masuk?"
+g"Ruti. Bolehkah aku masuk?"
 
 Suara yang didengarnya adalah suara Red kesayangannya.
 
-“Onii-chan… ya.”
+r"Onii-chan... ya."
 
 Ruti buru-buru menyeka air matanya dan menjawab dengan suara yang agak serak.
