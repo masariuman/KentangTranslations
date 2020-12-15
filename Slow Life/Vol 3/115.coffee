@@ -136,21 +136,21 @@ Untuk beberapa waktu, penjaga toko berbicara dengan Misufia dan Riranrara sement
 
 Itu agak... tampak seperti pemandangan yang damai.
 
-“Sekarang, Shisandan adalah jenderal Tentara Raja Iblis sementara Geyserik adalah Raja Veronia. Benar-benar aneh. "
+g"Sekarang, Shisandan adalah jenderal Tentara Raja Iblis sementara Geyserik adalah Raja Veronia. Benar-benar aneh."
 
-“Saat itu, Geyserik adalah seorang bajak laut dan Shisandan hanyalah seorang Asura Warrior. Selain itu, Shisandan… ”
+“Saat itu, Geyserik adalah seorang bajak laut dan Shisandan hanyalah seorang pejuang asura. Selain itu, Shisandan...”
 
-Ilusi Misufia melanjutkan kalimat Mistome-shi.
+bayangan Misufia melanjutkan kalimat Mistome-shi.
 
-“Senjata itu ada di tempat persembunyian. Selama kalian semua membantu untuk mengalahkan Demon Lord Satan. "
+"Senjata itu ada di tempat persembunyian. Selama kalian semua membantu untuk mengalahkan raja iblis Satan."
 
-Setan Tuan Setan?
+raja iblis Satan?
 
-Raja Iblis saat ini adalah Asura Demon Taraxon. Selanjutnya, Shisandan berada di pihak untuk mengalahkan Raja Iblis?
+Raja Iblis saat ini adalah iblis Asura Taraxon. Shisandan berada di pihak untuk mengalahkan Raja Iblis?
 
-Percakapan yang terjadi di depan saya sepertinya penting. Namun, sungguh ironis bahwa kami, yang mendengarkannya, tidak lagi memiliki niat untuk melawan Raja Iblis.
+Percakapan yang terjadi di depanku sepertinya penting. Namun, sungguh ironis bahwa kami, yang mendengarkannya, tidak lagi memiliki niat untuk melawan Raja Iblis.
 
-“Persiapan kita juga sudah selesai. Meskipun kita tidak akan bisa berpartisipasi dalam pertempuran dengan Raja Iblis. ”
+“Persiapan kami juga sudah selesai. Meskipun kami tidak akan bisa berpartisipasi dalam pertempuran dengan Raja Iblis.”
 
 “Mendapatkan senjata lebih dari cukup. Seperti yang dijanjikan, kami telah menentukan lokasi dermaga tersembunyi. Kami akan mentransfer dua Asura Warriors kepada Anda. Saya tidak keberatan bahkan jika Anda membawa mereka ke Benua yang Mempesona. Saya memberi tahu mereka untuk kembali dengan berbaur di kapal dagang begitu mereka sampai di sana. Jika rencanamu berhasil, itu akan berdampak besar pada perang kita jadi gunakanlah sesuai keinginanmu… tapi kamu adalah orang yang berani. ”
 
