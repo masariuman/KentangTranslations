@@ -106,9 +106,9 @@ Itu adalah sihir yang kuat yang cocok untuk menjadi sihir tingkat lanjut.
 
 Aku ingat Lit pingsan karena sihir Ares dan ketakutan serta kemarahan sejak saat itu muncul.
 
-Misufia menggunakan sihir menengah Control Wind untuk melawan sihir pembunuh pamungkas itu.
+Misufia menggunakan sihir menengah kontrol angin untuk melawan sihir pembunuh pamungkas itu.
 
-Tentu saja, mengendalikan angin tidak akan menghentikan Gargantua Storm Javelin. Namun angin dari badai tombak menjadi kekuatan pendorong untuk menggerakkan kapal.
+Tentu saja, mengendalikan angin tidak akan menghentikan Badai Gargantua Javelin. Namun angin dari badai tombak menjadi kekuatan pendorong untuk menggerakkan kapal.
 
 Kapal akan melaju dan menjauh semakin dekat tombak badai mendekatinya. Kapal bajak laut meninggalkan Gandol bersama tombak badai.
 
