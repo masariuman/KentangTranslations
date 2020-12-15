@@ -22,35 +22,35 @@ Orc 『Penunggang Drake』 mengendalikan drake mereka yang tidak bersisik untuk 
 
 Geyserik berteriak.
 
-Dia mengangkat pedang yang dia ambil dari Orc Warrior dan memimpin untuk menebas drake Benua Hitam.
+Dia mengangkat pedang yang dia ambil dari Orc Warrior dan memimpin untuk menebas drake Benua Kegelapan.
 
-“Jadi ini Benua Hitam.”
+“Jadi ini Benua Kegelapan.”
 
 Di luar lautan badai tempat badai berkecamuk sepanjang tahun, ditakuti sebagai Raja Badai.
 
 Mirip dengan Pegunungan Besar di batas timur yang disebut Tembok di Ujung Dunia, itu adalah batas yang menghalangi penjelajah pemberani untuk memasuki lebih jauh ke barat. Di luar laut itu adalah dunia tempat tinggal Raja Iblis dan kami dapat melihatnya melalui ingatan Mistome-shi.
 
-" … Onii Chan."
+r" ... Onii Chan."
 
 Ruti mencengkeram lenganku.
 
-Itulah dunia tempat Ruti seharusnya bepergian dan sudah takdirnya bertarung di sana sejak lahir.
+Itulah dunia tempat Ruti seharusnya berada dan sudah takdirnya bertarung di sana sejak dia lahir.
 
 Aku memeluk bahu Ruti dan mendekatkan tubuhnya ke tubuhku.
 
-Hutan belantara yang luas tersebar di seluruh Benua Hitam. Itu bukanlah hutan lebat dimana semua jenis pohon tumbuh seperti di Benua Avalon. Tanah itu ditutupi dengan hutan belantara dan pegunungan dan di bawah Ibukota Besar Benua Kegelapan, ada gua besar yang disebut Under Deep.
+Hutan belantara yang luas tersebar di seluruh Benua Kegelapan. Itu bukanlah hutan lebat dimana semua jenis pohon tumbuh seperti di Benua Avalon. Tanah itu ditutupi dengan hutan belantara dan pegunungan dan di bawah Ibukota Besar Benua Kegelapan, ada gua besar yang disebut Under Deep.
 
-Ruti dimaksudkan untuk menjelajah sendirian ke dalam bumi yang tandus di mana cahaya tidak bisa menjangkau.
+Ruti seharusnya menjelajah sendirian ke dalam bumi yang tandus di mana cahaya tidak bisa menjangkaunya.
 
-“Bagian kanan penuh !! Kecepatan penuh!!!!"
+"Ayi Bergerak !! Kecepatan penuh!!!!"
 
 Geyserik berteriak.
 
 Jumlah kavaleri wyvern yang tak terhitung jumlahnya terbang melintasi langit.
 
-"Kapten! Itu adalah ide yang buruk untuk menyentuh Pasukan Raja Iblis yang disediakan! "
+"Kapten! Itu adalah ide yang buruk untuk menyentuh suplai pasukan Raja Iblis!"
 
-“Idiot! Bagaimana Anda bisa menyebut diri Anda bajak laut jika Anda takut pada sesuatu seperti Raja Iblis! "
+"Idiot! Bagaimana kamu bisa menyebut dirimu bajak laut jika kamu takut pada sesuatu seperti Raja Iblis!"
 
 Kilatan dan ledakan berapi-api terdengar dari belakang.
 
@@ -58,25 +58,25 @@ Kilatan dan ledakan berapi-api terdengar dari belakang.
 
 Para bajak laut itu berteriak. Salah satu kapal dari armada tersebut disambar tombak petir yang menyatukan badai dan tenggelam setelah terbelah menjadi dua.
 
-“Badai Gargantua Javelin! Siapa yang melakukannya!!"
+"Badai Gargantua Javelin! Siapa yang melakukannya!!"
 
 "Itu aku."
 
-Seorang iblis berambut putih dengan petir berderak di kedua tangannya berkata sambil menatap para bajak laut saat dia mengangkangi wyvern.
+Seorang iblis berambut putih dengan petir berderak di kedua tangannya berkata sambil menatap para bajak laut saat dia menunggangi wyvern.
 
-“Itu adalah Empat Raja Angin Surgawi, Gandol.”
+r"Itu adalah Empat Raja Angin langit, Gandol."
 
 Ruti bergumam padaku. Tise tampak sedikit terkejut dan bibirnya sedikit menekuk.
 
-Dia adalah Demon Lord Army Four Heavenly King yang diperangi Ruti dan party setelah aku meninggalkan party. Wind Demon yang memimpin skuadron kavaleri udara wyvern yang tak terkalahkan.
+Dia adalah salah satu dari empat raja langit dari pasukan raja iblis yang diperangi Ruti dan tim setelah aku meninggalkan tim. Iblis angin yang memimpin tim kavaleri udara wyvern yang tak terkalahkan.
 
-Sebagai komandan garis depan untuk invasi ke Benua Avalon, itu adalah kavaleri wyvern anginnya yang membakar ibu kota Kerajaan Franberg yang sekarang sudah punah.
+Sebagai komandan garis depan untuk invasi ke Benua Avalon, itu adalah kavaleri wyvern yang membakar ibu kota Kerajaan Franberg yang sekarang sudah punah.
 
 Gandol sekali lagi menciptakan tombak badai yang besar.
 
-“Kalian menaiki kapal yang cukup tua, apakah kalian mencurinya dari museum? Orang-orang yang terbuang dari padang gurun… yang membuat Anda kehilangan akal untuk menyerang gudang kami. ”
+“Kalian menaiki kapal yang cukup tua, apakah kalian mencurinya dari museum? Orang-orang yang terbuang dari gurun... yang membuatmu kehilangan akal untuk menyerang tempat kami.”
 
-"Diam! Tidak ada orang yang bisa menjadi bajak laut jika dia melarikan diri dari rasa takut meskipun ada harta karun di depannya! ”
+"Diam! Tidak ada orang yang bisa menjadi bajak laut jika dia melarikan diri dari rasa takut meskipun ada harta karun di depannya!"
 
 Geyserik berteriak. Tampaknya dia marah karena iblis itu menghina kapalnya.
 
