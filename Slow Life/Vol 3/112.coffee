@@ -2,11 +2,11 @@ Bab 112: Sang Putri bertemu dengan Bajak Laut
 
 Kami melakukan perjalanan jauh ke dalam hutan.
 
-Namun demikian, ini merupakan jalan memutar yang sangat besar hanya untuk menanyakan sesuatu kepada kenalan saya Moen.
+ini merupakan jalan memutar yang jauh hanya untuk menanyakan sesuatu kepada kenalanku Moen.
 
-“Masih menyenangkan, berpetualang dengan Onii-chan seperti ini.”
+r"Masih menyenangkan, berpetualang dengan Onii-chan seperti ini."
 
-Ruti memegang lengan bajuku dan berkata.
+Ruti memegang lengan bajuku.
 
 Yah, kurasa tidak apa-apa kali ini. Ruti bersenang-senang.
 
