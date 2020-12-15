@@ -126,15 +126,15 @@ Kata pelayan toko sambil menuangkan alkohol ke dalam mangkuk dan mengencerkannya
 
 Misufia berseru kaget. Alkohol bening yang tidak berwarna dan air seharusnya bercampur tapi malah berubah menjadi putih dan keruh.
 
-“Apakah Anda orang yang lahir di Under Deep atau dari West Jade? Saya jarang melihat orang kaya yang belum pernah melihat Alhi sebelumnya. "
+"Apakah kamu orang yang lahir di Under Deep atau dari West Jade? aku jarang melihat orang kaya yang belum pernah melihat Alhi sebelumnya."
 
-“Ya, kami datang dari negeri yang jauh. Terima kasih, saya akan meluangkan waktu untuk menikmati ini. ”
+“Ya, kami datang dari negeri yang jauh. Terima kasih, aku akan meluangkan waktu untuk menikmati ini. ”
 
-Misufia menyesap dan dia sepertinya menyukainya saat dia tersenyum.
+Misufia menyesap dan dia sepertinya menyukainya karena dia tersenyum.
 
 Untuk beberapa waktu, penjaga toko berbicara dengan Misufia dan Riranrara sementara Geyserik tertawa keras dan Shisandan mengamati para bajak laut dengan penuh minat sambil memiringkan mangkuknya.
 
-Itu agak… tampak seperti pemandangan yang damai.
+Itu agak... tampak seperti pemandangan yang damai.
 
 “Sekarang, Shisandan adalah jenderal Tentara Raja Iblis sementara Geyserik adalah Raja Veronia. Benar-benar aneh. "
 
