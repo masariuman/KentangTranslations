@@ -132,9 +132,9 @@ Bagaimana jika cintanya Red padanya hanya karena dorongan hatinya dan dia sebena
 
 Hanya dengan memikirkannya saja sudah membuat kekuatannya menghilang dan dia terduduk di ranjang yang keras.
 
-Sebelum dia menyadarinya, air mata mengalir dari kedua matanya.
+tanpa dia sadari, air mata mengalir dari kedua matanya.
 
-Jika... jika dia harus berpisah dengan kakaknya seperti yang Mistome lakukan...
+Jika... jika dia harus berpisah dengan kakaknya seperti yang Mistome alami...
 
 r"aku tidak mau."
 
