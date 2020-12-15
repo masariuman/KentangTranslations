@@ -64,9 +64,9 @@ Ruti bergumam pelan. Mistome tersenyum kecut saat mendengar itu.
 
 Mistome-shi menatap adik perempuannya dengan mata menyipit dan pandangan nostalgia, tetapi Mistome dan Leonor muda saling memelototi dengan tatapan tajam.
 
-"Seperti yang diharapkan dari『 Archmage 』-sama. Sangat berbeda dari orang seperti saya yang memiliki perlindungan ilahi dari 『Petarung』 ... tapi saya senang saya memiliki perlindungan ilahi dari 『Petarung』. Bagaimanapun, bunga memang dimaksudkan untuk dicintai, bukan? Keterampilan unik dari 『Petarung』 adalah keterampilan penguatan kemampuan murni. Tidak banyak dorongan dan tidak banyak perlindungan ilahi yang berkonsentrasi pada mempercantik tubuh pengguna."
+"Seperti yang diharapkan dari『 Archmage 』-sama. Sangat berbeda dari orang seperti aku yang memiliki perlindungan ilahi dari 『Petarung』 ... tapi aku senang aku memiliki perlindungan ilahi dari 『Petarung』. Bagaimanapun juga, bunga memang dimaksudkan untuk dicintai, bukan? Keterampilan unik dari 『Petarung』 adalah keterampilan penguatan kemampuan murni. Tidak banyak dorongan dan tidak banyak perlindungan ilahi yang berkonsentrasi pada mempercantik tubuh pengguna."
 
-"Saya ingin menjadi ramuan obat yang dapat menyembuhkan penyakit daripada bunga untuk dicintai."
+"aku ingin menjadi ramuan obat yang dapat menyembuhkan penyakit daripada bunga untuk dicintai."
 
 Mistome menjawab dengan tegas. Leonor menyembunyikan mulutnya di balik kipas angin dan membiarkan bocor tertawa.
 
