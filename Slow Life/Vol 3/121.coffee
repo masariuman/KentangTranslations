@@ -70,11 +70,9 @@ g"Ngomong-ngomong, apakah orang itu ada yang membuatmu sakit?"
 
 Pria tua itu terkejut dan dengan malu-malu mengusap ujung hidungnya dengan jarinya.
 
-"Kamu melihat melalui kami ya? Maaf, kami berada di tenggorokan satu sama lain di sore hari jadi itu hanya untuk berjaga-jaga."
+"Kamu mengetahunya ya? Maaf, kita berada bertarung di sore hari jadi itu hanya untuk berjaga-jaga."
 
 Seorang lelaki tua yang memegang pisau muncul dari bayang-bayang pilar dan menundukkan kepalanya dengan sedih.
-
- 
 
 "Kau tahu, dulu aku cukup ditakuti sebagai bajak laut?"
 
