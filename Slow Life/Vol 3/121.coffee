@@ -150,7 +150,7 @@ Pendeta Cien menyatukan kedua tangannya dan menutup matanya.
 
 Perlindungan ilahi Dewa Demis huh ...
 
-Jika itu adalah niat dewa, dewa pasti telah diputarbalikkan secara tak terbayangkan. Aku diam-diam tersenyum kecut pada diriku sendiri.
+Jika itu adalah niat dewa, dewa pasti tak terbayangkan. Aku diam-diam tersenyum kecut pada diriku sendiri.
 
 Namun, Aku tahu. Bahwa itu bukan kehendak dew.
 
