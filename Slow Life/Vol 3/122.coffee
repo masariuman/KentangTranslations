@@ -80,7 +80,7 @@ Dia adalah seorang ksatria yang ditugaskan melindungi Ibukota Kekaisaran, dengan
 
 Dia adalah Bardol‧of‧Guardian, pemimpin dari Ksatria Tiamat, kartu andalan dari Tentara Kekaisaran bersama dengan Ksatria Bahamut.
 
-Dia adalah prajurit terkuat Kerajaan Avalonia dan salah satu dari 13 orang yang terdiri dari 4 tim yang diakui sebagai petualang S-rank.
+Dia adalah prajurit terkuat Kerajaan Avalonia dan salah satu dari 13 orang yang terdiri dari 4 tim yang diakui sebagai petualang peringkat-S.
 
 Perlindungan Ilahi yang berada di dalam dirinya adalah 『Kavaleri』. Itu sama sekali bukan Perlindungan Ilahi khusus tetapi dia adalah seorang master yang tidak pernah kalah sekalipun, bahkan melawan veteran seperti Beagnoth dan Gideon.
 
