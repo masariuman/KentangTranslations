@@ -86,45 +86,29 @@ Pria tua itu menghela nafas.
 
 "Itu tidak cukup signifikan untuk dianggap sebagai ancaman bagi hidupmu ya?"
 
-Baik lelaki tua yang berbicara atau lelaki tua yang tersembunyi tidak akan menjadi ancaman bagi Tise atau aku.
+Baik lelaki tua yang berbicara atau lelaki tua yang bersembunyi tidak akan menjadi ancaman bagi Tise atau aku.
 
-Jika Tise terluka dengan cara apa pun, Aku mungkin tidak akan datang untuk menjual obat seperti ini, Aku bukanlah orang dengan kebajikan yang begitu mulia.
+Jika Tise terluka, Aku mungkin tidak akan datang untuk menjual obat seperti ini, Aku bukanlah orang dengan kebajikan yang begitu mulia.
 
 Namun,
 
- 
+g"Aku senang itu tidak menjadi hubungan yang saling membenci."
 
-"Aku senang itu tidak menjadi hubungan yang saling membenci."
-
-"Fuu, Aku setuju. Aku diuntungkan karena menjadi lemah. "
-
- 
+"Fuu, Aku setuju. untung saja aku menjadi lemah."
 
 Pria tua itu tertawa.
 
- 
+"haa~~, Aku tidak mengharapkan ahli sepertimu ada di Zoltan. Aku merasakan tenang untuk nona muda sekarang. "
 
-"Astaga, Aku tidak mengharapkan ahli seperti Kamu di Zoltan. Aku merasakan ketenangan pikiran yang lebih besar untuk wanita muda itu sekarang. "
+Nah, hanya sejauh ini yang Aku bantu, Aku berencana menyerahkan sisanya kepada Ruti dan Tise. Ruti mungkin akan menyelesaikan masalah ini tanpa masalah.
 
- 
+"Karena kamu ada di sini, ingin melihat yang lain juga? Mereka semua pria dan wanita tua jadi mereka akan mengalami kesakitan di sana-sini."
 
-Nah, sejauh ini yang Aku bantu, Aku berencana menyerahkan sisanya kepada Ruti dan Tise. Ruti mungkin akan menyelesaikan masalah ini tanpa masalah.
-
- 
-
-"Karena kamu ada di sini, ingin melihat yang lain juga? Mereka semua pria dan wanita tua jadi mereka akan mengalami kerusakan di sana-sini. "
-
-"Ah, tentu. Di masa depan, Aku akan datang sebulan sekali dengan membawa obat untuk dijual. "
-
- 
+g"Ah, tentu. berikutnya, Aku akan datang sebulan sekali dengan membawa obat untuk dijual."
 
 Setelah itu, Aku memeriksa warga yang berkumpul, menjual obat yang Aku miliki, dan menyusun pesanan obat untuk dibawa saat Aku datang lagi.
 
- 
-
 ☆☆
-
- 
 
 Ada warga yang tidak bisa beraktivitas karena kondisi tubuh mereka sehingga Aku melakukan kunjungan rumah juga dan memakan waktu yang cukup lama.
 
