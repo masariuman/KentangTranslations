@@ -64,7 +64,7 @@ Mistome-shi adalah tokoh utama di Zoltan. Dia juga memiliki banyak aset.
 
 Dan dia menyebutkan bahwa dia dulu mencari nafkah dengan mengolah daging dan kulit yang diperoleh dari berburu binatang dan monster di hutan ini.
 
-"Ngomong-ngomong, apakah orang itu ada yang membuatmu terluka?"
+g"Ngomong-ngomong, apakah orang itu membuatmu sakit?"
 
 "!!"
 
@@ -78,17 +78,13 @@ Seorang lelaki tua yang memegang pisau muncul dari bayang-bayang pilar dan menun
 
 "Tampaknya lawanmu adalah lawan yang buruk... Hei anak muda, mengapa Kamu menawarkan obat kepada kami?"
 
-"Wajar jika Aku melihat orang yang membutuhkan obat, Aku akan berusaha menjual. Bagaimanapun juga, aku seorang apoteker. "
+g"Wajar jika Aku melihat orang yang membutuhkan obat, Aku akan berusaha menjual. Bagaimanapun juga, aku seorang apoteker."
 
-"Tapi kami mencoba membunuh rekanmu… ah, begitu."
-
- 
+"Tapi kami mencoba membunuh temanmu...ah, begitu."
 
 Pria tua itu menghela nafas.
 
 "Itu tidak cukup signifikan untuk dianggap sebagai ancaman bagi hidupmu ya?"
-
- 
 
 Baik lelaki tua yang berbicara atau lelaki tua yang tersembunyi tidak akan menjadi ancaman bagi Tise atau aku.
 
