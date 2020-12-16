@@ -122,55 +122,37 @@ Pendeta Cien.
 
 Di luar rumah, Pendeta Cien yang mengenakan pakaian biksu sedang menungguku dengan senyum lembut.
 
-"Kamu adalah penyelamat kami. Mengingat rahasia Mistome, kami tidak dapat mengungkapkan keberadaan orang-orang di sini jadi Aku merasa kasihan atas ketidaknyamanan orang-orang yang dulunya adalah pahlawan yang menyelamatkan Zoltan ini. Aku sangat berterima kasih. "
+"Kamu adalah penyelamat kami. Mengingat rahasia Mistome, kami tidak dapat mengungkapkan keberadaan orang-orang di sini jadi Aku merasa kasihan atas ketidaknyamanan orang-orang yang dulunya adalah pahlawan yang menyelamatkan Zoltan ini. Aku sangat berterima kasih."
 
- 
+Uskup Cien berkata dan membungkuk kepadaku.
 
-Uskup Cien berkata dan membungkuk kepada Aku.
+g"Itu hanya kesepakatan bisnis. Apakah orang-orang di pemukiman ini, bawahan Geyserik?"
 
- 
+"Iya. Mereka adalah bajak laut yang merupakan bawahan Mistome atau mereka yang hanya memujanya."
 
-"Itu hanya kesepakatan bisnis. Apakah orang-orang di pemukiman ini, Geyserik? "
+"Teman dari saat Mistome-shi adalah bajak laut bersama Geyserik ya? Meskipun mereka mungkin memiliki beberapa kedudukan di Veronia, mereka memilih untuk meninggalkan semua itu setelah Mistome-shi tidak bisa lagi tinggal di Veronia dan tetap bersama Mistome-shi sampai hari ini."
 
-"Iya. Mereka adalah bajak laut yang merupakan bawahan Mistome atau mereka yang hanya memujanya. "
+g"Dia sangat dicintai."
 
- 
-
-Teman dari saat Mistome-shi adalah bajak laut bersama Geyserik ya? Meskipun mereka mungkin memiliki beberapa kedudukan di Veronia, mereka memilih untuk meninggalkan semua itu setelah Mistome-shi tidak bisa lagi tinggal di Veronia dan tetap bersama Mistome-shi sampai hari ini. "
-
- 
-
-"Dia sangat dicintai."
-
-"Tentu saja. Setelah melihat lingkungan dengan kebersihan yang mengerikan dengan lumut dan jamur yang tumbuh, dia menendang pantat Geyserik dan kru untuk membersihkan tempat, mempelajari berbagai bahan tentang nutrisi yang dibutuhkan untuk perjalanan panjang, memasak dengan juru masak, dan sepertinya telah memainkan peran yang sangat aktif. Meskipun Aku hanya mendengarnya dari yang lain. "
-
- 
+"Tentu saja. Setelah melihat lingkungan dengan kebersihan yang mengerikan dengan lumut dan jamur yang tumbuh, dia menendang pantat Geyserik dan kru untuk membersihkan tempat, mempelajari berbagai bahan tentang nutrisi yang dibutuhkan untuk perjalanan panjang, memasak dengan juru masak, dan sepertinya telah memainkan peran yang sangat aktif. Meskipun Aku hanya mendengarnya dari yang lain."
 
 Aku ingat keinginan kuat yang terpantul di mata Misufia di wajah anggunnya di dalam ilusi dan mengangguk.
 
- 
+"aku pernah belajar di Benteng Sage Besar di Tanah Suci, Tembok Terakhir, bertarung sebagai seorang petualang, dan cukup terampil tapi... Ruru dan dirimu sendiri, secara mengejutkan kalian semua dekat dengan pahlawan. Siapakah kalian ini?"
 
-"Namun, aku pernah belajar di Benteng Sage Besar di Tanah Suci, Tembok Terakhir, bertarung sebagai seorang petualang, dan cukup terampil tapi… Ruru dan dirimu sendiri, secara mengejutkan Kamu semua dekat dengan pahlawan. Siapakah kalian ini? "
+g"aku hanyalah pemilik apotek kecil di Zoltan dengan adik perempuan petani tanaman obat pemula."
 
-"Kami hanyalah pemilik apotek kecil di Zoltan dengan adik perempuan petani rumput obat pemula."
+"sangat kasar bagiku mempertanyakan itu. maafkan Aku."
 
-"Itu kasar untuk bertanya. Permintaan maaf Aku."
+Pendeta Cien menyatukan kedua tangannya dan menutup matanya.
 
- 
-
-Uskup Cien menyatukan kedua tangannya dan menutup matanya.
-
- 
-
-"Meski begitu, aku hanya bisa melihat kehadiranmu di Zoltan selama keadaan sulit kita sebagai perlindungan ilahi Dewa Demis. Terima kasih."
-
- 
+"Meski begitu, aku hanya bisa melihat kehadiranmu di Zoltan selama keadaan sulit sebagai perlindungan ilahi Dewa Demis. Terima kasih."
 
 Perlindungan ilahi Dewa Demis huh ...
 
-Jika itu adalah niat Tuhan, Tuhan pasti telah diputarbalikkan secara tak terbayangkan. Aku diam-diam tersenyum kecut pada diriku sendiri.
+Jika itu adalah niat dewa, dewa pasti telah diputarbalikkan secara tak terbayangkan. Aku diam-diam tersenyum kecut pada diriku sendiri.
 
-Namun, Aku tahu. Bahwa itu bukan kehendak Tuhan.
+Namun, Aku tahu. Bahwa itu bukan kehendak dew.
 
 Ruti, Lit, Tise, Mistome-shi, Leonor dan Aku sendiri.
 
