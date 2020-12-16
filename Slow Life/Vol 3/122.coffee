@@ -84,15 +84,11 @@ Dia adalah prajurit terkuat Kerajaan Avalonia dan salah satu dari 13 orang yang 
 
 Perlindungan Ilahi yang berada di dalam dirinya adalah 『Kavaleri』. Itu sama sekali bukan Perlindungan Ilahi khusus tetapi dia adalah seorang master yang tidak pernah kalah sekalipun, bahkan melawan veteran seperti Beagnoth dan Gideon.
 
- 
-
 Bardol mendecakkan lidahnya karena ketidaksenangan di balik helmnya.
-
- 
 
 "Apa salahnya menyebut nama bajak laut."
 
-"Mereka bukan bajak laut tapi kerajaan. Kami sudah memiliki tangan kami penuh berurusan dengan Tentara Raja Iblis. Prestasi 『Pahlawan』 pasti telah membalikkan kekalahan pertempuran dan memungkinkan kami untuk mendapatkan keunggulan. Istana Kerajaan secara aktif menyiarkan perbuatan Pahlawan untuk meningkatkan moral juga dan itu bagus. Namun, warga Ibu Kota Kekaisaran dan bahkan orang-orang di Istana Kerajaan terus percaya bahwa kami memenangkan perang. "
+"Mereka bukan bajak laut tapi kerajaan. kita sudah sibuk berurusan dengan Tentara Raja Iblis. Prestasi 『Pahlawan』 pasti telah membalikkan kekalahan dan memungkinkan kita untuk mendapatkan keunggulan. Istana Kerajaan secara aktif mengumumkan apa yang dilakukan Pahlawan untuk meningkatkan moral juga dan itu bagus. Namun, warga Ibu Kota Kekaisaran dan bahkan orang-orang di Istana Kerajaan terus percaya bahwa kita memenangkan perang."
 
 "Sebenarnya, Pahlawan yang mengacaukan garis depan Tentara Raja Iblis di berbagai lokasi hanyalah keuntungan sementara."
 
@@ -100,78 +96,52 @@ Bardol mendecakkan lidahnya karena ketidaksenangan di balik helmnya.
 
 Dan mereka memulihkan hubungan diplomatik kita dengan Kerajaan Cataphract.
 
- 
+Beagnoth menghela nafas setelah mendaftar aktivitas 『Pahlawan』.
 
-Beagnoth menghela nafas setelah mendaftar aktivitas 『Hero』.
-
- 
-
-"Singkatnya, Tentara Kekaisaran tidak lebih kuat dari Tentara Raja Iblis. Terlepas dari kenyataan itu, warga Kerajaan, serta orang-orang di Istana Kerajaan, terus mengalami kesalahpahaman. Ini adalah masalah yang menyebabkan sakit kepala. Kembali ke pembicaraan tentang bajak laut, katakanlah kita melaporkan identitas para bajak laut tersebut. Baik Istana Kerajaan dan warga akan menuntut agar tentara menaklukkan Kerajaan Veronia. Untuk menampilkan superioritas serta menghukum bajak laut pemula. Namun, tangan kita sudah terikat dengan Tentara Raja Iblis jadi memberikan alasan untuk berperang dengan Kerajaan Veronia akan menghancurkan Kekaisaran. "
-
- 
+"Singkatnya, Tentara Kekaisaran tidak lebih kuat dari Tentara Raja Iblis. Terlepas dari kenyataan itu, warga Kerajaan, serta orang-orang di Istana Kerajaan, terus mengalami kesalahpahaman. Ini adalah masalah yang menyebabkan sakit kepala. Kembali ke pembicaraan tentang bajak laut, lebih baik kita melaporkan identitas para bajak laut tersebut. Baik Istana Kerajaan dan warga akan menuntut agar tentara menaklukkan Kerajaan Veronia. Untuk menampilkan superioritas serta menghukum bajak laut pemula. Namun, tangan kita sudah terikat dengan Tentara Raja Iblis jadi memberikan alasan untuk berperang dengan Kerajaan Veronia akan menghancurkan Kekaisaran. "
 
 Armor Bardol menempel pada dirinya sendiri saat dia mendengarkan kata-kata Beagnoth.
 
- 
+"Aku tidak menyukainya. Jika Aku pergi untuk menyerang, Aku akan menginjak Tentara Raja Iblis dan sejenisnya."
 
-"Aku tidak menyukainya. Jika Aku pergi untuk menyerang, Aku akan menginjak Tentara Raja Iblis dan sejenisnya. "
-
-"Landasan pertahanan Imperial Capital secara alami tidak bisa membiarkan Imperial Capital kosong. Jadi, untuk masalah bajak laut, mari kita lihat dan tunggu. "
+"Landasan pertahanan Ibukota Kekaisaran secara alami tidak bisa membiarkan Ibukota kekaisaran kosong. Jadi, untuk masalah bajak laut, mari kita lihat dan tunggu terlebih dahulu."
 
 "Bahkan jika kita hanya menonton dan menunggu, apakah kamu punya rencana untuk melakukan sesuatu?"
 
- 
-
 Beagnoth menyisir janggut putihnya yang seperti salju saat dia merenung.
 
- 
-
-"Menurut intelijen, Pangeran adalah faksi pro-Demon Lord Army. Bagus bahwa Raja Geyserik masih mengontrol pasukan saat dia sedang sakit, tetapi tindakan pembajakan terhadap kita kemungkinan besar di bawah perintah Pangeran. "
+"Menurut intelijen, Pangerannya adalah faksi pro-pasukan raja iblis. Bagus bahwa Raja Geyserik masih mengontrol pasukan saat dia sedang sakit, tetapi tindakan pembajakan terhadap kita kemungkinan besar di bawah perintah Pangeran."
 
 "Pangeran Ugusu? Tapi kudengar dia patuh pada ibunya, si nenek tua Leonor? "
 
-"Dalang mungkin adalah Ratu Leonor."
+"Dalang semua ini mungkin adalah Ratu Leonor."
 
-"Kalau begitu, itu tidak akan terselesaikan bahkan jika kita hanya menonton dan menunggu. Tidak bisakah kita mengajukan permintaan ke Assassin's Guild? "
+"Kalau begitu, itu tidak akan terselesaikan bahkan jika kita hanya menonton dan menunggu. Tidak bisakah kita mengajukan permintaan ke Guild Pembunuh Bayaran? "
 
-"Berbicara itu mudah tapi kami akan hancur jika terungkap. Perjudian akan membawa kehancuran. "
+"Berbicara itu mudah tapi kita akan hancur jika ketahuan. Pertaruhan akan membawa kehancuran. "
 
 "Tapi kalau terus begini, itu sama saja dengan menyaksikan Pangeran Ugusu menjadi Raja Veronia."
 
- 
+Dalam perang antara Pasukan Sekutu Kontinental dan Tentara Raja Iblis, Kerajaan Veronia menyatakan netral. Tidaklah berlebihan untuk mengatakan bahwa pergerakan negara yang memiliki muka di wilayah barat daya benua akan mempengaruhi nasib seluruh benua.
 
-Dalam perang antara Pasukan Sekutu Kontinental dan Tentara Raja Iblis, Kerajaan Veronia menyatakan netralitas. Tidaklah berlebihan untuk mengatakan bahwa pergerakan negara yang memiliki pandangan mereka di wilayah barat daya benua akan mempengaruhi nasib seluruh benua.
+"Pangeran Sarius-lah yang merekomendasikan partisipasi aktif dalam perang. Tidakkah semuanya akan terselesaikan jika kita membantunya menggantikan tahta?"
 
- 
+"Apakah ada ruang bagiku untuk campur tangan?"
 
-"Pangeran Sarius-lah yang merekomendasikan partisipasi aktif dalam perang. Tidakkah semuanya akan terselesaikan jika kita membantunya menggantikan tahta? "
-
-Apakah ada ruang bagi Aku untuk campur tangan?
-
- 
-
-Beagnoth mengerutkan kening mendengar kata-kata Bardol. Sejak zaman kuno, mengganggu suksesi takhta negara lain tidak pernah berakhir dengan baik.
-
- 
+Beagnoth mengerutkan kening mendengar kata-kata Bardol. Sejak zaman kuno, mengganggu takhta negara lain tidak pernah berakhir dengan baik.
 
 "Kalau begitu, apa yang akan kamu lakukan?"
 
- 
-
 Bardol bertanya dengan kesal setelah menebak sesuatu dari raut wajah Beagnoth.
 
- 
-
-"Seperti yang Aku katakan. Kami mengawasi dan menunggu. "
+"Seperti yang Aku katakan. Kita mengawasi dan menunggu."
 
 "Berapa banyak lagi ksatria yang ingin kamu korbankan?"
-
- 
 
 Bardol mengeluh dengan ketidakpuasan setelah mendengar jawaban Beagnoth.
 
 Beagnoth menghela nafas sekali lagi.
 
-Jika wakil perwira hebatnya yang pergi dengan Pahlawan hadir, berapa banyak strategi yang bisa dia pikirkan?
+Jika wakil perwira hebatnya yang pergi dengan Pahlawan ada disini, berapa banyak strategi yang bisa dia pikirkan?
 
 Tidak ada gunanya berharap untuk apa yang tidak dia miliki jadi Beagnoth menjernihkan pikirannya dan mulai membaca laporan itu sekali lagi.
