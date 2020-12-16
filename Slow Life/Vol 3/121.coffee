@@ -112,23 +112,17 @@ Setelah itu, Aku memeriksa warga yang berkumpul, menjual obat yang Aku miliki, d
 
 Ada warga yang tidak bisa beraktivitas karena kondisi tubuh mereka sehingga Aku melakukan kunjungan rumah juga dan memakan waktu yang cukup lama.
 
-Nah, berkat itu, Aku menjual cukup banyak obat termasuk pesanan yang Aku miliki. Meskipun populasinya kecil, itu untuk seluruh pemukiman jadi itu jumlah yang cukup besar untuk satu apoteker.
+Nah, berkat itu, Aku menjual cukup banyak obat termasuk pesanan yang Aku miliki. Meskipun populasinya kecil, itu untuk seluruh pemukiman jadi itu jumlah yang cukup besar untuk satu apotek.
 
 Aku pergi dengan berseri-seri setelah menyelesaikan kesepakatan yang bagus.
 
- 
-
 "Terima kasih atas kerja kerasmu."
 
-Uskup Cien.
+Pendeta Cien.
 
- 
+Di luar rumah, Pendeta Cien yang mengenakan pakaian biksu sedang menungguku dengan senyum lembut.
 
-Di luar rumah, Uskup Cien yang mengenakan pakaian biksu sedang menunggu Aku dengan senyum lembut.
-
- 
-
-"Kamu adalah penyelamat. Mengingat rahasia Mistome, kami tidak dapat mengungkapkan keberadaan orang-orang di sini jadi Aku merasa kasihan atas ketidaknyamanan orang-orang yang dulunya adalah pahlawan yang menyelamatkan Zoltan ini. Aku sangat berterima kasih. "
+"Kamu adalah penyelamat kami. Mengingat rahasia Mistome, kami tidak dapat mengungkapkan keberadaan orang-orang di sini jadi Aku merasa kasihan atas ketidaknyamanan orang-orang yang dulunya adalah pahlawan yang menyelamatkan Zoltan ini. Aku sangat berterima kasih. "
 
  
 
