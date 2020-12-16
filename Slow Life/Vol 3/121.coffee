@@ -22,15 +22,15 @@ g"Sebenarnya, Aku seorang apoteker. Aku punya obat untuk mata itu. "
 
 "Hou... Aku bersyukur tapi bahkan sihir nona muda tidak bisa menyembuhkan mata ini. Aku ragu apakah obat dapat mengobatinya?"
 
-g"Ini disebut obat karena mampu mengobati."
+g"Ini disebut obat karena bisa mengobatinya."
 
 Perawatan dengan menggunakan sihir memang nyaman tetapi hanya memiliki efek menghilangkan penyebab penyakit. Dengan kata lain, meskipun bakteri penyebab penyakit dihilangkan, itu tidak akan mengobati jaringan yang dihancurkan oleh bakteri penyebab penyakit tersebut.
 
-Dulu, Aku terburu-buru untuk mengobati penyakit Mata Putih Tanta karena pengobatan untuk kehilangan penglihatan akibat penyakit tersebut, bahkan setelah penyakitnya sembuh, akan membutuhkan sihir regenerasi daripada penyembuhan biasa. Namun, tabib yang mampu menggunakan sihir itu sangat jarang.
+Dulu, Aku terburu-buru untuk mengobati penyakit Mata Putih Tanta karena pengobatan untuk kehilangan penglihatan akibat penyakit tersebut, bahkan setelah penyakitnya sembuh, akan membutuhkan sihir regenerasi daripada penyembuhan biasa. Namun, dokter yang mampu menggunakan sihir itu sangat jarang.
 
 Bahkan jika seorang 『Archmage』 bisa menghilangkan penyakit, mereka seharusnya tidak bisa menggunakan sihir regenerasi.
 
-Namun, obatnya berbeda. Bahkan jika penyakit tersebut merusak tubuh hingga merusak bagian tubuh yang tidak berfungsi, obat yang dibuat melalui kombinasi rumput obat dan 'Alkimia' dapat memungkinkan pemulihan sampai batas tertentu seiring waktu.
+Namun, obatnya berbeda. Bahkan jika penyakit tersebut merusak tubuh hingga merusak bagian tubuh yang tidak berfungsi, obat yang dibuat melalui kombinasi tanaman obat dan 'Alkimia' dapat memungkinkan pemulihan sampai batas tertentu seiring waktu.
 
 Untuk pulih dari kehilangan penglihatan karena penyakit Mata Putih, obat tersebut membutuhkan ramuan berharga yang tidak dapat diperoleh di Zoltan serta 'Alkimia Tingkat Lanjut' ...
 
