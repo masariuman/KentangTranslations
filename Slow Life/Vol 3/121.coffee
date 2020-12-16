@@ -16,15 +16,13 @@ g"Tidak masalah. Selain itu, apakah Kamu memiliki penglihatan yang buruk dengan 
 
 Pria tua itu tertawa pahit dan mengusap kepalanya.
 
-"Jadi kamu menyadarinya. Yah, aku sudah tidak muda lagi. "
+"Jadi kamu menyadarinya. Yah, aku sudah tidak muda lagi."
 
-"Sebenarnya, Aku seorang apoteker. Aku punya obat untuk mata itu. "
+g"Sebenarnya, Aku seorang apoteker. Aku punya obat untuk mata itu. "
 
-"Hou… Aku bersyukur tapi bahkan sihir nona muda tidak bisa merawat mata ini. Aku ragu apakah obat dapat mengobatinya? "
+"Hou... Aku bersyukur tapi bahkan sihir nona muda tidak bisa menyembuhkan mata ini. Aku ragu apakah obat dapat mengobatinya?"
 
-Ini disebut obat karena mampu mengobati.
-
- 
+g"Ini disebut obat karena mampu mengobati."
 
 Perawatan dengan menggunakan sihir memang nyaman tetapi hanya memiliki efek menghilangkan penyebab penyakit. Dengan kata lain, meskipun bakteri penyebab penyakit dihilangkan, itu tidak akan mengobati jaringan yang dihancurkan oleh bakteri penyebab penyakit tersebut.
 
