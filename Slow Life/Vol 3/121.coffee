@@ -46,33 +46,23 @@ Bisikan lembut kekaguman keluar dari bibir pria tua itu.
 
 "Mengapa kita berbicara sambil berdiri, masuklah."
 
-Orang tua itu berkata dan mengundang Aku masuk.
+Orang tua itu mengajakku masuk.
 
 ☆☆
 
- 
-
 "Oke, Aku mengerti, Aku akan membelinya."
 
- 
+Setelah lelaki tua itu menerima penjelasan rinci tentang obat itu, dia mengangguk dan mengambil obat yang Aku berikan kepadanya dan membayar 40 koin perak Peryl.
 
-Setelah lelaki tua itu menerima penjelasan rinci tentang obat itu, dia mengangguk dan mengambil obat yang Aku berikan kepadanya dan membayar 40 koin perak Peril Peril.
+untuk memastikannya lagi, Aku menjelaskan metode penggunaan obat secara detail sekali lagi.
 
-Hanya untuk memastikan, Aku menjelaskan metode penggunaan obat secara detail sekali lagi.
+g"Aku akan membawa lebih banyak jika Kamu selesai menggunakannya, jadi mohon pertimbangkan untuk membelinya lagi."
 
- 
-
-"Aku akan memberikan lebih banyak jika Kamu selesai menggunakannya, jadi mohon pertimbangkan untuk membelinya lagi."
-
-"Baiklah terima kasih. Penjual bahkan tidak datang ke sini jadi kami biasanya harus merepotkan wanita muda untuk membeli untuk kami. "
-
- 
+"Baiklah terima kasih. Penjual bahkan tidak datang ke sini jadi kami biasanya harus merepotkan nona muda untuk membelinya untuk kami."
 
 Mistome-shi adalah tokoh utama di Zoltan. Dia juga memiliki banyak aset.
 
 Dan dia menyebutkan bahwa dia dulu mencari nafkah dengan mengolah daging dan kulit yang diperoleh dari berburu binatang dan monster di hutan ini.
-
- 
 
 "Ngomong-ngomong, apakah orang itu ada yang membuatmu sakit?"
 
