@@ -34,33 +34,19 @@ Namun, obatnya berbeda. Bahkan jika penyakit tersebut merusak tubuh hingga merus
 
 Untuk pulih dari kehilangan penglihatan karena penyakit Mata Putih, obat tersebut membutuhkan ramuan berharga yang tidak dapat diperoleh di Zoltan serta 'Alkimia Tingkat Lanjut' ...
 
- 
-
-"Saya yakin saraf di mata Kamu telah terluka. Bidang pandangmu semakin kecil, benar kan? "
+g"aku yakin saraf di matamu telah terluka. pandangmu semakin kecil, benar kan?"
 
 "Ya itu benar."
 
- 
-
 Aku mengeluarkan botol kecil dengan obat di dalamnya.
 
- 
+g"Jika Kamu menggunakan obat mata ini, itu bisa memperbaiki gejala sampai tingkat tertentu dan menunda perkembangan gejala di masa depan. Meskipun pemulihan tidak mungkin bisa seluruhnya, Kamu masih dapat melihat seperti orang biasa selama 10 tahun lagi."
 
-"Jika Kamu menggunakan obat mata ini, itu harus memperbaiki gejala sampai tingkat tertentu dan menunda perkembangan gejala di masa depan. Meskipun pemulihan total tidak mungkin, Kamu harus dapat melihat seperti orang biasa selama 10 tahun lagi. "
-
- 
-
-Bisikan lembut kekaguman keluar dari bibir pria tua itu.
-
- 
+Bisikan lembut kekaguman keluar dari bibir pria tua itu. 
 
 "Mengapa kita berbicara sambil berdiri, masuklah."
 
- 
-
 Orang tua itu berkata dan mengundang Aku masuk.
-
- 
 
 ☆☆
 
