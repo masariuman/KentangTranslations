@@ -8,19 +8,17 @@ g"Ah, erm, haa~~~."
 
 Dan entah kenapa, Aku akhirnya menjadi fasilitator. Aku benar-benar orang luar sehubungan dengan perselisihan keluarga Veronia tetapi Aku tidak punya pilihan karena mereka berdua tidak berbicara.
 
-"Jadi, untuk persyaratan kami dalam memberikan grasi kepada Misufia dan penolakan kami untuk menyerahkan catatan Gereja, Aku yakin Kamu dapat menerimanya karena mereka tidak membantu Pangeran Sarius dengan cara apa pun?"
+"gJadi, untuk persyaratan kami dalam memberikan pengampunan kepada Misufia dan penolakan kami untuk menyerahkan catatan Gereja, Aku yakin Kamu dapat menerimanya karena mereka tidak membantu Pangeran Sarius dengan cara apa pun?"
 
-"Aku tidak pernah bermaksud untuk mengizinkan Yang Mulia mendapatkan buku besar Gereja sejak awal. Untuk kasus Misufia, katakanlah itu ditunda untuk saat ini. "
+"...Aku tidak pernah bermaksud untuk mengizinkan Yang Mulia mendapatkan Catatan Gereja sejak awal. Untuk kasus Misufia, bisa dikatakan itu ditunda untuk saat ini."
 
-"Itu membantu. Zoltan mungkin tidak menginginkan yang lebih dari itu. Selanjutnya, bagaimana kita akan memberitahu Pangeran Sarius dan membuatnya menyerah… "
+g"Itu sangat membantu. Zoltan mungkin tidak menginginkan lebih dari itu. Selanjutnya, bagaimana kita akan memberitahu Pangeran Sarius dan membuatnya menyerah..."
 
-"Secara alami ada batasan waktu untuk dia bisa tetap di Zoltan. Dia juga memiliki banyak pekerjaan yang harus dilakukan di Veronia. "
+"Secara alami ada batasan waktu untuk dia bisa tetap di Zoltan. Dia juga memiliki banyak pekerjaan yang harus dilakukan di Veronia."
 
-"Kalau begitu, tidak akan ada masalah jika kita terus menyembunyikan Misufia-san dan melewati batas waktu itu. Selanjutnya, masalah di pihak Kamu adalah suksesi Pangeran Sarius dan jika tidak memungkinkan, bagaimana mempertahankan pengaruh Pangeran Sarius di istana setelah pihak Leonor naik tahta. "
+"Kalau begitu, tidak akan ada masalah jika kita terus menyembunyikan Misufia-san dan melewati batas waktu itu. Selanjutnya, masalah di pihakmu adalah mensukseskan Pangeran Sarius dan jika tidak memungkinkan, bagaimana mempertahankan pengaruh Pangeran Sarius di istana setelah pihak Leonor naik tahta."
 
- 
-
-Setelah masalah suksesi takhta selesai, kehadiran Misufia akan memiliki kegunaan yang lebih rendah di kedua kubu. Itu cara terbaik untuk mengatasi masalah ini.
+Setelah masalah takhta selesai, kehadiran Misufia akan memiliki kegunaan yang lebih rendah di kedua kubu. Itu cara terbaik untuk mengatasi masalah ini.
 
 Tapi sejujurnya, mendapatkan tahta itu cukup sulit. Aku tidak tahu keadaan pengadilan Kerajaan Veronia jadi Aku tidak bisa mengatakan fakta tetapi lawan suksesi mereka memiliki hak yang lebih besar, kekuatan politik yang lebih kuat dan memiliki ratu saat ini di belakangnya, barisan yang sempurna.
 
