@@ -86,101 +86,65 @@ Itu berarti pihak lain telah bergerak. Karena kami telah menyelesaikan pengumpul
 
 Itulah alasan mengapa aku tidak meninggalkan Tise di mansion ketika kami pergi untuk mencari Mistome tetapi tidak berjalan sesuai rencana.
 
- 
+g"Yah, itu bukan masalah besar tapi aku tidak bisa santai mengetahui ada pria lain yang tinggal di rumah Ruti."
 
-"Yah, itu bukan masalah besar tapi aku tidak bisa santai mengetahui ada pria lain yang tinggal di rumah Ruti."
+r" ... benarkah?"
 
-" … Apakah begitu?"
-
- 
-
-Ruti sedikit menunduk dan menyeringai.
+Ruti sedikit menunduk dan tersenyum.
 
 Aku akhirnya ditertawakan, apakah Aku terlalu protektif?
 
-Aku batuk dan mengatur ulang pikiran Aku sebelum melanjutkan.
+Aku batuk dan mengatur ulang pikiranku sebelum melanjutkan.
 
- 
-
-"Jadi menurutmu mengapa mereka tidak pernah datang untuk mengambilnya?"
-
- 
+g"Jadi menurutmu mengapa mereka tidak pernah datang untuk menyelamatkannya?"
 
 Tatapan Ruti sedikit menunduk. Begitulah gerak tubuh Ruti saat berpikir.
 
- 
+r"Aku tidak tahu. Mereka pikir itu jebakan? "
 
-"Aku tidak tahu. Mereka pikir itu jebakan? "
+Para tawanan yang kami tangkap dibiarkan sendiri tanpa penjaga. Bagi musuh, itu mungkin tampak seperti jebakan di mana kami tiba-tiba membuka gerbang ke istana kami.
 
- 
+Untuk High-Elf seperti Ririnrara yang hidup tiga kali lebih lama dari manusia, melawan orang-orang seperti kami yang memiliki kekuatan yang lebih kuat, bahkan jika para pembunuh bayaran ditangkap dan digunakan sebagai kartu negosiasi sebagai tawanan, itu hanya sarana baginya. untuk mengamati tindakan kami dan dia mungkin tidak berniat menyelamatkan mereka.
 
-Para tawanan perang yang kami tangkap dibiarkan sendiri tanpa penjaga. Bagi musuh, itu mungkin tampak seperti tipu muslihat di mana kami tiba-tiba membuka gerbang ke kastil kami.
+Tentu saja, ia mengakui keunggulan Ruti atau Tise di mana mereka bisa sendirian menguasai kapal.
 
-Untuk High-Elf seperti Ririnrara yang hidup tiga kali lebih lama dari manusia, melawan orang-orang seperti kita yang memiliki kekuatan militer yang lebih kuat, bahkan jika para assassin ditangkap dan digunakan sebagai kartu negosiasi sebagai tawanan perang, itu hanya sarana baginya. untuk mengamati tindakan kami dan dia mungkin tidak berniat mendapatkannya kembali.
+g"Ririnrara mungkin akan lebih berhati-hati jadi mungkin perlu waktu sebelum kita melihat tindakan apapun dari pihak mereka."
 
-Tentu saja, ia mengakui keunggulan Ruti atau Tise di mana mereka bisa sendiri menguasai kapal.
+r"Ya, menurutku juga begitu."
 
- 
+g"Jika terus begini, ini akan dibahas di negosiasi berikutnya."
 
-"Ririnrara mungkin akan lebih berhati-hati jadi mungkin perlu waktu sebelum kita melihat tindakan apapun dari pihak mereka."
-
-"Ya, menurutku juga begitu."
-
-"Jika terus begini, ini akan dibahas di tabel negosiasi berikutnya."
-
- 
-
-Membujuk gereja untuk menyerahkan daftar gereja. Itulah alasan mereka biasa menetapkan tanggal negosiasi berikutnya.
+Membujuk gereja untuk menyerahkan catatan gereja. Itulah alasan mereka menetapkan tanggal negosiasi berikutnya.
 
 Kemudian, kami akan bernegosiasi dengan Tise yang bertindak sebagai negosiator utama dan menyelesaikan pertanyaan yang tersisa sebelum melanjutkan ke penyelesaian akhir untuk kasus ini.
 
-Dengan kemungkinan identitas Ruti sebagai Pahlawan akan terungkap, kali ini dia mungkin akan mengenakan baju besi dan siaga di belakang Tise seperti sebelumnya. Apalagi, dia buruk dengan kata-kata.
+Dengan kemungkinan identitas Ruti sebagai Pahlawan akan terungkap, kali ini dia mungkin akan mengenakan baju besi dan siaga di belakang Tise seperti sebelumnya. Apalagi, dia buruk dalam berbicara.
 
- 
-
-"Pangeran Sarius akan segera menanyakan jawaban. Ada orang di pihaknya yang ingin mengulur waktu juga. Kami memiliki keuntungan dalam negosiasi. "
-
- 
+g"Pangeran Sarius akan segera meminta jawaban. Ada orang di pihaknya yang ingin mengulur waktu juga. kita memiliki keuntungan dalam negosiasi. "
 
 Meski demikian, Ruti memiliki penilaian yang sangat baik. Dia tidak melawan Tentara Raja Iblis hanya dengan kemampuan dari perlindungan ilahi.
 
 Itu sebabnya Aku merasa nyaman menyerahkan kasus ini kepada Ruti.
 
- 
+g"Aku akan membantu jika ada yang kamu butuhkan tetapi kalian berdua mungkin akan baik-baik saja, aku mempercayakan Zoltan kepada kalian berdua."
 
-"Aku akan membantu jika ada yang kamu butuhkan tetapi kalian berdua mungkin akan baik-baik saja, aku mempercayakan Zoltan kepada kalian berdua."
-
-"Serahkan padaku."
-
- 
+r"Serahkan padaku."
 
 Ruti mengangguk pada kata-kataku dan dia terlihat sangat bisa diandalkan.
 
- 
-
 ☆☆
-
- 
 
 Di sebuah ruangan di kapal perang Veronia.
 
 High-Elf Ririnrara, yang pernah ditakuti oleh berbagai negara sebagai pemimpin dari Bajak Laut Peri, masih memiliki ekspresi wajah yang sulit untuk merusak kecantikannya.
 
- 
+"mereka berdua masih tidak terluka."
 
-Keduanya masih tidak terluka.
+Ketika dia menerima laporan bahwa dua pengikut tepercaya yang dia kirim sebagai pembunuh bayaran telah ditangkap oleh petualang bernama Tifa, bahkan Ririnrara tidak dapat menahan emosinya yang kesal.
 
- 
+Keduanya, terutama dalam perkelahian di antara sejumlah kecil, talenta terbaik di Veronia. Bahkan jika lawannya adalah petualang peringkat A, mereka seharusnya tidak akan kalah begitu saja.
 
-Ketika dia menerima laporan bahwa dua pengikut tepercaya yang dia kirim sebagai pembunuh telah ditangkap oleh petualang bernama Tifa, bahkan Ririnrara tidak dapat menahan emosinya yang kesal.
-
-Keduanya, terutama dalam perkelahian di antara sejumlah kecil, talenta terbaik di Veronia. Bahkan jika lawannya adalah petualang peringkat A, mereka seharusnya tidak tertinggal terlalu jauh.
-
- 
-
-(Mereka terus terkurung di mansion itu… Aku khawatir dengan keselamatan mereka tapi siapa petualang Tifa itu?)
-
- 
+(Mereka terus terkurung di mansion itu... Aku khawatir dengan keselamatan mereka tapi siapa petualang Tifa itu?)
 
 Informasi tentang dua petualang Tifa dan Ruru yang dia kumpulkan dari Zoltan beberapa hari ini benar-benar tidak bisa diandalkan.
 
