@@ -50,51 +50,35 @@ g"Hm?"
 
 High-Elf yang ditangkap oleh Ruti dan Tise mengeluh kepadaku saat aku sedang merenung.
 
-Mungkin lukanya sedikit terbuka saat aku menggerakkannya saat perban yang melilit Ririnrara sudah basah kuyup.
+Mungkin lukanya sedikit terbuka saat aku menggerakkannya karena perban yang melilit Ririnrara sudah basah kuyup.
 
- 
-
-"Meminta Aku untuk perawatan cukup tidak masuk akal mengingat kalian adalah orang-orang yang menyerang Aku."
-
- 
+g"Memintaku untuk perawatan cukup tidak masuk akal mengingat kalian adalah orang-orang yang menyerangku."
 
 Aku menjawab dengan nada yang sedikit tajam.
 
-Tidak ada kejadian karena perbedaan kemampuan tetapi yang mereka lakukan adalah penculikan melalui kekerasan.
+Tidak ada insiden karena perbedaan kemampuan tetapi yang mereka lakukan adalah penculikan melalui kekerasan.
 
- 
+g"Aku telah memberikan pengobatan. dan juga, dengan kekuatan hidup High-Elf dan level perlindungan ilahi yang tinggi, dia mungkin tidak akan merasakan efek samping apapun."
 
-"Aku telah menerapkan pengobatan. Lebih jauh lagi, dengan kekuatan hidup High-Elf dan level divine protection yang tinggi, dia mungkin tidak akan merasakan efek samping apapun. "
+"Perlakuan terhadap tawanan adalah perjanjian antara Avalonia dan Veronia!"
 
-Perlakuan terhadap tawanan perang adalah perjanjian antara Avalonia dan Veronia!
+g"Ini bukan Kerajaan Avalonia tapi Republik Zoltan. Ini mungkin Negara Kota tetapi independen. dan juga, kalian yang menyerang tanpa deklarasi perang tidak mengidentifikasi diri kalian sebagai angkatan laut. Aku memperlakukan kalian sebagai penjahat yang mencoba menculik."
 
-"Ini bukan Kerajaan Avalonia tapi Republik Zoltan. Ini mungkin Negara Kota tetapi independen. Selanjutnya, kalian yang menyerang tanpa deklarasi perang tidak mengidentifikasi diri kalian sebagai angkatan laut. Aku memperlakukan kalian sebagai penjahat yang mencoba menculik. "
+"Guh, itu benar tapi..."
 
-"Guh, benar tapi…"
+haaa~~.
 
- 
-
-Sungguh.
-
- 
-
-"... Brengsek, Kamu memiliki mantan afiliasi militer?"
-
- 
+"... Brengsek, Kamu mantan militer?"
 
 Aku mengerutkan kening tanpa sadar mendengar kata-kata Ririnrara.
 
-Aku mengacaukannya. Meskipun Aku tidak percaya identitas Aku akan terungkap hanya dengan itu.
+Aku mengacaukannya. Meskipun Aku tidak percaya identitasku akan terungkap hanya dengan itu.
 
- 
+"Apakah Kamu seorang perwira dari suatu tempat yang membuat masalah atau kalah dalam perebutan kekuasaan? Kalau begitu, Aku bisa menjadikanmu, adik perempuanmu dan rekannya menjadi petugas yang ditugaskan di Veronia, bagaimana?"
 
-"Apakah Kamu seorang perwira dari suatu tempat yang membuat masalah atau tersesat dalam perebutan kekuasaan? Kalau begitu, bagaimana? Aku bisa menjadikanmu, adik perempuanmu dan rekannya menjadi petugas yang ditugaskan di Veronia. "
-
-"Aku menolak. Itu tidak akan berhasil, jadi menyerahlah. "
+g"Aku menolak. Itu tidak akan berhasil, jadi menyerahlah. "
 
 "Begitu, sepertinya tidak ada ruang untuk negosiasi."
-
- 
 
 Ririnrara bergerak sambil menahan dan mendapatkan kembali posturnya.
 
