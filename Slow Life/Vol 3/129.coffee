@@ -56,41 +56,27 @@ Namun, kata-kata Ruti mungkin benar-benar menangkap inti dari situasinya... Aku 
 
 Mistome-shi, atau lebih tepatnya Misufia, meninggalkan Ririnrara dan Pangeran Sarius 50 tahun yang lalu dan melarikan diri.
 
-Itu disebabkan oleh intrik Leonor tapi pemikiran macam apa yang mereka berdua miliki selama 50 tahun terakhir saat mereka tetap di Kerajaan Veronia.
+Itu disebabkan oleh Leonor tapi pemikiran macam apa yang mereka berdua miliki selama 50 tahun terakhir saat mereka tetap di Kerajaan Veronia.
 
-Tampak belakang Misufia menjadi lebih kecil saat dia perlahan menuruni tangga selangkah demi selangkah.
-
- 
+Misufia menjadi lebih kecil saat dia perlahan menuruni tangga selangkah demi selangkah.
 
 Misufia menghembuskan napas dalam-dalam setelah sampai di depan pintu ruang bawah tanah.
 
- 
-
 "Ririnrara ada di balik pintu ini?"
 
-"Iya. Aku tidak memberitahunya bahwa Kamu akan bertemu dengannya. Tapi Aku memisahkannya dari tahanan lain. "
-
- 
+g"Iya. Aku tidak memberitahunya bahwa Kamu akan bertemu dengannya. Tapi Aku memisahkannya dari tahanan lain. "
 
 Aku memindahkan tiga tahanan lainnya ke ruangan lain di lantai pertama dan meminta Tise dan Ugeuge-san mengawasi mereka.
 
-Berbeda dengan basement, ada banyak rute pelarian di lantai pertama tapi aku tidak perlu khawatir dengan mereka berdua yang berjaga.
+Berbeda dengan Ruangan Bawah Tanah, ada banyak rute pelarian di lantai pertama tapi aku tidak perlu khawatir dengan mereka berdua karena dijaga tise.
 
- 
-
-"Apakah kamu baik-baik saja? Kamu masih bisa kembali ke sini. "
-
- 
+l"Apakah kamu baik-baik saja? Kamu masih bisa kembali."
 
 Lit bertanya pada Misufia dengan cemas.
 
 Ekspresi Misufia menjadi kabur selama sepersekian detik tapi dia menggelengkan kepalanya seolah untuk mengusir keraguannya dan tersenyum.
 
- 
-
 "Terima kasih, tapi aku harus bertemu dengannya."
-
- 
 
 Misufia menjawab saat dia menyentuh pintu dan perlahan membukanya.
 
