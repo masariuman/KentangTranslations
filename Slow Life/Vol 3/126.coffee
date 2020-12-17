@@ -190,21 +190,13 @@ Kami berdua berkata dengan tangan terangkat dan kami tertawa bersama.
 
 Itu adalah rutinitas biasa.
 
- 
-
 ☆☆
 
- 
+Sebelum tengah hari, Apotek Merah dan Lit.
 
-Sebelum tengah hari, Apoteker Merah dan Lit.
+g"Aku berangkat."
 
- 
-
-"Aku berangkat."
-
-"Hati hati."
-
- 
+l"Hati hati dijalan."
 
 Setelah Red bertukar kata dengan Lit, dia meninggalkan toko dengan membawa tas berisi obat.
 
@@ -212,50 +204,28 @@ Dia sedang dalam perjalanan untuk mengantarkan obat ke Newman.
 
 Lit sekarang sendirian dan merasa kesepian, jadi dia memutuskan untuk mencuci cangkir teh yang biasa mereka minum bersama barusan.
 
- 
+『Crang』
 
-『Pikin』
+l"Eh?"
 
- 
-
-"Eh?"
-
- 
-
-Suara itu berasal dari cangkir teh Red. Pada pemeriksaan lebih dekat, ada retakan di cangkir teh kayu.
+Suara itu berasal dari cangkir teh Red. Ketika dilihat lebih dekat, ada retakan di cangkir teh kayu.
 
 Itu ada di sana meskipun tidak dijatuhkan. Lit mengambil cangkir teh Red dan memeriksanya.
 
- 
+l"Itu retak meskipun hanya berdiam di situ."
 
-"Itu retak meskipun hanya duduk di sana."
+Sebuah celah besar mengalir melalui cangkir teh sehingga tidak mungkin untuk menyeduh teh seperti sebelumnya.
 
- 
-
-Sebuah celah besar mengalir melalui cangkir teh sehingga tidak mungkin untuk menahan teh seperti sebelumnya.
-
- 
-
-"Merah."
-
- 
+l"red."
 
 Lit mengingat sosok Red saat dia pergi dan mengerutkan kening.
 
 Lalu, dia menutup matanya.
 
- 
+l"Perbaikan Kayu."
 
-Perbaikan Kayu.
+Lit membuat segel sihir sambil memiliki gambaran mental dari bentuk aslinya dan cangkir teh kayu di tangannya telah pulih sepenuhnya.
 
- 
+l"sekarang sudah bagus!"
 
-Lit membuat segel ajaib sambil memiliki gambaran mental dari bentuk aslinya dan cangkir teh kayu di tangannya telah pulih sepenuhnya.
-
- 
-
-"Tidak apa-apa sekarang!"
-
- 
-
-Suasana hati Lit sedang bagus saat dia bersenandung dan berjalan ke dapur dengan cangkir di tangan.
+Suasana hati Lit sedang bagus dan dia bersenandung dan berjalan ke dapur dengan cangkir di tangan.
