@@ -62,55 +62,33 @@ Kami saling menatap dan wajah kami memerah.
 
 Lit menutup matanya untuk menyembunyikan rasa malunya dan mematuk dahiku sebelum menjauh.
 
- 
+l"Ya-ya, mungkin Ruti dan Tise!"
 
-“Ya-ya, mungkin Ruti dan Tise!"
-
-“Ya-ya, kami benar-benar ketiduran! Aku akan segera menyiapkan sarapan! "
-
- 
+g"Ya-ya, kita benar-benar ketiduran! Aku akan segera menyiapkan sarapan! "
 
 Aku meninggalkan ruangan dengan terburu-buru.
 
 Aku harus menyambut Ruti dan Tise dulu.
 
- 
-
-"Aku datang!"
-
- 
+g"Aku datang!"
 
 Aku pindah ke pintu masuk toko sambil memanggil.
 
-Aku menyentuh dahi Aku dengan jari Aku saat Aku berjalan.
+Aku menyentuh dahiku dengan jariku saat Aku berjalan.
 
- 
+g"Baiklah, aku akan bekerja keras hari ini."
 
-“Baiklah, aku akan bekerja keras hari ini."
-
- 
-
-Aku merasakan senyuman di wajah Aku sekali lagi saat Aku akan memulai hari Aku.
-
- 
+Aku merasakan senyuman di wajahku sekali lagi saat Aku akan memulai hari Aku.
 
 ☆☆
 
- 
-
-“Nah, apa yang harus Aku buat dalam waktu singkat."
-
- 
+g"Nah, apa yang harus Aku buat dalam waktu singkat."
 
 Pikirku dengan tangan disilangkan saat aku berdiri di dapur.
 
 Oven tidak dipanaskan jadi butuh waktu untuk memanggang roti. Aku juga tidak punya waktu untuk membuat sup.
 
- 
-
-"Hmm, kalau begitu."
-
- 
+g"Hmm, kalau begitu."
 
 Aku menyalakan api dan menyiapkan roti, bawang, tomat, keju, ham, dan mentega.
 
@@ -118,35 +96,21 @@ Memotong roti dengan cara yang sama seperti saat membuat sandwich, Aku menempatk
 
 Aku menyelipkannya di antara roti dan menaruhnya di atas wajan dengan mentega cair. Kemudian, Aku menekannya dari atas dengan panci kecil.
 
-Aroma dari roti panggang membuat tubuh Aku yang mengantuk semakin lapar tapi Aku menahannya sedikit lebih lama.
+Aroma dari roti panggang membuat tubuhku yang mengantuk semakin lapar tapi Aku menahannya sedikit lebih lama.
 
- 
-
-“Ini sudah cukup."
-
- 
+g"Ini sudah cukup."
 
 Setelah Aku memanggang roti menjadi cokelat keemasan, Aku memotongnya secara diagonal dengan pisau dapur dan sandwich panasnya selesai.
 
 Aku menuangkan sedikit keju leleh pada bagian yang dipotong.
 
- 
-
-“Sekarang, aku akan memanggang sandwich yang tersisa."
-
- 
+g"Sekarang, aku akan memanggang sandwich yang tersisa."
 
 Aku terus memasak dengan cepat demi perut lapar semua orang, termasuk perutku sendiri.
 
- 
-
 ☆☆
 
- 
-
 "" "" Terima kasih untuk makanannya! "" ""
-
- 
 
 Aku, Lit, Ruti, dan Tise, mengelilingi meja, berkata sebelum kami mulai makan sandwich panas.
 
@@ -154,45 +118,31 @@ Ugeuge-san meletakkan kaki depannya bersama dengan ngengat yang ditangkap di dep
 
 Seekor laba-laba dengan sopan santun.
 
- 
-
-“Mufu ~!"
-
- 
+l"Mufu ~!"
 
 Lit menarik dan mengulurkan keju dari sandwich panas yang dia makan.
 
 Dia membungkus sandwich panas dengan keju dan menggigit lagi.
 
-Dia mengonsumsinya dengan cara yang sangat enak.
+Dia mengonsumsinya dengan gaya menandakan seakan makanannya sangat enak.
 
-Tise tampaknya telah membagi sandwich panas dengan pisau dan memakannya dengan garpu.
+Tise tampaknya telah membelah sandwich panas dengan pisau dan memakannya dengan garpu.
 
 Tidak ada perubahan dalam ekspresinya tetapi menilai dari kecepatan makannya, dia sepertinya menyukainya.
 
- 
-
 Ruti memandang mereka berdua dan memiringkan kepalanya sambil berpikir.
 
- 
+g"Ruti?"
 
-"Ruti."
+r"Em, Onii-chan, bagaimana cara makan ini?"
 
-“Em, Onii-chan, bagaimana cara makan ini?"
+g"Aku akan senang jika Ruti memakannya dengan cara apapun yang Ruti suka."
 
-“Saya akan senang jika Ruti memakannya dengan cara apapun yang Ruti suka."
-
-"Aku melihat."
-
- 
+r"begitu..."
 
 Ruti menatap sandwich panas itu dengan saksama.
 
- 
-
-"Hamu."
-
- 
+r"Hamu."
 
 Dia memilih untuk memakannya dengan tangannya seperti Lit.
 
@@ -200,27 +150,19 @@ Wajah Ruti berseri saat sandwich panas menyentuh mulutnya.
 
 ☆☆
 
- 
+Ruti, Tise, dan Ugeuge-san kembali ke Kebun Tanaman obat mereka sementara Lit dan aku mulai menyiapkan toko.
 
-Ruti, Tise, dan Ugeuge-san kembali ke perkebunan rumput obat mereka sementara Lit dan aku mulai menyiapkan toko.
+l"Cepatlah, kita tidak akan tepat waktu untuk membuka toko."
 
- 
+g"Oh benar, hari ini adalah hari untuk mengantarkan obat ke tempat Newman!"
 
-"Cepatlah, kita tidak akan datang tepat waktu untuk membuka toko."
+l"Kalau begitu aku akan mengurus etalase jadi Red tolong selesaikan itu!"
 
-“Oh benar, hari ini adalah hari untuk mengantarkan obat ke tempat Newman!"
-
-"Kalau begitu aku akan mengurus etalase jadi Red tolong selesaikan sisi itu!"
-
-"Terima kasih!"
-
- 
+g"Terima kasih!"
 
 Aku berada di gudang dengan sebuah memo di satu tangan saat Aku mengemas obat yang dipesan dengan tangan Aku yang lain.
 
- 
-
-“Kami keluar dari Rumput Tanaman di gudang dengan ini. Aku ingin tahu apakah kita masih memiliki beberapa di taman. "
+"Kami keluar dari Rumput Tanaman di gudang dengan ini. Aku ingin tahu apakah kita masih memiliki beberapa di taman. "
 
  
 
@@ -230,7 +172,7 @@ Karena kenaikan penjualan baru-baru ini, stok obat dengan cepat menghilang.
 
  
 
-“Terakhir, obat antipiretik demam tinja. Baiklah, itu saja. "
+"Terakhir, obat antipiretik demam tinja. Baiklah, itu saja. "
 
  
 
@@ -238,7 +180,7 @@ Aku memastikan kembali obat yang dikemas untuk terakhir kalinya. Tidak ada kesal
 
  
 
-“Baiklah, Lit! Aku sudah selesai di sini, Aku akan membantumu! "
+"Baiklah, Lit! Aku sudah selesai di sini, Aku akan membantumu! "
 
 "Kalau begitu tolong bantu untuk memeriksa perubahannya!"
 
@@ -252,9 +194,9 @@ Tugas yang sibuk segera diselesaikan dan entah bagaimana kami menyelesaikannya d
 
  
 
-“Baiklah, hari ini juga."
+"Baiklah, hari ini juga."
 
-“Kami akan melakukan yang terbaik ~"
+"Kami akan melakukan yang terbaik ~"
 
  
 
@@ -290,7 +232,7 @@ Lit sekarang sendirian dan merasa kesepian, jadi dia memutuskan untuk mencuci ca
 
  
 
-“Eh?"
+"Eh?"
 
  
 
