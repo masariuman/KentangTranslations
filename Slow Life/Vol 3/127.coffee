@@ -106,29 +106,19 @@ Saat aku berbalik, aku menghunus pedangku dan menebas punggung Ririnrara tapi Ri
 
 Suara logam bertabrakan memenuhi area itu.
 
- 
-
 Melihat pola sihir yang muncul dari pedang Ririnrara, aku secara naluriah melompat mundur.
-
- 
 
 "Muraa!"
 
- 
-
 Wajah Ririnrara terlihat penuh kemenangan.
 
-Bilah angin tumpah keluar dari bilahnya dan menyerangku.
+Bilah angin keluar dari bilahnya dan menyerangku.
 
-Aku segera melemparkan mantel di punggung Aku padanya.
+Aku segera melemparkan mantel di punggungku padanya.
 
-Pisau angin merobek mantel Aku menjadi serpihan, tetapi kain yang kokoh mengurangi kekuatan bilah angin dan memudar.
+Pisau angin merobek mantelku menjadi serpihan, tetapi kain yang kokoh mengurangi kekuatan bilah angin dan memudarkannya.
 
- 
-
-"Sigh, aku suka mantel itu."
-
- 
+g"haa~~ aku suka mantel itu."
 
 Mantel yang jatuh ke tanah tidak bisa lagi digunakan.
 
@@ -138,39 +128,25 @@ Aku tidak bisa menangkis mereka semua ya? Akan berbahaya menggunakan pedang itu 
 
 Ririnrara melihat kondisiku dan sebuah senyuman muncul di wajahnya.
 
- 
+"skill yang hebat. Aku tidak tahu perlindungan ilahi apa yang ada di tubuh itu tetapi kamu tidak menggunakan seni bela diri atau sihir dan Aku tidak merasakan skill apapun. kamu adalah pria yang luar biasa dan tak terduga... tapi, ada perbedaan yang tak tertandingi dalam senjata kami."
 
-"Itu keahlian. Aku tidak tahu perlindungan ilahi apa yang ada di tubuh itu tetapi Anda tidak menggunakan seni bela diri atau sihir dan Aku tidak merasakan keterampilan yang terlihat. Anda adalah pria yang luar biasa dan tak terduga… tapi, ada perbedaan yang tak tertandingi dalam perlengkapan kami. "
+g"yaah itu adalah item sihir High-Elf juga."
 
-"Lagipula itu adalah item sihir High-Elf."
+Harganya sekitar seribu kali pedang tembagaku. Atau mungkin lebih?
 
- 
-
-Harganya sekitar seribu pedang tembaga Aku. Atau mungkin lebih?
-
-Perbedaan peralatan sangat jelas. Terlebih lagi, Ririnrara bukan hanya seorang bajak laut terkenal, tapi teknik pedangnya juga lebih hebat dari yang kuharapkan ... dia sebanding dengan Kapten yang mengajariku pedang.
+Perbedaan senjata sangat jelas. Terlebih lagi, Ririnrara bukan hanya seorang bajak laut terkenal, tapi teknik pedangnya juga lebih hebat dari yang kuharapkan ... dia sebanding dengan Kapten yang mengajariku pedang.
 
 Dengan kata lain, dia lebih kuat dari Aku ketika Aku bepergian ke ibukota.
 
- 
-
-"Yah, aku tidak bisa melawan dan menyerahkannya pada adik perempuanku dan Tise atau aku bisa melarikan diri ke pos penjaga."
-
- 
+g"Yah, aku tidak bisa melawan dan menyerahkannya pada adik perempuanku dan Tise atau aku mungkin bisa melarikan diri ke pos penjaga."
 
 Aku memegang pedang dengan tangan kananku dan dengan ringan menarik kaki kiriku ke belakang.
 
- 
-
-"Aku tidak benar-benar ingin berpartisipasi secara aktif dalam hal ini, Aku tidak mengharapkan pujian, Aku juga tidak membenci Anda semua karena mengancam perdamaian Zoltan."
-
- 
+g"Aku tidak benar-benar ingin berpartisipasi secara aktif dalam hal ini, Aku tidak mengharapkan pujian, Aku juga tidak membenci kalian semua karena mengancam perdamaian Zoltan."
 
 Ruti dan Tise mungkin bisa mengalahkannya dengan lebih mudah.
 
 Sebagai apoteker belaka, tidak ada alasan bagiku untuk bertarung seperti ini.
-
- 
 
 "Tapi bagaimana mengatakan ini… aku tidak ingin memaksakan masalah yang bisa aku selesaikan sendiri kepada adik perempuanku."
 
