@@ -154,63 +154,45 @@ Memanfaatkan mentalitas warga dan bangsawan, Leonor menciptakan situasi di mana 
 
 Bahkan membunuh Misufia dan membawanya kembali akan menjadi kesempatan bagi Leonor untuk memanfaatkannya melalui kontrol sistemnya yang menyeluruh. Secara politik Ririnrara dikalahkan sehingga sulit baginya untuk melindungi Pangeran Sarius.
 
- 
-
-"Tapi kematian Geyserik semakin dekat dan akhirnya saatnya untuk mempertimbangkan masalah warisan takhta Veronia."
-
- 
+g"Tapi kematian Geyserik semakin dekat dan akhirnya saatnya untuk mempertimbangkan masalah warisan takhta Veronia."
 
 Ririnrara menanggapi kata-kataku dengan tatapan tajam.
 
- 
+g"... Tapi situasi ini tidak lebih dari kebutuhan yang tidak menyenangkan bagimu? Karena Pangeran Sarius dan Misufia-san tidak terikat oleh darah. Jika itu bisa diselesaikan dengan memanggil kembali Misufia, Kamu pasti sudah melakukannya sejak lama. "
 
-"… Tapi situasi ini tidak lebih dari kebutuhan yang tidak menyenangkan bagimu? Karena Pangeran Sarius dan Misufia-san tidak terikat oleh darah. Jika itu bisa diselesaikan dengan menelepon kembali Misufia, Kamu pasti sudah melakukannya sejak lama. "
+"Misufia... kau bahkan memberi tahu mereka sebanyak itu !!"
 
-"Misufia… kau bahkan memberi tahu mereka sebanyak itu !!"
-
-Orang-orang di sini adalah pahlawan yang bisa dipercaya.
-
- 
+"Orang-orang di sini adalah pahlawan yang bisa kupercaya."
 
 Misufia menjawab tanpa basa-basi tapi Ririnrara menggenggam tinjunya sampai jari-jarinya memutih dan gemetar.
-
- 
 
 "Jika ada yang membocorkannya, Sarius dan aku akan dihancurkan ... itu."
 
 "Ini bukanlah situasi yang bisa Aku selesaikan sendiri. Jika Aku ingin dipercaya oleh seseorang, Aku harus mempercayai pihak lain terlebih dahulu. Benar kan? "
 
-"Gu…"
-
- 
+"Gu..."
 
 Ririnrara kehilangan kata-kata. Dia menunjukkan ekspresi sedih hanya untuk sesaat.
 
 Hmm, bukankah itu reaksi berlebihan terhadap penalaran logis?
 
- 
-
-"Hn."
-
- 
+l"Hn."
 
 Lit yang ada di sampingku sepertinya juga menyadarinya. Kami saling memberi isyarat dengan mata kami dan dengan cermat mengamati ekspresi Ririnrara saat dia berbicara dengan Misufia.
 
 Ririnrara seharusnya menyembunyikan sesuatu.
 
- 
-
 "Percakapan ini hanya bisa terjadi karena aku memberi tahu Ruru-san dan yang lainnya tentang kita."
 
-"… Hmph."
+"...Hmph."
 
-"Sudah cukup topik ini? Jadi… Kamu ingin membunuh Aku untuk mencegah Aku berhubungan dengan Sarius. Pada awalnya, Kamu menyewa pembunuh tetapi Kamu gagal. Kamu datang ke Zoltan dengan Sarius karena Kamu menggunakan tujuan Sarius menemukan Aku sebagai front untuk langsung membunuh Aku tetapi Kamu tidak dapat menemukan Aku karena Aku meninggalkan Zoltan dan bersembunyi. Apakah Aku benar sampai saat ini? "
+"Sudah cukup topik ini? Jadi... Kamu ingin membunuhku untuk mencegah Aku bertemu dengan Sarius. Pada awalnya, Kamu menyewa pembunuh bayaran tetapi Kamu gagal. Kamu datang ke Zoltan dengan Sarius karena Kamu menggunakan tujuan Sarius menemukanku untuk langsung membunuhku tetapi Kamu tidak dapat menemukanku karena Aku meninggalkan Zoltan dan bersembunyi. Apakah Aku benar sampai saat ini?"
 
 "Hmph, itu benar."
 
 "Kalau begitu, kurasa itu pihak Leonor yang memberi tahu Sarius bahwa aku ada di Zoltan?"
 
-"… Ya, Aku lengah. Aku tidak berharap dia melakukan tindakan itu. Dia mungkin menyadarinya saat aku mengumpulkan informasi tentang Zoltan. "
+"... Ya, Aku lengah. Aku tidak berharap dia melakukan tindakan itu. Dia mungkin menyadarinya saat aku mengumpulkan informasi tentang Zoltan."
 
 Leonor hanya unggul dalam taktik politik.
 
