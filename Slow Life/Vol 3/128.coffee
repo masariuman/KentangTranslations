@@ -86,33 +86,23 @@ Bawahannya buru-buru mencoba membantu tapi kedua tangan mereka juga terikat sehi
 
 Aku duduk di lantai dan menunggu Ruti datang sambil memperhatikan mereka.
 
- 
+Akhirnya Ruti, Tise, dan Lit turun ke ruang bawah tanah. 
 
-Akhirnya Ruti, Tise, dan Lit turun ke ruang bawah tanah.
+g"Hn, Lit juga datang?"
 
- 
+l"Aku tidak ingin menjadi satu-satunya yang tertinggal."
 
-"Hn, Lit juga datang?"
+g"Aku berencana pulang setelah Ruti mengambil alih."
 
-"Aku tidak ingin menjadi satu-satunya yang tertinggal."
+r"Aku ingin Onii-chan juga tetap disini, jika tidak terlalu merepotkan..."
 
-"Aku berencana pulang setelah Ruti mengambil alih."
-
-"Aku ingin Onii-chan juga tinggal, jika tidak terlalu merepotkan…"
-
-Lihat, Ruti juga mengatakannya.
-
- 
+l"Lihat, Ruti juga mengatakannya."
 
 Aku lemah terhadap permintaan Ruti.
 
- 
+g"Baiklah. Lalu aku akan siaga di belakang Ruti kalau-kalau terjadi sesuatu."
 
-"Baiklah. Lalu aku akan siaga di belakang Ruti kalau-kalau terjadi sesuatu. "
-
-"Terima kasih."
-
- 
+r"Terima kasih."
 
 Ruti menjawab dengan senang.
 
