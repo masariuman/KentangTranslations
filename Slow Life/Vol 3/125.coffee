@@ -158,43 +158,27 @@ Namun anak buah Ririnrara tidak bisa menemukan orang yang menyelidiki Tifa. Bahk
 
 Namun, Ririnrara tidak dapat membayangkan warga dari negara kecil di perbatasan yang tidak terkait dengan konspirasi akan dapat berpura-pura tidak tahu sambil menyembunyikan informasi dari agen intelijen yang dia kumpulkan untuk melindungi Raja Geyserik yang memiliki banyak musuh.
 
-(Mereka adalah orang-orang yang jauh lebih kuat dari kita? Sehingga mereka tidak merasakan ancaman dari kita?)
-
- 
+(Mereka adalah orang-orang yang jauh lebih kuat dari kami? Sehingga mereka tidak merasakan ancaman dari kami?)
 
 Pada akhirnya, Ririnrara hanya mengetahui bahwa mereka berdua adalah petualang yang hebat. Dia tidak tahu sejarah masa lalu mereka.
 
 Ririnrara hanya bisa menahan pikirannya yang bermasalah.
 
- 
-
 "Kalau begitu, orang dengan kuncinya adalah dia."
-
- 
 
 Mungkin satu-satunya orang di Zoltan yang tahu tentang masa lalu mereka.
 
 Jika dia tahu tentang itu sebelum mereka berdua ditangkap, dia akan mencoba menangkapnya daripada kesatria putih bernama Ruru.
 
- 
-
-Apoteker Merah.
-
- 
+Apoteker red.
 
 Ririnrara berdiri, membuka kotak terkunci dan mengeluarkan sarung tangan baja hijau pucat dari High-Elf.
 
- 
+"Darah para High-Elf yang kebanggaannya mengalir di darahku, pinjamkan aku kekuatanmu."
 
-Darah para High-Elf yang sombong mengalir di nadiku, pinjamkan aku kekuatanmu. "
-
- 
-
-Sarung Tangan Ilmu Pedang. Itu adalah Item Sihir yang diturunkan di rumah tangga Ririnrara dan ketika para Elf memakainya, itu akan memungkinkan mereka untuk mewarisi ilmu pedang leluhur mereka dan berubah menjadi seorang ahli pedang.
+Sarung Tangan Ilmu Pedang. Itu adalah Item Sihir yang diturunkan ke Ririnrara dan ketika para Elf memakainya, itu akan memungkinkan mereka untuk mewarisi ilmu pedang leluhur mereka dan berubah menjadi seorang ahli pedang.
 
 Seorang ahli pedang sangat kuat tetapi ketika seorang pendekar pedang seperti Ririnrara, dengan teknik kelas satu dan tingkat Perlindungan Ilahi yang tinggi, memakainya, kekuatannya akan melampaui seorang master dan mencapai tingkat manusia super.
-
- 
 
 Selanjutnya, Ririnrara mengeluarkan pedang pendek yang biasanya dia gunakan serta pedang panjang yang berbeda dari kotak.
 
