@@ -188,23 +188,17 @@ Mereka baru saja kembali dari pertemuan tentang kerjasama antara petualang dan p
 
 Kami mencapai Zoltan pada saat yang sama ketika Garadin dan Moen kembali.
 
-Tujuan awal mereka adalah untuk menyembunyikan pengawalan Mistome-shi mereka ke pemukiman dari pandangan Veronia dan memikirkan tindakan balasan.
+Tujuan awal mereka adalah untuk menyembunyikan Mistome-shi ke pemukiman dari pandangan Veronia dan memikirkan tindakan balasan.
 
-Namun, sejak Ruti dan kami mengetahuinya, mereka mengubah rencana mereka dan mempercayakan Ruti dengan perencanaan tindakan terhadap Veronia.
+Namun, sejak Ruti dan kami mengetahuinya, mereka mengubah rencana mereka dan mempercayakan Ruti untuk tindakan terhadap Veronia.
 
 Untuk alasan itu, Garadin dan yang lainnya kembali ke Zoltan dan mirip dengan kami dalam arti tertentu, kembali ke rutinitas biasa mereka bekerja sebagai Kapten Penjaga dan Eksekutif Guild Petualang.
 
- 
-
 "Ini pertama kalinya aku bingung dengan suatu situasi."
-
- 
 
 Moen memiliki wajah yang pahit. Dalam pertemuan yang dihadiri Ruti, Moen memiliki pendirian untuk menolak permintaan Veronia bersama Garadin, namun ia juga satu-satunya yang bingung dengan keadaan tersebut.
 
- 
-
-"Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksi Kamu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah. "
+"Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksi Kamu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah."
 
 "Kamu telah melakukan pelatihan untuk melindungi Zoltan jadi kamu akan baik-baik saja. Dalam Pemberontakan Goblin di mana Mistome-shi berperan, Aku dengar itu adalah perang, tetapi di bawah kepemimpinan Mistome-shi, para penjaga Zoltan bertempur dengan mengesankan. "
 
