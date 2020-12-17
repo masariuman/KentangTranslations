@@ -98,33 +98,23 @@ g"Besok, setelah memastikan tidak ada lagi Jamur Dingin di tanah, tutupi tanah d
 
 r"Baiklah."
 
-Ruti merespon dan menggenggam kedua tinjunya di depan dadanya. Ada tekad kuat di wajahnya. Ruti mungkin ingin menyelamatkan tunas ramuan kecil itu.
+Ruti merespon dan menggenggam kedua tinjunya di depan dadanya. Ada tekad kuat di wajahnya. Ruti mungkin ingin menyelamatkan tunas tanaman kecil itu.
 
-Ironisnya, itu adalah emosi yang tidak dimiliki Ruti saat dia menjadi 『Hero』.
+Ironisnya, itu adalah emosi yang tidak dimiliki Ruti saat dia menjadi 『Pahlawan』.
 
- 
+g"Kamu melakukannya dengan baik."
 
-"Kamu melakukannya dengan baik."
+r"Un."
 
-"Un."
+Aku mengulurkan tanganku untuk menepuk kepala Ruti tetapi,
 
- 
+g"Ups."
 
-Aku mengulurkan tangan Aku untuk menepuk kepala Ruti tetapi,
+Aku berhenti sebentar.
 
- 
+Aku telah melakukan pekerjaan pertanian sejak tadi jadi tanganku kotor dengan tanah. Aku tidak mungkin menyentuh rambut biru indah Ruti dengan tangan itu.
 
-Ups.
-
- 
-
-Aku berhenti di tengah jalan.
-
-Aku telah melakukan pekerjaan pertanian sejak tadi jadi tangan Aku kotor dengan tanah. Aku tidak mungkin menyentuh rambut biru indah Ruti dengan tangan itu.
-
- 
-
-Mu.
+r"Mu."
 
  
 
@@ -132,83 +122,53 @@ Ruti terlihat tidak senang melihat tanganku berhenti.
 
 Kemudian, dia meletakkan kedua tangannya di tanganku dan menarik telapak tanganku ke kepalanya.
 
- 
+g"Ini kotor."
 
-"Ini kotor."
-
-"Aku memasuki kamar mandi setelah ini jadi tidak apa-apa."
-
- 
+r"Aku memasuki kamar mandi setelah ini jadi tidak apa-apa."
 
 Dia berkata sambil mengusap kepalanya ke telapak tanganku seolah-olah untuk memverifikasi sensasi.
 
 Aku secara tidak sengaja tertawa.
 
- 
+g"Baiklah. Kamu telah berusaha keras, Ruti akan selalu menjadi adik perempuanku yang membanggakan."
 
-"Baiklah. Kamu telah melakukannya dengan baik, Ruti akan selalu menjadi adik perempuan Aku yang membanggakan. "
+Ucapku sembari mengelus kepala Ruti perlahan agar tidak terlalu kotor.
 
- 
-
-Ucapku sembari mengelus kepala Ruti dengan hemat agar tidak terlalu kotor.
-
- 
-
-Ehehe.
-
- 
+r"Ehehe."
 
 Ujung bibir Ruti sedikit terangkat sembari tertawa gembira.
 
-Aku terpukul dengan dorongan untuk memeluknya dengan erat setelah melihat gerakan lucu adik perempuan Aku tetapi Aku menahan diri.
-
- 
+Aku ingin memeluknya dengan erat setelah melihat gerakan lucu adik perempuanku tetapi Aku menahan diriku.
 
 ☆☆
 
-Setelah meninggalkan rumah kaca, kami menemukan Tise memberi makan Ugeuge-san dengan serangga sejak dia selesai merawat tumbuhan lainnya.
+Setelah meninggalkan rumah kaca, kami melihat Tise memberi makan Ugeuge-san dengan serangga karena dia selesai mengurus tanaman lainnya.
 
- 
+t"Terima kasih atas kerja kerasmu... apa baik-baik saja sekarang?"
 
-"Terima kasih atas kerja kerasmu… apa mereka baik-baik saja sekarang?"
+g"Ya, karena langsung ketahuan. Sepasang kecambah mungkin tidak berhasil tetapi sebagian besar akan pulih."
 
-"Ya, karena langsung diketahui. Sepasang kecambah mungkin tidak berhasil tetapi sebagian besar akan pulih. "
-
-"Itu hebat."
-
- 
+t"Baguslah."
 
 Tise menghembuskan napas lega.
 
 Ugeuge-san melebarkan kakinya seolah merasa lega dan menjatuhkan perutnya ke tanah.
 
-Baik Ruti dan Aku tersenyum setelah melihat reaksinya.
+Ruti dan Aku tersenyum setelah melihat reaksinya.
 
- 
-
-"Ugeuge-san sepertinya sedih karena gagal memperhatikan Cold Mold yang berkembang biak. Meskipun ia akan langsung menyadarinya jika ia berjalan di atas tanah. "
-
- 
+t"Ugeuge-san sepertinya sedih karena gagal mengetahui jamur dingin yang berkembang biak. Meskipun ia akan langsung menyadarinya jika ia berjalan di atas tanah."
 
 Seperti yang Tise katakan, Ugeuge-san menundukkan kepalanya. Itu terlihat sedikit menyedihkan.
 
- 
+g"Begitu ya, akan lebih bagus jika kita meminta Ugeuge-san membantu mengurus kebun kedepannya."
 
-"Begitu, akan lebih bagus jika kita meminta Ugeuge-san membantu mengurus pertanian di masa depan."
-
-"Ya. Ugeuge-san adalah laba-laba yang dapat diandalkan. "
-
- 
+r"Ya. Ugeuge-san adalah laba-laba yang dapat diandalkan."
 
 Memang benar tidak akan ada petani yang mampu berada begitu dekat dengan tanah seperti Ugeuge-san.
 
 Menanggapi Ruti dan kata-kataku, Ugeuge-san berdiri dan mengangkat tangannya seolah-olah menyatakan akan melakukan yang terbaik.
 
- 
-
 ☆☆
-
- 
 
 Kasus Mistome-shi dan Veronia masih berlangsung.
 
