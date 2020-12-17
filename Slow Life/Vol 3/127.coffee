@@ -276,40 +276,26 @@ Setelah memastikan bahwa Ririnrara tidak akan berdiri, aku menyarungkan pedangku
 
 Kemudian, Aku menyeka keringat dari dahiku dan menghembuskan napas perlahan.
 
-Aku tidak percaya dia sudah mati tapi... tindakan Ririnrara mempengaruhi pikiranku jadi aku melangkah terlalu dalam. Aku sudah menang saat aku merusak item sihirnya dan melukai lengannya jadi serangan dangkal sudah cukup.
+Aku tidak percaya dia sudah mati tapi... tindakan Ririnrara mempengaruhi pikiranku jadi aku mendekat. Aku sudah menang saat aku merusak item sihirnya dan melukai lengannya jadi serangan biasa sudah cukup.
 
-Kapten pasti akan marah jika dia ada di sini. Yah sudah berakhir jadi tidak ada yang membantunya.
+Kapten pasti akan marah jika dia ada di sini. Yah, sudah berakhir juga jadi mau bagaimana lagi.
 
- 
-
-"Kurasa Newman harus menunggu lebih lama."
-
- 
+g"Kurasa Newman harus menunggu terlebih dahulu."
 
 Aku akan memberikan pertolongan pertama darurat dan menyerahkannya kepada Ruti.
 
 Aku akan mengirimkan obatnya nanti.
 
- 
-
 "U, Uu, Red-san."
-
- 
 
 Sebelumnya, masih ada anak.
 
-Untuk meyakinkannya, Aku menampar bahunya dan tertawa.
+Untuk menenangkannya, Aku menampar bahunya dan tertawa.
 
- 
-
-"Tidak apa-apa sekarang, aku mengalahkan semua orang jahat. Kerja bagus menahan ini. "
+g"Tidak apa-apa sekarang, aku mengalahkan semua orang jahat. Kerja bagus menahan semua itu."
 
 "Uaaan !!"
 
- 
-
 Dia mungkin ketakutan, diculik oleh orang asing dan disandera karena alasan yang tidak dia ketahui.
-
- 
 
 Gadis itu memeluk pinggangku dan meneteskan air mata lega.
