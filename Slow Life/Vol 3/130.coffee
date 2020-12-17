@@ -16,23 +16,21 @@ g"Itu sangat membantu. Zoltan mungkin tidak menginginkan lebih dari itu. Selanju
 
 "Secara alami ada batasan waktu untuk dia bisa tetap di Zoltan. Dia juga memiliki banyak pekerjaan yang harus dilakukan di Veronia."
 
-"Kalau begitu, tidak akan ada masalah jika kita terus menyembunyikan Misufia-san dan melewati batas waktu itu. Selanjutnya, masalah di pihakmu adalah mensukseskan Pangeran Sarius dan jika tidak memungkinkan, bagaimana mempertahankan pengaruh Pangeran Sarius di istana setelah pihak Leonor naik tahta."
+g"Kalau begitu, tidak akan ada masalah jika kita terus menyembunyikan Misufia-san dan melewati batas waktu itu. Selanjutnya, masalah di pihakmu adalah mensukseskan Pangeran Sarius dan jika tidak memungkinkan, bagaimana mempertahankan pengaruh Pangeran Sarius di istana setelah pihak Leonor naik tahta."
 
 Setelah masalah takhta selesai, kehadiran Misufia akan memiliki kegunaan yang lebih rendah di kedua kubu. Itu cara terbaik untuk mengatasi masalah ini.
 
-Tapi sejujurnya, mendapatkan tahta itu cukup sulit. Aku tidak tahu keadaan pengadilan Kerajaan Veronia jadi Aku tidak bisa mengatakan fakta tetapi lawan suksesi mereka memiliki hak yang lebih besar, kekuatan politik yang lebih kuat dan memiliki ratu saat ini di belakangnya, barisan yang sempurna.
+Tapi sejujurnya, mendapatkan takhta itu cukup sulit. Aku tidak tahu keadaan pengadilan Kerajaan Veronia jadi Aku tidak bisa mengatakan dengan benar tetapi lawan mereka memiliki hak yang lebih besar, kekuatan politik yang lebih kuat dan memiliki ratu saat ini di belakangnya, barisan yang sempurna.
 
-Selain itu, yang Aku tahu hanyalah rumor bahwa Pangeran Ugus menyukai wanita cantik yang suka olahraga dan berotot. (TLN: Tidak yakin apakah itu salah ketik oleh penulis, adalah Pangeran Silverio di bab sebelumnya.)
+Selain itu, yang Aku tahu hanyalah rumor bahwa Pangeran Ugus menyukai wanita cantik yang suka olahraga dan berotot. (tidak tahu apakah typo tapi di ch sebelumnya disebutkan pangeran Silverio.)
 
-Aku tidak mendengar apa-apa tentang keahliannya dalam politik atau bakat militer tetapi tidak memiliki reputasi buruk memberinya nilai kelulusan untuk menjadi putra mahkota.
+Aku tidak mendengar apa-apa tentang keahliannya dalam politik atau bakat militer tetapi tidak memiliki reputasi buruk memberinya nilai untuk menjadi putra mahkota.
 
 Dengan kata lain, tidak ada kelemahan yang bisa dimanfaatkan oleh Pangeran Sarius.
 
-Ririnrara mungkin mengerti itu yang terbaik.
+Ririnrara mungkin mengerti itu dengan baik.
 
- 
-
-"Kamu harus mempertahankan kekuatan yang cukup sehingga pihak Leonor tidak bisa dengan paksa membersihkan kalian semua. Mungkin tidak ada cara lain. "
+g"Kamu harus mempertahankan kekuatan yang cukup sehingga pihak Leonor tidak bisa dengan paksa membersihkan kalian semua. Mungkin tidak ada cara lain."
 
 "Tapi dengan kepribadianmu, kamu mungkin tidak bisa memenangkan hati anggota pihak lawan, kan?"
 
