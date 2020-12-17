@@ -104,8 +104,6 @@ Aku menghindarinya dengan menyelinap melewati sisi kanan lawanku.
 
 Saat aku berbalik, aku menghunus pedangku dan menebas punggung Ririnrara tapi Ririnrara berbalik pada waktu yang sama dan menangkis pedang itu.
 
- 
-
 Suara logam bertabrakan memenuhi area itu.
 
  
