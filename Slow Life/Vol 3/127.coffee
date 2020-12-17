@@ -148,51 +148,35 @@ Ruti dan Tise mungkin bisa mengalahkannya dengan lebih mudah.
 
 Sebagai apoteker belaka, tidak ada alasan bagiku untuk bertarung seperti ini.
 
-"Tapi bagaimana mengatakan ini… aku tidak ingin memaksakan masalah yang bisa aku selesaikan sendiri kepada adik perempuanku."
+g"Tapi bagaimana ya... aku tidak ingin memaksakan masalah yang bisa aku selesaikan sendiri kepada adik perempuanku."
 
-"Apa yang sedang Anda bicarakan?"
+"Apa yang sedang kamu bicarakan?"
 
- 
+Aku mengalihkan kesadaranku ke kesadaran bertempurku.
 
-Aku mengalihkan kesadaran Aku ke kesadaran pertempuran Aku.
+Merasakan perubahan di udaraku, ekspresi Ririnrara berubah.
 
-Merasakan perubahan di udara Aku, ekspresi Ririnrara berubah.
+"Aku tidak berpikir kamu akan lebih kuat dari peringkat-B."
 
- 
+g"Tentu saja tidak. Keduanya lebih kuat dariku."
 
-"Aku tidak berpikir kamu akan lebih kuat dari peringkat B."
-
-"Tentu saja tidak. Keduanya lebih kuat dariku. "
-
-"Jadi itu sebabnya bawahan Aku tertangkap dengan mudah."
-
- 
+"Jadi itu sebabnya bawahanku tertangkap dengan mudah."
 
 Aku mengguncang ujung pedangku sambil mencari kesempatan.
 
-Ririnrara mempertahankan posisi pedang bawahnya dan perlahan mendekati Aku.
+Ririnrara mempertahankan posisi pedang bawahnya dan perlahan mendekatiku.
 
 Saat itulah, kaki Ririnrara menginjak akar pohon. Tatapan Ririnrara tertunduk untuk sesaat.
 
- 
-
-"Tsu !!"
-
- 
+g"Tsu !!"
 
 Aku menghentikan napasku, mendorong dengan kakiku dan menutup jarak antara kami dengan satu kaki.
 
 Pedang Ririnrara bermunculan untuk mencoba bertahan.
 
- 
-
 "Apa!?"
 
- 
-
-Gerakan Ririnrara lebih tumpul dibandingkan sebelumnya. Rona kulit Ririnrara kehilangan ketenangannya dan garis pandangnya beralih ke sarung tangan di tangannya.
-
- 
+Gerakan Ririnrara lebih tumpul dibandingkan sebelumnya. Ririnrara kehilangan ketenangannya dan garis pandangnya beralih ke sarung tangan di tangannya.
 
 "Tidak mungkin, kapan!"
 
