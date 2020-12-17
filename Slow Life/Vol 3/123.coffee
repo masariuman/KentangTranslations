@@ -14,55 +14,39 @@ Ruti dan aku segera menuju rumah kaca.
 
 r"Onii-chan, apa yang harus aku lakukan"
 
-Ruti mencengkeram lengan bajuku dengan cemas. Dia bukan lagi seorang gadis muda yang dipaksa untuk memiliki jiwa tanpa cela karena 『Hero』.
+Ruti mencengkeram lengan bajuku dengan cemas. Dia bukan lagi seorang gadis muda yang dipaksa untuk memiliki jiwa tanpa cela karena 『Pahlawan』.
 
 Ruti yang berdiri di sini sekarang adalah seorang gadis muda yang sedang sakit hati karena melihat pemandangan di depannya.
 
- 
+g"Fumu."
 
-"Fumu."
+Aku mengamati tunas tanaman bintang laut abu-abu tergeletak lemah di sisinya.
 
- 
+Kami berada di dalam kebun tanaman obat Ruti, di sudut rumah kaca tempat mereka menanam rumput bintang laut abu-abu.
 
-Aku mengamati tunas rumput bintang laut abu-abu tergeletak lemah di sisinya.
-
-Kami berada di dalam pertanian tanaman obat Ruti, di sudut rumah kaca tempat mereka menanam rumput bintang laut abu-abu.
-
-Tunas rumput bintang laut abu-abu lemah. Biasanya, akarnya harus menjulur kuat ke dalam tanah dan tunas harus tumbuh lurus ke atas.
+Tunas rumput bintang laut abu-abu melemah. Biasanya, akarnya menjulur kuat ke dalam tanah dan tunas pasti tumbuh lurus ke atas.
 
 Tapi sekarang sudah layu.
 
- 
+r"kenapa bisa begini?"
 
-"Mengapa?"
-
-"Itu karena jamur."
-
- 
+g"Itu karena jamur."
 
 Aku meraup tanah dan menunjukkannya pada Ruti.
 
 Dengan melihat lebih dekat, dapat diketahui bahwa beberapa sentimeter tanah dari permukaan telah menguning.
 
- 
-
-Warnanya berubah.
-
- 
+r"Warnanya berubah."
 
 Ruti dan Tise menatap tajam ke tanah yang diambil.
 
- 
+g"Namanya Jamur Dingin. Ini adalah jamur yang menyerap panas di sekitarnya sebagai nutrisi. "
 
-"Namanya Cold Mould. Ini adalah jamur yang menyerap panas di sekitarnya sebagai nutrisi. "
+r"Aku pernah melihat itu sebelumnya di gua dan reruntuhan, tapi mereka jauh lebih besar."
 
-"Aku pernah melihat itu sebelumnya di gua dan reruntuhan, tapi mereka jauh lebih besar."
+g"Hanya yang tumbuh sangat besar yang akan menimbulkan masalah bagi para petualang."
 
-"Hanya koloni yang tumbuh sangat besar yang akan menimbulkan masalah bagi para petualang."
-
- 
-
-Cold Mould adalah sejenis jamur yang ditemukan di benua itu.
+Jamur Dingin adalah sejenis jamur yang ditemukan di benua ini.
 
 Ini adalah jamur unik yang memiliki sifat berkembang biak dengan menyerap panas di sekitarnya dan ketika koloni berdiameter lebih dari satu meter, wilayah mereka akan terbentang sekitar 10 meter dan jika ada sumber panas yang masuk ke dalamnya ... sebagian besar makhluk hidup akan memiliki panas. diambil dari mereka dengan cepat.
 
