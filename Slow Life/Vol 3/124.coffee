@@ -166,105 +166,73 @@ g"Ah, oke."
 
 Aku membelakangi Ruti.
 
-Ruti menyentuh punggungku dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuh Aku.
+Ruti menyentuh punggungku dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuhku.
 
-"Hn…. "
+g"Hn... "
 
- 
+Membasuh tubuhmu oleh orang lain memberikan kenyamanan yang tak bisa digambarkan.
 
-Membasuh tubuh Kamu oleh orang lain memberikan kenyamanan yang tak terlukiskan.
+Memang agak canggung tapi Ruti berusaha sekuat tenaga untuk membasuh tubuhku termasuk ketiak dan ujung jariku.
 
-Memang agak canggung tapi Ruti berusaha sekuat tenaga untuk membasuh tubuh Aku termasuk ketiak dan ujung jari Aku.
+g"Kufu."
 
- 
-
-Kufu.
-
- 
-
-Ketika jari Ruti menyentuh sisi tubuh Aku, Aku tanpa sadar mengeluarkan suara karena merasa geli.
+Ketika jari Ruti menyentuh sisi tubuhku, Aku tanpa sadar mengeluarkan suara karena merasa geli.
 
 Ruti sedikit bingung dan menarik tangannya.
 
- 
+r"Apakah itu geli?"
 
-"Apakah itu geli?"
+g"Ah, tidak apa-apa."
 
-"Ah, tidak apa-apa."
-
-Mu.
-
- 
+r"Mu."
 
 Ruti menatap tangannya sendiri dan memiringkan kepalanya.
 
-Dia menyentuh sisi tubuhnya dan sepertinya sedang memikirkan cara terbaik untuk mencucinya. Gerakan itu juga lucu.
+Dia menyentuh sisi tubuhnya dan sepertinya sedang memikirkan cara terbaik untuk mencucinya. Gerakan itu juga imut.
 
-Setelah beberapa pemeriksaan, dia mengangguk ringan dan kembali ke tugas mencuci tubuh Aku sekali lagi.
-
- 
+Setelah beberapa kali dia mencoba ke tubuhnya, dia mengangguk ringan dan kembali ke tugas mencuci tubuhku sekali lagi.
 
 Dia melanjutkan tugasnya yang hati-hati dan dia hampir selesai mencuci punggung dan lenganku.
 
- 
+g"Terima kasih, kurasa kamu sudah mencuci sebagian besar tubuhku."
 
-"Terima kasih, kurasa kamu sudah mencuci sebagian besar tubuhku."
-
-"Tidak dekat. Aku melanjutkan. "
-
- 
+r"Tidak. Aku akan tetap melanjutkannya."
 
 Kata Ruti dan mendekati Aku sambil memegang handuk.
 
 Kemudian, dia merentangkan lengannya di sekitarku seolah memelukku dari belakang.
 
- 
-
-"Eh?"
-
- 
+g"Eh?"
 
 Sensasi lembut yang menyentuh punggungku adalah payudara Ruti? Itu benar-benar berbeda dari Lit, payudara kecil tapi berbentuk bagus dan indah.
 
-Aku bisa merasakan kehangatan yang ditularkan dari kontak kulit yang dekat. Aku bertanya-tanya mengapa begitu santai merasakan kulit manusia? Sedemikian rupa sehingga aku hampir berhenti memikirkan hari-hariku yang sibuk karena kasus Mistome-shi.
+Aku bisa merasakan kehangatan yang diberikan dari kontak kulit yang dekat. Aku Penasaran mengapa begitu rilek merasakan kulit manusia? Sedemikian rupa sehingga aku hampir berhenti memikirkan hari-hariku yang sibuk karena kasus Mistome-shi.
 
 Tapi kenapa Ruti memelukku?
 
- 
-
-"Hn."
-
- 
+r"Hn."
 
 Ruti meraba dadaku dan mulai mencuci dengan handuk di tangannya.
 
-Ruti melihat dari balik bahu Aku ke tangannya saat dia membasuh tubuh Aku dengan ekspresi serius tanpa ada indikasi bahwa dia sedang bermain-main.
+Ruti melihat dari balik bahuku ke tangannya saat dia membasuh tubuhku dengan ekspresi serius tanpa ada indikasi bahwa dia sedang bermain-main.
 
- 
+... Begitu ya...
 
-… Aku melihat.
+Aku teringat tindakan Ruti barusan ketika dia memeriksa bagaimana mencuci sisi tubuhnya sendiri.
 
- 
+Ruti mempraktikkan caranya dengan membasuh tubuhnya sendiri. Dia mencoba mereproduksi hal yang sama sebanyak mungkin.
 
-Aku teringat tindakan Ruti barusan memeriksa bagaimana mencuci sisi tubuhnya sendiri.
+Itu sebabnya saat membasuh bagian depan badan, dia tidak membasuh sambil menghadapku tetapi melingkarkan tangannya di sekitarku dari belakang untuk mencapai sudut yang sama seperti saat dia membasuh badannya sendiri.
 
-Ruti mempraktikkan caranya dengan membasuh tubuhnya sendiri. Dia mencoba mereproduksi kekuatan yang sama sebanyak mungkin.
+Ruti serius tapi gaya mencucinya menggelitik hatiku.
 
-Itu sebabnya saat membasuh bagian depan badan, dia tidak membasuh sambil menghadap Aku tetapi melingkarkan tangannya di sekitar Aku dari belakang untuk mencapai sudut yang sama seperti saat dia membasuh badannya sendiri.
+Kesenjangan antara tindakan manusia supernya dan bagian tubuhnya yang sedikit kurang, menggelitik hatiku sebagai kakaknya.
 
-Ruti serius tapi gaya mencuci menggelitik hati Aku.
+Dengan kata lain, dia imut dan manis.
 
-Kesenjangan antara tindakan manusia supernya yang biasa dan bagian tubuhnya yang sedikit kurang menggelitik hati persaudaraan Aku.
+g"Fu, fufu..."
 
-Dengan kata lain, dia manis.
-
- 
-
-"Fu, fufu…"
-
-"?"
-
- 
+r"?"
 
 Aku tidak bisa menahan tawa sehingga Ruti sekali lagi menghentikan tangannya karena merasa geli.
 
