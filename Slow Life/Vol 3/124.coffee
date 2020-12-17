@@ -36,27 +36,17 @@ Adapun pengumpulan pajak yang sangat penting, Gereja yang dapat dipercaya mengum
 
 Aku duduk di kursi, mengambil air panas dari bak mandi dan membersihkan keringat dan kotoran dari tubuhku.
 
-Kemudian, Aku menyabuni sabun dengan handuk dan membasuh tubuh Aku.
+Kemudian, Aku memakai sabun dan membasuh tubuhku.
 
- 
-
-Fuu.
-
- 
+g"Fuu."
 
 Rasanya luar biasa mencuci tubuh yang kotor setelah bekerja.
 
 Apalagi selama bulan musim dingin seperti sekarang.
 
- 
-
-"Fuunfu ~ n"
-
- 
+g"Fuunfu ~ n"
 
 Aku tidak bisa menahan diri untuk tidak bersenandung sendiri.
-
- 
 
 『Garan』
 
