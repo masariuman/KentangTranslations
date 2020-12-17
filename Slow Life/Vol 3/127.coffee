@@ -20,21 +20,17 @@ memasak barbekyu, berbicara bebas di sekitar api unggun terbuka, bermain dengan 
 
 Mungkin Aku akan mengajak mereka ketika insiden ini selesai.
 
-Aku berpikir sendiri ketika Aku berjalan keluar dari jalur Aku yang biasa dan melanjutkan ke hutan yang tersisa di kota.
+Aku berpikir sendiri ketika Aku berjalan keluar dari jalurku yang biasa dan melanjutkan ke hutan yang tersisa di kota.
 
 Aku meletakkan tanganku di pedang tembaga di pinggangku dan memverifikasi sensasinya.
 
-Meskipun itu adalah hutan kecil, begitu Anda masuk ke kedalaman, Anda akan lupa bahwa Anda berada di dalam tembok rendah Zoltan.
+Meskipun itu adalah hutan kecil, begitu kamu masuk ke kedalam, kamu akan lupa bahwa kamu berada di dalam tembok Zoltan.
 
-Aku meletakkan kotak obat di punggung Aku ke lantai.
+Aku meletakkan kotak obat di punggungku ke lantai.
 
- 
+g"Haa, apakah tempat ini oke?"
 
-"Haa, apakah tempat ini baik-baik saja?"
-
- 
-
-Aku berkata dengan nada berduri tanpa menyembunyikan bahwa menurutku itu merepotkan.
+Aku berkata dengan nada berduri tanpa menyembunyikan bahwa menyadari sesuatu karena itu merepotkan.
 
 Seorang wanita High-Elf dengan penutup mata muncul dari balik pohon setelah aku mengatakan itu.
 
