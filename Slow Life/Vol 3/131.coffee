@@ -80,29 +80,17 @@ Langit tertutup awan hitam tanpa ada yang menyadarinya.
 
 Mungkin akan hujan.
 
- 
-
 "Oh! Bukankah itu Ririnrara-dono !! "
-
- 
 
 Sir William berteriak begitu dia melihat Ririnrara.
 
- 
-
-"Sir William, mengapa Kamu tahu tentang Ririnrara?"
-
- 
+g"Sir William, mengapa Kamu tahu tentang Ririnrara?"
 
 Seharusnya tidak disampaikan kepada pihak berwenang Zoltan bahwa dia telah menangkap Ririnrara.
 
- 
-
-"Yah, itu karena ada permintaan dari orang-orang yang menempati pelabuhan untuk mengembalikan tahanan Ririnrara dan ketiga bawahannya. Mereka memberi syarat bahwa mereka akan membayar 42.000 Peryl sebagai tebusan, membebaskan Distrik Pelabuhan yang diduduki dan membayar tambahan 8.000 Peryl sebagai kompensasi. "
+"Yah, itu karena ada permintaan dari orang-orang yang menempati pelabuhan untuk mengembalikan tahanan Ririnrara dan ketiga bawahannya. Mereka memberi syarat bahwa mereka akan membayar 42.000 Peryl sebagai tebusan, membebaskan Distrik Pelabuhan yang diduduki dan membayar tambahan 8.000 Peryl sebagai kompensasi."
 
 "I-itu tidak masuk akal."
-
- 
 
 Itu adalah sejumlah besar kompromi yang diberikan meskipun pendudukan militer mereka luar biasa.
 
@@ -110,49 +98,33 @@ Entah bagaimana itu memberi kesan yang sangat tidak koheren.
 
 Dari cerita Ririnrara, Pangeran Sarius jelas bukan seorang bangsawan yang tidak cakap.
 
- 
-
-"Aku tidak tahu bagaimana kamu bisa menangkap Ririnrara-dono tapi aku senang kamu membawanya. Kami akan segera mengirim utusan. Tidak, sebenarnya kita bisa langsung berangkat. "
-
- 
+"Aku tidak tahu bagaimana kamu bisa menangkap Ririnrara-dono tapi aku senang kamu membawanya. Kami akan segera mengirim utusan. Tidak, sebenarnya kita bisa langsung berangkat."
 
 Aku bisa dengan jelas melihat kelegaan di wajah Sir William.
 
 Dia mungkin agak bingung melihat lawan yang tidak bisa mereka harap kalahkan menduduki kota dan menuntut kembalinya tawanan yang tidak pernah dia ingat.
 
- 
+g"Mohon tunggu, kami masih belum tahu apa yang terjadi. Apalagi mereka baru saja menyerang? Kita harus memahami situasinya dulu..."
 
-"Mohon tunggu, kami masih belum tahu apa yang terjadi. Apalagi mereka baru saja menyerang? Kita harus memahami situasinya dulu… "
-
-"Aku tidak tahu siapa Kamu tetapi Kamu tidak memiliki wewenang untuk memerintahkan Aku, Aku memegang hak untuk memimpin tentara. Aku tidak tahu kapan mereka akan berubah pikiran dan memindahkan pasukan! Kita tidak boleh membuang waktu untuk mengembalikan para tahanan dan mendapatkan kembali kedamaian untuk Zoltan! "
-
- 
+"Aku tidak tahu siapa Kamu tetapi Kamu tidak memiliki wewenang untuk memerintahkanku, Aku memegang hak untuk memimpin tentara. Aku tidak tahu kapan mereka akan berubah pikiran dan menggerakkan pasukan! Kita tidak boleh membuang waktu untuk mengembalikan para tahanan dan mendapatkan kembali kedamaian untuk Zoltan!"
 
 Nada suaranya kuat tetapi semua kata-katanya benar-benar lemah.
 
 Saat aku merasa gelisah, Lit dan Misufia keluar dari belakang Ririnrara dan melanjutkan.
 
- 
+l"Tenanglah Sir William. kita memiliki Ririnrara bersama kita jadi kita memiliki keunggulan. Pertama-tama kita harus tahu apa yang sedang terjadi dan kemudian membuat pilihan terbaik."
 
-"Tenanglah Sir William. Kami memiliki Ririnrara di penangkaran jadi kami memiliki keunggulan. Pertama-tama kita harus mengumpulkan apa yang sedang terjadi dan kemudian membuat pilihan terbaik. "
+"Itu betul. Itu bisa dimengerti karena ini adalah situasi yang belum pernah terjadi sebelumnya untuk Zoltan tapi... William, jika kamu panik, seluruh pasukan Zoltan akan panik."
 
-"Itu betul. Itu bisa dimengerti karena ini adalah situasi yang belum pernah terjadi sebelumnya untuk Zoltan tapi… William, jika kamu panik, seluruh pasukan Zoltan akan panik. "
-
-"Pahlawan Menyala !? Dan Mistome-shi !! "
-
- 
+"Pahlawan Lit !? Dan Mistome-shi !! "
 
 Sir William membuka lebar matanya dan meninggikan suaranya saat melihat Misufia.
 
 Kemudian, dia kehilangan kekuatan di lututnya dan berlutut.
 
- 
+"Mistome-shi, itu tidak mungkin bagiku... tolong gantikan tempatku dan perintahkan pasukan. Beban ini terlalu berat bagiku. Tolong selamatkan kami sekali lagi, seperti yang kau lakukan di masa lalu dari pasukan goblin...!"
 
-"Mistome-shi, itu tidak mungkin bagiku… tolong gantikan tempatku dan perintahkan pasukan. Beban ini terlalu berat bagiku. Tolong selamatkan kami sekali lagi, seperti yang kau lakukan di masa lalu dari pasukan goblin…! "
-
-"Will, jangan bergantung pada nenek sepertiku. Sekarang inilah generasi Kamu. "
-
- 
+"Will, jangan bergantung pada nenek sepertiku. Sekarang inilah generasimu."
 
 Seorang pria paruh baya menempel pada seorang nenek tua. Aku tidak bisa mengatakan bahwa itu adalah sosok yang sangat keren.
 
@@ -162,29 +134,21 @@ Aku memahami adegan itu dengan sangat baik.
 
 Itu adalah tatapan para prajurit yang putus asa di hadapan Tentara Raja Iblis ketika mereka mencari keselamatan Ruti. Harapan untuk seorang pahlawan.
 
-Ruti hanya sedikit mengernyit melihat pemandangan itu.
+Ruti hanya sedikit mengerutkan kening melihat pemandangan itu.
 
- 
+"Tentara akan takut jika Kamu merasa takut. Harap berdiri Will, jangan khawatir, Aku telah melihat Kamu bekerja keras. Sekarang, beri tahu kami apa yang Kamu ketahui tentang apa yang terjadi. Aku tidak bisa memerintahkan tentara tapi kami akan melakukan apa yang kami bisa sebagai warga Zoltan."
 
-"Tentara akan takut jika Kamu merasa takut. Harap berdiri Will, jangan khawatir, Aku telah melihat Kamu bekerja keras. Sekarang, beri tahu kami apa yang Kamu ketahui tentang apa yang terjadi. Aku tidak bisa memerintahkan tentara tapi kami akan melakukan apa yang kami bisa sebagai warga Zoltan. "
-
-" … Iya."
-
- 
+" ...Iya."
 
 Sir William mulai memberi tahu Misufia dan Lit apa yang dia ketahui sambil membungkuk.
 
-Konon, Sir William kewalahan mengevakuasi penduduk Harbor District dan memanggil para prajurit untuk berkumpul sehingga dia hampir tidak memahami situasinya.
+Sir William kewalahan mengevakuasi penduduk disktrik pelabuhan dan memanggil para prajurit untuk berkumpul sehingga dia hampir tidak memahami situasinya.
 
 Aku serahkan pada mereka berdua untuk mengumpulkan informasi tentang situasinya dan aku bergerak menuju Ririnrara yang berada di samping Tise.
 
 Tise bergegas ke sisiku dengan cepat.
 
- 
-
-"Red-san, kondisi Ririnrara memang aneh."
-
- 
+t"Red-san, kondisi Ririnrara memang aneh."
 
 Tise berbisik padaku.
 
