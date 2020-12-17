@@ -358,6 +358,8 @@ Leonor dengan lembut memeluk Misufia yang duduk.
 
 Wajah Leonor berubah menjadi kebencian. Kebencian yang dia pegang di dalam hatinya selama ini muncul.
 
+<gambar> vol6 11.jpg
+
 "Kamu bahkan bisa masuk biara dan terus iri pada kebahagiaanku."
 
 ilusi itu menghilang.
