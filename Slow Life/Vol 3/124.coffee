@@ -28,13 +28,11 @@ g"Wow, bak mandi batu?"
 
 Rumah besar yang ditinggali Ruti awalnya milik bangsawan Zoltan.
 
-Bagi bangsawan Zoltan, tanah yang mereka miliki di wilayah mereka… atau lebih tepatnya desa atau pemukiman mereka, sebagian besar adalah lahan basah yang hampir murni berukuran sedang sehingga mereka memilih untuk tidak tinggal di sana tetapi di sini, di kota Zoltan.
+Bagi bangsawan Zoltan, tanah yang mereka miliki di wilayah mereka... atau lebih tepatnya desa atau pemukiman mereka, sebagian besar adalah lahan basah yang hampir murni berukuran sedang sehingga mereka memilih untuk tidak tinggal di sana tetapi di sini, di kota Zoltan.
 
 Mereka akan menempatkan kerabat mereka atau mempekerjakan seseorang untuk menjadi hakim dan akan mempercayakan orang itu dengan otoritas untuk mengelola wilayah.
 
 Adapun pengumpulan pajak yang sangat penting, Gereja yang dapat dipercaya mengumpulkannya menggunakan Buku Besar Gereja mereka sehingga bangsawan Zoltan mempraktikkan gaya manajemen laissez-faire. (TL: Laissez-faire adalah sistem ekonomi di mana transaksi antara pihak swasta bebas dari segala bentuk intervensi pemerintah.)
-
- 
 
 Aku duduk di kursi, mengambil air panas dari bak mandi dan membersihkan keringat dan kotoran dari tubuhku.
 
