@@ -36,25 +36,17 @@ Di pihak kami, kami tidak pernah menyangka Putri Misufia, tokoh utama dalam kude
 
 Dan kemudian ada masalah saat ini.
 
- 
+g"Sudah kubilang aku hanya apoteker biasa."
 
-"Sudah kubilang aku hanya apoteker biasa."
+"Mustahil ada apoteker sepertimu."
 
-"Seolah-olah ada apoteker sepertimu."
+sungguh kejadian yang aneh tetapi berkat hubungan badai antara Kerajaan Avalonia dan Kerajaan Veronia bahkan sebelum invasi Tentara Raja Iblis, mereka tidak dapat mengenaliku.
 
- 
+Jika itu adalah negara lain, aku telah dipanggil ke istana kerajaan sehingga identitasku mungkin terungkap.
 
-Namun demikian, itu adalah kejadian yang aneh tetapi berkat hubungan badai antara Kerajaan Avalonia dan Kerajaan Veronia bahkan sebelum invasi Tentara Raja Iblis, mereka tidak dapat mengenali Aku.
+"Hei bajingan! Rawat luka kepalanya dengan benar!"
 
-Jika itu adalah negara lain, aku telah dipanggil ke upacara di istana kerajaan mereka selama waktuku sebagai Ksatria sehingga identitasku mungkin terungkap.
-
- 
-
-"Hei bajingan! Rawat luka kepalanya dengan benar! "
-
-"Hm?"
-
- 
+g"Hm?"
 
 High-Elf yang ditangkap oleh Ruti dan Tise mengeluh kepadaku saat aku sedang merenung.
 
