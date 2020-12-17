@@ -184,36 +184,22 @@ Selanjutnya, Ririnrara mengeluarkan pedang pendek yang biasanya dia gunakan sert
 
 Sarungnya berwarna putih dan dihiasi dengan dekorasi emas cerah. Ririnrara mencabut pedangnya sedikit dan Sihir Angin yang menyembur keluar, menyebabkan rambut abu-abu Ririnrara bergoyang.
 
-Itu adalah Pedang Sihir Leluhur juga. Seorang ahli pedang dilaporkan menghabiskan hidupnya untuk membuat dan menyempurnakannya. Itu disebut Elf Sorrow.
+Itu adalah Pedang Sihir Leluhur juga. Seorang ahli pedang dilaporkan menghabiskan hidupnya untuk membuat dan menyempurnakannya. Itu disebut 'kesedihan Elf'.
 
-Ahli pedang High-Elf menamakannya demikian karena dia menyesali fakta bahwa dengan kekuatannya yang luar biasa, dia bisa membayangkan nyawa tak terhitung yang akan dirampoknya.
-
- 
+Ahli pedang High-Elf menamakannya demikian karena dia menyesali fakta bahwa dengan kekuatannya yang luar biasa, dia bisa membayangkan nyawa tak terhitung yang akan diambil oleh pedang itu.
 
 Dua item sihir berharga Ririnrara.
 
- 
+"Aku harus bertindakan sendiri."
 
-"Aku harus mengambil tindakan sendiri."
+Petualang peringkat-D Apoteker Red yang merupakan saudara ksatria putih Ruru dan juga dekat dengan Tifa. Namun, ada laporan yang mengatakan dia sepertinya menyembunyikan kekuatan aslinya. Dia pasti memiliki kemampuan di atas seorang petualang peringkat C.
 
- 
+Tentu saja, di antara para pengikutnya yang tersisa, dia memiliki orang-orang yang terampil yang dapat dengan mudah menangkap petualang peringkat-C tapi... dengan asumsi tingkat ancaman terbesar lawan, Ririnrara memutuskan untuk menggunakan kekuatan terbesar yang dimilikinya untuk menangkapnya sendiri.
 
-Petualang D-rank Apothecary Red yang merupakan saudara ksatria putih Ruru dan juga dekat dengan Tifa. Namun, ada laporan yang mengatakan dia sepertinya menyembunyikan kekuatan aslinya. Dia pasti memiliki kemampuan di atas seorang petualang peringkat C.
-
-Tentu saja, di antara para pengikutnya yang tersisa, dia memiliki orang-orang yang terampil yang dapat dengan mudah menangkap petualang peringkat-C tapi… dengan asumsi tingkat ancaman terbesar lawan, Ririnrara memutuskan untuk menggunakan kekuatan terbesar yang dimilikinya untuk menangkapnya sendiri.
-
- 
-
-(Mereka tampaknya tidak ingin dengan patuh menyerahkan daftar gereja ... Aku harus mengakhiri Misufia sebelum mereka berubah pikiran.)
-
- 
+(Mereka tampaknya tidak ingin dengan patuh menyerahkan catatan gereja ... Aku harus mengakhiri Misufia sebelum mereka berubah pikiran.)
 
 Pangeran Sarius bermaksud untuk membuktikan asal-usulnya sendiri dengan Misufia tetapi sebenarnya Pangeran Sarius dan Misufia tidak memiliki hubungan darah. Kembalinya Misufia ke Veronia tidak akan membuat Pangeran Sarius menjadi penerusnya melainkan memberikan pukulan yang fatal kepadanya dan menyebabkan dia kehilangan status kerajaannya.
 
- 
-
 (Sebelum itu terjadi, Aku harus mengubur Misufia secara rahasia tanpa diketahui Pangeran Sarius.)
-
- 
 
 Ririnrara berpegang pada keteguhan hatinya dan melengkapi kedua item sihirnya.
