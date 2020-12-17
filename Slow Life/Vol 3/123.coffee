@@ -12,11 +12,7 @@ Tise melambai padaku dari samping rumah kaca. Tapi aku tahu dari mata Tise bahwa
 
 Ruti dan aku segera menuju rumah kaca.
 
- 
-
-“Onii-chan, apa yang harus aku lakukan…”
-
- 
+r"Onii-chan, apa yang harus aku lakukan"
 
 Ruti mencengkeram lengan bajuku dengan cemas. Dia bukan lagi seorang gadis muda yang dipaksa untuk memiliki jiwa tanpa cela karena 『Hero』.
 
@@ -40,7 +36,7 @@ Tapi sekarang sudah layu.
 
 "Mengapa?"
 
-“Itu karena jamur.”
+"Itu karena jamur."
 
  
 
@@ -58,11 +54,11 @@ Ruti dan Tise menatap tajam ke tanah yang diambil.
 
  
 
-“Namanya Cold Mould. Ini adalah jamur yang menyerap panas di sekitarnya sebagai nutrisi. "
+"Namanya Cold Mould. Ini adalah jamur yang menyerap panas di sekitarnya sebagai nutrisi. "
 
 "Aku pernah melihat itu sebelumnya di gua dan reruntuhan, tapi mereka jauh lebih besar."
 
-“Hanya koloni yang tumbuh sangat besar yang akan menimbulkan masalah bagi para petualang.”
+"Hanya koloni yang tumbuh sangat besar yang akan menimbulkan masalah bagi para petualang."
 
  
 
@@ -76,7 +72,7 @@ Karena akan menyebabkan sensasi dingin yang hebat, sebagian besar waktu orang ak
 
  
 
-“Di tempat tinggal orang, jarang tumbuh hingga ukuran koloni seperti itu, tetapi sejumlah kecil akan dapat berkembang biak di tanah hangat seperti ini.”
+"Di tempat tinggal orang, jarang tumbuh hingga ukuran koloni seperti itu, tetapi sejumlah kecil akan dapat berkembang biak di tanah hangat seperti ini."
 
  
 
@@ -84,9 +80,9 @@ Jamur dingin menyebabkan suhu tanah turun dan mengakibatkan kondisi rumput binta
 
  
 
-“Mengapa Cold Mold…”
+"Mengapa Cold Mold…"
 
-“Itu mungkin terbawa bersama tanah. Dalam keadaan normal, selama musim dingin jumlah mereka akan berkurang ke tingkat yang tidak akan menimbulkan masalah apa pun, tetapi ketika rumah kaca dibangun, kemungkinan itu mulai menyebar. ”
+"Itu mungkin terbawa bersama tanah. Dalam keadaan normal, selama musim dingin jumlah mereka akan berkurang ke tingkat yang tidak akan menimbulkan masalah apa pun, tetapi ketika rumah kaca dibangun, kemungkinan itu mulai menyebar. "
 
  
 
@@ -98,7 +94,7 @@ Lebih banyak masalah mungkin akan terjadi di tahun pertama.
 
  
 
-”……”
+"……"
 
  
 
@@ -108,9 +104,9 @@ Ruti dengan sedih menundukkan kepalanya.
 
 "Nah, sejak Ruti menyadarinya dengan cepat, tindakan pencegahan masih mungkin dilakukan."
 
-“Penanggulangan? Itu bisa diselamatkan? ”
+"Penanggulangan? Itu bisa diselamatkan? "
 
-“Ya, itu hampir saja.”
+"Ya, itu hampir saja."
 
  
 
@@ -120,9 +116,9 @@ Berkat tindakan cepat Ruti yang segera melapor kepada Aku setelah dia menemukann
 
  
 
-“Kita harus cepat, ayo siapkan obat untuk menghilangkan Cold Mold.”
+"Kita harus cepat, ayo siapkan obat untuk menghilangkan Cold Mold."
 
-“Un!”
+"Un!"
 
  
 
@@ -154,7 +150,7 @@ Ironisnya, itu adalah emosi yang tidak dimiliki Ruti saat dia menjadi 『Hero』
 
 "Kamu melakukannya dengan baik."
 
-“Un.”
+"Un."
 
  
 
@@ -218,9 +214,9 @@ Setelah meninggalkan rumah kaca, kami menemukan Tise memberi makan Ugeuge-san de
 
  
 
-“Terima kasih atas kerja kerasmu… apa mereka baik-baik saja sekarang?”
+"Terima kasih atas kerja kerasmu… apa mereka baik-baik saja sekarang?"
 
-“Ya, karena langsung diketahui. Sepasang kecambah mungkin tidak berhasil tetapi sebagian besar akan pulih. ”
+"Ya, karena langsung diketahui. Sepasang kecambah mungkin tidak berhasil tetapi sebagian besar akan pulih. "
 
 "Itu hebat."
 
@@ -234,7 +230,7 @@ Baik Ruti dan Aku tersenyum setelah melihat reaksinya.
 
  
 
-“Ugeuge-san sepertinya sedih karena gagal memperhatikan Cold Mold yang berkembang biak. Meskipun ia akan langsung menyadarinya jika ia berjalan di atas tanah. "
+"Ugeuge-san sepertinya sedih karena gagal memperhatikan Cold Mold yang berkembang biak. Meskipun ia akan langsung menyadarinya jika ia berjalan di atas tanah. "
 
  
 
@@ -242,9 +238,9 @@ Seperti yang Tise katakan, Ugeuge-san menundukkan kepalanya. Itu terlihat sediki
 
  
 
-“Begitu, akan lebih bagus jika kita meminta Ugeuge-san membantu mengurus pertanian di masa depan.”
+"Begitu, akan lebih bagus jika kita meminta Ugeuge-san membantu mengurus pertanian di masa depan."
 
-"Ya. Ugeuge-san adalah laba-laba yang dapat diandalkan. ”
+"Ya. Ugeuge-san adalah laba-laba yang dapat diandalkan. "
 
  
 
@@ -294,11 +290,11 @@ Moen memiliki wajah yang pahit. Dalam pertemuan yang dihadiri Ruti, Moen memilik
 
  
 
-“Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksi Kamu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah. "
+"Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksi Kamu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah. "
 
-“Kamu telah melakukan pelatihan untuk melindungi Zoltan jadi kamu akan baik-baik saja. Dalam Pemberontakan Goblin di mana Mistome-shi berperan, Aku dengar itu adalah perang, tetapi di bawah kepemimpinan Mistome-shi, para penjaga Zoltan bertempur dengan mengesankan. "
+"Kamu telah melakukan pelatihan untuk melindungi Zoltan jadi kamu akan baik-baik saja. Dalam Pemberontakan Goblin di mana Mistome-shi berperan, Aku dengar itu adalah perang, tetapi di bawah kepemimpinan Mistome-shi, para penjaga Zoltan bertempur dengan mengesankan. "
 
-“Saya masih anak-anak pada waktu itu tetapi… Aku ingat bahwa semua orang dewasa tampaknya sangat dapat diandalkan. Itu benar, Aku harus percaya pada pelatihan kami dan bawahan Aku. Jika Aku tidak percaya pada mereka, siapa lagi? ”
+"Saya masih anak-anak pada waktu itu tetapi… Aku ingat bahwa semua orang dewasa tampaknya sangat dapat diandalkan. Itu benar, Aku harus percaya pada pelatihan kami dan bawahan Aku. Jika Aku tidak percaya pada mereka, siapa lagi? "
 
  
 
@@ -306,11 +302,11 @@ Moen mengangguk dan berkata pada dirinya sendiri.
 
  
 
-“Saya sebenarnya didorong oleh orang-orang muda seperti Kamu. Hidup seperti apa yang kau jalani, aku masih ingin bertanya meskipun itu perilaku yang buruk. ”
+"Saya sebenarnya didorong oleh orang-orang muda seperti Kamu. Hidup seperti apa yang kau jalani, aku masih ingin bertanya meskipun itu perilaku yang buruk. "
 
-“Tolong anggap itu sebagai rahasia. Juga, beri tahu Ademi bahwa dia harus membawa bidak Wyvern Race-nya untuk dimainkan suatu hari nanti. ”
+"Tolong anggap itu sebagai rahasia. Juga, beri tahu Ademi bahwa dia harus membawa bidak Wyvern Race-nya untuk dimainkan suatu hari nanti. "
 
-“Ah, baiklah. Putraku akan senang mendengarnya. "
+"Ah, baiklah. Putraku akan senang mendengarnya. "
 
  
 
@@ -342,7 +338,7 @@ Ruti memiringkan kepalanya.
 
 "Utusan walikota datang dari Guild Petualang."
 
-“Tapi dia tidak datang ke pertanian?”
+"Tapi dia tidak datang ke pertanian?"
 
  
 
@@ -358,4 +354,4 @@ Ruti bergumam pelan. Pupil merah cerdasnya menoleh ke arahku dan dia mengangguk.
 
  
 
-“Onii-chan, ayo mandi dulu.”
+"Onii-chan, ayo mandi dulu."
