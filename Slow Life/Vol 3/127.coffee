@@ -180,15 +180,13 @@ Gerakan Ririnrara lebih tumpul dibandingkan sebelumnya. Ririnrara kehilangan ket
 
 "Tidak mungkin, kapan!"
 
- 
-
 Ada luka besar yang mengalir di sarung tangan kirinya.
 
-Selama bentrokan pertama, Aku memotong tantangan saat Aku melompat mundur.
+Selama bentrokan pertama, Aku memotong sarung tangannya saat Aku melompat mundur.
 
-Itu mungkin bukan item sihir yang memberikan efek sederhana dari penguatan tubuh tapi mengganggu sihir elf yang tepat menyebabkan efek gauntlet menjadi setengahnya.
+Itu mungkin bukan item sihir yang memberikan efek sederhana dari penguatan tubuh tapi mengganggu sihir elf dapat menyebabkan efek sarung tangannya menjadi setengahnya.
 
-Dan kegagalan tiba-tiba untuk bergerak dengan cara yang dia pikir bisa menyebabkan celah besar muncul dalam gerakan Ririnrara.
+Dan kegagalan tiba-tiba untuk bergerak dengan cara yang dia inginkan bisa menyebabkan celah besar muncul dalam gerakan Ririnrara.
 
 Ririnrara nyaris tidak bisa menahan tusukan pedangku.
 
@@ -198,21 +196,15 @@ Pedang itu meluncur menembus pertahanan Ririnrara seperti ular dan menggigit bah
 
 Ririnrara menahan rasa sakit dan mengubah jarak diantara kami dalam sekejap. Pedangku terlepas dari bahunya dan darah mengalir keluar.
 
-"Ku…"
-
- 
+"Ku..."
 
 Luka dalam di bahu kanannya.
 
 Ririnrara kehilangan kekuatan lengannya bersamaan dengan darah yang mengalir di lengan kanannya.
 
- 
-
-"Apakah kamu masih ingin melakukan ini?"
+g"Apakah kamu masih ingin melakukan ini?"
 
 "Sebuah negara yang sangat sulit diukur. Setidaknya ada tiga orang yang lebih kuat dariku? "
-
- 
 
 Bahkan jika dia memiliki sihir atau keterampilan tipe pemulihan, atau jika dia mencoba meminum ramuan penyembuh, Aku mungkin tidak akan melewatkan kesempatan itu untuk menyerang. Pada jarak saat ini, satu pembukaan akan memungkinkan lawan untuk menyerang dengan segera.
 
