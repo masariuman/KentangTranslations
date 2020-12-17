@@ -158,21 +158,15 @@ Karena perlawanan dari perlindungan ilahi 『Pahlawan』 Ruti, tubuh fisiknya di
 
 Itu agak mengingatkanku ketika seorang penjual meniup keras peralatan makannya dan menyekanya untuk menampilkan peralatan makan yang bersih, tetapi tentu saja, Aku tidak mengatakannya dengan keras.
 
-Karena itu, Aku bisa membayangkan Ruti memiliki pengalaman yang jauh lebih sedikit dalam membasuh tubuhnya dibandingkan dengan kebanyakan orang. Selain itu, dia mungkin tidak pernah memandikan tubuh orang lain selain saat dia mencuci tubuhku ketika dia masih muda.
+Karena itu, Aku bisa membayangkan Ruti memiliki pengalaman yang jauh lebih sedikit dalam membasuh tubuhnya dibandingkan dengan kebanyakan orang. Selain itu, dia mungkin tidak pernah memandikan tubuh orang lain selain saat dia mencuci tubuhku ketika dia masih kecil.
 
- 
+r"Lihatlah ke sana."
 
-Lihat ke sana.
-
-"Ah, oke."
-
- 
+g"Ah, oke."
 
 Aku membelakangi Ruti.
 
-Ruti menyentuh punggung Aku dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuh Aku.
-
- 
+Ruti menyentuh punggungku dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuh Aku.
 
 "Hn…. "
 
