@@ -1,40 +1,24 @@
 Bab 125: Tujuan Ririnrara
 
-Penerjemah: Tseirp
+r"Hau."
 
- 
-
-"Hau."
-
- 
-
-Merendam bahu di bak mandi, ekspresi wajah Ruti meleleh dan dia menghela nafas.
+setelah Merendam bahu di bak mandi, ekspresi wajah Ruti meleleh dan dia menghela nafas.
 
 Senang sekali melihat momen Ruti menikmati latihan yang dinikmati banyak orang di benua Avalon.
 
- 
+r"hangatnya."
 
-"Ini hangat."
-
-"Lagipula ini mandi."
-
- 
+g"Namanya juga bak mandi."
 
 Kamar mandi di rumah Ruti sangat besar.
 
-Kami duduk dengan bahu bersentuhan saat kami meregangkan kaki dan santai.
+Kami duduk dengan bahu bersentuhan dan kami meregangkan kaki dan santai.
 
- 
-
-"Aku tidak pernah membayangkan akan datang suatu hari aku bisa masuk ke kamar mandi seperti ini dengan Onii-chan sekali lagi."
-
- 
+r"Aku tidak pernah membayangkan akan datang suatu hari aku bisa masuk ke kamar mandi seperti ini dengan Onii-chan sekali lagi."
 
 Ruti memejamkan mata dan tersenyum.
 
- 
-
-“Bagaimana menurutmu tinggal di Zoltan?”
+"Bagaimana menurutmu tinggal di Zoltan?"
 
 "Kebahagiaan."
 
@@ -44,7 +28,7 @@ Nada suara Ruti lembut. Itu adalah sesuatu yang tidak terpikirkan selama perjala
 
  
 
-“Aku bisa bertemu Onii-chan kapanpun aku mau, meski cuacanya dingin, aku bisa berendam dan menikmati hangatnya mandi, aku bisa makan makanan enak yang dibuat oleh Onii-chan, bahkan aku berteman dengan orang penting. Tise dan Ugeuge-san yang sangat baik dan kuat dan dapat diandalkan. Saya memegang pedang untuk melindungi dunia kecil yang saya hargai dan hanya memperjuangkan keinginan saya. Tetapi ketika saya berusaha, saya berterima kasih sebagai petualang biasa dan tidak ada yang takut untuk melihat saya. Saya tidak pernah membayangkan bahwa saya akan bisa bermain Wyvern Race dengan anak-anak. Saya bisa tidur di malam hari, bangun dengan sinar matahari pagi dan berolahraga dengan keringat. Apalagi, Onii-chan. ”
+"Aku bisa bertemu Onii-chan kapanpun aku mau, meski cuacanya dingin, aku bisa berendam dan menikmati hangatnya mandi, aku bisa makan makanan enak yang dibuat oleh Onii-chan, bahkan aku berteman dengan orang penting. Tise dan Ugeuge-san yang sangat baik dan kuat dan dapat diandalkan. Aku memegang pedang untuk melindungi dunia kecil yang Aku hargai dan hanya memperjuangkan keinginan Aku. Tetapi ketika Aku berusaha, Aku berterima kasih sebagai petualang biasa dan tidak ada yang takut untuk melihat Aku. Aku tidak pernah membayangkan bahwa Aku akan bisa bermain Wyvern Race dengan anak-anak. Aku bisa tidur di malam hari, bangun dengan sinar matahari pagi dan berolahraga dengan keringat. Apalagi, Onii-chan. "
 
  
 
@@ -52,7 +36,7 @@ Ruti mendekatiku. Air mata samar mengalir di pupil matanya yang merah.
 
  
 
-“Pagi ini, ketika saya melihat rumput obat saya layu. A-aku ketakutan. "
+"Pagi ini, ketika Aku melihat rumput obat Aku layu. A-aku ketakutan. "
 
  
 
@@ -74,9 +58,9 @@ Aku senang rumput obatnya baik-baik saja.
 
  
 
-Saya berpikir dalam hati sekali lagi setelah melihat wajah itu.
+Aku berpikir dalam hati sekali lagi setelah melihat wajah itu.
 
-Saya sangat senang bisa ada untuk Ruti.
+Aku sangat senang bisa ada untuk Ruti.
 
  
 
@@ -84,11 +68,11 @@ Saya sangat senang bisa ada untuk Ruti.
 
  
 
-Setelah mandi, saya membuatkan dua cangkir kopi susu untuk kami di lobi mansion.
+Setelah mandi, Aku membuatkan dua cangkir kopi susu untuk kami di lobi mansion.
 
-Saya menambahkan banyak gula ke dalam kopi pekat yang saya buat.
+Aku menambahkan banyak gula ke dalam kopi pekat yang Aku buat.
 
-Saya hanya mencampurkan susu sapi untuk itu. Saya menambahkan rasio favorit saya dari empat bagian susu dan 1 bagian sirup kopi.
+Aku hanya mencampurkan susu sapi untuk itu. Aku menambahkan rasio favorit Aku dari empat bagian susu dan 1 bagian sirup kopi.
 
 Minumannya sederhana tapi enak dengan rasa manis dan penuh rasa. Itu mungkin salah satu minuman terbaik, terutama setelah mandi.
 
@@ -98,7 +82,7 @@ Dia tidak berubah sejak muda.
 
  
 
-"Apakah anda mau lagi?"
+"Apakah kamu mau lagi?"
 
 "Ya."
 
@@ -114,23 +98,23 @@ Setelah kami selesai membersihkan cangkir dan panci, kami mengambil nafas.
 
  
 
-“Sekarang kupikir-pikir, para pembunuh High-Elf yang tertangkap masih berada di mansion ini.”
+"Sekarang kupikir-pikir, para pembunuh High-Elf yang tertangkap masih berada di mansion ini."
 
  
 
-Saya masih bisa merasakan tanda-tanda mereka di bawah tanah.
+Aku masih bisa merasakan tanda-tanda mereka di bawah tanah.
 
 Itu tentang para pembunuh yang menyerang Ruti dan Tise tapi membalikkan meja dan tertangkap tapi ...
 
  
 
-"Saya yakin mereka akan datang untuk membebaskan mereka saat kita meninggalkan mansion tanpa pengawasan."
+"Aku yakin mereka akan datang untuk membebaskan mereka saat kita meninggalkan mansion tanpa pengawasan."
 
 Ruti memiringkan kepalanya.
 
  
 
-“Saya mungkin telah mengunci mereka di sebuah ruangan tetapi mereka seharusnya dapat memecahkannya jika mereka memikirkannya.”
+"Aku mungkin telah mengunci mereka di sebuah ruangan tetapi mereka seharusnya dapat memecahkannya jika mereka memikirkannya."
 
 "Akan sangat bagus jika seseorang datang untuk membebaskan mereka."
 
@@ -152,9 +136,9 @@ Itulah alasan mengapa aku tidak meninggalkan Tise di mansion ketika kami pergi u
 
 Ruti sedikit menunduk dan menyeringai.
 
-Saya akhirnya ditertawakan, apakah saya terlalu protektif?
+Aku akhirnya ditertawakan, apakah Aku terlalu protektif?
 
-Saya batuk dan mengatur ulang pikiran saya sebelum melanjutkan.
+Aku batuk dan mengatur ulang pikiran Aku sebelum melanjutkan.
 
  
 
@@ -166,7 +150,7 @@ Tatapan Ruti sedikit menunduk. Begitulah gerak tubuh Ruti saat berpikir.
 
  
 
-“Saya tidak tahu. Mereka pikir itu jebakan? ”
+"Aku tidak tahu. Mereka pikir itu jebakan? "
 
  
 
@@ -178,9 +162,9 @@ Tentu saja, ia mengakui keunggulan Ruti atau Tise di mana mereka bisa sendiri me
 
  
 
-“Ririnrara mungkin akan lebih berhati-hati jadi mungkin perlu waktu sebelum kita melihat tindakan apapun dari pihak mereka.”
+"Ririnrara mungkin akan lebih berhati-hati jadi mungkin perlu waktu sebelum kita melihat tindakan apapun dari pihak mereka."
 
-“Ya, menurutku juga begitu.”
+"Ya, menurutku juga begitu."
 
 "Jika terus begini, ini akan dibahas di tabel negosiasi berikutnya."
 
@@ -194,13 +178,13 @@ Dengan kemungkinan identitas Ruti sebagai Pahlawan akan terungkap, kali ini dia 
 
  
 
-“Pangeran Sarius akan segera menanyakan jawaban. Ada orang di pihaknya yang ingin mengulur waktu juga. Kami memiliki keuntungan dalam negosiasi. "
+"Pangeran Sarius akan segera menanyakan jawaban. Ada orang di pihaknya yang ingin mengulur waktu juga. Kami memiliki keuntungan dalam negosiasi. "
 
  
 
 Meski demikian, Ruti memiliki penilaian yang sangat baik. Dia tidak melawan Tentara Raja Iblis hanya dengan kemampuan dari perlindungan ilahi.
 
-Itu sebabnya saya merasa nyaman menyerahkan kasus ini kepada Ruti.
+Itu sebabnya Aku merasa nyaman menyerahkan kasus ini kepada Ruti.
 
  
 
@@ -252,7 +236,7 @@ Namun anak buah Ririnrara tidak bisa menemukan orang yang menyelidiki Tifa. Bahk
 
  
 
-(Tentu saja, ada kemungkinan mereka waspada terhadap bawahan saya dan menyembunyikan informasi tersebut.)
+(Tentu saja, ada kemungkinan mereka waspada terhadap bawahan Aku dan menyembunyikan informasi tersebut.)
 
  
 
@@ -288,7 +272,7 @@ Ririnrara berdiri, membuka kotak terkunci dan mengeluarkan sarung tangan baja hi
 
  
 
-Darah para High-Elf yang sombong mengalir di nadiku, pinjamkan aku kekuatanmu. ”
+Darah para High-Elf yang sombong mengalir di nadiku, pinjamkan aku kekuatanmu. "
 
  
 
@@ -312,7 +296,7 @@ Dua item sihir berharga Ririnrara.
 
  
 
-"Saya harus mengambil tindakan sendiri."
+"Aku harus mengambil tindakan sendiri."
 
  
 
@@ -322,7 +306,7 @@ Tentu saja, di antara para pengikutnya yang tersisa, dia memiliki orang-orang ya
 
  
 
-(Mereka tampaknya tidak ingin dengan patuh menyerahkan daftar gereja ... Saya harus mengakhiri Misufia sebelum mereka berubah pikiran.)
+(Mereka tampaknya tidak ingin dengan patuh menyerahkan daftar gereja ... Aku harus mengakhiri Misufia sebelum mereka berubah pikiran.)
 
  
 
@@ -330,7 +314,7 @@ Pangeran Sarius bermaksud untuk membuktikan asal-usulnya sendiri dengan Misufia 
 
  
 
-(Sebelum itu terjadi, saya harus mengubur Misufia secara rahasia tanpa diketahui Pangeran Sarius.)
+(Sebelum itu terjadi, Aku harus mengubur Misufia secara rahasia tanpa diketahui Pangeran Sarius.)
 
  
 
