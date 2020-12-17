@@ -76,39 +76,27 @@ g"Apoteker red. Orang biasa yang tidak berbahaya."
 
 Tidak ada kriteria untuk menjadi orang biasa.
 
-Kami menutup jarak di antara kami dengan satu langkah, lalu dengan langkah lainnya, saat kami dengan ringan membalas satu sama lain.
+Kami menutup jarak di antara kami dengan satu langkah, lalu dengan langkah lainnya.
 
 Angin bertiup dan pepohonan berkibar seolah membisikkan harapan mereka tentang siapa yang akan menang.
 
- 
+g"Jadi, ada perlu apa denganku?"
 
-"Jadi, bisnis apa yang kamu miliki denganku?"
+"Lempar senjatamu dan menyerahlah. Ikutlah denganku dan aku akan mengampuni hidupmu."
 
-"Lempar senjatamu dan menyerahlah. Ikutlah denganku dan aku akan mengampuni hidupmu. "
-
-"Dan kamu berharap aku mempercayai kata-kata bajak laut?"
+g"Dan kamu berharap aku mempercayai kata-kata bajak laut?"
 
 "Aku telah berhenti menjadi bajak laut."
 
- 
-
 Ririnrara berhenti bergerak.
 
- 
+g"Kamu tidak berencana untuk menyerah apapun yang terjadi?"
 
-"Kamu tidak berencana untuk menyerah apapun yang terjadi?"
-
-"Tidak keren bagi seorang kakak laki-laki yang menyebabkan gangguan pada adik perempuannya."
-
- 
+"Tidak keren bagi seorang kakak laki-laki menyebabkan masalah pada adik perempuannya."
 
 Niat membunuh yang kental tergantung di udara di antara kami. Tapi aku meletakkan tanganku di gagang pedangku dan melangkah maju tanpa ragu-ragu.
 
- 
-
 Angin kencang bertiup lewat.
-
- 
 
 Bahkan tanpa suara pedang yang keluar dari sarungnya dan dalam sekejap mata, pedang perak dari pedang panjang Ririnrara berkilat saat diayunkan ke bawah menuju kepalaku.
 
