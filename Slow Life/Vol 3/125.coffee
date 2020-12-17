@@ -180,9 +180,9 @@ Sarung Tangan Ilmu Pedang. Itu adalah Item Sihir yang diturunkan ke Ririnrara da
 
 Seorang ahli pedang sangat kuat tetapi ketika seorang pendekar pedang seperti Ririnrara, dengan teknik kelas satu dan tingkat Perlindungan Ilahi yang tinggi, memakainya, kekuatannya akan melampaui seorang master dan mencapai tingkat manusia super.
 
-Selanjutnya, Ririnrara mengeluarkan pedang pendek yang biasanya dia gunakan serta pedang panjang yang berbeda dari kotak.
+Selanjutnya, Ririnrara mengeluarkan pedang pendek yang biasanya dia gunakan serta pedang panjang yang berbeda di kotak berbeda.
 
-Sarungnya berwarna putih dan dihiasi dengan dekorasi emas cerah. Ririnrara mencabut pedangnya sedikit dan Sihir Angin yang terkandung menyembur keluar, menyebabkan rambut abu-abu Ririnrara bergoyang.
+Sarungnya berwarna putih dan dihiasi dengan dekorasi emas cerah. Ririnrara mencabut pedangnya sedikit dan Sihir Angin yang menyembur keluar, menyebabkan rambut abu-abu Ririnrara bergoyang.
 
 Itu adalah Pedang Sihir Leluhur juga. Seorang ahli pedang dilaporkan menghabiskan hidupnya untuk membuat dan menyempurnakannya. Itu disebut Elf Sorrow.
 
