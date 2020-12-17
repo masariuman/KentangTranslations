@@ -162,13 +162,11 @@ Ririnrara memandang lengannya yang melemah dengan aneh.
 
 Lengan itu gemetar.
 
- 
-
 Mengesampingkan itu, pasukan Pangeran Sarius bergerak?
 
-Aneh, tentara akan bergerak sementara Ririnrara, sang komandan, tidak ada. Selain itu, jika mereka mencoba menyerang dan menduduki wilayah negara lain alih-alih hanya mengancamnya, bahkan jika itu hanya wilayah terpencil, penguasa Kerajaan Avalonia dan para Pendeta Gereja Suci tidak akan tinggal diam.
+Aneh, tentara akan bergerak sementara Ririnrara, sang komandan, tidak ada. Selain itu, jika mereka mencoba menyerang dan menduduki wilayah negara lain daripada hanya mengancamnya, bahkan jika itu hanya wilayah terpencil, penguasa Kerajaan Avalonia dan para Pendeta Gereja Suci tidak akan tinggal diam.
 
-Memikirkannya dalam sudut pandang Pangeran Sarius, itu akan menjadi kartu truf yang bisa dia mainkan hanya jika dia yakin akan suksesi takhta ... tapi Aku tidak percaya dia terpojok untuk membuat penilaian yang salah.
+Memikirkannya dalam sudut pandang Pangeran Sarius, itu akan menjadi kartu andalan yang bisa dia mainkan hanya jika dia yakin kalau dia akan mendapatkan takhta ... tapi Aku tidak percaya dia terpojok untuk membuat penilaian yang salah.
 
 Tetapi jika tentara benar-benar telah bergerak, kami tidak dapat menggunakan waktu kami lagi.
 
