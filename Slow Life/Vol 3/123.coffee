@@ -198,68 +198,44 @@ Untuk alasan itu, Garadin dan yang lainnya kembali ke Zoltan dan mirip dengan ka
 
 Moen memiliki wajah yang pahit. Dalam pertemuan yang dihadiri Ruti, Moen memiliki pendirian untuk menolak permintaan Veronia bersama Garadin, namun ia juga satu-satunya yang bingung dengan keadaan tersebut.
 
-"Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksi Kamu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah."
+"Pengawal Zoltan tidak pernah mengalami kedatangan kapal perang dari negara lain. Kami bahkan tidak memiliki manual. Kami entah bagaimana menghindari sistem yang lumpuh dengan instruksimu, tetapi Aku tidak nyaman seberapa jauh kami dapat bertindak jika perang pecah."
 
-"Kamu telah melakukan pelatihan untuk melindungi Zoltan jadi kamu akan baik-baik saja. Dalam Pemberontakan Goblin di mana Mistome-shi berperan, Aku dengar itu adalah perang, tetapi di bawah kepemimpinan Mistome-shi, para penjaga Zoltan bertempur dengan mengesankan. "
+g"Kamu telah melakukan pelatihan untuk melindungi Zoltan jadi kamu akan baik-baik saja. Dalam Pemberontakan Goblin di mana Mistome-shi berperan, Aku dengar itu adalah perang, tetapi di bawah kepemimpinan Mistome-shi, para penjaga Zoltan bertempur dengan mengesankan."
 
-"Saya masih anak-anak pada waktu itu tetapi… Aku ingat bahwa semua orang dewasa tampaknya sangat dapat diandalkan. Itu benar, Aku harus percaya pada pelatihan kami dan bawahan Aku. Jika Aku tidak percaya pada mereka, siapa lagi? "
-
- 
+"aku masih anak-anak pada waktu itu tetapi... Aku ingat bahwa semua orang dewasa tampaknya sangat dapat diandalkan. Itu benar, Aku harus percaya pada latihan kami dan bawahanku. Jika Aku tidak percaya pada mereka, siapa lagi?"
 
 Moen mengangguk dan berkata pada dirinya sendiri.
 
- 
+"aku sebenarnya didorong oleh orang-orang muda sepertimu. Hidup seperti apa yang kamu jalani, aku masih ingin bertanya meskipun itu tidak baik untuk bertanya."
 
-"Saya sebenarnya didorong oleh orang-orang muda seperti Kamu. Hidup seperti apa yang kau jalani, aku masih ingin bertanya meskipun itu perilaku yang buruk. "
+g"Tolong anggap itu sebagai rahasia. Juga, beri tahu Ademi bahwa dia harus membawa bidak Wyvern Race-nya untuk dimainkan suatu hari nanti."
 
-"Tolong anggap itu sebagai rahasia. Juga, beri tahu Ademi bahwa dia harus membawa bidak Wyvern Race-nya untuk dimainkan suatu hari nanti. "
+"Ah, baiklah. Putraku akan senang mendengarnya."
 
-"Ah, baiklah. Putraku akan senang mendengarnya. "
-
- 
-
-Kekakuan di ekspresi Moen menghilang saat dia mendengar nama putranya dan rasanya dia meledak dengan tekad.
+Kekakuan di ekspresi Moen menghilang saat dia mendengar nama putranya dan rasanya dia meledak dengan tekadnya.
 
 Yup, Aku yakin Moen akan baik-baik saja.
 
- 
+"Oh iya."
 
-Oh benar.
+Garadin tiba-tiba bicara.
 
- 
-
-Garadin tiba-tiba angkat bicara.
-
- 
-
-"Apa itu?"
+g"Ada apa?"
 
 Walikota sedang mencari Ruru.
 
-"Aku?"
-
- 
+r"Aku?"
 
 Ruti memiringkan kepalanya.
 
- 
+"Utusan walikota datang ke Guild Petualang."
 
-"Utusan walikota datang dari Guild Petualang."
+r"Tapi dia tidak datang ke kebunku?"
 
-"Tapi dia tidak datang ke pertanian?"
+kebun Ruti tidak terkenal tetapi secara alami, Walikota Tonedo dan staf Guild Petualang tahu bahwa pekerjaan Ruti yang sebenarnya adalah berkebun tanaman herbal.
 
- 
-
-Peternakan Ruti tidak terkenal tetapi secara alami, Walikota Tonedo dan staf Guild Petualang harus tahu bahwa pekerjaan Ruti yang sebenarnya adalah memelihara pertanian herbal.
-
- 
-
-"Aku melihat."
-
- 
+r"Begitu."
 
 Ruti bergumam pelan. Pupil merah cerdasnya menoleh ke arahku dan dia mengangguk.
 
- 
-
-"Onii-chan, ayo mandi dulu."
+r"Onii-chan, ayo mandi dulu."
