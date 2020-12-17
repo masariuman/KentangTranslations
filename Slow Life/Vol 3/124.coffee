@@ -226,7 +226,7 @@ Itu sebabnya saat membasuh bagian depan badan, dia tidak membasuh sambil menghad
 
 Ruti serius tapi gaya mencucinya menggelitik hatiku.
 
-Kesenjangan antara tindakan manusia supernya dan bagian tubuhnya yang sedikit kurang, menggelitik hatiku sebagai kakaknya.
+Kesenjangan antara tindakan manusia supernya dan bagian dirinya yang sedikit kurang, menggelitik hatiku sebagai kakaknya.
 
 Dengan kata lain, dia imut dan manis.
 
@@ -234,6 +234,6 @@ g"Fu, fufu..."
 
 r"?"
 
-Aku tidak bisa menahan tawa sehingga Ruti sekali lagi menghentikan tangannya karena merasa geli.
+Aku tidak bisa menahan tawa sehingga Ruti sekali lagi menghentikan tangannya karena dia pikir aku merasa geli.
 
 Namun, ketika dia melihat ekspresiku, itu mungkin memberitahunya bahwa tawa itu berasal dari kegembiraan. Ruti tersenyum juga dan terus membasuh tubuhku dengan handuk berbusa sambil memelukku dari belakang.
