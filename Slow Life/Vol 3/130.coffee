@@ -64,43 +64,27 @@ g"Lit dan aku akan melihat ke atas tanah."
 
 Lit dan aku serta Garadin dan Pendeta Cien akan pergi ke atas tanah.
 
-Kami tidak ingin ada yang tahu bahwa Misufia ada di sini dan Ruti harus tinggal di sini untuk menekan Ririnrara sehingga tidak ada pilihan lain.
+Kami tidak ingin ada yang tahu bahwa Misufia ada di sini dan Ruti harus tinggal di sini untuk menahan Ririnrara sehingga tidak ada pilihan lain.
 
 Selain itu, Garadin dan Cien mungkin harus kembali ke pos masing-masing tergantung situasinya.
 
- 
+r"Tunggu."
 
-"Tunggu."
+Tapi sebelum kami pergi, Ruti menghentikan kami.
 
- 
+r"Kita semua akan pergi."
 
-Tapi sebelum kami bisa pergi, Ruti menghentikan kami.
+g"Semua? Ruti dan Misufia-san juga?"
 
- 
-
-Kita semua akan pergi.
-
-"Semua? Ruti dan Misufia-san juga? "
-
-Tidak, Ririnrara, Tise, dan High-Elf lainnya juga.
-
- 
+l"Tidak, Ririnrara, Tise, dan High-Elf lainnya juga."
 
 Bukan hanya Garadin dan Pendeta Cien, bahkan Lit pun melirikku dan Ruti dengan gelisah.
 
- 
-
-"Baiklah. Kita semua akan pergi. "
-
- 
+g"Baiklah. Kita semua akan pergi."
 
 Tapi Aku setuju dengan Ruti.
 
- 
-
-"Jangan khawatir, apapun yang terjadi di sini mungkin akan merepotkan Ririnrara dalam jumlah yang sama juga."
-
- 
+g"Jangan khawatir, apapun yang terjadi di sini mungkin akan merepotkan Ririnrara juga."
 
 Ditambah lagi, ada ekspresi bingung di wajah Ririnrara.
 
@@ -108,35 +92,21 @@ Apapun yang terjadi mungkin tidak direncanakan oleh Ririnrara.
 
 Dia mungkin berguna jika kita membawanya.
 
- 
-
-"Lebih penting lagi, ayo cepat naik."
-
- 
+g"Lebih penting lagi, ayo cepat naik."
 
 Semua orang masih bingung dengan situasinya tetapi kami segera kembali ke permukaan diiringi dering bel.
 
 ☆☆
 
- 
-
 Di luar, penjaga di menara pengawas yang terletak di kota itu membunyikan bel dengan cara setengah gila dengan sangat keras hingga menyakitkan di telinga.
 
-Dan di jalanan, warga kawasan tengah lupa tampil saat bergegas menuju gedung Parlemen Pusat Zoltan yang juga berfungsi sebagai benteng pertahanan.
-
- 
+Dan di jalanan, warga kawasan tengah melupakan apa yang dilakukan mereka dan bergegas menuju gedung Parlemen Pusat Zoltan yang juga berfungsi sebagai benteng pertahanan.
 
 "Apa yang terjadi!?"
 
- 
-
 Garadin menangkap salah satu penjaga yang menjaga warga dan bertanya.
 
- 
-
-"Garadin-san !! Dan Cien-sama !!! "
-
- 
+"Garadin-san !! Dan Cien-sama !!!"
 
 Penjaga berwajah pucat itu berteriak dengan ekspresi berlinang air mata setelah menyadari bahwa Garadin-lah yang memanggilnya.
 
@@ -144,47 +114,31 @@ Penduduk sekitar juga berhenti ketika mendengar nama mereka dan berkumpul.
 
 Ingin tetap rendah hati, Aku dengan santai menjauh dari Garadin dan Pendeta Cien.
 
-Yah, sudah agak terlambat sekarang tapi menjadi Apoteker Merah seharusnya masih memiliki banyak kegunaan.
+Yah, sudah agak terlambat sekarang tapi menjadi Apoteker red seharusnya masih memiliki banyak kegunaan.
 
- 
+"Kami bergegas setelah kami mendengar bel. Jelaskan padaku apa yang terjadi."
 
-"Kami bergegas setelah kami mendengar bel. Jelaskan padaku apa yang terjadi. "
-
-"Ya, Aku hanya mendengarnya dari kapten regu Aku jadi Aku tidak tahu detailnya tapi…"
-
- 
+"Ya, Aku hanya mendengarnya dari kapten reguku jadi Aku tidak tahu detailnya tapi..."
 
 Penjaga itu sepertinya takut mengucapkan beberapa kata berikutnya saat dia bergidik.
 
- 
+"Veronia menyerang jadi kami mengevakuasi warga."
 
-Veronia menyerang jadi kami mengevakuasi warga.
+"Apa- Tidak mungkin !!"
 
-"Apa" Tidak mungkin !! "
+Ririnrara muncul dari belakang Garadin.
 
- 
-
-Ririnrara terbang dari belakang Garadin.
-
- 
-
-"Ap, ap-siapa kamu…"
-
- 
+"Ap, ap-siapa kamu..."
 
 Ririnrara mencengkeram dadanya penjaga yang terkejut itu dan mendekatinya dengan tatapan mengancam.
 
- 
+"Apakah Kamu yakin! Apa kau yakin kapal Sarius menyerang !?"
 
-"Apakah Kamu yakin! Apa kau yakin kapal Sarius diserang !? "
+"A-aku tidak tahu! Aku sudah mengatakan bahwa Aku hanya mendengarnya dari kapten reguku !!"
 
-"A-aku tidak tahu! Aku sudah mengatakan bahwa Aku hanya mendengarnya dari kapten regu Aku !! "
+"Mustahil! Sarius setidaknya sadar bahwa dia tidak boleh menggerakkan pasukan!"
 
-"Mustahil! Sarius setidaknya harus sadar bahwa dia tidak boleh menggerakkan pasukan! "
-
-"Li-seperti aku tahu…! Itu menyakitkan!!"
-
- 
+"ma-mana kutahu! ini sakit!!"
 
 Penjaga itu mencoba melepaskan diri tapi lengan Ririnrara, yang memegang dada penjaga itu dan mengangkat tubuhnya, tidak bergerak.
 
@@ -192,21 +146,13 @@ Ririnrara tidak menghiraukan lengan tebal Garadin yang dengan cepat meraih bahun
 
 Namun,
 
- 
-
-Lepaskan tanganmu.
-
- 
+r"Lepaskan tanganmu."
 
 Ruti berkata dan meletakkan tangannya di lengan Ririnrara.
 
 Hanya tindakan itu saja yang menyebabkan tubuh penjaga terlepas dari cengkeraman Ririnrara.
 
- 
-
-"Batuk batuk… apa-apaan ini!"
-
- 
+"uhuk uhuk.. apa-apaan ini!"
 
 Penjaga itu mengeluh dengan tidak senang.
 
