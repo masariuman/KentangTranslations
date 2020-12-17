@@ -178,11 +178,9 @@ Adapun poin kompromi untuk negosiasi ... kami hanya akan dapat memutuskan setela
 
 Singkatnya, kami telah melakukan apa yang kami bisa.
 
-Kalau begitu, lebih baik kita kembali ke kehidupan lambat kita dan melakukan hal-hal seperti ini.
+Kalau begitu, lebih baik kita kembali ke kehidupan santai kita dan melakukan hal-hal seperti ini.
 
 Kapten Penjaga Moen tertawa kagum saat aku mengatakan itu padanya.
-
- 
 
 Kami bertemu dengan Moen dan Eksekutif Guild Petualang Garadin saat kami dalam perjalanan ke pemandian di rumah besar Ruti.
 
