@@ -48,67 +48,45 @@ g"Hanya yang tumbuh sangat besar yang akan menimbulkan masalah bagi para petuala
 
 Jamur Dingin adalah sejenis jamur yang ditemukan di benua ini.
 
-Ini adalah jamur unik yang memiliki sifat berkembang biak dengan menyerap panas di sekitarnya dan ketika koloni berdiameter lebih dari satu meter, wilayah mereka akan terbentang sekitar 10 meter dan jika ada sumber panas yang masuk ke dalamnya ... sebagian besar makhluk hidup akan memiliki panas. diambil dari mereka dengan cepat.
+Ini adalah jamur unik yang memiliki sifat berkembang biak dengan menyerap panas di sekitarnya dan ketika berdiameter lebih dari satu meter, wilayah mereka akan terbentang sekitar 10 meter dan jika ada sumber panas yang masuk ke dalamnya ... sebagian besar makhluk hidup akan memiliki panas akan diambil panas tersebut dari mereka dengan cepat.
 
-Jika targetnya adalah manusia dengan tingkat perlindungan ilahi rendah, itu sangat mengerikan memiliki kekuatan yang cukup untuk menyebabkan mereka pingsan dalam waktu sekitar 30 detik.
+Jika targetnya adalah manusia dengan tingkat perlindungan ilahi rendah, itu sangat mengerikan karena memiliki kekuatan yang cukup untuk menyebabkan mereka pingsan dalam waktu sekitar 30 detik.
 
-Karena akan menyebabkan sensasi dingin yang hebat, sebagian besar waktu orang akan segera meninggalkan daerah tersebut dan satu-satunya masalah adalah menghangatkan tubuh mereka, tetapi dalam situasi dengan kekuatan fisik yang melemah karena kehilangan darah, hal itu dapat menyebabkan cedera. berubah menjadi cedera fatal.
+Karena akan menyebabkan sensasi dingin yang hebat, sebagian besar orang akan segera meninggalkan daerah tersebut dan satu-satunya masalah adalah menghangatkan tubuh mereka, tetapi dalam situasi dengan kekuatan fisik yang melemah karena kehilangan darah, hal itu dapat menyebabkan cedera. berubah menjadi cedera fatal.
 
- 
+g"Di tempat tinggal manusia jarang tumbuh hingga ukuran besar seperti itu, tetapi sejumlah kecil akan dapat berkembang biak di tanah hangat seperti ini."
 
-"Di tempat tinggal orang, jarang tumbuh hingga ukuran koloni seperti itu, tetapi sejumlah kecil akan dapat berkembang biak di tanah hangat seperti ini."
+Jamur dingin menyebabkan suhu tanah turun dan mengakibatkan kondisi rumput bintang laut abu-abu Ruti melemah.
 
- 
+r"Mengapa Cold Mold..."
 
-Jamur dingin menyebabkan suhu tanah turun dan mengakibatkan kondisi rumput bintang laut abu-abu Ruti.
-
- 
-
-"Mengapa Cold Mold…"
-
-"Itu mungkin terbawa bersama tanah. Dalam keadaan normal, selama musim dingin jumlah mereka akan berkurang ke tingkat yang tidak akan menimbulkan masalah apa pun, tetapi ketika rumah kaca dibangun, kemungkinan itu mulai menyebar. "
-
- 
+g"Itu mungkin terbawa bersama tanah. Dalam keadaan normal, selama musim dingin jumlah mereka akan berkurang ke tingkat yang tidak akan menimbulkan masalah apa pun, tetapi ketika rumah kaca dibangun, kemungkinan itu mulai menyebar."
 
 Atau haruskah Aku mengatakan mereka tidak beruntung?
 
-Namun, saat mengubah penggunaan pertanian, beberapa keadaan yang tidak terduga tidak dapat dihindari.
+Namun, saat mengubah penggunaan kebun, beberapa keadaan yang tidak terduga tidak dapat dihindari.
 
 Lebih banyak masalah mungkin akan terjadi di tahun pertama.
 
- 
-
-"……"
-
- 
+r"......"
 
 Ruti dengan sedih menundukkan kepalanya.
 
- 
+g"Nah, karena Ruti menyadarinya dengan cepat, tindakan penanggulangan masih mungkin dilakukan."
 
-"Nah, sejak Ruti menyadarinya dengan cepat, tindakan pencegahan masih mungkin dilakukan."
+r"Penanggulangan? Itu bisa diselamatkan? "
 
-"Penanggulangan? Itu bisa diselamatkan? "
+g"Ya, masih bisa."
 
-"Ya, itu hampir saja."
+Jamur dingin adalah parasit tetapi tampaknya tidak tumbuh dalam jumlah besar. Dibandingkan dengan jenis jamur yang menyebabkan masalah dengan menginfeksi tanaman secara langsung, tanaman akan kembali normal setelah jamur dingin dibasmi dan suhu tanah dinaikkan.
 
- 
+Berkat tindakan cepat Ruti yang segera melapor kepadaku setelah dia menemukannya pada tahap ini di pagi hari, Aku seharusnya bisa melakukannya tepat waktu jika Aku menghadapinya sekarang.
 
-Jamur dingin adalah parasit tetapi tampaknya tidak tumbuh dalam jumlah besar. Dibandingkan dengan jenis jamur yang menyebabkan masalah dengan menginfeksi tanaman secara langsung, tanaman akan kembali normal setelah Cold Mold dibasmi dan suhu tanah dinaikkan.
+g"Kita harus cepat, ayo siapkan obat untuk menghilangkan Jamur Dingin."
 
-Berkat tindakan cepat Ruti yang segera melapor kepada Aku setelah dia menemukannya pada tahap ini di pagi hari, Aku seharusnya bisa datang tepat waktu jika Aku menghadapinya sekarang.
+r"Un!"
 
- 
-
-"Kita harus cepat, ayo siapkan obat untuk menghilangkan Cold Mold."
-
-"Un!"
-
- 
-
-Kami meninggalkan pertanian dalam perawatan Tise sementara Ruti dan Aku segera pergi untuk membeli materi yang kami butuhkan.
-
- 
+Kami meninggalkan kebun kepada Tise sementara Ruti dan Aku segera pergi untuk membeli bahan yang kami butuhkan.
 
 ☆☆
 
