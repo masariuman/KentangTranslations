@@ -152,43 +152,25 @@ t"Red-san, kondisi Ririnrara memang aneh."
 
 Tise berbisik padaku.
 
-Sikap Ririnrara sekarang benar-benar berbeda dari jenderal yang kuat, bajak laut legendaris dan High-Elf yang sombong yang dia tunjukkan sampai sekarang.
+Sikap Ririnrara sekarang benar-benar berbeda dari jenderal yang kuat, bajak laut legendaris dan High-Elf yang memiliki harga diri yang tinggi yang dia tunjukkan sampai sekarang.
 
 Ketiga bawahan High-Elfnya saling memandang dengan cemas setelah melihat kondisinya.
 
- 
-
-"Apakah ini… salahku sekali lagi…"
-
- 
+"Apakah ini.. salahku lagi..."
 
 Penyesalan dan keputusasaan terlihat di wajah Ririnrara.
 
- 
-
-"… Ririnrara, kamu baik-baik saja?"
-
- 
+g"... Ririnrara, kamu baik-baik saja?"
 
 Ririnrara menutupi wajahnya dengan kedua tangannya tanpa ada reaksi apapun terhadap kata-kataku.
 
- 
+"Sekali lagi aku... aku hanya ingin berguna baginya."
 
-"Sekali lagi aku… aku hanya ingin berguna baginya."
-
- 
-
-Murmur tertekannya sangat sunyi karena bocor melalui celah jari yang menutupi wajahnya tetapi keterampilan persepsiku yang ditingkatkan menangkapnya ... Aku ingin tahu siapa orang yang dia maksud? "
-
- 
+dia berguman dengan nada tertekan dengan sangat kecil tetapi skill persepsiku yang ditingkatkan mendengarnya ... Aku ingin tahu siapa orang yang dia maksud?
 
 Aku tidak bisa melakukan apa-apa saat ini.
 
- 
-
-"Sir William sepertinya sangat ingin mengembalikan Ririnrara dan yang lainnya. Bagaimanapun, kami akan berangkat menemui Pangeran Sarius setelah percakapan mereka berakhir. "
-
- 
+"Sir William sepertinya sangat ingin mengembalikan Ririnrara dan yang lainnya. Kita akan berangkat menemui Pangeran Sarius setelah percakapan mereka berakhir."
 
 Aku mengatakan itu pada Ririnrara dan bawahan High Elfnya.
 
