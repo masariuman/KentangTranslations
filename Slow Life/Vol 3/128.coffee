@@ -108,31 +108,25 @@ Ruti menjawab dengan senang.
 
 Melihat wajah itu, aku akhirnya merasa baik-baik saja. Nah, di Zoltan, keributan semacam ini jarang terjadi.
 
-"Bagaimana Aku mengatakannya, siapa sebenarnya Kamu ini."
+"Siapa sebenarnya kalian ini."
 
-"Seperti yang Aku katakan …"
+g"Seperti yang Aku katakan..."
 
-"Cukup dengan itu! Kalian bajingan telah menangkap seorang Jenderal Kerajaan Veronian! Jika Kamu meminta tebusan, Kamu akan menerima cukup uang untuk menjalani kehidupan kebebasan sebagai warga negara atau jika Kamu mengumumkan penangkapan Kamu, ketenaran Kamu akan membuat Kamu menjadi pejabat di negara mana pun. Setidaknya, Kamu telah menangkap biang keladi gangguan di Zoltan. "
-
- 
+"Cukup dengan itu! Kalian bajingan telah menangkap seorang Jenderal Kerajaan Veronian! Jika Kamu meminta tebusan, Kamu akan menerima cukup uang untuk menjalani kehidupan kebebasan sebagai warga negara atau jika Kamu mengumumkan penangkapan Kamu, ketenaranmu akan membuatmu menjadi pejabat di negara mana pun. Setidaknya, Kamu telah menangkap biang keladi gangguan di Zoltan."
 
 Kemarahan karena ditawan menghilang dari ekspresi mereka sebelum aku menyadarinya.
 
 Kegelisahan dari melihat makhluk yang tidak mereka pahami telah menggantikannya. Dan rasa teror yang samar-samar.
 
- 
-
-"Kenapa kalian begitu tenang? Mengapa Kamu mampu bersikap seolah-olah Kamu hanya menghabiskan hari-hari biasa? "
-
- 
+"Kenapa kalian begitu tenang? Mengapa kalian mampu bersikap seolah-olah Kamu hanya bersantai setiap hari? "
 
 Kami saling memandang. Begitu, kami berempat pasti memiliki wajah yang biasa.
 
-Ririnrara pernah menjadi bajak laut legendaris yang melakukan perjalanan ke Benua Hitam. Sosok terhormat yang selamat di Benua Raja Iblis yang belum pernah kami injak sebelumnya.
+Ririnrara pernah menjadi bajak laut legendaris yang melakukan perjalanan ke Benua Kegelapan. Sosok terhormat yang selamat di Benua Raja Iblis yang belum pernah kami injak sebelumnya.
 
 Namun, Tentara Veronia belum pernah melawan Tentara Raja Iblis sebelumnya. Ririnrara dan kelompoknya tidak menyadari Tentara Raja Iblis yang sangat perkasa dan licik yang menguasai setengah dari Benua Avalon hanya dalam dua tahun.
 
-Bagi kita yang telah berperang sengit bahkan ketika seluruh Benua Avalon bertemu dengan mereka dengan kekuatan penuh, bahkan jika dia adalah tangan kanan dari Juara Bajak Laut Geyserik, Ririnrara tidak lebih dari seorang jenderal sebuah negara.
+Bagi kami yang telah berperang sengit bahkan ketika seluruh Benua Avalon bertemu dengan mereka dengan kekuatan penuh, bahkan jika dia adalah tangan kanan dari Juara Bajak Laut Geyserik, Ririnrara tidak lebih dari seorang jenderal sebuah negara.
 
 Dan untuk kejadian ini, hanya perebutan penerus suatu negara, jauh dari krisis yang mengancam eksistensi bangsa manusia.
 
