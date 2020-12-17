@@ -4,41 +4,33 @@ Zoltan cukup hangat hari ini.
 
 Rasanya seperti musim semi meski baru memasuki musim dingin.
 
- 
+"Ah, bunga sedang mekar."
 
-“Ah, bunga semanggi sedang mekar.”
+Aku merasa nostalgia ketika Aku melihat bunga putih kecil bermekaran di sepanjang jalan.
 
- 
-
-Saya merasakan nostalgia ketika saya melihat bunga putih kecil bermekaran di sepanjang jalan.
-
-Ketika saya masih muda, saya membuat karangan bunga untuk Ruti dengan itu.
+Ketika Aku masih muda, Aku membuat karangan bunga untuk Ruti.
 
 Mungkin aku akan membuatnya lagi ... Aku ingin tahu apakah dia di usia yang masih suka karangan bunga?
 
- 
-
 Akan menyenangkan jika kita semua berkemah bersama lain kali.
 
-Bukan kemping karena kita sedang berpetualang melainkan kemping untuk iseng.
+Bukan berkemah karena kita sedang berpetualang melainkan berkemah untuk bersenang-senang.
 
-Adakan barbekyu di lapangan, bicara tanpa pamrih di sekitar api unggun terbuka, bermain dengan kembang api alkimia, dan berbaring di padang rumput pada malam hari untuk memandang ke langit berbintang.
+memasak barbekyu, berbicara bebas di sekitar api unggun terbuka, bermain dengan kembang api alkimia, dan berbaring di padang rumput pada malam hari untuk memandang ke langit berbintang.
 
-Mungkin saya akan mengundang mereka saat insiden ini selesai.
+Mungkin Aku akan mengajak mereka ketika insiden ini selesai.
 
- 
-
-Saya berpikir sendiri ketika saya berjalan keluar dari jalur saya yang biasa dan melanjutkan ke hutan yang tersisa di kota.
+Aku berpikir sendiri ketika Aku berjalan keluar dari jalur Aku yang biasa dan melanjutkan ke hutan yang tersisa di kota.
 
 Aku meletakkan tanganku di pedang tembaga di pinggangku dan memverifikasi sensasinya.
 
 Meskipun itu adalah hutan kecil, begitu Anda masuk ke kedalaman, Anda akan lupa bahwa Anda berada di dalam tembok rendah Zoltan.
 
-Saya meletakkan kotak obat di punggung saya ke lantai.
+Aku meletakkan kotak obat di punggung Aku ke lantai.
 
  
 
-“Haa, apakah tempat ini baik-baik saja?”
+"Haa, apakah tempat ini baik-baik saja?"
 
  
 
@@ -56,11 +48,11 @@ Mereka mungkin semua item sihir. Di Zoltan, bahkan sang jenderal tidak akan memi
 
  
 
-“Kenapa kamu membuntutiku. Saya hanya seorang apoteker. ”
+"Kenapa kamu membuntutiku. Aku hanya seorang apoteker. "
 
-“Hanya seorang apoteker yang akan mendeteksi kehadiranku saat aku membuntutimu sambil menutupi kehadiranku dan mencoba menyelesaikannya sendirian di hutan?”
+"Hanya seorang apoteker yang akan mendeteksi kehadiranku saat aku membuntutimu sambil menutupi kehadiranku dan mencoba menyelesaikannya sendirian di hutan?"
 
-“Kaulah yang dengan sengaja menyelipkan kehadiranmu untuk aku deteksi.”
+"Kaulah yang dengan sengaja menyelipkan kehadiranmu untuk aku deteksi."
 
  
 
@@ -68,11 +60,11 @@ High-Elf memukulku dengan tatapan tajam pada kata-kataku.
 
  
 
-“Kamu sudah melihat sebanyak itu?”
+"Kamu sudah melihat sebanyak itu?"
 
  
 
-Saya bisa merasakan intimidasi dari seorang pejuang yang terampil bercampur dengan kewaspadaan dan semangat juang di kulit saya.
+Aku bisa merasakan intimidasi dari seorang pejuang yang terampil bercampur dengan kewaspadaan dan semangat juang di kulit Aku.
 
  
 
@@ -84,15 +76,15 @@ Kamu adalah Ririnrara?
 
  
 
-Mungkin tidak ada prajurit High-Elf lain dengan penutup mata yang bisa mengintimidasi saya. Tapi Ririnrara bertindak tanpa sadar dengan bibirnya yang sedikit bengkok.
+Mungkin tidak ada prajurit High-Elf lain dengan penutup mata yang bisa mengintimidasi Aku. Tapi Ririnrara bertindak tanpa sadar dengan bibirnya yang sedikit bengkok.
 
-Saya tidak berpikir kemungkinan besar bahwa Ririnrara akan keluar sendiri tetapi dia benar-benar keluar sendiri.
+Aku tidak berpikir kemungkinan besar bahwa Ririnrara akan keluar sendiri tetapi dia benar-benar keluar sendiri.
 
 Itu berarti dia memiliki kepercayaan diri dan dia tahu bahwa terkadang menggunakan kekuatan tempur terbesar yang dia miliki akan menyebabkan kerugian terkecil. Itu dikatakan sebagai tindakan berani yang digunakan oleh Ririnrara baik ketika dia memimpin angkatan laut Raja Veronia sebagai jenderal dan selama waktunya sebagai bajak laut veteran.
 
  
 
-“Lalu bagaimana denganmu, siapa sebenarnya kamu?”
+"Lalu bagaimana denganmu, siapa sebenarnya kamu?"
 
  
 
@@ -100,7 +92,7 @@ Aku mengabaikan nada tajam Ririnrara dan menjawab.
 
  
 
-“Apoteker Merah. Orang biasa yang tidak berbahaya. "
+"Apoteker Merah. Orang biasa yang tidak berbahaya. "
 
 "Tidak ada orang biasa sepertimu."
 
@@ -114,13 +106,13 @@ Angin bertiup dan pepohonan berkibar seolah membisikkan harapan mereka tentang s
 
  
 
-“Jadi, bisnis apa yang kamu miliki denganku?”
+"Jadi, bisnis apa yang kamu miliki denganku?"
 
-“Lempar senjatamu dan menyerahlah. Ikutlah denganku dan aku akan mengampuni hidupmu. "
+"Lempar senjatamu dan menyerahlah. Ikutlah denganku dan aku akan mengampuni hidupmu. "
 
 "Dan kamu berharap aku mempercayai kata-kata bajak laut?"
 
-"Saya telah berhenti menjadi bajak laut."
+"Aku telah berhenti menjadi bajak laut."
 
  
 
@@ -128,7 +120,7 @@ Ririnrara berhenti bergerak.
 
  
 
-“Kamu tidak berencana untuk menyerah apapun yang terjadi?”
+"Kamu tidak berencana untuk menyerah apapun yang terjadi?"
 
 "Tidak keren bagi seorang kakak laki-laki yang menyebabkan gangguan pada adik perempuannya."
 
@@ -166,9 +158,9 @@ Wajah Ririnrara terlihat penuh kemenangan.
 
 Bilah angin tumpah keluar dari bilahnya dan menyerangku.
 
-Saya segera melemparkan mantel di punggung saya padanya.
+Aku segera melemparkan mantel di punggung Aku padanya.
 
-Pisau angin merobek mantel saya menjadi serpihan, tetapi kain yang kokoh mengurangi kekuatan bilah angin dan memudar.
+Pisau angin merobek mantel Aku menjadi serpihan, tetapi kain yang kokoh mengurangi kekuatan bilah angin dan memudar.
 
  
 
@@ -180,23 +172,23 @@ Mantel yang jatuh ke tanah tidak bisa lagi digunakan.
 
 Selain itu, pedang tembaga di tangan kananku dipenuhi dengan retakan kecil karena pedang yang tak terhitung jumlahnya menghantamnya.
 
-Saya tidak bisa menangkis mereka semua ya? Akan berbahaya menggunakan pedang itu lebih lama lagi.
+Aku tidak bisa menangkis mereka semua ya? Akan berbahaya menggunakan pedang itu lebih lama lagi.
 
 Ririnrara melihat kondisiku dan sebuah senyuman muncul di wajahnya.
 
  
 
-“Itu keahlian. Saya tidak tahu perlindungan ilahi apa yang ada di tubuh itu tetapi Anda tidak menggunakan seni bela diri atau sihir dan saya tidak merasakan keterampilan yang terlihat. Anda adalah pria yang luar biasa dan tak terduga… tapi, ada perbedaan yang tak tertandingi dalam perlengkapan kami. ”
+"Itu keahlian. Aku tidak tahu perlindungan ilahi apa yang ada di tubuh itu tetapi Anda tidak menggunakan seni bela diri atau sihir dan Aku tidak merasakan keterampilan yang terlihat. Anda adalah pria yang luar biasa dan tak terduga… tapi, ada perbedaan yang tak tertandingi dalam perlengkapan kami. "
 
-“Lagipula itu adalah item sihir High-Elf.”
+"Lagipula itu adalah item sihir High-Elf."
 
  
 
-Harganya sekitar seribu pedang tembaga saya. Atau mungkin lebih?
+Harganya sekitar seribu pedang tembaga Aku. Atau mungkin lebih?
 
 Perbedaan peralatan sangat jelas. Terlebih lagi, Ririnrara bukan hanya seorang bajak laut terkenal, tapi teknik pedangnya juga lebih hebat dari yang kuharapkan ... dia sebanding dengan Kapten yang mengajariku pedang.
 
-Dengan kata lain, dia lebih kuat dari saya ketika saya bepergian ke ibukota.
+Dengan kata lain, dia lebih kuat dari Aku ketika Aku bepergian ke ibukota.
 
  
 
@@ -208,7 +200,7 @@ Aku memegang pedang dengan tangan kananku dan dengan ringan menarik kaki kiriku 
 
  
 
-"Saya tidak benar-benar ingin berpartisipasi secara aktif dalam hal ini, saya tidak mengharapkan pujian, saya juga tidak membenci Anda semua karena mengancam perdamaian Zoltan."
+"Aku tidak benar-benar ingin berpartisipasi secara aktif dalam hal ini, Aku tidak mengharapkan pujian, Aku juga tidak membenci Anda semua karena mengancam perdamaian Zoltan."
 
  
 
@@ -218,15 +210,15 @@ Sebagai apoteker belaka, tidak ada alasan bagiku untuk bertarung seperti ini.
 
  
 
-“Tapi bagaimana mengatakan ini… aku tidak ingin memaksakan masalah yang bisa aku selesaikan sendiri kepada adik perempuanku.”
+"Tapi bagaimana mengatakan ini… aku tidak ingin memaksakan masalah yang bisa aku selesaikan sendiri kepada adik perempuanku."
 
 "Apa yang sedang Anda bicarakan?"
 
  
 
-Saya mengalihkan kesadaran saya ke kesadaran pertempuran saya.
+Aku mengalihkan kesadaran Aku ke kesadaran pertempuran Aku.
 
-Merasakan perubahan di udara saya, ekspresi Ririnrara berubah.
+Merasakan perubahan di udara Aku, ekspresi Ririnrara berubah.
 
  
 
@@ -234,13 +226,13 @@ Merasakan perubahan di udara saya, ekspresi Ririnrara berubah.
 
 "Tentu saja tidak. Keduanya lebih kuat dariku. "
 
-“Jadi itu sebabnya bawahan saya tertangkap dengan mudah.”
+"Jadi itu sebabnya bawahan Aku tertangkap dengan mudah."
 
  
 
 Aku mengguncang ujung pedangku sambil mencari kesempatan.
 
-Ririnrara mempertahankan posisi pedang bawahnya dan perlahan mendekati saya.
+Ririnrara mempertahankan posisi pedang bawahnya dan perlahan mendekati Aku.
 
 Saat itulah, kaki Ririnrara menginjak akar pohon. Tatapan Ririnrara tertunduk untuk sesaat.
 
@@ -264,13 +256,13 @@ Gerakan Ririnrara lebih tumpul dibandingkan sebelumnya. Rona kulit Ririnrara keh
 
  
 
-“Tidak mungkin, kapan!”
+"Tidak mungkin, kapan!"
 
  
 
 Ada luka besar yang mengalir di sarung tangan kirinya.
 
-Selama bentrokan pertama, saya memotong tantangan saat saya melompat mundur.
+Selama bentrokan pertama, Aku memotong tantangan saat Aku melompat mundur.
 
 Itu mungkin bukan item sihir yang memberikan efek sederhana dari penguatan tubuh tapi mengganggu sihir elf yang tepat menyebabkan efek gauntlet menjadi setengahnya.
 
@@ -284,7 +276,7 @@ Pedang itu meluncur menembus pertahanan Ririnrara seperti ular dan menggigit bah
 
 Ririnrara menahan rasa sakit dan mengubah jarak diantara kami dalam sekejap. Pedangku terlepas dari bahunya dan darah mengalir keluar.
 
-“Ku…”
+"Ku…"
 
  
 
@@ -294,13 +286,13 @@ Ririnrara kehilangan kekuatan lengannya bersamaan dengan darah yang mengalir di 
 
  
 
-“Apakah kamu masih ingin melakukan ini?”
+"Apakah kamu masih ingin melakukan ini?"
 
-“Sebuah negara yang sangat sulit diukur. Setidaknya ada tiga orang yang lebih kuat dariku? "
+"Sebuah negara yang sangat sulit diukur. Setidaknya ada tiga orang yang lebih kuat dariku? "
 
  
 
-Bahkan jika dia memiliki sihir atau keterampilan tipe pemulihan, atau jika dia mencoba meminum ramuan penyembuh, saya mungkin tidak akan melewatkan kesempatan itu untuk menyerang. Pada jarak saat ini, satu pembukaan akan memungkinkan lawan untuk menyerang dengan segera.
+Bahkan jika dia memiliki sihir atau keterampilan tipe pemulihan, atau jika dia mencoba meminum ramuan penyembuh, Aku mungkin tidak akan melewatkan kesempatan itu untuk menyerang. Pada jarak saat ini, satu pembukaan akan memungkinkan lawan untuk menyerang dengan segera.
 
 Jika kebuntuan saat ini berlanjut, Ririnrara akan pingsan karena kehabisan darah, tetapi bahkan jika dia mencoba menyerang, dia tidak memiliki kesempatan untuk menang dengan lengannya yang terluka dan aku bisa mengejarnya dengan 'Kaki Petir' dan menyerangnya jika dia mencoba melarikan diri. .
 
@@ -322,15 +314,15 @@ Anak itu adalah penduduk Downtown.
 
 "Seorang sandera ya, seperti yang diharapkan dari bajak laut."
 
-“Para jenderal juga menggunakan taktik kotor. Tidak ada artinya jika Anda tidak menang. Lempar senjatamu. "
+"Para jenderal juga menggunakan taktik kotor. Tidak ada artinya jika Anda tidak menang. Lempar senjatamu. "
 
-“Jika saya menolak?”
+"Jika Aku menolak?"
 
-“Anak itu mati.”
+"Anak itu mati."
 
  
 
-Nama anak itu adalah Maria Bell jika kuingat dengan benar. Saya ingat ada sekitar tiga gadis dari pusat kota dengan nama yang sama.
+Nama anak itu adalah Maria Bell jika kuingat dengan benar. Aku ingat ada sekitar tiga gadis dari pusat kota dengan nama yang sama.
 
 Dia adalah anak yang manis yang akan menyapaku jika kami berpapasan, tapi hanya itu interaksi yang aku lakukan dengannya. Akan dipertanyakan untuk mengklaim bahwa kami adalah kenalan.
 
@@ -338,7 +330,7 @@ Dia adalah anak yang manis yang akan menyapaku jika kami berpapasan, tapi hanya 
 
 "Anda tanpa pandang bulu menculik anak mana pun yang menurut Anda nyaman?"
 
-“Tapi itu menunjukkan efek, kan?”
+"Tapi itu menunjukkan efek, kan?"
 
  
 
@@ -346,7 +338,7 @@ Kata Ririnrara sambil menekan lukanya.
 
  
 
-"Saya rasa begitu."
+"Aku rasa begitu."
 
  
 
@@ -354,7 +346,7 @@ Aku berkata sambil melemparkan pedang seolah-olah melemparkannya ke bawah.
 
  
 
-“Apa, kamu bajingan!”
+"Apa, kamu bajingan!"
 
  
 
@@ -374,7 +366,7 @@ Begitu pandangan mereka bergeser, aku berlari ke belakang pohon dan muncul di sa
 
  
 
-“Eh?”
+"Eh?"
 
  
 
@@ -386,7 +378,7 @@ Berbeda dengan High-Elf yang gagal bereaksi, Ririnrara dengan cepat memasang pos
 
  
 
-“Gu !?”
+"Gu !?"
 
  
 
@@ -404,7 +396,7 @@ Fu.
 
 Setelah memastikan bahwa Ririnrara tidak akan berdiri, aku menyarungkan pedangku.
 
-Kemudian, saya menyeka keringat dari dahi saya dan menghembuskan napas perlahan.
+Kemudian, Aku menyeka keringat dari dahi Aku dan menghembuskan napas perlahan.
 
 Aku tidak percaya dia sudah mati tapi… tindakan Ririnrara mempengaruhi pikiranku jadi aku melangkah terlalu dalam. Aku sudah menang saat aku merusak item sihirnya dan melukai lengannya jadi serangan dangkal sudah cukup.
 
@@ -412,27 +404,27 @@ Kapten pasti akan marah jika dia ada di sini. Yah sudah berakhir jadi tidak ada 
 
  
 
-“Kurasa Newman harus menunggu lebih lama.”
+"Kurasa Newman harus menunggu lebih lama."
 
  
 
-Saya akan memberikan pertolongan pertama darurat dan menyerahkannya kepada Ruti.
+Aku akan memberikan pertolongan pertama darurat dan menyerahkannya kepada Ruti.
 
-Saya akan mengirimkan obatnya nanti.
+Aku akan mengirimkan obatnya nanti.
 
  
 
-“U, Uu, Red-san.”
+"U, Uu, Red-san."
 
  
 
 Sebelumnya, masih ada anak.
 
-Untuk meyakinkannya, saya menampar bahunya dan tertawa.
+Untuk meyakinkannya, Aku menampar bahunya dan tertawa.
 
  
 
-“Tidak apa-apa sekarang, aku mengalahkan semua orang jahat. Kerja bagus menahan ini. "
+"Tidak apa-apa sekarang, aku mengalahkan semua orang jahat. Kerja bagus menahan ini. "
 
 "Uaaan !!"
 
