@@ -1,50 +1,34 @@
-Bab 128: Ruti membuat keputusan berani
+Bab 128: Ruti membuat keputusan yang berani
 
-Penerjemah: Tseirp
+g"Heave-ho."
 
- 
+"Ke-Ketua !?"
 
-"Heave-ho."
+Aku membawa Ririnrara yang terikat dan dua bawahannya ke ruang bawah tanah di rumah besar Ruti.
 
-“Le-leader !?”
+mereka yang sudah tertangkap High-Elf menunjukkan ekspresi cemas seolah-olah mereka sedang melihat sesuatu yang tidak bisa mereka percayai.
 
- 
-
-Saya membawa Ririnrara yang terikat dan dua bawahannya ke ruang bawah tanah di rumah besar Ruti.
-
-Keduanya sudah tertangkap High-Elf menunjukkan ekspresi kecewa seolah-olah mereka sedang melihat sesuatu yang tidak bisa mereka percayai.
-
- 
-
-“Guu…”
+"Guu..."
 
 Ririnrara mengerang. Dia sepertinya sudah sadar kembali.
 
- 
+g"Kamu sudah bangun? Aku menerapkan pertolongan pertama darurat tetapi Aku tidak menggunakan ramuan penyembuh. Lukamu akan terbuka jika Kamu bergerak terlalu banyak."
 
-“Kamu sudah bangun? Saya menerapkan pertolongan pertama darurat tetapi saya tidak menggunakan ramuan penyembuh. Luka Anda akan terbuka jika Anda bergerak terlalu banyak. "
+"bajingan ... apa yang kamu rencanakan padaku."
 
-"Kamu bajingan ... apa yang kamu rencanakan untuk lakukan padaku."
-
-“Apa yang saya rencanakan? … Kaulah yang menyerang saya. Pekerjaanku selesai setelah aku menyerahkanmu ke Ruru dan Tifa. ”
-
- 
+g"Apa yang Aku rencanakan? ... Kamulah yang menyerangku. Pekerjaanku selesai setelah aku menyerahkanmu ke Ruru dan Tifa."
 
 Aku tersenyum.
 
-Pekerjaan saya untuk kasus ini selesai ketika kami menemukan Mistome-shi dan yang lainnya.
+Pekerjaanku untuk kasus ini selesai ketika kami menemukan Mistome-shi dan yang lainnya.
 
-Kali ini saya diserang jadi saya dengan enggan harus menanggapi.
+Kali ini Aku diserang jadi Aku dengan enggan harus menanggapi.
 
- 
+"Siapa sebenarnya kalian ini?"
 
-Siapa sebenarnya kalian ini?
+Ririnrara terpana oleh reaksi hangatku bahwa seperti racun telah dikeluarkan dari dirinya.
 
- 
-
-Ririnrara terpana oleh reaksi suam-suam kuku saya bahwa dia sepertinya racun telah dikeluarkan dari dirinya.
-
-Nah, bagaimana saya mengatakannya, ini adalah kecelakaan bagi kedua belah pihak.
+Nah, bagaimana Aku mengatakannya, ini adalah kecelakaan bagi kedua belah pihak.
 
 Sulit dipercaya bahwa para pahlawan yang bersilangan pedang dengan Tentara Raja Iblis akan berada di Zoltan. Tidak masuk akal mengharapkan dia mengantisipasi hal itu.
 
@@ -56,19 +40,19 @@ Dan kemudian ada masalah saat ini.
 
 "Sudah kubilang aku hanya apoteker biasa."
 
-“Seolah-olah ada apoteker sepertimu.”
+"Seolah-olah ada apoteker sepertimu."
 
  
 
-Namun demikian, itu adalah kejadian yang aneh tetapi berkat hubungan badai antara Kerajaan Avalonia dan Kerajaan Veronia bahkan sebelum invasi Tentara Raja Iblis, mereka tidak dapat mengenali saya.
+Namun demikian, itu adalah kejadian yang aneh tetapi berkat hubungan badai antara Kerajaan Avalonia dan Kerajaan Veronia bahkan sebelum invasi Tentara Raja Iblis, mereka tidak dapat mengenali Aku.
 
 Jika itu adalah negara lain, aku telah dipanggil ke upacara di istana kerajaan mereka selama waktuku sebagai Ksatria sehingga identitasku mungkin terungkap.
 
  
 
-“Hei bajingan! Rawat luka kepalanya dengan benar! "
+"Hei bajingan! Rawat luka kepalanya dengan benar! "
 
-“Hm?”
+"Hm?"
 
  
 
@@ -78,23 +62,23 @@ Mungkin lukanya sedikit terbuka saat aku menggerakkannya saat perban yang melili
 
  
 
-“Meminta saya untuk perawatan cukup tidak masuk akal mengingat kalian adalah orang-orang yang menyerang saya.”
+"Meminta Aku untuk perawatan cukup tidak masuk akal mengingat kalian adalah orang-orang yang menyerang Aku."
 
  
 
-Saya menjawab dengan nada yang sedikit tajam.
+Aku menjawab dengan nada yang sedikit tajam.
 
 Tidak ada kejadian karena perbedaan kemampuan tetapi yang mereka lakukan adalah penculikan melalui kekerasan.
 
  
 
-“Saya telah menerapkan pengobatan. Lebih jauh lagi, dengan kekuatan hidup High-Elf dan level divine protection yang tinggi, dia mungkin tidak akan merasakan efek samping apapun. ”
+"Aku telah menerapkan pengobatan. Lebih jauh lagi, dengan kekuatan hidup High-Elf dan level divine protection yang tinggi, dia mungkin tidak akan merasakan efek samping apapun. "
 
 Perlakuan terhadap tawanan perang adalah perjanjian antara Avalonia dan Veronia!
 
-“Ini bukan Kerajaan Avalonia tapi Republik Zoltan. Ini mungkin Negara Kota tetapi independen. Selanjutnya, kalian yang menyerang tanpa deklarasi perang tidak mengidentifikasi diri kalian sebagai angkatan laut. Saya memperlakukan kalian sebagai penjahat yang mencoba menculik. "
+"Ini bukan Kerajaan Avalonia tapi Republik Zoltan. Ini mungkin Negara Kota tetapi independen. Selanjutnya, kalian yang menyerang tanpa deklarasi perang tidak mengidentifikasi diri kalian sebagai angkatan laut. Aku memperlakukan kalian sebagai penjahat yang mencoba menculik. "
 
-“Guh, benar tapi…”
+"Guh, benar tapi…"
 
  
 
@@ -102,19 +86,19 @@ Sungguh.
 
  
 
-"... Brengsek, Anda memiliki mantan afiliasi militer?"
+"... Brengsek, Kamu memiliki mantan afiliasi militer?"
 
  
 
 Aku mengerutkan kening tanpa sadar mendengar kata-kata Ririnrara.
 
-Saya mengacaukannya. Meskipun saya tidak percaya identitas saya akan terungkap hanya dengan itu.
+Aku mengacaukannya. Meskipun Aku tidak percaya identitas Aku akan terungkap hanya dengan itu.
 
  
 
-“Apakah Anda seorang perwira dari suatu tempat yang membuat masalah atau tersesat dalam perebutan kekuasaan? Kalau begitu, bagaimana? Aku bisa menjadikanmu, adik perempuanmu dan rekannya menjadi petugas yang ditugaskan di Veronia. ”
+"Apakah Kamu seorang perwira dari suatu tempat yang membuat masalah atau tersesat dalam perebutan kekuasaan? Kalau begitu, bagaimana? Aku bisa menjadikanmu, adik perempuanmu dan rekannya menjadi petugas yang ditugaskan di Veronia. "
 
-"Saya menolak. Itu tidak akan berhasil, jadi menyerahlah. "
+"Aku menolak. Itu tidak akan berhasil, jadi menyerahlah. "
 
 "Begitu, sepertinya tidak ada ruang untuk negosiasi."
 
@@ -132,23 +116,23 @@ Akhirnya Ruti, Tise, dan Lit turun ke ruang bawah tanah.
 
  
 
-“Hn, Lit juga datang?”
+"Hn, Lit juga datang?"
 
-“Saya tidak ingin menjadi satu-satunya yang tertinggal.”
+"Aku tidak ingin menjadi satu-satunya yang tertinggal."
 
 "Aku berencana pulang setelah Ruti mengambil alih."
 
-“Aku ingin Onii-chan juga tinggal, jika tidak terlalu merepotkan…”
+"Aku ingin Onii-chan juga tinggal, jika tidak terlalu merepotkan…"
 
 Lihat, Ruti juga mengatakannya.
 
  
 
-Saya lemah terhadap permintaan Ruti.
+Aku lemah terhadap permintaan Ruti.
 
  
 
-"Baiklah. Lalu aku akan siaga di belakang Ruti kalau-kalau terjadi sesuatu. ”
+"Baiklah. Lalu aku akan siaga di belakang Ruti kalau-kalau terjadi sesuatu. "
 
 "Terima kasih."
 
@@ -158,11 +142,11 @@ Ruti menjawab dengan senang.
 
 Melihat wajah itu, aku akhirnya merasa baik-baik saja. Nah, di Zoltan, keributan semacam ini jarang terjadi.
 
-"Bagaimana saya mengatakannya, siapa sebenarnya Anda ini."
+"Bagaimana Aku mengatakannya, siapa sebenarnya Kamu ini."
 
-"Seperti yang saya katakan …"
+"Seperti yang Aku katakan …"
 
-“Cukup dengan itu! Kalian bajingan telah menangkap seorang Jenderal Kerajaan Veronian! Jika Anda meminta tebusan, Anda akan menerima cukup uang untuk menjalani kehidupan kebebasan sebagai warga negara atau jika Anda mengumumkan penangkapan Anda, ketenaran Anda akan membuat Anda menjadi pejabat di negara mana pun. Setidaknya, Anda telah menangkap biang keladi gangguan di Zoltan. "
+"Cukup dengan itu! Kalian bajingan telah menangkap seorang Jenderal Kerajaan Veronian! Jika Kamu meminta tebusan, Kamu akan menerima cukup uang untuk menjalani kehidupan kebebasan sebagai warga negara atau jika Kamu mengumumkan penangkapan Kamu, ketenaran Kamu akan membuat Kamu menjadi pejabat di negara mana pun. Setidaknya, Kamu telah menangkap biang keladi gangguan di Zoltan. "
 
  
 
@@ -172,7 +156,7 @@ Kegelisahan dari melihat makhluk yang tidak mereka pahami telah menggantikannya.
 
  
 
-“Kenapa kalian begitu tenang? Mengapa Anda mampu bersikap seolah-olah Anda hanya menghabiskan hari-hari biasa? "
+"Kenapa kalian begitu tenang? Mengapa Kamu mampu bersikap seolah-olah Kamu hanya menghabiskan hari-hari biasa? "
 
  
 
@@ -190,7 +174,7 @@ Dibandingkan dengan saat Ruti menjadi 『Hero』, tingkat keparahan masalahnya s
 
  
 
-“Yah, kami hanya orang kampung jadi kami tidak tahu bagaimana rasanya di kota.”
+"Yah, kami hanya orang kampung jadi kami tidak tahu bagaimana rasanya di kota."
 
  
 
@@ -210,17 +194,17 @@ Dia mungkin tidak berniat untuk mengekstrak informasi apapun dari mereka sejak a
 
 "Jadi apa yang kita lakukan?"
 
-“Apakah Red-san memiliki obat serum kebenaran yang efektif?”
+"Apakah Red-san memiliki obat serum kebenaran yang efektif?"
 
-“Semua perlindungan ilahi mereka sudah maju dengan baik. Obat yang bisa saya buat mungkin hanya bisa membuat mereka menumpahkan apa yang mereka makan untuk sarapan kemarin. ”
+"Semua perlindungan ilahi mereka sudah maju dengan baik. Obat yang bisa Aku buat mungkin hanya bisa membuat mereka menumpahkan apa yang mereka makan untuk sarapan kemarin. "
 
  
 
-Saya dengan jujur ​​menjawab pertanyaan Tise.
+Aku dengan jujur ​​menjawab pertanyaan Tise.
 
 Perlindungan ilahi akan menahan efek samping obat apa pun. Dalam hal ini, individu dengan tingkat perlindungan Ilahi yang tinggi atau mereka yang memiliki perlindungan Ilahi yang memiliki daya tahan yang kuat pada awalnya dapat dengan aman menggunakan obat yang memiliki efek samping.
 
-Empat orang yang terkunci di sana bisa dikatakan memiliki tingkat perlindungan dewa elit jika dibandingkan dengan standar biasa. Mereka adalah lawan yang mustahil bagi saya yang hanya memiliki keterampilan umum.
+Empat orang yang terkunci di sana bisa dikatakan memiliki tingkat perlindungan dewa elit jika dibandingkan dengan standar biasa. Mereka adalah lawan yang mustahil bagi Aku yang hanya memiliki keterampilan umum.
 
 Selanjutnya, untuk menggunakan obat serum kebenaran pada lawan level ini, tidak hanya obat harus bermutu tinggi yang terbuat dari 'Alkimia Tingkat Lanjut', keterampilan penguatan obat seperti 'Essence of Poison' atau 'Penguatan Dosis' mungkin dibutuhkan juga.
 
@@ -234,7 +218,7 @@ Tise mungkin bertanya hanya sebagai konfirmasi dan dia tidak terlalu berharap. D
 
  
 
-“Haruskah kita menyerahkannya kepada otoritas Zoltan? Atau haruskah kita menggunakannya sebagai kartu diplomatik untuk membuat Pangeran Sarius memberikan kelonggaran karena kita mungkin tidak bisa mendapatkan informasi dari mereka. ”
+"Haruskah kita menyerahkannya kepada otoritas Zoltan? Atau haruskah kita menggunakannya sebagai kartu diplomatik untuk membuat Pangeran Sarius memberikan kelonggaran karena kita mungkin tidak bisa mendapatkan informasi dari mereka. "
 
  
 
@@ -242,7 +226,7 @@ Seperti yang diharapkan dari mantan anggota keluarga kerajaan, Lit mengusulkan u
 
  
 
-“Itu mungkin bagus juga. Kami juga tidak bisa melakukan apa pun padanya. "
+"Itu mungkin bagus juga. Kami juga tidak bisa melakukan apa pun padanya. "
 
  
 
@@ -264,7 +248,7 @@ Ruti menatapku dan berbicara setelah berpikir selama ini.
 
  
 
-“Ingin membiarkan Mistome dan Ririnrara bertemu untuk berbicara.”
+"Ingin membiarkan Mistome dan Ririnrara bertemu untuk berbicara."
 
  
 
@@ -274,11 +258,11 @@ Lit, Tise, dan aku berhenti berbicara karena terkejut.
 
 "Ini harus diselesaikan oleh pihak-pihak yang terlibat."
 
-“Itu benar… elemen negara, diplomasi, dan perang suksesi pada akhirnya bermuara pada perseteruan antara Mistome-shi dan Ririnrara.”
+"Itu benar… elemen negara, diplomasi, dan perang suksesi pada akhirnya bermuara pada perseteruan antara Mistome-shi dan Ririnrara."
 
-“Tapi apakah itu baik-baik saja? Untuk membawa orang yang dicari Ririnrara. ”
+"Tapi apakah itu baik-baik saja? Untuk membawa orang yang dicari Ririnrara. "
 
-Tidak akan ada masalah jika saya menyaksikannya.
+Tidak akan ada masalah jika Aku menyaksikannya.
 
  
 
@@ -290,7 +274,7 @@ Memang benar jika Ruti hadir, dia akan bisa menghentikan apapun yang dilakukan o
 
 "Apa yang Onii-chan pikirkan?"
 
-“Ini berani tapi… ya, itu mungkin berhasil. Ayo coba lakukan seperti yang dikatakan Ruti. ”
+"Ini berani tapi… ya, itu mungkin berhasil. Ayo coba lakukan seperti yang dikatakan Ruti. "
 
 "Baiklah."
 
