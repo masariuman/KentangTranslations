@@ -216,37 +216,27 @@ Ririnrara menggelengkan kepalanya karena pertanyaan naif Garadin.
 
 "Memang ada benarnya ... tapi masih ada kemungkinan bahwa Geyserik akan mencalonkan Sarius sebagai raja saat ini."
 
-"Tidak mungkin mengubah urutan suksesi tanpa mengikuti langkah yang sah. Leonor akan mengklaim bahwa surat wasiat itu ditulis dengan tidak waras dan tidak adil. Lebih penting lagi, sekarang, bahkan setelah Pangeran Silverio menjadi Raja Veronia, Sarius harus tetap mempertahankan kekuatannya sebagai bangsawan dan menunggu Silverio salah langkah. "
+"Tidak mungkin mengubah urutan pewarisan kerajaan tanpa mengikuti langkah yang sah. Leonor akan mengklaim bahwa surat wasiat itu ditulis dengan tidak waras dan tidak adil. Lebih penting lagi, sekarang, bahkan setelah Pangeran Silverio menjadi Raja Veronia, Sarius harus tetap mempertahankan kekuatannya sebagai bangsawan dan menunggu Silverio salah langkah."
 
-"Jangan bicara seolah-olah kau tahu bagaimana keadaannya, Misfua. Aku sudah mengambil langkah seperti itu. Para bajak laut yang menjadi bangsawan dan bangsawan Tentara Raja Iblis semuanya mendukung Sarius. Bahkan jika Leonor merebut tahta, Sarius seharusnya tidak ditinggalkan dengan apa-apa. "
+"Jangan bicara seolah-olah kau tahu bagaimana keadaannya, Misfua. Aku sudah mengambil langkah seperti itu. Para bajak laut yang menjadi bangsawan dan bangsawan Tentara Raja Iblis semuanya mendukung Sarius. Bahkan jika Leonor merebut tahta, Sarius seharusnya tidak ditinggalkan dengan apa-apa."
 
-"Itu bisa dikatakan mengumpulkan semua orang yang memusuhi Leonor di satu tempat. Dia mungkin menghancurkan semua orang dalam satu gerakan. Kamu harus bersekutu dengan orang-orang yang mendukung kebijakan Leonor. "
+"Itu bisa dikatakan mengumpulkan semua orang yang memusuhi Leonor di satu tempat. Leonor mungkin menghancurkan semua orang dalam satu gerakan. Kamu harus bersekutu dengan orang-orang yang mendukung kebijakan Leonor."
 
-"Jangan katakan seolah itu mudah…"
-
- 
+"Jangan katakan seolah itu mudah..."
 
 Keduanya berdiskusi dengan nada kuat.
 
 Ruti mengangguk setelah mengamati itu.
 
- 
-
-"Sudah beres."
+r"semuanyaSudah beres."
 
 "" Eh? ""
 
- 
-
 Kata-kata Ruti yang tiba-tiba mengejutkan Misufia dan Ririnrara.
 
-Aku tidak mengerti apa yang dia maksud dan melihat ke arah Ruti juga. Secara alami, Lit, Garadin dan yang lainnya berada di perahu yang sama.
+Aku tidak mengerti apa yang dia maksud dan melihat ke arah Ruti juga. Secara alami, Lit, Garadin dan yang lainnya juga sama.
 
- 
-
-"Sasaran Kamu menjadi sama. Jadi semuanya baik-baik saja sekarang. "
-
- 
+r"tujuan kalian menjadi sama. Jadi semuanya baik-baik saja sekarang."
 
 Kata Ruti dengan wajah penuh kepuasan.
 
