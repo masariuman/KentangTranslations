@@ -206,17 +206,13 @@ g"Apakah kamu masih ingin melakukan ini?"
 
 "Sebuah negara yang sangat sulit diukur. Setidaknya ada tiga orang yang lebih kuat dariku? "
 
-Bahkan jika dia memiliki sihir atau keterampilan tipe pemulihan, atau jika dia mencoba meminum ramuan penyembuh, Aku mungkin tidak akan melewatkan kesempatan itu untuk menyerang. Pada jarak saat ini, satu pembukaan akan memungkinkan lawan untuk menyerang dengan segera.
+Bahkan jika dia memiliki sihir atau keterampilan tipe pemulihan, atau jika dia mencoba meminum ramuan penyembuh, Aku mungkin tidak akan melewatkan kesempatan itu untuk menyerang. Pada jarak ini, satu pembukaan akan memungkinkan lawan untuk menyerang dengan segera.
 
-Jika kebuntuan saat ini berlanjut, Ririnrara akan pingsan karena kehabisan darah, tetapi bahkan jika dia mencoba menyerang, dia tidak memiliki kesempatan untuk menang dengan lengannya yang terluka dan aku bisa mengejarnya dengan 'Kaki Petir' dan menyerangnya jika dia mencoba melarikan diri. .
+Jika kebuntuan saat ini berlanjut, Ririnrara akan pingsan karena kehabisan darah, tetapi bahkan jika dia mencoba menyerang, dia tidak memiliki kesempatan untuk menang dengan lengannya yang terluka dan aku bisa mengejarnya dengan 'Kaki kital' dan menyerangnya jika dia mencoba melarikan diri...
 
-Aku unggul tapi… mata Ririnrara menunjukkan bahwa dia masih memiliki ketenangan.
-
- 
+Aku unggul tapi... mata Ririnrara menunjukkan bahwa dia masih memiliki ketenangan.
 
 "Cukup."
-
- 
 
 Pada saat itu, suara laki-laki yang berbeda terdengar. Ririnrara yakin akan kemenangannya.
 
@@ -224,17 +220,13 @@ Pria yang muncul adalah High-Elf juga dan dia memiliki pedang pendek di tangan k
 
 Anak itu adalah penduduk Downtown.
 
- 
+g"Seorang sandera ya, seperti yang diharapkan dari bajak laut."
 
-"Seorang sandera ya, seperti yang diharapkan dari bajak laut."
+"Para jenderal juga menggunakan taktik kotor. Tidak ada artinya jika kamu tidak menang. Lempar senjatamu. "
 
-"Para jenderal juga menggunakan taktik kotor. Tidak ada artinya jika Anda tidak menang. Lempar senjatamu. "
-
-"Jika Aku menolak?"
+g"Jika Aku menolak?"
 
 "Anak itu mati."
-
- 
 
 Nama anak itu adalah Maria Bell jika kuingat dengan benar. Aku ingat ada sekitar tiga gadis dari pusat kota dengan nama yang sama.
 
