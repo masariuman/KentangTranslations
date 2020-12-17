@@ -148,25 +148,15 @@ Keduanya, terutama dalam perkelahian di antara sejumlah kecil, talenta terbaik d
 
 Informasi tentang dua petualang Tifa dan Ruru yang dia kumpulkan dari Zoltan beberapa hari ini benar-benar tidak bisa diandalkan.
 
- 
-
 (Ada apa dengan kota Zoltan ini?)
-
- 
 
 Ketika menyelidiki dalam jangka waktu singkat seperti beberapa hari, dia akan memilih metode untuk mendapatkan informasi dari mereka yang telah menyelidikinya. Biasanya, dengan identitas yang mencolok seperti mereka, seharusnya ada seseorang yang mencoba mencari tahu siapa mereka.
 
 Namun anak buah Ririnrara tidak bisa menemukan orang yang menyelidiki Tifa. Bahkan tidak ada Guild Pencuri yang berspesialisasi dalam informasi.
 
- 
-
-(Tentu saja, ada kemungkinan mereka waspada terhadap bawahan Aku dan menyembunyikan informasi tersebut.)
-
- 
+(Tentu saja, ada kemungkinan mereka waspada terhadap bawahanku dan menyembunyikan informasi tersebut.)
 
 Namun, Ririnrara tidak dapat membayangkan warga dari negara kecil di perbatasan yang tidak terkait dengan konspirasi akan dapat berpura-pura tidak tahu sambil menyembunyikan informasi dari agen intelijen yang dia kumpulkan untuk melindungi Raja Geyserik yang memiliki banyak musuh.
-
- 
 
 (Mereka adalah orang-orang yang jauh lebih kuat dari kita? Sehingga mereka tidak merasakan ancaman dari kita?)
 
