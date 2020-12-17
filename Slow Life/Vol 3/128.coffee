@@ -130,29 +130,19 @@ Bagi kami yang telah berperang sengit bahkan ketika seluruh Benua Avalon bertemu
 
 Dan untuk kejadian ini, hanya perebutan penerus suatu negara, jauh dari krisis yang mengancam eksistensi bangsa manusia.
 
-Dibandingkan dengan saat Ruti menjadi 『Hero』, tingkat keparahan masalahnya sangat berbeda.
+Dibandingkan dengan saat Ruti menjadi 『Pahlawan』, tingkat keparahan masalahnya sangat berbeda.
 
- 
-
-"Yah, kami hanya orang kampung jadi kami tidak tahu bagaimana rasanya di kota."
-
- 
+g"Yah, kami hanya orang kampung jadi kami tidak tahu bagaimana rasanya di kota."
 
 Tentu saja, kami tidak bisa dengan jujur ​​memberi tahu mereka apa yang kami pikirkan. Karena itulah aku mengatakan itu pada Ririnrara dengan senyum masam.
 
- 
-
 ☆☆
-
- 
 
 Pertanyaan Ruti singkat.
 
 Dia mungkin tidak berniat untuk mengekstrak informasi apapun dari mereka sejak awal. Mengetahui bahwa Ririnrara tidak bersedia menjawab pertanyaan tersebut, dia segera mengakhirinya.
 
- 
-
-"Jadi apa yang kita lakukan?"
+"Jadi apa yang akan kita lakukan?"
 
 "Apakah Red-san memiliki obat serum kebenaran yang efektif?"
 
