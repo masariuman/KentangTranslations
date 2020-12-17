@@ -20,13 +20,11 @@ Perintah pengiriman pasukan kali ini adalah keputusan Pangeran Sarius dan Ririnr
 
 Di Benua Avalon, biasanya para jenderal dan bangsawan dari negara-negara memiliki hak untuk bebas menggunakan pasukan yang mereka miliki. Insiden, di mana memiliki pertempuran kecil di antara mereka sendiri atau para jenderal yang campur tangan dalam masalah atas otoritas mereka sendiri, adalah hal biasa.
 
-Di kerajaan yang dibentuk oleh koalisi dari tuan yang tak terhitung jumlahnya, tidak terlalu berlebihan untuk mengatakan bahwa raja tidak lebih dari seorang raja dengan kekuatan dan keunggulan terbesar.
+Di kerajaan yang dibentuk oleh koalisi dari bangsawan yang tak terhitung jumlahnya, tidak terlalu berlebihan untuk mengatakan bahwa raja tidak lebih dari seorang raja dengan kekuatan dan keunggulan terbesar.
 
-Pada catatan itu, Tentara Raja Iblis adalah kumpulan kekuatan dengan Raja Iblis di puncak, dan Empat Raja Surgawi dan berbagai iblis tingkat komandan yang memimpin setiap divisi hanya diberi tanggung jawab untuk memimpin pasukan milik Raja Iblis. . Berbeda dengan penguasa Benua Avalon yang memiliki pasukan mereka sendiri, selama masa damai mereka tidak memiliki tanggung jawab untuk memberi makan pasukan mereka sendiri dan hanya ditugaskan untuk mencapai tujuan strategis yang diperintahkan kepada mereka dengan pasukan yang diberikan.
+Tentara Raja Iblis adalah kumpulan kekuatan dengan Raja Iblis di puncak, dan Empat Raja langit dan berbagai iblis tingkat komandan yang memimpin setiap divisi hanya diberi tanggung jawab untuk memimpin pasukan milik Raja Iblis.. Berbeda dengan penguasa Benua Avalon yang memiliki pasukan mereka sendiri, selama masa damai mereka tidak memiliki tanggung jawab untuk memberi makan pasukan mereka sendiri dan hanya ditugaskan untuk mencapai tujuan strategis yang diperintahkan kepada mereka dengan pasukan yang diberikan.
 
 Itu mungkin alasan mengapa pasukan gabungan Benua Avalon yang dibentuk dari kumpulan pasukan dari masing-masing penguasa menderita kekalahan berulang kali.
-
- 
 
 Namun, bahkan untuk penerus tahta dan jenderal tertinggi Veronia, mereka harus memiliki alasan yang kuat untuk berperang dengan negara lain tanpa izin raja.
 
@@ -36,11 +34,7 @@ Tidak seperti tindakan privat tanpa bendera militer, Tentara Sekutu tidak akan p
 
 Paling tidak, jika Leonor memiliki perasaan politik seperti yang dikatakan Ririnrara, ini adalah masalah yang cukup serius baginya untuk memberikan pukulan terakhir kepada Pangeran Sarius.
 
- 
-
-"Tapi bagaimanapun Aku melihatnya, tidak ada asap yang mengepul. Tidak ada bau pertempuran. "
-
- 
+l"Tapi bagaimanapun Aku melihatnya, tidak ada asap yang mengepul. Tidak ada bau pertempuran."
 
 Ririnrara melihat sekeliling setelah mendengar kata-kata Lit.
 
@@ -48,15 +42,11 @@ Selama pertempuran di Kerajaan Logavia, Lit telah melihat sampai titik jijik tan
 
 Bagi Lit, kota ini tidak menunjukkan bekas luka pertempuran.
 
- 
-
-"Aku mengamati itu juga. Jika tentara Veronia mendekat, tentara Zoltan akan memprioritaskan evakuasi sipil dan mundur dengan cepat. Distrik Pelabuhan memiliki populasi kecil di tempat pertama sehingga mungkin tidak ada pertempuran atau penjarahan. "
-
- 
+g"Aku mengamati itu juga. Jika tentara Veronia mendekat, tentara Zoltan akan memprioritaskan evakuasi sipil dan mundur dengan cepat. Distrik Pelabuhan memiliki populasi kecil sehingga mungkin tidak ada pertempuran atau penjarahan."
 
 Itu adalah seni perang yang mendasar untuk dipertahankan sebelum musuh dapat mendarat, tetapi jika perang pecah, Zoltan tidak akan memiliki peluang untuk menang.
 
-Mereka tidak punya pilihan selain mundur sambil memastikan tidak ada korban dan melanjutkan upaya diplomatik mereka… tentu saja, jika Ruti atau Tise tidak ikut berperang.
+Mereka tidak punya pilihan selain mundur sambil memastikan tidak ada korban dan melanjutkan upaya diplomatik mereka... tentu saja, jika Ruti atau Tise tidak ikut berperang.
 
 Jika mereka berdua bertempur, satu kapal perang bahkan tidak akan menjadi lawan mereka.
 
