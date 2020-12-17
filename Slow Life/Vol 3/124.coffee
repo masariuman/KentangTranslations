@@ -68,23 +68,21 @@ Kalau dipikir-pikir, Ruti tentu tidak menyebut kalau kami akan masuk ke kamar ma
 
 Ketika aku masih bingung, Ruti menyiramkan air panas ke kepalanya dan menggoyangkan tubuhnya untuk menghilangkan air.
 
-Jika orang normal melakukannya, itu tidak akan banyak berpengaruh tapi Ruti mengguncang tubuhnya dengan kecepatan sehingga sosoknya kabur sehingga sebagian besar kelembapannya terguncang.
+Jika orang normal melakukannya, itu tidak akan banyak berpengaruh tapi Ruti mengguncang tubuhnya dengan kecepatannya sehingga sosoknya menjadi blur sehingga sebagian besar basahnya menjadi kering.(Seperti kucing kalau ngeringkan badan)
 
-Gerakan itu mengingatkan Aku pada kucing jadi Aku berhasil sedikit rileks.
+Gerakan itu mengingatkanku pada kucing jadi Aku berhasil sedikit rileks.
 
-Hn, apa boleh masuk kamar mandi bersama seperti ini?
+g"Hn, apa boleh masuk kamar mandi bersama seperti ini?"
 
-Tidak apa-apa karena kita bersaudara, kan?
+r"Tidak apa-apa karena kita bersaudara, kan?"
 
-Ruti berbicara kepada Aku tepat ketika Aku berhenti khawatir dan mulai menerima situasi saat ini.
+Ruti berbicara kepadaku tepat ketika Aku berhenti khawatir dan mulai menerima situasi saat ini.
 
-"Onii Chan."
+g"Onii Chan."
 
-"Hm? Ah, sabun? "
+r"Hm? Ah, sabun?"
 
-"Tidak."
-
- 
+g"Tidak."
 
 Ruti menatapku dengan kemauan kuat di pupil merahnya.
 
