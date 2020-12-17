@@ -230,51 +230,31 @@ g"Jika Aku menolak?"
 
 Nama anak itu adalah Maria Bell jika kuingat dengan benar. Aku ingat ada sekitar tiga gadis dari pusat kota dengan nama yang sama.
 
-Dia adalah anak yang manis yang akan menyapaku jika kami berpapasan, tapi hanya itu interaksi yang aku lakukan dengannya. Akan dipertanyakan untuk mengklaim bahwa kami adalah kenalan.
+Dia adalah anak yang manis yang akan menyapaku jika kami berpapasan, tapi hanya itu interaksi yang aku lakukan dengannya. bisa dipertanyakan apakah kami adalah kenalan.
 
- 
-
-"Anda tanpa pandang bulu menculik anak mana pun yang menurut Anda nyaman?"
+g"kamu tanpa pandang bulu menculik anak mana pun yang menurutmu nyaman?"
 
 "Tapi itu menunjukkan efek, kan?"
 
- 
-
 Kata Ririnrara sambil menekan lukanya.
 
- 
-
-"Aku rasa begitu."
-
- 
+g"Aku rasa begitu."
 
 Aku berkata sambil melemparkan pedang seolah-olah melemparkannya ke bawah.
 
- 
-
 "Apa, kamu bajingan!"
 
- 
+Pedang bergerak berbelok dan terbang menuju High-Elf yang mengarahkan pedang pendeknya ke Maria Bell.
 
-Pedang itu menarik busur besar dan terbang menuju High-Elf yang mengarahkan pedang pendeknya ke Maria Bell.
-
-Tentu saja, pedang tembaga yang jatuh sambil mengandalkan gravitasi akan dengan mudah dibelokkan dengan pedang pendek dan mundur tiga langkah berarti pedang itu bahkan tidak bisa menggoresmu. Bahkan jika itu mengenai, pedang tembaga sederhana tidak akan meninggalkan luka yang besar.
+Tentu saja, pedang tembaga yang jatuh sambil mengandalkan gravitasi akan dengan mudah dibelokkan dengan pedang pendek dan mundur tiga langkah berarti pedang itu bahkan tidak bisa menggoresmu. Bahkan jika itu kena, pedang tembaga sederhana tidak akan meninggalkan luka yang besar.
 
 Namun, hanya sedikit yang bisa tetap tenang dan mengabaikan pedang yang terbang ke arah mereka.
 
- 
+"Kaki Kilat."
 
-Kaki Petir.
-
- 
-
-Begitu pandangan mereka bergeser, aku berlari ke belakang pohon dan muncul di samping High-Elf.
-
- 
+Begitu pandangan mereka berubah, aku berlari ke belakang pohon dan muncul di samping High-Elf.
 
 "Eh?"
-
- 
 
 Sebelum High-Elf bisa bereaksi, tinjuku menghantam wajah tampan dari High-Elf dan High-Elf jatuh ke tanah.
 
@@ -282,29 +262,21 @@ Aku meraih pedang tembaga yang terbang ke arahku dan mengayunkan pedang ke arah 
 
 Berbeda dengan High-Elf yang gagal bereaksi, Ririnrara dengan cepat memasang posisi bertahan. Namun, mungkin karena lengan kanannya yang terluka tidak bisa bergerak dengan baik, kecepatan gerakannya lebih lambat dibandingkan dengan kecepatan reaksinya.
 
- 
-
 "Gu !?"
 
- 
+Pedangku mengenai pertahanan Ririnrara yang tidak sempurna.
 
-Pedangku menjentikkan pertahanan Ririnrara yang tidak lengkap.
+dengan cepat pada tubuhnya yang tak berdaya.
 
-Kilatan pada tubuhnya yang tak berdaya.
+Itu menembus baju rantai High-Elf dan luka dalam yang diderita Ririnrara mengatasi kekuatan hidup High-Elf, menyebabkan dia jatuh berlutut.
 
-Itu mengiris melalui kemeja rantai High-Elf dan luka dalam yang diderita Ririnrara mengatasi kekuatan hidup High-Elf, menyebabkan dia jatuh berlutut.
-
- 
-
-Fu.
-
- 
+g"Fu."
 
 Setelah memastikan bahwa Ririnrara tidak akan berdiri, aku menyarungkan pedangku.
 
-Kemudian, Aku menyeka keringat dari dahi Aku dan menghembuskan napas perlahan.
+Kemudian, Aku menyeka keringat dari dahiku dan menghembuskan napas perlahan.
 
-Aku tidak percaya dia sudah mati tapi… tindakan Ririnrara mempengaruhi pikiranku jadi aku melangkah terlalu dalam. Aku sudah menang saat aku merusak item sihirnya dan melukai lengannya jadi serangan dangkal sudah cukup.
+Aku tidak percaya dia sudah mati tapi... tindakan Ririnrara mempengaruhi pikiranku jadi aku melangkah terlalu dalam. Aku sudah menang saat aku merusak item sihirnya dan melukai lengannya jadi serangan dangkal sudah cukup.
 
 Kapten pasti akan marah jika dia ada di sini. Yah sudah berakhir jadi tidak ada yang membantunya.
 
