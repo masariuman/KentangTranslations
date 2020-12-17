@@ -78,77 +78,55 @@ Ekspresi Misufia menjadi kabur selama sepersekian detik tapi dia menggelengkan k
 
 "Terima kasih, tapi aku harus bertemu dengannya."
 
-Misufia menjawab saat dia menyentuh pintu dan perlahan membukanya.
+Misufia menjawab ketika dia menyentuh pintu dan perlahan membukanya.
 
 Di dalam kamar, Ririnrara yang diborgol sedang duduk di lantai tanpa menggunakan kursi.
 
- 
-
 "... Apa."
-
- 
 
 Mata Ririnrara terbuka lebar saat melihat Misufia masuk.
 
- 
-
-"Tidak mungkin …"
+"Tidak mungkin ..."
 
 "Sudah lama sekali, Ririnrara."
 
- 
-
 Reuni setelah 50 tahun.
 
-Misufia dengan senyum canggung dan Ririnrara dengan gigi terkatup saat dia melotot dengan niat membunuh, sangat berlawanan.
-
- 
+Misufia dengan senyum canggung dan Ririnrara dengan gigi terkatup ketika dia melotot dengan niat membunuh, sangat berlawanan.
 
 "Kamu berani untuk muncul di depan mataku."
 
 "Maafkan Aku. Tapi aku senang bisa bertemu denganmu sekali lagi. "
 
- 
-
 Ekspresi wajah jenderal Kerajaan Veronia yang Ririnrara ikuti menghilang.
 
 Dia meludah ke lantai dan berubah menjadi bajak laut yang kita lihat di ilusi.
 
- 
+"Apakah Kamu menyadari betapa banyak penderitaan yang dialami Geyserik dan Sarius karena keputusan egoismu untuk pergi! Tepat sekali! Aku sangat senang melihatmu juga! Karena aku telah menantikan hari dimana aku membunuhmu dengan tangan ini !!"
 
-"Apakah Kamu menyadari betapa banyak penderitaan yang dialami Geyserik dan Sarius karena keputusan egois Kamu untuk pergi! Tepat sekali! Aku sangat senang melihat Kamu juga! Karena aku telah menantikan hari dimana aku membunuhmu dengan tangan ini !! "
+Lit berdiri di depan Misufia untuk melindunginya dari niat membunuh yang kuat. Tangannya ada di pegangan shotelnya dan dia siap untuk menariknya kapan saja.
 
- 
+g"Lit, tidak apa-apa. dia diborgol. "
 
-Lit berdiri di depan Misufia untuk melindunginya dari niat membunuh yang kuat. Tangannya ada di pegangan shotelnya dan dia siap untuk menggambarnya kapan saja.
-
- 
-
-"Lit, tidak apa-apa. Lawan tertahan. "
-
-"Aku bergerak tanpa sadar ... itu adalah niat membunuh yang luar biasa."
-
- 
+l"Aku bergerak tanpa sadar ... itu adalah niat membunuh yang luar biasa."
 
 Lit dengan canggung melepaskan cengkeramannya setelah mendengar kata-kataku.
 
 Aku pasti merasakan hal yang sama dari Ririnrara saat ini. Emosi yang dia tunjukkan jauh lebih kuat dibandingkan saat dia melawanku.
 
- 
+"Mengapa Misufia! Kenapa kamu lari!"
 
-"Mengapa Misufia! Kenapa kamu lari! "
+"Kamu seharusnya sudah tahu kan? Aku kalah dari Leonor."
 
-"Kamu seharusnya sudah tahu? Aku kalah dari Leonor. "
+"Ya Aku tahu! Tapi kenapa kamu tidak datang membahas masalah ini denganku !? Leonor tidak memiliki bukti apapun! Dengan kepribadiannya, jika dia memiliki bukti, dia akan menghancurkanmu daripada hanya mengancammu!"
 
-"Ya Aku tahu! Tapi kenapa kamu tidak datang membahas masalah ini denganku !? Leonor tidak memiliki bukti apapun! Dengan kepribadiannya, jika dia memiliki bukti, dia akan menghancurkanmu daripada hanya mengancammu! "
+" ... Aku takut. Membohongi orang itu dan aku bahkan lebih takut dibenci olehnya."
 
-" … Aku takut. Membohongi orang itu dan aku bahkan lebih takut dibenci olehnya. "
+"Geyserik tidak akan pernah membencimu! Apa kau tidak percaya padanya !?"
 
-"Geyserik tidak akan pernah membencimu! Apa kau tidak percaya padanya !? "
+"Aku percaya dia! Tapi kitalah yang pertama mengkhianatinya!"
 
-"Aku percaya dia! Tapi kami yang pertama mengkhianatinya! "
-
-"Itu tidak!"
+"itu.....tidak!"
 
 Ririnrara ingin mengatakan sesuatu tapi dia berseru dengan tegas seolah ingin menegaskan dirinya sendiri.
 
@@ -158,21 +136,17 @@ Karena dia menggantikan pangeran dengan seorang anak yang bukan dari Geyserik, b
 
 Tapi ada keinginan kuat di balik kata-kata Ririnrara.
 
-Itu mengingatkan Aku pada saat Aku salah paham dengan Ruti dengan Ares.
+Itu mengingatkanku pada saat Aku salah paham dengan Ruti dengan Ares.
 
 Apa yang sedang terjadi?
 
- 
+"... Ririnrara. Mengapa Kamu datang ke Zoltan sekarang, setelah sekian lama? Kamu mungkin tahu bahwa Aku ada di kota ini selama ini?"
 
-"… Ririnrara. Mengapa Kamu datang ke Zoltan sekarang, setelah sekian lama? Kamu mungkin tahu bahwa Aku ada di kota ini selama ini? "
+"Ya Aku tahu, Aku tahu apa yang terjadi di lautan lebih baik dari yang lain. Dan Aku memiliki jaringan informasi High-Elf di benua ini. Butuh beberapa waktu tetapi bukan tidak mungkin menemukanmu ... Aku berpikir untuk memotongmu menjadi makanan hiu berkali-kali!"
 
-"Ya Aku tahu, Aku tahu apa yang terjadi di lautan lebih baik dari yang lain. Dan Aku memiliki jaringan informasi High-Elf di benua itu. Butuh beberapa waktu tetapi bukan tidak mungkin menemukanmu ... Aku berpikir untuk memotongmu menjadi makanan hiu berkali-kali! "
+"Tapi kamu tidak melakukannya."
 
-"Tapi kamu tidak."
-
-" … Tepat sekali. Leonor telah menanam akarnya di istana. Tidak ada gunanya lagi membunuhmu. "
-
- 
+" ... Tepat sekali. Leonor telah menanam akarnya di istana. Tidak ada gunanya lagi membunuhmu."
 
 Bagi warga Veronia yang takut pada Geyserik, Leonor menjadi ratu jauh lebih meyakinkan dibandingkan dengan Misufia yang merupakan bajak laut bersama Geyserik.
 
