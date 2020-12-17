@@ -86,19 +86,15 @@ g"Tidak."
 
 Ruti menatapku dengan kemauan kuat di pupil merahnya.
 
-A-apa itu? Aku senang mengetahui bahwa Ruti lebih menonjolkan dirinya belakangan ini tetapi hari ini Ruti sedikit berbeda.
+A-ada apa ini? Aku senang mengetahui bahwa Ruti lebih blak-blakan belakangan ini tetapi hari ini Ruti sedikit berbeda.
 
- 
+r"Onii Chan."
 
-"Onii Chan."
+g"Ya-ya?"
 
-"Ya-ya?"
+r"Apakah kamu ingat saat kita masuk kamar mandi bersama di masa lalu?"
 
-"Apakah kamu ingat saat kita masuk kamar mandi bersama di masa lalu?"
-
-"Tentu saja. Ruti sangat kecil waktu itu. "
-
- 
+g"Tentu saja. Ruti sangat kecil waktu itu."
 
 Itu tentang mandi bel di desa asal kami.
 
