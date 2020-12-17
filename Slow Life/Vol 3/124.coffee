@@ -4,23 +4,15 @@ Ada pemandian yang dipasang di mansion tempat Ruti tinggal.
 
 Tentu saja, itu jauh lebih besar dari bak mandi yang Aku miliki di rumah.
 
-"Onii-chan, kamu bisa masuk dulu."
+r"Onii-chan, kamu bisa masuk dulu."
 
-"Hn, tidak, Ruti harus masuk dulu. Kamu mungkin merasa tidak nyaman dari kotoran. "
-
- 
+g"Hn, tidak, Ruti duluan saja. Kamu mungkin merasa tidak nyaman karena kotor."
 
 Ruti memiringkan kepalanya.
 
- 
+r"Bukan hal yang aneh menjadi kotor saat Aku bepergian."
 
-"Bukan hal yang aneh menjadi kotor saat Aku bepergian."
-
- 
-
-Itu benar. Bahkan ada kalanya kita menyerah untuk membersihkan kotoran dari rambut kita karena harus terus mengarungi rawa yang kotor.
-
- 
+Itu benar. Bahkan ada kalanya kami menyerah untuk membersihkan kotoran dari rambut kami karena harus terus mengarungi rawa yang kotor.
 
 "Aku akan memakan waktu lama jadi akan lebih efisien jika Onii-chan masuk lebih dulu."
 
