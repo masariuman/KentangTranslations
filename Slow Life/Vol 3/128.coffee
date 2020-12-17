@@ -142,49 +142,35 @@ Pertanyaan Ruti singkat.
 
 Dia mungkin tidak berniat untuk mengekstrak informasi apapun dari mereka sejak awal. Mengetahui bahwa Ririnrara tidak bersedia menjawab pertanyaan tersebut, dia segera mengakhirinya.
 
-"Jadi apa yang akan kita lakukan?"
+r"Jadi apa yang akan kita lakukan?"
 
-"Apakah Red-san memiliki obat serum kebenaran yang efektif?"
+t"Apakah Red-san memiliki obat serum kejujuran yang efektif?"
 
-"Semua perlindungan ilahi mereka sudah maju dengan baik. Obat yang bisa Aku buat mungkin hanya bisa membuat mereka menumpahkan apa yang mereka makan untuk sarapan kemarin. "
-
- 
+g"Semua perlindungan ilahi mereka sudah tinggi. Obat yang bisa Aku buat mungkin hanya bisa membuat mereka menumpahkan apa yang mereka makan untuk sarapan kemarin."
 
 Aku dengan jujur ​​menjawab pertanyaan Tise.
 
 Perlindungan ilahi akan menahan efek samping obat apa pun. Dalam hal ini, individu dengan tingkat perlindungan Ilahi yang tinggi atau mereka yang memiliki perlindungan Ilahi yang memiliki daya tahan yang kuat pada awalnya dapat dengan aman menggunakan obat yang memiliki efek samping.
 
-Empat orang yang terkunci di sana bisa dikatakan memiliki tingkat perlindungan dewa elit jika dibandingkan dengan standar biasa. Mereka adalah lawan yang mustahil bagi Aku yang hanya memiliki keterampilan umum.
+Empat orang yang terkunci di sana bisa dikatakan memiliki tingkat perlindungan ilahi elit jika dibandingkan dengan standar biasa. Mereka adalah lawan yang mustahil bagiku yang hanya memiliki skill umum.
 
-Selanjutnya, untuk menggunakan obat serum kebenaran pada lawan level ini, tidak hanya obat harus bermutu tinggi yang terbuat dari 'Alkimia Tingkat Lanjut', keterampilan penguatan obat seperti 'Essence of Poison' atau 'Penguatan Dosis' mungkin dibutuhkan juga.
+Selanjutnya, untuk menggunakan obat serum kebenaran pada lawan level ini, tidak hanya obat harus bermutu tinggi yang terbuat dari 'Alkimia Tingkat Lanjut', skill penguatan obat seperti 'inti dari racun' atau 'Penguatan Dosis' mungkin dibutuhkan juga.
 
- 
-
-"Apakah begitu."
-
- 
+t"begitu ya..."
 
 Tise mungkin bertanya hanya sebagai konfirmasi dan dia tidak terlalu berharap. Dia hanya mengangguk ringan dan tidak menunjukkan kekecewaan.
 
- 
-
-"Haruskah kita menyerahkannya kepada otoritas Zoltan? Atau haruskah kita menggunakannya sebagai kartu diplomatik untuk membuat Pangeran Sarius memberikan kelonggaran karena kita mungkin tidak bisa mendapatkan informasi dari mereka. "
-
- 
+l"Haruskah kita menyerahkannya kepada otoritas Zoltan? Atau haruskah kita menggunakannya sebagai kartu diplomatik untuk membuat Pangeran Sarius memberikan kelonggaran karena kita mungkin tidak bisa mendapatkan informasi dari mereka."
 
 Seperti yang diharapkan dari mantan anggota keluarga kerajaan, Lit mengusulkan untuk menggunakan tawanan perang sebagai kartu diplomatik.
 
- 
-
-"Itu mungkin bagus juga. Kami juga tidak bisa melakukan apa pun padanya. "
-
- 
+g"Itu mungkin bagus juga. kita juga tidak bisa melakukan apa pun padanya."
 
 Lawannya adalah Kerajaan Veronia kelas berat.
 
 Jika kita melukainya lebih dari yang diperlukan, Angkatan Laut Veronian bahkan mungkin akan bergerak.
 
-Jika itu terjadi… bukan berarti kami tidak bisa menang tapi Zoltan pasti akan menderita kerusakan yang sangat besar.
+Jika itu terjadi... bukan berarti kami tidak bisa menang tapi Zoltan pasti akan menderita kerusakan yang sangat besar.
 
 Tentu saja, kami lebih suka tidak memiliki panggung heroik dan menonjol.
 
