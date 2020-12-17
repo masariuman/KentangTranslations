@@ -18,55 +18,33 @@ r"Aku tidak pernah membayangkan akan datang suatu hari aku bisa masuk ke kamar m
 
 Ruti memejamkan mata dan tersenyum.
 
-"Bagaimana menurutmu tinggal di Zoltan?"
+g"Bagaimana menurutmu tinggal di Zoltan?"
 
-"Kebahagiaan."
-
- 
+r"Kebahagiaan."
 
 Nada suara Ruti lembut. Itu adalah sesuatu yang tidak terpikirkan selama perjalanan kami.
 
- 
-
-"Aku bisa bertemu Onii-chan kapanpun aku mau, meski cuacanya dingin, aku bisa berendam dan menikmati hangatnya mandi, aku bisa makan makanan enak yang dibuat oleh Onii-chan, bahkan aku berteman dengan orang penting. Tise dan Ugeuge-san yang sangat baik dan kuat dan dapat diandalkan. Aku memegang pedang untuk melindungi dunia kecil yang Aku hargai dan hanya memperjuangkan keinginan Aku. Tetapi ketika Aku berusaha, Aku berterima kasih sebagai petualang biasa dan tidak ada yang takut untuk melihat Aku. Aku tidak pernah membayangkan bahwa Aku akan bisa bermain Wyvern Race dengan anak-anak. Aku bisa tidur di malam hari, bangun dengan sinar matahari pagi dan berolahraga dengan keringat. Apalagi, Onii-chan. "
-
- 
+r"Aku bisa bertemu Onii-chan kapanpun aku mau, meski cuacanya dingin, aku bisa berendam dan menikmati hangatnya mandi, aku bisa makan makanan enak yang dibuat oleh Onii-chan, bahkan aku mendapatkan teman berharga. Tise dan Ugeuge-san yang sangat baik dan kuat dan dapat diandalkan. Aku memegang pedang untuk melindungi dunia kecil yang Aku hargai dan hanya memperjuangkan keinginanku. Tetapi ketika Aku berusaha, Aku mendapat terima kasih sebagai petualang biasa dan tidak ada yang takut untuk melihatku. Aku tidak pernah membayangkan bahwa Aku akan bisa bermain Lomba Wyvern dengan anak-anak. Aku bisa tidur di malam hari, bangun dengan sinar matahari pagi dan berolahraga dengan keringat. dan yang paling penting, Onii-chan."
 
 Ruti mendekatiku. Air mata samar mengalir di pupil matanya yang merah.
 
- 
-
-"Pagi ini, ketika Aku melihat rumput obat Aku layu. A-aku ketakutan. "
-
- 
+r"Pagi ini, ketika Aku melihat tanaman obatku layu. A-aku ketakutan. "
 
 Begitu mengatakan itu, mata Ruti berlinang air mata.
 
- 
+r"Ini adalah perasaan lega, kan!"
 
-Ini adalah perasaan lega, kan!
+Ruti, yang semua rasa takutnya telah dirampas sejak lahir, mencerna kegembiraan yang dia rasakan saat tahu bahwa tanaman obatnya aman. Suaranya yang bergetar jelas membawa emosi yang jelas.
 
- 
+g"Aku senang tanaman obatnya baik-baik saja."
 
-Ruti, yang semua rasa takutnya telah dirampas sejak lahir, mencerna kegembiraan yang dia rasakan saat tahu bahwa rumput obatnya aman. Suaranya yang bergetar jelas membawa emosi yang jelas.
-
- 
-
-Aku senang rumput obatnya baik-baik saja.
-
-"Ya!"
-
- 
+r"Ya!"
 
 Aku berpikir dalam hati sekali lagi setelah melihat wajah itu.
 
 Aku sangat senang bisa ada untuk Ruti.
 
- 
-
 ☆☆
-
- 
 
 Setelah mandi, Aku membuatkan dua cangkir kopi susu untuk kami di lobi mansion.
 
