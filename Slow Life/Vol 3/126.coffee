@@ -160,45 +160,31 @@ l"Kalau begitu aku akan mengurus etalase jadi Red tolong selesaikan itu!"
 
 g"Terima kasih!"
 
-Aku berada di gudang dengan sebuah memo di satu tangan saat Aku mengemas obat yang dipesan dengan tangan Aku yang lain.
+Aku berada di gudang dengan sebuah memo di satu tangan dan Aku mengemas obat yang dipesan dengan tanganku yang lain.
 
-"Kami keluar dari Rumput Tanaman di gudang dengan ini. Aku ingin tahu apakah kita masih memiliki beberapa di taman. "
-
- 
+g"Kami Kehabisan dari Henbane di gudang. Aku ingin tahu apakah kita masih memiliki beberapa di kebun."
 
 Aku akan memikirkannya begitu Aku kembali.
 
-Karena kenaikan penjualan baru-baru ini, stok obat dengan cepat menghilang.
+Karena kenaikan penjualan baru-baru ini, stok obat dengan cepat habis.
 
- 
-
-"Terakhir, obat antipiretik demam tinja. Baiklah, itu saja. "
-
- 
+g"Terakhir, obat antipiretik demam tinja. Baiklah, itu saja. "
 
 Aku memastikan kembali obat yang dikemas untuk terakhir kalinya. Tidak ada kesalahan.
 
- 
+g"Baiklah, Lit! Aku sudah selesai di sini, Aku akan membantumu! "
 
-"Baiklah, Lit! Aku sudah selesai di sini, Aku akan membantumu! "
+l"Kalau begitu tolong bantu untuk memeriksa uang kembalian!"
 
-"Kalau begitu tolong bantu untuk memeriksa perubahannya!"
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Kami sudah terbiasa dengan persiapan pembukaan toko.
 
 Tugas yang sibuk segera diselesaikan dan entah bagaimana kami menyelesaikannya dengan waktu pembukaan yang biasa.
 
- 
+g"Baiklah, hari ini juga."
 
-"Baiklah, hari ini juga."
-
-"Kami akan melakukan yang terbaik ~"
-
- 
+l"kita akan melakukan yang terbaik ~"
 
 Kami berdua berkata dengan tangan terangkat dan kami tertawa bersama.
 
