@@ -104,83 +104,59 @@ Biasanya orang tua akan menemani anak-anak mereka tetapi sejak kecil, orang tua 
 
 Ruti menikmati mandi sambil berpegangan pada bahuku.
 
-Yah, Aku telah menghubungi 『Panduan』 perlindungan ilahi Aku sejak lahir jadi Aku yakin Aku juga tidak dipandang sebagai seorang anak.
+Yah, Aku telah terhubung dengan perlindungan ilahi『Pemandu』ku sejak lahir jadi Aku yakin Aku juga tidak dipandang sebagai seorang bocah.
 
-Ruti sangat imut saat itu. Tentu saja, dia paling imut sekarang.
+Ruti sangat imut saat itu. Tentu saja, dia tetap paling imut sekarang.
 
- 
-
-"Aku telah melakukan begitu banyak hal yang ingin Aku lakukan sejak datang ke Zoltan… apakah Aku egois?"
-
- 
+r"Aku telah melakukan begitu banyak hal yang ingin Aku lakukan sejak datang ke Zoltan... apakah Aku egois?"
 
 Kata-kata Ruti membuyarkan pikiranku tentang penampilan Ruti di masa lalu.
 
-Egois ya…
+Egois ya...
 
- 
+g"Itu hal yang bagus. Manusia, tidak peduli siapapun itu, memiliki hak untuk memenuhi keinginannya sendiri. Keinginan Ruti untuk hidup normal hanyalah perkara kecil, tidak egois sama sekali. Kamu dapat meminta apapun yang Kamu inginkan."
 
-"Itu hal yang bagus. Manusia, tidak peduli siapa, memiliki hak untuk memenuhi keinginan dan keinginannya sendiri. Keinginan Ruti untuk hidup normal hanyalah perkara kecil, tidak egois sama sekali. Kamu dapat meminta apapun yang Kamu inginkan. "
-
-"Begitu… terima kasih. Kalau begitu, Aku punya satu permintaan egois lagi. "
-
- 
+r"Begitu... terima kasih. Kalau begitu, Aku punya satu permintaan egois lagi."
 
 Di kamar mandi?
 
- 
+r"Dulu Aku masih terlalu muda jadi Aku tidak bisa melakukannya dengan baik. Tapi Aku pikir Aku akan bisa melakukannya dengan benar sekarang."
 
-"Dulu Aku masih terlalu muda jadi Aku tidak bisa melakukannya dengan baik. Tapi Aku pikir Aku akan bisa melakukannya dengan benar sekarang. "
-
-"Melakukan apa?"
-
- 
+g"Melakukan apa?"
 
 Aku memiringkan kepalaku kali ini.
 
-Ruti mendekat ke wajahku. Murid merah Ruti membesar di pandanganku.
+Ruti mendekat ke wajahku. Mata merah Ruti membesar di pandanganku.
 
- 
+r"Aku pikir Aku bisa membasuh tubuh Onii-chan sekarang?"
 
-"Aku pikir Aku bisa membasuh tubuh Onii-chan sekarang?"
+g"Hn?"
 
-"Hn?"
-
-"Pada saat itu, Aku tidak memiliki banyak kekuatan dan tidak peduli seberapa banyak Aku mencuci, Aku tidak tahu seberapa bersih Aku dapat mencuci Kamu. Aku juga hanya bisa mencuci bagian punggungmu yang lebar jadi itu tidak cukup. "
-
- 
+r"Pada saat itu, Aku tidak memiliki banyak kekuatan dan tidak peduli seberapa banyak Aku membersihkannya, Aku tidak tahu seberapa bersih Aku dapat menggosokmu. Aku juga hanya bisa mencuci bagian punggungmu yang lebar jadi itu tidak cukup."
 
 Ah, sekarang aku ingat sesuatu seperti itu.
 
-Pada saat itu, Aku membasuh tubuh Ruti untuknya sehingga dia meniru Aku dan membasuh tubuh Aku sebagai gantinya.
+Pada saat itu, Aku membasuh tubuh Ruti untuknya sehingga dia meniruku dan membasuh tubuhku sebagai gantinya.
 
-Memang benar sulit untuk mengatakan bahwa dia membasuh tubuhku dengan baik. Aku akhirnya mencuci bagian yang tersisa sendiri. Tetapi penampilan Ruti yang berusaha sebisa mungkin untuk mencuci dengan tangan mungilnya sangat lucu sehingga itu adalah sesi penyembuhan yang berharga untuk masa kecil kami yang dipenuhi dengan banyak kesulitan.
+Memang benar sulit untuk mengatakan bahwa dia membasuh tubuhku dengan baik. Aku akhirnya mencuci bagian yang tersisa sendiri. Tetapi penampilan Ruti yang berusaha sebisa mungkin untuk mencuci dengan tangan mungilnya sangat imut sehingga itu adalah sesi penyembuhan yang berharga untuk masa kecil kami yang dipenuhi dengan banyak kesulitan.
 
- 
+r"Jadi Aku ingin menantangnya sekali lagi."
 
-"Jadi Aku ingin menantangnya sekali lagi."
-
- 
-
-Sehingga Ruti merasa sangat menyesal karena tidak melakukannya dengan baik.
+jadi Ruti merasa sangat menyesal karena tidak melakukannya dengan baik.
 
 Aku merasa sedikit malu tapi,
 
- 
+g"Baiklah, aku serahkan padamu."
 
-"Baiklah, aku serahkan padamu."
+Aku mengatakan itu.
 
- 
+walau begitu ...
 
-Aku bilang.
+Aku merasa sedikit tidak nyaman bahkan saat aku tersenyum melihat Ruti berjuang untuk mengambil sabun.
 
-Itu mengatakan ...
+Karena perlawanan dari perlindungan ilahi 『Pahlawan』 Ruti, tubuh fisiknya dipertahankan pada kondisi terbaik setiap saat. Itu juga berlaku untuk kondisi kulitnya. Dalam perjalanan, meski pakaian Ruti kotor, menggosok sedikit saja sudah cukup untuk membersihkannya.
 
-Aku merasa sedikit tidak nyaman bahkan saat aku tersenyum melihat Ruti berjuang untuk menyabuni sabun.
-
-Karena perlawanan dari perlindungan ilahi 『Hero』 Ruti, tubuh fisiknya dipertahankan pada kondisi terbaik setiap saat. Itu juga berlaku untuk kondisi kulitnya. Dalam perjalanan, meski pakaian Ruti kotor, sekop saja sudah cukup untuk membersihkannya.
-
-Itu agak mengingatkan Aku ketika seorang penjual meniup keras peralatan makannya dan menyekanya untuk membuka peralatan makan yang bersih, tetapi tentu saja, Aku tidak mengatakannya dengan keras.
+Itu agak mengingatkanku ketika seorang penjual meniup keras peralatan makannya dan menyekanya untuk menampilkan peralatan makan yang bersih, tetapi tentu saja, Aku tidak mengatakannya dengan keras.
 
 Karena itu, Aku bisa membayangkan Ruti memiliki pengalaman yang jauh lebih sedikit dalam membasuh tubuhnya dibandingkan dengan kebanyakan orang. Selain itu, dia mungkin tidak pernah memandikan tubuh orang lain selain saat dia mencuci tubuhku ketika dia masih muda.
 
