@@ -174,47 +174,31 @@ Jika itu terjadi... bukan berarti kami tidak bisa menang tapi Zoltan pasti akan 
 
 Tentu saja, kami lebih suka tidak memiliki panggung heroik dan menonjol.
 
- 
-
-"SAYA."
-
- 
+r"Aku."
 
 Ruti menatapku dan berbicara setelah berpikir selama ini.
 
- 
-
-"Ingin membiarkan Mistome dan Ririnrara bertemu untuk berbicara."
-
- 
+r"Ingin membiarkan Mistome dan Ririnrara bertemu untuk berbicara."
 
 Lit, Tise, dan aku berhenti berbicara karena terkejut.
 
- 
+r"Ini harus diselesaikan oleh pihak-pihak yang terlibat."
 
-"Ini harus diselesaikan oleh pihak-pihak yang terlibat."
+g"Itu benar... elemen negara, diplomasi, dan perang mahkota pada akhirnya bermuara pada perseteruan antara Mistome-shi dan Ririnrara."
 
-"Itu benar… elemen negara, diplomasi, dan perang suksesi pada akhirnya bermuara pada perseteruan antara Mistome-shi dan Ririnrara."
+l"Tapi apakah itu baik-baik saja? Untuk membawa orang yang dicari Ririnrara."
 
-"Tapi apakah itu baik-baik saja? Untuk membawa orang yang dicari Ririnrara. "
-
-Tidak akan ada masalah jika Aku menyaksikannya.
-
- 
+r"Tidak akan ada masalah jika Aku memantaunya."
 
 Ruti menegaskan jawabannya atas pertanyaan Lit.
 
-Memang benar jika Ruti hadir, dia akan bisa menghentikan apapun yang dilakukan oleh manusia lawan.
+Memang benar jika Ruti ada, dia akan bisa menghentikan apapun yang dilakukan oleh lawan.
 
- 
+r"Apa yang Onii-chan pikirkan?"
 
-"Apa yang Onii-chan pikirkan?"
+g"sungguh berani tapi... ya, itu mungkin berhasil. Ayo coba lakukan seperti yang dikatakan Ruti. "
 
-"Ini berani tapi… ya, itu mungkin berhasil. Ayo coba lakukan seperti yang dikatakan Ruti. "
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Ini mungkin akan sangat mengubah situasi.
 
