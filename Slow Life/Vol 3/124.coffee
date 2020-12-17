@@ -96,11 +96,11 @@ r"Apakah kamu ingat saat kita masuk kamar mandi bersama di masa lalu?"
 
 g"Tentu saja. Ruti sangat kecil waktu itu."
 
-Itu tentang mandi bel di desa asal kami.
+Itu tentang bak mandi lonceng di desa asal kami.
 
-Bengkel desa memperbaiki lonceng Gereja desa yang rusak dan membukanya untuk umum sebagai pemandian umum. Konon, belnya tidak cukup besar untuk dimasuki orang dewasa dengan nyaman sehingga menjadi pemandian khusus untuk anak-anak.
+Bengkel desa memperbaiki lonceng Gereja desa yang rusak dan membukanya untuk umum sebagai pemandian umum. loncengnya tidak cukup besar untuk dimasuki orang dewasa dengan nyaman sehingga menjadi pemandian khusus untuk anak-anak.
 
-Biasanya orang tua akan menemani anak-anak mereka tetapi sejak kecil, orang tua kami merasa bahwa Ruti aneh karena kekhasan pelindung dewa 『Pahlawan』 jadi Aku masuk ke kamar mandi sambil membawa Ruti yang berusia dua tahun.
+Biasanya orang tua akan menemani anak-anak mereka tetapi sejak kecil, orang tua kami merasa bahwa Ruti aneh karena kekhasan pelindung ilahi 『Pahlawan』 jadi Aku masuk ke kamar mandi sambil membawa Ruti yang berusia dua tahun.
 
 Ruti menikmati mandi sambil berpegangan pada bahuku.
 
