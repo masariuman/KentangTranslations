@@ -14,25 +14,17 @@ r"Bukan hal yang aneh menjadi kotor saat Aku bepergian."
 
 Itu benar. Bahkan ada kalanya kami menyerah untuk membersihkan kotoran dari rambut kami karena harus terus mengarungi rawa yang kotor.
 
-"Aku akan memakan waktu lama jadi akan lebih efisien jika Onii-chan masuk lebih dulu."
+r"Aku akan memakan waktu lama jadi akan lebih efisien jika Onii-chan masuk lebih dulu."
 
-"Baiklah, kalau begitu aku akan masuk kamar mandi dulu."
-
- 
+g"Baiklah, kalau begitu aku akan masuk kamar mandi dulu."
 
 Karena Ruti bersikeras, Aku menerima tawarannya.
 
 Aku mengangguk ke arah Ruti dan berdiri untuk menuju bak mandi.
 
- 
-
 ☆☆
 
- 
-
-"Wow, bak mandi batu?"
-
- 
+g"Wow, bak mandi batu?"
 
 Rumah besar yang ditinggali Ruti awalnya milik bangsawan Zoltan.
 
