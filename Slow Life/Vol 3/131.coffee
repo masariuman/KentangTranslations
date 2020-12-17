@@ -52,37 +52,25 @@ Jika mereka berdua bertempur, satu kapal perang bahkan tidak akan menjadi lawan 
 
 Tapi mereka masih hanya dua orang. Ini akan menjadi jumlah kecil, tetapi masih akan ada korban jika mereka ingin mengalahkan pasukan yang menyerang kota.
 
-Lebih dari segalanya, mereka mungkin tidak ingin kembali ke medan perang dan terlibat dalam tornado darah setelah akhirnya menemukan tempat untuk bersantai… apakah tidak mungkin mengharapkan kedamaian seperti itu?
+Lebih dari segalanya, mereka mungkin tidak ingin kembali ke medan perang dan terlibat dalam tornado darah setelah akhirnya menemukan tempat untuk bersantai... apakah tidak mungkin mengharapkan kedamaian seperti itu?
 
- 
+t"Aku akan melihat dari atas."
 
-"Aku akan melihat dari atas."
+Tise berlari ke atas tembok gudang terdekat dan memanjat atap untuk memastikan sekitar kami.
 
- 
+t"Aku melihat bendera tentara Zoltan di sana. Dan juga bendera Jenderal Sir William dari Zoltan."
 
-Tise berlari ke atas tembok gudang terdekat dan memanjat atap untuk memastikan lingkungan kami.
+g"Bisakah kamu melihat tentara?"
 
- 
+t"Kavaleri drake Sir William berbaris dengan penunggang mereka, tapi ... mengumpulkan kavaleri di kota tidak ada gunanya."
 
-"Aku melihat bendera tentara Zoltan di sana. Dan juga bendera Jenderal Sir William dari Zoltan. "
-
-"Bisakah kamu melihat tentara?"
-
-"Kavaleri drake Sir William berbaris dengan penunggang mereka, tapi ... mengumpulkan kavaleri di kota tidak ada gunanya."
-
-"Dia seorang jenderal tua tanpa pengalaman perang yang sebenarnya. Jangan terlalu mengkritik dia. "
-
- 
+g"Dia seorang jenderal tua tanpa pengalaman perang yang sebenarnya. Jangan terlalu mengkritik dia. "
 
 Kita seharusnya bisa mengetahui apa yang terjadi jika kita pergi ke sana.
 
 Kami memutuskan untuk bergabung dengan mereka.
 
- 
-
 ☆☆
-
- 
 
 Distrik Pelabuhan Zoltan rentan terhadap badai sehingga semua bangunan dibangun dengan mengutamakan kemudahan dan tidak dapat diandalkan.
 
