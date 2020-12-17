@@ -194,15 +194,11 @@ Ririnrara seharusnya menyembunyikan sesuatu.
 
 "... Ya, Aku lengah. Aku tidak berharap dia melakukan tindakan itu. Dia mungkin menyadarinya saat aku mengumpulkan informasi tentang Zoltan."
 
-Leonor hanya unggul dalam taktik politik.
+"Leonor hanya unggul dalam taktik politik."
 
-Aku sangat menyadari itu, sampai pada titik jijik.
-
- 
+"Aku sangat menyadari itu, sampai pada titik jijik."
 
 Ririnrara dan Misufia menunjukkan senyum pahit di saat yang bersamaan. Persis seperti bagaimana penampilan mereka berdua di masa lalu yang kita lihat dalam ilusi.
-
- 
 
 "Situasinya telah berubah. Misufia, jika kamu bertemu Sarius dan kembali ke Veronia, ulama yang disewa oleh Leonor akan menemukan bukti bahwa kamu dan Sarius tidak memiliki hubungan darah dalam waktu singkat. Aku tidak tahu bagaimana mereka akan melakukannya tetapi Leonor hanya akan memberitahu Sarius lokasi Kamu jika dia telah menemukan cara untuk menghancurkan Sarius begitu Kamu kembali. "
 
