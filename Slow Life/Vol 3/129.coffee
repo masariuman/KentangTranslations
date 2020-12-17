@@ -200,27 +200,19 @@ Ririnrara seharusnya menyembunyikan sesuatu.
 
 Ririnrara dan Misufia menunjukkan senyum pahit di saat yang bersamaan. Persis seperti bagaimana penampilan mereka berdua di masa lalu yang kita lihat dalam ilusi.
 
-"Situasinya telah berubah. Misufia, jika kamu bertemu Sarius dan kembali ke Veronia, ulama yang disewa oleh Leonor akan menemukan bukti bahwa kamu dan Sarius tidak memiliki hubungan darah dalam waktu singkat. Aku tidak tahu bagaimana mereka akan melakukannya tetapi Leonor hanya akan memberitahu Sarius lokasi Kamu jika dia telah menemukan cara untuk menghancurkan Sarius begitu Kamu kembali. "
+"Situasinya telah berubah. Misufia, jika kamu bertemu Sarius dan kembali ke Veronia, orang yang disewa oleh Leonor akan menemukan bukti bahwa kamu dan Sarius tidak memiliki hubungan darah dalam waktu singkat. Aku tidak tahu bagaimana mereka akan melakukannya tetapi Leonor hanya akan memberitahu Sarius lokasimu jika dia telah menemukan cara untuk menghancurkan Sarius begitu Kamu kembali."
 
 "Seperti yang Aku duga."
 
- 
-
 Jadi itulah keadaan di pihak Ririnrara.
 
- 
-
-"Kalau begitu, tidak apa-apa jika Kamu melaporkan bahwa Nona Muda Misufia telah meninggal atau hilang?"
-
- 
+"Kalau begitu, tidak apa-apa jika Kamu melaporkan bahwa Nona Muda Misufia telah mati atau hilang?"
 
 Ririnrara menggelengkan kepalanya karena pertanyaan naif Garadin.
 
- 
+"Jika aku tahu lokasi Misufia, Leonor juga tahu. Jika aku mencoba menipunya, Leonor akan mengirim bawahannya untuk menangkap Misufia selanjutnya. Dia tidak akan pernah mengabaikan karakter vital seperti itu."
 
-"Jika aku tahu lokasi Misufia, Leonor juga harus tahu. Jika aku mencoba menipunya, Leonor akan mengirim bawahannya untuk menangkap Misufia selanjutnya. Dia tidak akan pernah mengabaikan karakter vital seperti itu. "
-
-"Tapi Pangeran Silverio, putra Leonor, akan mewarisi takhta terlepas dari hidup atau mati Aku? Seharusnya tidak ada alasan baginya untuk berusaha memburuku. Bukankah dia menggunakan aku sebagai gertakan untuk menjauhkanmu dari Veronia? "
+"Tapi Pangeran Silverio, putra Leonor, akan mewarisi takhta terlepas dari hidup atau matiku kan? Seharusnya tidak ada alasan baginya untuk berusaha memburuku. Bukankah dia menggunakanku sebagai gertakan untuk menjauhkanmu dari Veronia?"
 
 "Memang ada benarnya ... tapi masih ada kemungkinan bahwa Geyserik akan mencalonkan Sarius sebagai raja saat ini."
 
