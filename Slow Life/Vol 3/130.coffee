@@ -32,49 +32,35 @@ Ririnrara mungkin mengerti itu dengan baik.
 
 g"Kamu harus mempertahankan kekuatan yang cukup sehingga pihak Leonor tidak bisa dengan paksa membersihkan kalian semua. Mungkin tidak ada cara lain."
 
-"Tapi dengan kepribadianmu, kamu mungkin tidak bisa memenangkan hati anggota pihak lawan, kan?"
+"Tapi dengan kepribadianmu, kamu mungkin tidak bisa memenangkan hati anggota pihak lawan, kan?"(mistome)
 
 "Bagaimana jika aku mengibaskan ekorku di sisi Leonor dan malah mengundang kekecewaan dari sekutuku?"
 
-"Melakukannya dengan baik adalah inti dari politik. Sayang sekali Leonor sangat ahli dalam hal itu. "
+"Melakukannya dengan baik adalah inti dari politik. Sayang sekali Leonor sangat ahli dalam hal itu."
 
- 
-
-Ririnrara berbicara dengan premis bahwa Leonor's Prince Ugus mewarisi tahta. Misufia juga. Mereka berdua mungkin mengerti bahwa Pangeran Sarius tidak memiliki harapan untuk mewarisi tahta.
+Ririnrara berbicara dengan premis bahwa pangeran dari leonor si ugus mewarisi tahta. Misufia juga. Mereka berdua mungkin mengerti bahwa Pangeran Sarius tidak memiliki harapan untuk mewarisi tahta.
 
 Pada awalnya, Aku mendorong percakapan untuk maju tetapi mereka perlahan mulai berdiskusi dengan panas sehingga sepertinya Aku tidak perlu mengatakan apa-apa lagi.
 
 Tiba-tiba, Aku bisa mendengar suara lonceng dari kejauhan.
 
- 
-
-"?"
-
- 
+g"?"
 
 Ada bel berbunyi di luar.
 
-Ini berada di bawah tanah sehingga suaranya hanya bisa didengar dengan pendengaran yang diperkuat oleh kemampuan persepsi yang ditingkatkan dari perlindungan dewa.
+Ini berada di bawah tanah sehingga suaranya hanya bisa didengar dengan pendengaran yang diperkuat oleh kemampuan persepsi yang ditingkatkan dari perlindungan ilahi.
 
-Namun, semua anggota yang hadir memperhatikan suara itu.
-
- 
+Namun, semua yang ada disini mendengar suara itu.
 
 Kankankankan !!
-
- 
 
 Suara bel berdering di seluruh kota sampai bisa mencapai bawah tanah.
 
 Itu adalah bel yang dimaksudkan untuk keadaan darurat!
 
- 
+g"Lit dan aku akan melihat ke atas tanah."
 
-Lit dan aku akan melihat ke atas tanah.
-
-Kami akan pergi juga.
-
- 
+"Kami akan pergi juga."
 
 Lit dan aku serta Garadin dan Pendeta Cien akan pergi ke atas tanah.
 
