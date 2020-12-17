@@ -2,13 +2,11 @@ Bab 124: Saat-saat bahagia Ruti
 
 Ada pemandian yang dipasang di mansion tempat Ruti tinggal.
 
-Tentu saja, itu jauh lebih besar dari bak mandi yang saya miliki di rumah.
-
- 
+Tentu saja, itu jauh lebih besar dari bak mandi yang Aku miliki di rumah.
 
 "Onii-chan, kamu bisa masuk dulu."
 
-“Hn, tidak, Ruti harus masuk dulu. Anda mungkin merasa tidak nyaman dari kotoran. "
+"Hn, tidak, Ruti harus masuk dulu. Kamu mungkin merasa tidak nyaman dari kotoran. "
 
  
 
@@ -16,7 +14,7 @@ Ruti memiringkan kepalanya.
 
  
 
-“Bukan hal yang aneh menjadi kotor saat saya bepergian.”
+"Bukan hal yang aneh menjadi kotor saat Aku bepergian."
 
  
 
@@ -24,13 +22,13 @@ Itu benar. Bahkan ada kalanya kita menyerah untuk membersihkan kotoran dari ramb
 
  
 
-“Aku akan memakan waktu lama jadi akan lebih efisien jika Onii-chan masuk lebih dulu.”
+"Aku akan memakan waktu lama jadi akan lebih efisien jika Onii-chan masuk lebih dulu."
 
 "Baiklah, kalau begitu aku akan masuk kamar mandi dulu."
 
  
 
-Karena Ruti bersikeras, saya menerima tawarannya.
+Karena Ruti bersikeras, Aku menerima tawarannya.
 
 Aku mengangguk ke arah Ruti dan berdiri untuk menuju bak mandi.
 
@@ -40,7 +38,7 @@ Aku mengangguk ke arah Ruti dan berdiri untuk menuju bak mandi.
 
  
 
-“Wow, bak mandi batu?”
+"Wow, bak mandi batu?"
 
  
 
@@ -56,7 +54,7 @@ Adapun pengumpulan pajak yang sangat penting, Gereja yang dapat dipercaya mengum
 
 Aku duduk di kursi, mengambil air panas dari bak mandi dan membersihkan keringat dan kotoran dari tubuhku.
 
-Kemudian, saya menyabuni sabun dengan handuk dan membasuh tubuh saya.
+Kemudian, Aku menyabuni sabun dengan handuk dan membasuh tubuh Aku.
 
  
 
@@ -70,7 +68,7 @@ Apalagi selama bulan musim dingin seperti sekarang.
 
  
 
-“Fuunfu ~ n”
+"Fuunfu ~ n"
 
  
 
@@ -82,11 +80,11 @@ Aku tidak bisa menahan diri untuk tidak bersenandung sendiri.
 
  
 
-Saya mendengar pintu geser terbuka.
+Aku mendengar pintu geser terbuka.
 
  
 
-“Eh?”
+"Eh?"
 
  
 
@@ -94,7 +92,7 @@ Ruti, tanpa sehelai benang pun di tubuhnya, secara terbuka berdiri di sana tanpa
 
  
 
-“Ru-Ruti? Apa yang salah?"
+"Ru-Ruti? Apa yang salah?"
 
 "?"
 
@@ -114,17 +112,17 @@ Saat aku masih bingung, Ruti menyiramkan air panas ke kepalanya dan menggoyangka
 
 Jika orang normal melakukannya, itu tidak akan banyak berpengaruh tapi Ruti mengguncang tubuhnya dengan kecepatan sehingga sosoknya kabur sehingga sebagian besar kelembapannya terguncang.
 
-Gerakan itu mengingatkan saya pada kucing jadi saya berhasil sedikit rileks.
+Gerakan itu mengingatkan Aku pada kucing jadi Aku berhasil sedikit rileks.
 
 Hn, apa boleh masuk kamar mandi bersama seperti ini?
 
 Tidak apa-apa karena kita bersaudara, kan?
 
-Ruti berbicara kepada saya tepat ketika saya berhenti khawatir dan mulai menerima situasi saat ini.
+Ruti berbicara kepada Aku tepat ketika Aku berhenti khawatir dan mulai menerima situasi saat ini.
 
 "Onii Chan."
 
-“Hm? Ah, sabun? ”
+"Hm? Ah, sabun? "
 
 "Tidak."
 
@@ -132,7 +130,7 @@ Ruti berbicara kepada saya tepat ketika saya berhenti khawatir dan mulai menerim
 
 Ruti menatapku dengan kemauan kuat di pupil merahnya.
 
-A-apa itu? Saya senang mengetahui bahwa Ruti lebih menonjolkan dirinya belakangan ini tetapi hari ini Ruti sedikit berbeda.
+A-apa itu? Aku senang mengetahui bahwa Ruti lebih menonjolkan dirinya belakangan ini tetapi hari ini Ruti sedikit berbeda.
 
  
 
@@ -142,7 +140,7 @@ A-apa itu? Saya senang mengetahui bahwa Ruti lebih menonjolkan dirinya belakanga
 
 "Apakah kamu ingat saat kita masuk kamar mandi bersama di masa lalu?"
 
-"Tentu saja. Ruti sangat kecil waktu itu. ”
+"Tentu saja. Ruti sangat kecil waktu itu. "
 
  
 
@@ -150,17 +148,17 @@ Itu tentang mandi bel di desa asal kami.
 
 Bengkel desa memperbaiki lonceng Gereja desa yang rusak dan membukanya untuk umum sebagai pemandian umum. Konon, belnya tidak cukup besar untuk dimasuki orang dewasa dengan nyaman sehingga menjadi pemandian khusus untuk anak-anak.
 
-Biasanya orang tua akan menemani anak-anak mereka tetapi sejak kecil, orang tua kami merasa bahwa Ruti aneh karena kekhasan pelindung dewa 『Pahlawan』 jadi saya masuk ke kamar mandi sambil membawa Ruti yang berusia dua tahun.
+Biasanya orang tua akan menemani anak-anak mereka tetapi sejak kecil, orang tua kami merasa bahwa Ruti aneh karena kekhasan pelindung dewa 『Pahlawan』 jadi Aku masuk ke kamar mandi sambil membawa Ruti yang berusia dua tahun.
 
 Ruti menikmati mandi sambil berpegangan pada bahuku.
 
-Yah, saya telah menghubungi 『Panduan』 perlindungan ilahi saya sejak lahir jadi saya yakin saya juga tidak dipandang sebagai seorang anak.
+Yah, Aku telah menghubungi 『Panduan』 perlindungan ilahi Aku sejak lahir jadi Aku yakin Aku juga tidak dipandang sebagai seorang anak.
 
 Ruti sangat imut saat itu. Tentu saja, dia paling imut sekarang.
 
  
 
-“Saya telah melakukan begitu banyak hal yang ingin saya lakukan sejak datang ke Zoltan… apakah saya egois?”
+"Aku telah melakukan begitu banyak hal yang ingin Aku lakukan sejak datang ke Zoltan… apakah Aku egois?"
 
  
 
@@ -170,9 +168,9 @@ Egois ya…
 
  
 
-“Itu hal yang bagus. Manusia, tidak peduli siapa, memiliki hak untuk memenuhi keinginan dan keinginannya sendiri. Keinginan Ruti untuk hidup normal hanyalah perkara kecil, tidak egois sama sekali. Anda dapat meminta apapun yang Anda inginkan. "
+"Itu hal yang bagus. Manusia, tidak peduli siapa, memiliki hak untuk memenuhi keinginan dan keinginannya sendiri. Keinginan Ruti untuk hidup normal hanyalah perkara kecil, tidak egois sama sekali. Kamu dapat meminta apapun yang Kamu inginkan. "
 
-“Begitu… terima kasih. Kalau begitu, saya punya satu permintaan egois lagi. "
+"Begitu… terima kasih. Kalau begitu, Aku punya satu permintaan egois lagi. "
 
  
 
@@ -180,7 +178,7 @@ Di kamar mandi?
 
  
 
-“Dulu saya masih terlalu muda jadi saya tidak bisa melakukannya dengan baik. Tapi saya pikir saya akan bisa melakukannya dengan benar sekarang. "
+"Dulu Aku masih terlalu muda jadi Aku tidak bisa melakukannya dengan baik. Tapi Aku pikir Aku akan bisa melakukannya dengan benar sekarang. "
 
 "Melakukan apa?"
 
@@ -192,29 +190,29 @@ Ruti mendekat ke wajahku. Murid merah Ruti membesar di pandanganku.
 
  
 
-"Saya pikir saya bisa membasuh tubuh Onii-chan sekarang?"
+"Aku pikir Aku bisa membasuh tubuh Onii-chan sekarang?"
 
-“Hn?”
+"Hn?"
 
-“Pada saat itu, saya tidak memiliki banyak kekuatan dan tidak peduli seberapa banyak saya mencuci, saya tidak tahu seberapa bersih saya dapat mencuci Anda. Aku juga hanya bisa mencuci bagian punggungmu yang lebar jadi itu tidak cukup. ”
+"Pada saat itu, Aku tidak memiliki banyak kekuatan dan tidak peduli seberapa banyak Aku mencuci, Aku tidak tahu seberapa bersih Aku dapat mencuci Kamu. Aku juga hanya bisa mencuci bagian punggungmu yang lebar jadi itu tidak cukup. "
 
  
 
 Ah, sekarang aku ingat sesuatu seperti itu.
 
-Pada saat itu, saya membasuh tubuh Ruti untuknya sehingga dia meniru saya dan membasuh tubuh saya sebagai gantinya.
+Pada saat itu, Aku membasuh tubuh Ruti untuknya sehingga dia meniru Aku dan membasuh tubuh Aku sebagai gantinya.
 
-Memang benar sulit untuk mengatakan bahwa dia membasuh tubuhku dengan baik. Saya akhirnya mencuci bagian yang tersisa sendiri. Tetapi penampilan Ruti yang berusaha sebisa mungkin untuk mencuci dengan tangan mungilnya sangat lucu sehingga itu adalah sesi penyembuhan yang berharga untuk masa kecil kami yang dipenuhi dengan banyak kesulitan.
+Memang benar sulit untuk mengatakan bahwa dia membasuh tubuhku dengan baik. Aku akhirnya mencuci bagian yang tersisa sendiri. Tetapi penampilan Ruti yang berusaha sebisa mungkin untuk mencuci dengan tangan mungilnya sangat lucu sehingga itu adalah sesi penyembuhan yang berharga untuk masa kecil kami yang dipenuhi dengan banyak kesulitan.
 
  
 
-“Jadi saya ingin menantangnya sekali lagi.”
+"Jadi Aku ingin menantangnya sekali lagi."
 
  
 
 Sehingga Ruti merasa sangat menyesal karena tidak melakukannya dengan baik.
 
-Saya merasa sedikit malu tapi,
+Aku merasa sedikit malu tapi,
 
  
 
@@ -222,7 +220,7 @@ Saya merasa sedikit malu tapi,
 
  
 
-Saya bilang.
+Aku bilang.
 
 Itu mengatakan ...
 
@@ -230,31 +228,31 @@ Aku merasa sedikit tidak nyaman bahkan saat aku tersenyum melihat Ruti berjuang 
 
 Karena perlawanan dari perlindungan ilahi 『Hero』 Ruti, tubuh fisiknya dipertahankan pada kondisi terbaik setiap saat. Itu juga berlaku untuk kondisi kulitnya. Dalam perjalanan, meski pakaian Ruti kotor, sekop saja sudah cukup untuk membersihkannya.
 
-Itu agak mengingatkan saya ketika seorang penjual meniup keras peralatan makannya dan menyekanya untuk membuka peralatan makan yang bersih, tetapi tentu saja, saya tidak mengatakannya dengan keras.
+Itu agak mengingatkan Aku ketika seorang penjual meniup keras peralatan makannya dan menyekanya untuk membuka peralatan makan yang bersih, tetapi tentu saja, Aku tidak mengatakannya dengan keras.
 
-Karena itu, saya bisa membayangkan Ruti memiliki pengalaman yang jauh lebih sedikit dalam membasuh tubuhnya dibandingkan dengan kebanyakan orang. Selain itu, dia mungkin tidak pernah memandikan tubuh orang lain selain saat dia mencuci tubuhku ketika dia masih muda.
+Karena itu, Aku bisa membayangkan Ruti memiliki pengalaman yang jauh lebih sedikit dalam membasuh tubuhnya dibandingkan dengan kebanyakan orang. Selain itu, dia mungkin tidak pernah memandikan tubuh orang lain selain saat dia mencuci tubuhku ketika dia masih muda.
 
  
 
 Lihat ke sana.
 
-“Ah, oke.”
+"Ah, oke."
 
  
 
-Saya membelakangi Ruti.
+Aku membelakangi Ruti.
 
-Ruti menyentuh punggung saya dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuh saya.
-
- 
-
-“Hn…. ”
+Ruti menyentuh punggung Aku dengan jari tipisnya seolah-olah untuk memverifikasi sentuhannya sebelum dia mengambil handuk dengan kedua tangannya dan mulai membasuh tubuh Aku.
 
  
 
-Membasuh tubuh Anda oleh orang lain memberikan kenyamanan yang tak terlukiskan.
+"Hn…. "
 
-Memang agak canggung tapi Ruti berusaha sekuat tenaga untuk membasuh tubuh saya termasuk ketiak dan ujung jari saya.
+ 
+
+Membasuh tubuh Kamu oleh orang lain memberikan kenyamanan yang tak terlukiskan.
+
+Memang agak canggung tapi Ruti berusaha sekuat tenaga untuk membasuh tubuh Aku termasuk ketiak dan ujung jari Aku.
 
  
 
@@ -262,15 +260,15 @@ Kufu.
 
  
 
-Ketika jari Ruti menyentuh sisi tubuh saya, saya tanpa sadar mengeluarkan suara karena merasa geli.
+Ketika jari Ruti menyentuh sisi tubuh Aku, Aku tanpa sadar mengeluarkan suara karena merasa geli.
 
 Ruti sedikit bingung dan menarik tangannya.
 
  
 
-“Apakah itu geli?”
+"Apakah itu geli?"
 
-“Ah, tidak apa-apa.”
+"Ah, tidak apa-apa."
 
 Mu.
 
@@ -280,7 +278,7 @@ Ruti menatap tangannya sendiri dan memiringkan kepalanya.
 
 Dia menyentuh sisi tubuhnya dan sepertinya sedang memikirkan cara terbaik untuk mencucinya. Gerakan itu juga lucu.
 
-Setelah beberapa pemeriksaan, dia mengangguk ringan dan kembali ke tugas mencuci tubuh saya sekali lagi.
+Setelah beberapa pemeriksaan, dia mengangguk ringan dan kembali ke tugas mencuci tubuh Aku sekali lagi.
 
  
 
@@ -290,23 +288,23 @@ Dia melanjutkan tugasnya yang hati-hati dan dia hampir selesai mencuci punggung 
 
 "Terima kasih, kurasa kamu sudah mencuci sebagian besar tubuhku."
 
-“Tidak dekat. Saya melanjutkan. "
+"Tidak dekat. Aku melanjutkan. "
 
  
 
-Kata Ruti dan mendekati saya sambil memegang handuk.
+Kata Ruti dan mendekati Aku sambil memegang handuk.
 
 Kemudian, dia merentangkan lengannya di sekitarku seolah memelukku dari belakang.
 
  
 
-“Eh?”
+"Eh?"
 
  
 
 Sensasi lembut yang menyentuh punggungku adalah payudara Ruti? Itu benar-benar berbeda dari Lit, payudara kecil tapi berbentuk bagus dan indah.
 
-Saya bisa merasakan kehangatan yang ditularkan dari kontak kulit yang dekat. Saya bertanya-tanya mengapa begitu santai merasakan kulit manusia? Sedemikian rupa sehingga aku hampir berhenti memikirkan hari-hariku yang sibuk karena kasus Mistome-shi.
+Aku bisa merasakan kehangatan yang ditularkan dari kontak kulit yang dekat. Aku bertanya-tanya mengapa begitu santai merasakan kulit manusia? Sedemikian rupa sehingga aku hampir berhenti memikirkan hari-hariku yang sibuk karena kasus Mistome-shi.
 
 Tapi kenapa Ruti memelukku?
 
@@ -318,29 +316,29 @@ Tapi kenapa Ruti memelukku?
 
 Ruti meraba dadaku dan mulai mencuci dengan handuk di tangannya.
 
-Ruti melihat dari balik bahu saya ke tangannya saat dia membasuh tubuh saya dengan ekspresi serius tanpa ada indikasi bahwa dia sedang bermain-main.
+Ruti melihat dari balik bahu Aku ke tangannya saat dia membasuh tubuh Aku dengan ekspresi serius tanpa ada indikasi bahwa dia sedang bermain-main.
 
  
 
-… Saya melihat.
+… Aku melihat.
 
  
 
-Saya teringat tindakan Ruti barusan memeriksa bagaimana mencuci sisi tubuhnya sendiri.
+Aku teringat tindakan Ruti barusan memeriksa bagaimana mencuci sisi tubuhnya sendiri.
 
 Ruti mempraktikkan caranya dengan membasuh tubuhnya sendiri. Dia mencoba mereproduksi kekuatan yang sama sebanyak mungkin.
 
-Itu sebabnya saat membasuh bagian depan badan, dia tidak membasuh sambil menghadap saya tetapi melingkarkan tangannya di sekitar saya dari belakang untuk mencapai sudut yang sama seperti saat dia membasuh badannya sendiri.
+Itu sebabnya saat membasuh bagian depan badan, dia tidak membasuh sambil menghadap Aku tetapi melingkarkan tangannya di sekitar Aku dari belakang untuk mencapai sudut yang sama seperti saat dia membasuh badannya sendiri.
 
-Ruti serius tapi gaya mencuci menggelitik hati saya.
+Ruti serius tapi gaya mencuci menggelitik hati Aku.
 
-Kesenjangan antara tindakan manusia supernya yang biasa dan bagian tubuhnya yang sedikit kurang menggelitik hati persaudaraan saya.
+Kesenjangan antara tindakan manusia supernya yang biasa dan bagian tubuhnya yang sedikit kurang menggelitik hati persaudaraan Aku.
 
 Dengan kata lain, dia manis.
 
  
 
-“Fu, fufu…”
+"Fu, fufu…"
 
 "?"
 
