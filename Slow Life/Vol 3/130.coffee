@@ -170,47 +170,29 @@ Memikirkannya dalam sudut pandang Pangeran Sarius, itu akan menjadi kartu andala
 
 Tetapi jika tentara benar-benar telah bergerak, kami tidak dapat menggunakan waktu kami lagi.
 
-Ruti akhirnya menikmati kehidupan yang lambat di Zoltan, jadi mengapa ini terjadi sekarang?
+Ruti akhirnya menikmati kehidupan yang santai di Zoltan, jadi mengapa ini terjadi sekarang?
 
 Melirik Ruti, dia terlihat sama seperti biasanya.
 
- 
-
 Sejauh ini, tak seorang pun di antara orang-orang yang melarikan diri itu tampaknya terlibat dalam perang. Paling tidak, sepertinya pertempuran besar belum dimulai.
 
- 
-
-"Bagaimanapun, mari kita pergi ke distrik pelabuhan. Tapi Aku yakin Garadin dan Pendeta Cien harus kembali ke pos Kamu. "
-
- 
+r"Ayo kita pergi ke distrik pelabuhan. Tapi Aku yakin Garadin dan Pendeta Cien harus kembali ke posmu. "
 
 Garadin dan Cien mengangguk pada ucapan Ruti.
 
- 
-
 "Itu benar, maaf tapi aku serahkan ini padamu."
 
-"Sangat menjengkelkan untuk memiliki posisi. Aku serahkan Mistome padamu. "
+"Sangat menjengkelkan karena tidak bisa ikut. Aku serahkan Mistome padamu. "
 
- 
-
-Keduanya dengan cekatan berlari, sambil menghindari kerumunan dengan cara memungkiri usia mereka, menuju tempat bawahan mereka menunggu.
+Keduanya dengan cekatan berlari, sambil menghindari kerumunan dengan cara yang tidak dengan usia mereka, menuju tempat bawahan mereka menunggu.
 
 Mereka berdua mendekati usia 70-an tetapi masih sangat energik. Aku setuju dengan bagaimana orang Zoltan mengandalkan mereka.
 
- 
-
-"Ayo pergi."
-
- 
+g"Ayo pergi."
 
 Aku menepuk bahu Ririnrara karena dia masih terlihat kaku.
 
- 
-
-"Ah, ya…"
-
- 
+"Ah, ya..."
 
 Ririnrara bingung dengan goyangan kakinya, tetapi dia akhirnya bisa berjalan lurus.
 
