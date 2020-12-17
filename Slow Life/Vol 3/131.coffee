@@ -12,15 +12,13 @@ Ririnrara terpana dan bahunya terkulai setelah melihat bendera Veronia berkibar 
 
 "Ini tidak mungkin terjadi."
 
-"Saat ini, satu-satunya kekuatan eksternal di sekitar Zoltan adalah pasukan Veronia. Tidak ada alasan bagi Zoltan untuk mengibarkan bendera lawan mereka. "
-
- 
+g"Saat ini, satu-satunya kekuatan eksternal di sekitar Zoltan adalah pasukan Veronia. Tidak ada alasan bagi Zoltan untuk mengibarkan bendera lawan mereka."
 
 Tapi aku bisa mengerti kenapa Ririnrara tertegun.
 
 Perintah pengiriman pasukan kali ini adalah keputusan Pangeran Sarius dan Ririnrara atas kewenangannya sendiri.
 
-Di Benua Avalon, biasanya para jenderal dan bangsawan dari negara-negara memiliki hak untuk bebas menggunakan pasukan yang mereka miliki. Insiden, di mana tuan memiliki pertempuran kecil di antara mereka sendiri atau para jenderal yang campur tangan dalam masalah atas otoritas mereka sendiri, adalah hal biasa.
+Di Benua Avalon, biasanya para jenderal dan bangsawan dari negara-negara memiliki hak untuk bebas menggunakan pasukan yang mereka miliki. Insiden, di mana memiliki pertempuran kecil di antara mereka sendiri atau para jenderal yang campur tangan dalam masalah atas otoritas mereka sendiri, adalah hal biasa.
 
 Di kerajaan yang dibentuk oleh koalisi dari tuan yang tak terhitung jumlahnya, tidak terlalu berlebihan untuk mengatakan bahwa raja tidak lebih dari seorang raja dengan kekuatan dan keunggulan terbesar.
 
