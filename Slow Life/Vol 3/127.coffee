@@ -40,61 +40,41 @@ Jubah abu-abu yang menutupi seragam navigatornya sepertinya juga buatan High-Elf
 
 Dia mengenakan kemeja rantai rajutan elf terkenal yang dibuat dengan baja hijau sebagai baju besi.
 
-Mereka mungkin semua item sihir. Di Zoltan, bahkan sang jenderal tidak akan memiliki peralatan mewah seperti itu.
+semua itu mungkin semua item sihir. Di Zoltan, bahkan sang jenderal tidak akan memiliki peralatan mewah seperti itu.
 
- 
+g"Kenapa kamu membuntutiku. Aku hanya seorang apoteker."
 
-"Kenapa kamu membuntutiku. Aku hanya seorang apoteker. "
+"Hanya seorang apoteker dan kamu mendeteksi kehadiranku saat aku membuntutimu sambil menutupi kehadiranku dan mencoba mengarahku sendirian ke hutan?"
 
-"Hanya seorang apoteker yang akan mendeteksi kehadiranku saat aku membuntutimu sambil menutupi kehadiranku dan mencoba menyelesaikannya sendirian di hutan?"
-
-"Kaulah yang dengan sengaja menyelipkan kehadiranmu untuk aku deteksi."
-
- 
+g"Kaulah yang dengan sengaja menampakkan kehadiranmu agar aku mendeteksinya."
 
 High-Elf memukulku dengan tatapan tajam pada kata-kataku.
 
- 
+"Kamu sudah tahu sebanyak itu?"
 
-"Kamu sudah melihat sebanyak itu?"
+Aku bisa merasakan intimidasi dari seorang pejuang yang terampil bercampur dengan kewaspadaan dan semangat juang di kulitku.
 
- 
+"Mereka berdua dan kamu juga, mengapa ada orang seperti kalian di negara yang lusuh ini?"
 
-Aku bisa merasakan intimidasi dari seorang pejuang yang terampil bercampur dengan kewaspadaan dan semangat juang di kulit Aku.
+g"Kamu adalah Ririnrara?"
 
- 
+"entahlah?"
 
-"Mereka berdua dan kamu juga, mengapa ada pejuang seperti itu di negara yang lusuh ini?"
-
-Kamu adalah Ririnrara?
-
-"Aku penasaran?"
-
- 
-
-Mungkin tidak ada prajurit High-Elf lain dengan penutup mata yang bisa mengintimidasi Aku. Tapi Ririnrara bertindak tanpa sadar dengan bibirnya yang sedikit bengkok.
+Mungkin tidak ada prajurit High-Elf lain dengan penutup mata yang bisa mengintimidasiku. Tapi Ririnrara bertindak tanpa sadar dengan bibirnya yang sedikit bengkok.
 
 Aku tidak berpikir kemungkinan besar bahwa Ririnrara akan keluar sendiri tetapi dia benar-benar keluar sendiri.
 
 Itu berarti dia memiliki kepercayaan diri dan dia tahu bahwa terkadang menggunakan kekuatan tempur terbesar yang dia miliki akan menyebabkan kerugian terkecil. Itu dikatakan sebagai tindakan berani yang digunakan oleh Ririnrara baik ketika dia memimpin angkatan laut Raja Veronia sebagai jenderal dan selama waktunya sebagai bajak laut veteran.
 
- 
-
 "Lalu bagaimana denganmu, siapa sebenarnya kamu?"
-
- 
 
 Aku mengabaikan nada tajam Ririnrara dan menjawab.
 
- 
-
-"Apoteker Merah. Orang biasa yang tidak berbahaya. "
+g"Apoteker red. Orang biasa yang tidak berbahaya."
 
 "Tidak ada orang biasa sepertimu."
 
 Tidak ada kriteria untuk menjadi orang biasa.
-
- 
 
 Kami menutup jarak di antara kami dengan satu langkah, lalu dengan langkah lainnya, saat kami dengan ringan membalas satu sama lain.
 
