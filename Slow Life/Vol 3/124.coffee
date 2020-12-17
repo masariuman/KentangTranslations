@@ -48,39 +48,25 @@ g"Fuunfu ~ n"
 
 Aku tidak bisa menahan diri untuk tidak bersenandung sendiri.
 
-『Garan』
-
- 
+『Sreeek』
 
 Aku mendengar pintu geser terbuka.
 
- 
+g"Eh?"
 
-"Eh?"
+Ruti, tanpa sehelai kain pun di tubuhnya, secara terbuka berdiri di sana tanpa berusaha menutupi dirinya.
 
- 
+g"Ru-Ruti? Apa ada yang salah?"
 
-Ruti, tanpa sehelai benang pun di tubuhnya, secara terbuka berdiri di sana tanpa berusaha menutupi dirinya.
-
- 
-
-"Ru-Ruti? Apa yang salah?"
-
-"?"
-
- 
+r"?"
 
 Ruti memiringkan kepalanya setelah melihat ekspresi bingungku
 
- 
-
-"Kubilang aku akan memasuki kamar mandi."
-
- 
+r"Kubilang aku akan memasuki kamar mandi."
 
 Kalau dipikir-pikir, Ruti tentu tidak menyebut kalau kami akan masuk ke kamar mandi secara terpisah.
 
-Saat aku masih bingung, Ruti menyiramkan air panas ke kepalanya dan menggoyangkan tubuhnya untuk menghilangkan air.
+Ketika aku masih bingung, Ruti menyiramkan air panas ke kepalanya dan menggoyangkan tubuhnya untuk menghilangkan air.
 
 Jika orang normal melakukannya, itu tidak akan banyak berpengaruh tapi Ruti mengguncang tubuhnya dengan kecepatan sehingga sosoknya kabur sehingga sebagian besar kelembapannya terguncang.
 
