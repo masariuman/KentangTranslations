@@ -90,19 +90,13 @@ Kami meninggalkan kebun kepada Tise sementara Ruti dan Aku segera pergi untuk me
 
 ☆☆
 
- 
+Setelah menebarkan obat yang kami larutkan dengan air, kami memeriksa kondisi tanahnya.
 
-Setelah menebarkan obat yang kami larutkan beberapa lipatan dalam air, kami memeriksa kondisi tanahnya.
+Prosesnya bagus. Jamur dingin adalah jamur dengan kekuatan hidup yang lemah jadi seharusnya besok hari bisa hilang.
 
-Kami berkembang dengan mantap. Jamur dingin adalah jamur dengan kekuatan hidup yang lemah di tempat pertama jadi kita harus bisa menghilangkannya besok pagi.
+g"Besok, setelah memastikan tidak ada lagi Jamur Dingin di tanah, tutupi tanah dengan kain kasar untuk menaikkan suhunya."
 
- 
-
-"Besok, setelah dipastikan tidak ada lagi Jamur Dingin di tanah, tutupi tanah dengan kain kasar untuk menaikkan suhunya."
-
-"Baiklah."
-
- 
+r"Baiklah."
 
 Ruti merespon dan menggenggam kedua tinjunya di depan dadanya. Ada tekad kuat di wajahnya. Ruti mungkin ingin menyelamatkan tunas ramuan kecil itu.
 
