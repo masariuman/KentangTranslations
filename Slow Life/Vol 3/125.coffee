@@ -50,57 +50,39 @@ Setelah mandi, Aku membuatkan dua cangkir kopi susu untuk kami di lobi mansion.
 
 Aku menambahkan banyak gula ke dalam kopi pekat yang Aku buat.
 
-Aku hanya mencampurkan susu sapi untuk itu. Aku menambahkan rasio favorit Aku dari empat bagian susu dan 1 bagian sirup kopi.
+Aku hanya mencampurkan susu sapi. Aku menambahkan rasio favoritku dari empat bagian susu dan 1 bagian sirup kopi.
 
 Minumannya sederhana tapi enak dengan rasa manis dan penuh rasa. Itu mungkin salah satu minuman terbaik, terutama setelah mandi.
 
 Ruti menyesap kopi susu, matanya berbinar dan dia meminum setengahnya dalam sekali teguk. Dia perlahan menyesap sisa setengahnya dengan sedikit menyesal.
 
-Dia tidak berubah sejak muda.
+Dia tidak berubah sejak kecil.
 
- 
+g"Apakah kamu mau lagi?"
 
-"Apakah kamu mau lagi?"
-
-"Ya."
-
- 
+r"Ya."
 
 Kebahagiaan yang Ruti dapatkan kembali membawa kebahagiaan bagiku juga.
 
 Kami tertawa saat kami minum kopi susu bersama.
 
- 
+Setelah kami selesai membersihkan cangkir dan panci, kami menghela nafas.
 
-Setelah kami selesai membersihkan cangkir dan panci, kami mengambil nafas.
-
- 
-
-"Sekarang kupikir-pikir, para pembunuh High-Elf yang tertangkap masih berada di mansion ini."
-
- 
+g"oh iya, para pembunuh bayaran High-Elf yang tertangkap masih berada di mansion ini."
 
 Aku masih bisa merasakan tanda-tanda mereka di bawah tanah.
 
-Itu tentang para pembunuh yang menyerang Ruti dan Tise tapi membalikkan meja dan tertangkap tapi ...
+Itu para pembunuh bayaran yang menyerang Ruti dan Tise tapi malah tertangkap... tapi ...
 
- 
-
-"Aku yakin mereka akan datang untuk membebaskan mereka saat kita meninggalkan mansion tanpa pengawasan."
+r"Aku yakin mereka akan datang untuk membebaskan mereka saat kita meninggalkan mansion tanpa pengawasan."
 
 Ruti memiringkan kepalanya.
 
- 
+r"Aku mungkin telah mengunci mereka di sebuah ruangan tetapi mereka seharusnya dapat memecahkannya jika mereka memikirkannya."
 
-"Aku mungkin telah mengunci mereka di sebuah ruangan tetapi mereka seharusnya dapat memecahkannya jika mereka memikirkannya."
-
-"Akan sangat bagus jika seseorang datang untuk membebaskan mereka."
-
- 
+g"Akan sangat bagus jika seseorang datang untuk membebaskan mereka."
 
 Itu berarti pihak lain telah bergerak. Karena kami telah menyelesaikan pengumpulan informasi kami, kami menyambut baik pergerakan dari pihak lain.
-
- 
 
 Itulah alasan mengapa aku tidak meninggalkan Tise di mansion ketika kami pergi untuk mencari Mistome tetapi tidak berjalan sesuai rencana.
 
