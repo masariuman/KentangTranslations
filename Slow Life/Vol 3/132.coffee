@@ -30,81 +30,53 @@ Mereka berdua pernah bertemu Pangeran Sarius sebelumnya dan itu adalah suaranya.
 
 Prajurit itu membuka pintu.
 
-Di dalamnya ada orang-orang yang duduk dengan peralatan yang mirip dengan tentara… tetapi dengan lambang Bangsawan Veron dan dibungkus dengan alat sihir yang diukir dengan rune.
+Di dalamnya ada orang-orang yang duduk dengan perlengkapan yang mirip dengan tentara... tetapi dengan lambang Bangsawan Veron dan dibungkus dengan alat sihir yang diukir dengan rune.
 
 Pangeran Sarius seharusnya berusia hampir 50 tahun, tetapi kulitnya tampak muda dan dia tampak berusia tiga puluhan.
 
- 
-
-"Saya melihat bahwa Ririnrara aman."
-
- 
+"sepertinya Ririnrara aman."
 
 Kata Pangeran Sarius ketika melihat kondisi Ririnrara dan menunjukkan senyuman dengan gigi putih.
 
-Senyuman itu lebih merupakan seringai ganas yang bisa disebut mengancam daripada senyuman ramah dan itu menunjukkan bahwa kami adalah lawan mulai sekarang.
+Senyuman itu lebih merupakan senyuman ganas yang bisa disebut mengancam daripada senyuman ramah dan itu menunjukkan bahwa kami adalah lawan mulai sekarang.
 
-Hn… Riasan Pangeran…
+Hn... penampilan Pangeran...
 
- 
-
-Menampar!
-
- 
+Slap!
 
 Itu sangat keras.
 
 Dan itu terjadi dalam sekejap.
 
- 
-
 "Ke-kenapa?"
 
- 
+Pangeran Sarius memegangi pipinya dan tertegun. Ririnrara berdiri di depannya dengan amarah yang tak terkendali dan dia menghela napas dengan kasar.
 
-Pangeran Sarius memegangi pipinya dan tertegun. Ririnrara berdiri di depannya dengan amarah yang tak terkendali saat dia menghembuskan napas dengan kasar.
+Mendengar perkataan Pangeran Sarius, Ririnrara tiba-tiba mendekat dan menghantam wajah Pangeran Sarius.
 
-Mendengar perkataan Pangeran Sarius, Ririnrara tiba-tiba terbang dan menghantam wajah Pangeran Sarius.
-
- 
-
-"Seharusnya aku yang bertanya kenapa !! Kenapa kamu melakukan hal sebodoh ini !!! "
-
- 
+"Seharusnya aku yang bertanya kenapa !! Kenapa kamu melakukan hal sebodoh ini !!!"
 
 Bawahan High-Elf Ririnrara dan penjaga Pangeran Sarius yang berada tepat di samping mereka tercengang oleh kejadian yang tiba-tiba. Misufia terguncang sejak dia melihat Pangeran Sarius dan tidak bergerak.
 
-Tentu saja, Ruti dan Tise memperhatikan tindakan Ririnrara dan mereka mungkin bisa menghentikannya jika mereka mau. Namun mereka diam-diam menyaksikan aksi Ririnrara.
+Tentu saja, Ruti dan Tise memperhatikan tindakan Ririnrara dan mereka mungkin bisa menghentikannya jika mereka mau. Namun mereka diam menyaksikan aksi Ririnrara.
 
-Lit menatapku untuk bertanya apa yang harus kita lakukan. Aku menggelengkan kepalaku sedikit untuk menunjukkan bahwa kita harus tetap seperti apa adanya dan melihat bagaimana hasilnya.
+Lit menatapku untuk bertanya apa yang harus kita lakukan. Aku menggelengkan kepalaku sedikit untuk menunjukkan bahwa kita harus tetap seperti ini dan melihat bagaimana hasilnya.
 
- 
-
-"Ini akan menjadi malapetaka jika Leonor tahu tentang ini! Dasar bodoh… kamu seharusnya tidak begitu bodoh untuk tidak memahami hal seperti itu !! "
-
- 
+"Ini akan menjadi malapetaka jika Leonor tahu tentang ini! Dasar bodoh... kamu seharusnya tidak begitu bodoh untuk tidak memahami hal seperti itu !!"
 
 Suara Ririnrara bergetar.
 
 Suaranya menunjukkan bahwa dia tidak bisa menahan berbagai jenis emosi yang bercampur dan memilih untuk marah.
 
-Pangeran Sarius mengatupkan giginya dan membungkuk dalam diam tetapi…
+Pangeran Sarius mengatupkan giginya dan membungkuk dalam diam tetapi...
 
- 
-
-Kamu ditangkap.
-
- 
+"Kamu tertangkap."
 
 Dia berkata seolah-olah memeras kata-kata itu keluar.
 
- 
+"Terus Apa! Aku telah mengajarimu bahwa raja membutuhkan resolusi untuk membuang bawahan mereka!"
 
-"Dan jadi apa! Aku telah mengajari Kamu bahwa raja membutuhkan resolusi untuk membuang bawahan mereka! "
-
-"Jika aku harus membuangmu… maka aku tidak ingin menjadi raja! Aku juga tidak mau !! Kamu tahu itu juga !!! "
-
- 
+"Jika aku harus membuangmu... maka aku tidak ingin menjadi raja! Aku juga tidak mau !! Kamu tahu itu juga !!!"
 
 Pangeran Sarius berteriak cukup keras sehingga tentara di luar mungkin bisa mendengar. Aku bisa mendengar suara gelisah tentara dari luar.
 
