@@ -1,26 +1,18 @@
 Bab 132: Royalti dunia ini
 
-Penerjemah: Tseirp
-
- 
-
-Paviliun Angin yang Menguntungkan, penginapan kelas atas yang disukai oleh para kapten dan navigator dari Distrik Pelabuhan.
+Paviliun Angin favorit, penginapan kelas atas yang disukai oleh para kapten dan navigator dari Distrik Pelabuhan.
 
 Itu adalah penginapan yang pernah ditinggali Ruti saat pertama kali datang ke Zoltan.
 
 Pangeran Sarius telah menempati penginapan itu dan sepertinya menggunakannya sebagai markas besarnya.
 
- 
+seorang High-Elf Veronian kecoklatan memandu kami.
 
-Sebuah solder High-Elf Veronian berjemur menemani kami.
-
-Dia memegang tombak yang sedikit lebih pendek dari yang digunakan oleh penjaga Zoltan dengan tombak sederhana yang tidak lain adalah ujung tajam dan tipis di tangannya dan dia memiliki pedang pendek melengkung pendek di ikat pinggangnya bersama dengan busur komposit yang pendek tapi memiliki jarak jauh.
+Dia memegang tombak yang sedikit lebih pendek dari yang digunakan oleh penjaga Zoltan dengan tombak sederhana yang tidak lain adalah matanya tajam dan tipis di tangannya dan dia memiliki pedang melengkung pendek di ikat pinggangnya bersama dengan busur komposit yang pendek tapi memiliki jarak jauh.
 
 Armornya adalah chainmail yang diperkuat dengan plat besi di daerah vital. Kayu digunakan untuk bagian tertentu dari baju besi yang mungkin dimaksudkan untuk meningkatkan daya apung di dalam air.
 
- 
-
-“Yang Mulia Sarius. Saya telah membawa utusan dari Zoltan. ”
+"Yang Mulia Sarius. Aku telah membawa utusan dari Zoltan. "
 
  
 
@@ -52,7 +44,7 @@ Pangeran Sarius seharusnya berusia hampir 50 tahun, tetapi kulitnya tampak muda 
 
  
 
-“Saya melihat bahwa Ririnrara aman.”
+"Saya melihat bahwa Ririnrara aman."
 
  
 
@@ -74,7 +66,7 @@ Dan itu terjadi dalam sekejap.
 
  
 
-“Ke-kenapa?”
+"Ke-kenapa?"
 
  
 
@@ -84,7 +76,7 @@ Mendengar perkataan Pangeran Sarius, Ririnrara tiba-tiba terbang dan menghantam 
 
  
 
-“Seharusnya aku yang bertanya kenapa !! Kenapa kamu melakukan hal sebodoh ini !!! ”
+"Seharusnya aku yang bertanya kenapa !! Kenapa kamu melakukan hal sebodoh ini !!! "
 
  
 
@@ -96,7 +88,7 @@ Lit menatapku untuk bertanya apa yang harus kita lakukan. Aku menggelengkan kepa
 
  
 
-“Ini akan menjadi malapetaka jika Leonor tahu tentang ini! Dasar bodoh… kamu seharusnya tidak begitu bodoh untuk tidak memahami hal seperti itu !! ”
+"Ini akan menjadi malapetaka jika Leonor tahu tentang ini! Dasar bodoh… kamu seharusnya tidak begitu bodoh untuk tidak memahami hal seperti itu !! "
 
  
 
@@ -116,17 +108,17 @@ Dia berkata seolah-olah memeras kata-kata itu keluar.
 
  
 
-“Dan jadi apa! Saya telah mengajari Anda bahwa raja membutuhkan resolusi untuk membuang bawahan mereka! "
+"Dan jadi apa! Aku telah mengajari Kamu bahwa raja membutuhkan resolusi untuk membuang bawahan mereka! "
 
-“Jika aku harus membuangmu… maka aku tidak ingin menjadi raja! Aku juga tidak mau !! Kamu tahu itu juga !!! ”
+"Jika aku harus membuangmu… maka aku tidak ingin menjadi raja! Aku juga tidak mau !! Kamu tahu itu juga !!! "
 
  
 
-Pangeran Sarius berteriak cukup keras sehingga tentara di luar mungkin bisa mendengar. Saya bisa mendengar suara gelisah tentara dari luar.
+Pangeran Sarius berteriak cukup keras sehingga tentara di luar mungkin bisa mendengar. Aku bisa mendengar suara gelisah tentara dari luar.
 
 Itu adalah kata-kata yang tidak boleh diucapkan oleh seorang pangeran yang mengincar takhta… tapi Ririnrara tidak bisa memarahinya.
 
-Saya tidak tahu bagaimana menjelaskan ekspresi Ririnrara.
+Aku tidak tahu bagaimana menjelaskan ekspresi Ririnrara.
 
 Itu adalah ekspresi kemarahan, putus asa, hampir menangis… dan tersenyum.
 
@@ -136,11 +128,11 @@ Pusaran emosi yang mengancam akan merobek jantungnya berputar-putar di dalam dad
 
 Keheningan menyelimuti ruangan. Para prajurit Veronia bingung dan melihat sekeliling dengan gelisah berkali-kali.
 
-Dalam adegan itu, saya dengan lembut bergerak ke samping orang di belakang kami yang selama ini menatap lurus ke wajah Pangeran Sarius.
+Dalam adegan itu, Aku dengan lembut bergerak ke samping orang di belakang kami yang selama ini menatap lurus ke wajah Pangeran Sarius.
 
  
 
-“Bukankah mereka terlihat mirip?”
+"Bukankah mereka terlihat mirip?"
 
  
 
@@ -148,11 +140,11 @@ Bahu Misufia melonjak saat aku berbicara dengannya.
 
  
 
-"Bagaimana Anda tahu apa yang saya pikirkan?"
+"Bagaimana Kamu tahu apa yang Aku pikirkan?"
 
-“Aku sudah memikirkan kemungkinan sebelumnya… Ririnrara adalah seorang bajak laut. Dia bertindak bukan untuk Kerajaan Veronia tetapi sepenuhnya untuk Geyserik ... dalam hal ini Pangeran Sarius adalah ... "
+"Aku sudah memikirkan kemungkinan sebelumnya… Ririnrara adalah seorang bajak laut. Dia bertindak bukan untuk Kerajaan Veronia tetapi sepenuhnya untuk Geyserik ... dalam hal ini Pangeran Sarius adalah ... "
 
-“Ya-ya! Mereka terlihat mirip! Persis seperti penampilannya ketika dia masih muda! Itu… tidak terpikirkan kalau mereka tidak terhubung oleh darah !! ”
+"Ya-ya! Mereka terlihat mirip! Persis seperti penampilannya ketika dia masih muda! Itu… tidak terpikirkan kalau mereka tidak terhubung oleh darah !! "
 
  
 
@@ -162,7 +154,7 @@ Dan…
 
  
 
-“Kenapa, kenapa dia tidak memberitahuku yang sebenarnya sejak awal… orang tua sebenarnya dari anak itu… jika dia melakukannya… aku…”
+"Kenapa, kenapa dia tidak memberitahuku yang sebenarnya sejak awal… orang tua sebenarnya dari anak itu… jika dia melakukannya… aku…"
 
  
 
@@ -180,17 +172,17 @@ Setelah riasan dihapus, di bawahnya mungkin akan ada wajah muda dari seorang rem
 
  
 
-“Merah… Kebetulan Pangeran Sarius…”
+"Merah… Kebetulan Pangeran Sarius…"
 
  
 
 Lit berbisik di telingaku.
 
-Saya mengangguk dan menjawab.
+Aku mengangguk dan menjawab.
 
  
 
-“Ya, Pangeran Sarius adalah Elf Setengah Manusia Setengah Tinggi.”
+"Ya, Pangeran Sarius adalah Elf Setengah Manusia Setengah Tinggi."
 
  
 
@@ -198,7 +190,7 @@ Dan.
 
  
 
-Ayahnya adalah Geyserik, dan ibunya ... mungkin Ririnrara. ”
+Ayahnya adalah Geyserik, dan ibunya ... mungkin Ririnrara. "
 
  
 
@@ -222,7 +214,7 @@ Mungkin karena jika mereka mengenali Raja Geyserik, itu akan menyiratkan bahwa s
 
  
 
-Bagi saya, cara bangsawan dunia ini adalah representasi dari kontradiksi terbesar terhadap keberadaan perlindungan ilahi.
+Bagi Aku, cara bangsawan dunia ini adalah representasi dari kontradiksi terbesar terhadap keberadaan perlindungan ilahi.
 
  
 
@@ -230,4 +222,4 @@ Sebagai putri Kerajaan Logavia, Lit mungkin telah melihat nasib mereka sebagai t
 
 Lit mencengkeram tanganku erat-erat seolah memastikan bahwa dia sedang bersamaku saat ini.
 
-Saya menanggapi dengan menggenggam tangannya kembali.
+Aku menanggapi dengan menggenggam tangannya kembali.
