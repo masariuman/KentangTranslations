@@ -80,107 +80,71 @@ Dia berkata seolah-olah memeras kata-kata itu keluar.
 
 Pangeran Sarius berteriak cukup keras sehingga tentara di luar mungkin bisa mendengar. Aku bisa mendengar suara gelisah tentara dari luar.
 
-Itu adalah kata-kata yang tidak boleh diucapkan oleh seorang pangeran yang mengincar takhta… tapi Ririnrara tidak bisa memarahinya.
+Itu adalah kata-kata yang tidak boleh diucapkan oleh seorang pangeran yang mengincar takhta... tapi Ririnrara tidak bisa memarahinya.
 
 Aku tidak tahu bagaimana menjelaskan ekspresi Ririnrara.
 
-Itu adalah ekspresi kemarahan, putus asa, hampir menangis… dan tersenyum.
+Itu adalah ekspresi kemarahan, putus asa, hampir menangis... dan tersenyum.
 
-Pusaran emosi yang mengancam akan merobek jantungnya berputar-putar di dalam dada Ririnrara.
-
- 
+Pusaran emosi yang mengancam akan merobek jantungnya di dalam dada Ririnrara.
 
 Keheningan menyelimuti ruangan. Para prajurit Veronia bingung dan melihat sekeliling dengan gelisah berkali-kali.
 
-Dalam adegan itu, Aku dengan lembut bergerak ke samping orang di belakang kami yang selama ini menatap lurus ke wajah Pangeran Sarius.
+Dalam penampilan itu, Aku dengan lembut bergerak ke samping orang di belakang kami yang selama ini menatap lurus ke wajah Pangeran Sarius.
 
- 
-
-"Bukankah mereka terlihat mirip?"
-
- 
+g"Bukankah mereka terlihat mirip?"
 
 Bahu Misufia melonjak saat aku berbicara dengannya.
 
- 
-
 "Bagaimana Kamu tahu apa yang Aku pikirkan?"
 
-"Aku sudah memikirkan kemungkinan sebelumnya… Ririnrara adalah seorang bajak laut. Dia bertindak bukan untuk Kerajaan Veronia tetapi sepenuhnya untuk Geyserik ... dalam hal ini Pangeran Sarius adalah ... "
+g"Aku sudah memikirkan kemungkinan sebelumnya... Ririnrara adalah seorang bajak laut. Dia bertindak bukan untuk Kerajaan Veronia tetapi sepenuhnya untuk Geyserik ... dalam hal ini Pangeran Sarius adalah..."
 
-"Ya-ya! Mereka terlihat mirip! Persis seperti penampilannya ketika dia masih muda! Itu… tidak terpikirkan kalau mereka tidak terhubung oleh darah !! "
-
- 
+"Ya-ya! Mereka terlihat mirip! Persis seperti penampilannya ketika dia masih muda! Itu... tidak terpikirkan kalau mereka tidak terhubung oleh darah !!"
 
 Misufia berbisik dan gemetar. Seperti yang diharapkan, Pangeran Sarius adalah putra sebenarnya dari Raja Geyserik.
 
-Dan…
+Dan...
 
- 
-
-"Kenapa, kenapa dia tidak memberitahuku yang sebenarnya sejak awal… orang tua sebenarnya dari anak itu… jika dia melakukannya… aku…"
-
- 
+"Kenapa, kenapa dia tidak memberitahuku yang sebenarnya dari awal... orang tua sebenarnya dari anak itu... jika dia melakukannya... aku..."
 
 Misufia menutupi matanya dengan jari-jarinya sendiri yang seperti ranting kering.
 
-Cinta dan niat jahat demi siapa, siapa yang mengkhianati, siapa yang berkorban, dan siapa yang mendapatkan.
-
- 
+Cinta dan niat jahat demi siapa, siapa yang mengkhianati, siapa yang berkorban, dan siapa yang mendapatkan hasilnya.
 
 Pangeran Sarius tidak terlihat awet muda, dia berpura-pura lebih tua dari usianya yang sebenarnya.
 
-Riasan tipis yang dioleskan pada wajah Pangeran Sarius tidak agar coraknya terlihat lebih baik.
+Riasan tipis pada wajah Pangeran Sarius tidak bertujuan agar terlihat lebih baik.
 
 Setelah riasan dihapus, di bawahnya mungkin akan ada wajah muda dari seorang remaja. Itu tidak aneh bagi ras mereka di usia 50 tahun.
 
- 
-
-"Merah… Kebetulan Pangeran Sarius…"
-
- 
+l"red... jangan-jangan Pangeran Sarius..."
 
 Lit berbisik di telingaku.
 
 Aku mengangguk dan menjawab.
 
- 
-
-"Ya, Pangeran Sarius adalah Elf Setengah Manusia Setengah Tinggi."
-
- 
+g"Ya, Pangeran Sarius adalah setengah-half-Elf dan setengah-Manusia."
 
 Dan.
 
- 
-
-Ayahnya adalah Geyserik, dan ibunya ... mungkin Ririnrara. "
-
- 
+g"Ayahnya adalah Geyserik, dan ibunya ... mungkin Ririnrara."
 
 Lit menggelengkan kepalanya dengan lemah.
 
- 
+l"Royalti itu ..."
 
-"Royalti itu serius ..."
-
-Kamu mengatakan itu dengan benar.
-
- 
+g"Kamu mengatakannya kan..."
 
 Justru karena dunia diatur oleh perlindungan ilahi, orang-orang menginginkan garis keturunan sebagai pendukung di luar pengaruh perlindungan ilahi.
 
 Karena siapa pun dengan perlindungan ilahi yang kuat dapat membuat orang patuh tanpa syarat, orang-orang tidak mempercayai perlindungan ilahi.
 
-Raja Geyserik, meskipun ia memiliki perlindungan dewa 『Kaisar』 dan membangun kembali Veronia menjadi negara besar sekali lagi, orang-orang masih terus memandangnya sebagai bajak laut nakal.
+Raja Geyserik, meskipun ia memiliki perlindungan ilahi 『Kaisar』 dan membangun kembali Veronia menjadi negara besar sekali lagi, orang-orang masih terus memandangnya sebagai bajak laut.
 
-Mungkin karena jika mereka mengenali Raja Geyserik, itu akan menyiratkan bahwa setiap bandit gunung masa depan, pencuri, pembakar, atau orang lain dengan perlindungan dewa 』Kaisar』 dapat melanggar aturan dunia tempat mereka tinggal dan memerintah sebagai penguasa baru.
+Mungkin karena jika mereka mengenali Raja Geyserik, itu akan menyiratkan bahwa setiap bandit gunung masa depan, pencuri, pembakar, atau orang lain dengan perlindungan ilahi kaisar dapat melanggar aturan dunia tempat mereka tinggal dan memerintah sebagai penguasa baru.
 
- 
-
-Bagi Aku, cara bangsawan dunia ini adalah representasi dari kontradiksi terbesar terhadap keberadaan perlindungan ilahi.
-
- 
+Bagiku, cara bangsawan dunia ini adalah representasi dari kontradiksi terbesar terhadap keberadaan perlindungan ilahi.
 
 Sebagai putri Kerajaan Logavia, Lit mungkin telah melihat nasib mereka sebagai takdir yang bisa terjadi padanya.
 
