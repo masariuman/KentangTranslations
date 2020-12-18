@@ -14,27 +14,19 @@ Armornya adalah chainmail yang diperkuat dengan plat besi di daerah vital. Kayu 
 
 "Yang Mulia Sarius. Aku telah membawa utusan dari Zoltan. "
 
- 
+Prajurit itu berkata dan mengetuk pintu.
 
-Prajurit itu mengumumkan dan mengetuk pintu.
+sikapnya kasar dari seorang prajurit yang melayani seorang pangeran tetapi perhatiannya selalu tertuju pada kami tanpa membiarkan apa pun meleset dan terus-menerus dalam keadaan siap tempur yang menunjukkan bahwa dia memiliki banyak pengalaman.
 
-Itu adalah etiket kasar dari seorang prajurit yang melayani seorang pangeran tetapi perhatiannya selalu tertuju pada kami tanpa membiarkan apa pun tergelincir dan terus-menerus dalam keadaan siap tempur yang menunjukkan kekayaan pengalamannya.
+Sikapnya tidak seperti para High Elf yang berasal dari High-Elf kerajaan Kiramin. Ia memancarkan ketajaman dan bahaya yang dilatihkan sebagai seorang prajurit lautan.
 
-Sikapnya tidak seperti para High Elf yang berasal dari High-Elf Kingdom of Kiramin. Ia memancarkan ketajaman dan bahaya yang dilatihkan sebagai seorang prajurit lautan.
-
- 
-
-"Memasukkan."
-
- 
+"Masuklah."
 
 Suara seorang pria bisa terdengar dari dalam.
 
 Aku melihat ke arah Ruti dan Tise dan mereka mengangguk.
 
 Mereka berdua pernah bertemu Pangeran Sarius sebelumnya dan itu adalah suaranya.
-
- 
 
 Prajurit itu membuka pintu.
 
