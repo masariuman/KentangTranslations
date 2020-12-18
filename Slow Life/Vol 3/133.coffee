@@ -100,45 +100,33 @@ Jantungnya berdegup kencang hingga terasa sakit. Meskipun itu adalah situasi yan
 
 Sementara merasa jijik dengan dirinya sendiri...
 
- 
-
 "Apakah penawarnya benar-benar tidak ada?"
 
- 
+Aku mengkonfirmasi lagi dengan dokter.
 
-Aku konfirmasi dengan dokter.
+Anak yang lahir menyerupai ayahnya. Aku tidak akan pernah melupakan perasaan ketika Aku menggendong anak itu dalam pelukanku.
 
-Anak yang lahir menyerupai ayahnya. Aku tidak akan pernah melupakan perasaan ketika Aku menggendong anak itu dalam pelukan Aku.
+Aku masih merasa menggigil ketika mengingat bahwa Aku berencana meminta dokter menara penjara mengubah wajah anak itu jika anak itu mirip dengan Aku.
 
-Aku masih merasa menggigil ketika mengingat bahwa Aku berencana meminta dokter menara penjara mengukir wajah anak itu jika anak itu mirip dengan Aku.
-
- 
-
-"Aku ibumu hanya untuk hari ini…"
-
- 
+"Aku ibumu hanya untuk hari ini..."
 
 Bayi di pelukanku berteriak 'Ah ~' dan tersenyum oleh kata-kataku.
 
 Aku menangis sebelum Aku menyadarinya.
 
- 
-
 Aku akan menyerahkan anak Aku ke Misufia.
 
 Memikirkan kembali, Aku mengakui bahwa kata-kata ceroboh yang Aku ucapkan kepada Misufia dan menyembunyikan kebenaran adalah langkah yang buruk.
 
-Tapi… Aku takut. Terlepas dari alasannya, Aku telah mengkhianati Misufia. Misufia tidak bisa melahirkan anak untuk Geyserik jadi Aku terpaksa mengasuh Geyserik dan anak Aku sebagai miliknya demi Geyserik.
+Tapi... Aku takut. Terlepas dari alasannya, Aku telah mengkhianati Misufia. Misufia tidak bisa melahirkan anak untuk Geyserik jadi Aku terpaksa dengan anakku sebagai miliknya demi Geyserik.
 
-Jika Aku berada di posisi Misufia, Aku akan merasa itu sama sekali tidak bisa dimaafkan. Aku mungkin akan mengutuk dia karena tidak tahu malu.
+Jika Aku berada di posisi Misufia, Aku akan merasa itu sama sekali tidak bisa dimaafkan. Aku mungkin akan menghinanya karena tidak tahu malu.
 
- 
-
-… Aku tidak tenang.
+... Aku tidak tenang.
 
 Jika Aku tenang, Aku akan berpikir lebih dalam tentang skema Leonor.
 
-Aku merasa itu berkah dan diyakinkan ... bahwa Leonor akan membalas dendam untuk ayah dan suaminya sampai mengorbankan masa depannya sendiri.
+Aku merasa itu berkah dan keyakinan ... bahwa Leonor akan membalas dendam untuk ayah dan suaminya sampai mengorbankan masa depannya sendiri.
 
 Aku terkejut mendengar bahwa Leonor juga memiliki anak setelah Sarius lahir.
 
@@ -146,115 +134,95 @@ Jika Leonor meminum Racun Pemusnah Keturunan Tersembunyi atas kemauannya sendiri
 
 Namun Leonor melahirkan putra tertua Pangeran Silberio dan putra kedua Pangeran Uzuku.
 
-Dia mungkin mengganti anak-anak seperti Sarius tapi… belum lagi bukti, aku bahkan tidak bisa menangkap gerakan yang mencurigakan.
+Dia mungkin mengganti anak-anak seperti Sarius tapi... jangankan bukti bukti, aku bahkan tidak bisa menangkap gerakan yang mencurigakan.
 
 Leonor menyiapkan racunnya. Mungkin dia tahu obat penawar yang bahkan para High-Elf tidak tahu.
 
 Dan kemudian, Leonor diam-diam membuang Misufia dengan mengancamnya dengan kasus Sarius.
 
-Dengan hilangnya putri pertama Misufia, Geyserik terpaksa menerima permintaan Leonor dan pengikutnya untuk menurunkan hak waris Sarius sampai ke dasar.
+Dengan hilangnya putri pertama Misufia, Geyserik terpaksa menerima permintaan Leonor dan pengikutnya untuk menurunkan hak waris Sarius sampai ke bawah.
 
-Sejak saat itu… aku melindungi Sarius dan bergerak untuk menjadikannya raja.
+Sejak saat itu... aku melindungi Sarius dan bergerak untuk menjadikannya raja.
 
-Pada akhirnya… aku bahkan mengkhianati cita-citaku untuk menjadi bantuan Geyserik dan pindah demi anakku sendiri…
+Pada akhirnya... aku bahkan mengkhianati cita-citaku untuk menjadi bantuan Geyserik dan bergerak demi anakku sendiri...
 
-Dimana Aku salah?
+Dimana salahku?
 
 Apa yang harus Aku lakukan?
 
- 
-
-Jika Aku tidak bertemu Geyserik ketika dia masih terikat rantai sebagai budak pendayung di kapal bajak laut… apakah Aku tidak akan mengalami masalah Aku saat ini dan tetap sebagai bajak laut yang tidak terkendali?
-
- 
+Jika Aku tidak bertemu Geyserik ketika dia masih terikat rantai sebagai budak pendayung di kapal bajak laut... apakah Aku tidak akan mengalami masalahku saat ini dan tetap sebagai bajak laut yang tidak terkendali?
 
 ☆☆
 
-Misufia… ibu lari sebelum aku sadar akan sekitarku.
+Misufia... ibu lari sebelum aku sadar akan sekelilingku.
 
 Jadi Aku tidak punya banyak kenangan tentang ibu.
 
 Aku hanya bisa sedikit mengingat sosok wanita yang diam-diam melihat dari kejauhan saat aku bermain.
 
-Ketika Aku mendengar cerita bahwa ibu dan ayah Aku menyerang ibu kota kerajaan ketika mereka menjadi bajak laut, Aku sering bingung karena bayangan ibu di kepala Aku berbeda dengan cerita.
-
- 
+Ketika Aku mendengar cerita bahwa ibu dan ayah ku menyerang ibu kota kerajaan ketika mereka menjadi bajak laut, Aku sering bingung karena bayangan ibu di kepalaku berbeda dengan cerita.
 
 Para bangsawan Veronia tidak langsung membesarkan anak-anaknya.
 
-Kenanganku selama masa remajaku adalah tentang Jenderal Ririnrara High Elf bermata tunggal.
+Kenanganku selama masa remajaku adalah tentang Jenderal High-Elf Ririnrara.
 
- 
-
-Sarius, apa yang kamu lakukan?
-
- 
+"Sarius, apa yang sedang kamu lakukan?"
 
 Kata-kata pertama Ririnrara kepadaku selalu seperti itu.
 
 Tidak peduli apa yang Aku lakukan, bahkan jika dia tahu dengan mata tunggalnya bahwa Aku sedang bermain, Ririnrara akan selalu mengatakan kata-kata itu kepada Aku.
 
- 
-
-Bahkan setelah menjadi bangsawan, Ririnrara masih menutupi salah satu matanya dengan penutup mata hitam seperti saat dia menjadi bajak laut. Bahkan jika dia mengenakan gaun bangsawan yang mewah, dia akan selalu memiliki pedang pendek kasar seperti bajak laut di pinggangnya.
+Bahkan setelah menjadi bangsawan, Ririnrara masih menutupi salah satu matanya dengan penutup mata hitam seperti saat dia menjadi bajak laut. Bahkan jika dia mengenakan gaun bangsawan yang mewah, dia akan selalu memiliki pedang pendek seperti bajak laut di pinggangnya.
 
 Orang-orang disekitarnya menghindarinya seperti orang asing tapi Aku suka bertemu Ririnrara.
 
-Alih-alih cerita tentang bangsawan dan ksatria yang anggun, Ririnrara menceritakan kepada Aku kisah-kisah laut yang menarik.
+Daripada cerita tentang bangsawan dan ksatria yang anggun, Ririnrara menceritakan kepadaku kisah-kisah laut yang menarik.
 
-Meskipun Aku tidak bisa keluar, dia diam-diam membawa Aku ke kapalnya dan mengajari Aku warna dan bau laut.
+Meskipun Aku tidak bisa keluar, dia diam-diam membawaku ke kapalnya dan mengajariku warna dan bau laut.
 
- 
+Aku menemukan bahwa ibu bukanlah ibu kandungku ketika Aku berpetualang dengan Naga Radiant bernama Alhazen.
 
-Aku menemukan bahwa ibu bukanlah ibu kandung Aku ketika Aku berpetualang dengan Naga Radiant bernama Alhazen.
-
-Ada banyak petualangan yang disukai Naga Radi, seperti pangeran dan naga melawan penyihir jahat hutan… tapi itu tidak relevan jadi aku akan mengabaikannya.
+Ada banyak petualangan yang disukai Naga Radiant, seperti pangeran dan naga melawan penyihir jahat hutan... tapi itu tidak relevan jadi aku akan mengabaikannya.
 
 Yang penting adalah aku mengambil satu set sarung tangan di dalam kamar Ririnrara.
 
-Itu adalah artikel luar biasa yang dibuat dengan menggunakan baja hijau dan menjadi benda ajaib, sangat pas dengan tangan anak Aku.
+Itu adalah artikel luar biasa yang dibuat dengan menggunakan baja hijau dan menjadi benda magic, sangat pas dengan tanganku.
 
-Meskipun aku hanya tahu pedang itu sejauh bermain-main dengannya, ketika aku memakai tantangan itu, aku bisa dengan bebas mengayunkan pedang seolah-olah aku adalah seorang pejuang veteran dan aku bisa melawan monster di hutan.
+Meskipun aku hanya tahu pedang itu hanya untuk dimainkan, ketika aku memakai itu, aku bisa dengan bebas mengayunkan pedang seolah-olah aku adalah seorang pejuang veteran dan aku bisa melawan monster di hutan.
 
-Dan saat aku mengalahkan penyihir itu ... mulut penyihir itu berubah menyeringai saat melihat gauntletku ... dia memberitahuku bahwa itu disebut Gauntlet of Swordsmanship dan itu adalah item sihir yang hanya bisa digunakan oleh para High-Elf sebelum dia menghembuskan nafas terakhirnya. .
-
- 
+Dan saat aku mengalahkan penyihir itu ... mulut penyihir itu berubah tersenyum saat melihat sarung tanganku ... dia memberitahuku bahwa itu disebut sarung tangan ahli pedang dan itu adalah item sihir yang hanya bisa digunakan oleh para High-Elf sebelum dia menghembuskan nafas terakhirnya. .
 
 Tentu saja Aku kaget.
 
-Baik ayah maupun ibu Aku bukanlah Peri Tinggi.
+Baik ayah maupun ibu Aku bukanlah high-elf.
 
-Dengan kata lain, salah satu dari mereka bukanlah orang tua Aku yang sebenarnya.
+Dengan kata lain, salah satu dari mereka bukanlah orang tuaku yang sebenarnya.
 
 Saat aku berpikir, satu High-Elf muncul di pikiranku.
 
-Begitu Aku menyadarinya, kecurigaan itu berubah menjadi keyakinan dengan cukup cepat. Atau lebih tepatnya, Aku harus mengatakan bahwa Aku menerimanya sejak awal.
+Begitu Aku menyadarinya, kecurigaan itu berubah menjadi keyakinan dengan cukup cepat. Atau lebih tepatnya, Aku menerimanya sejak awal.
 
-Dan perkataan penyihir itu didukung oleh fakta bahwa penuaan Aku sangat lambat. Penampilan Aku tidak banyak berubah, tidak seperti manusia biasa.
+Dan perkataan penyihir itu didukung oleh fakta bahwa penuaanku sangat lambat. Penampilanku tidak banyak berubah, tidak seperti manusia biasa.
 
- 
+Hari-hari perebutan kekuasaan tidak pernah berakhir dan Aku tidak dapat memiliki ketenangan pikiran tetapi Aku senang bahwa ibuku berjuang demi Aku.
 
-Hari-hari perebutan kekuasaan tidak pernah berakhir dan Aku tidak dapat memiliki ketenangan pikiran tetapi Aku senang bahwa ibu Aku berjuang demi Aku.
-
-Meskipun ibu angkat Aku meninggalkan Aku dan ayah menyatakan bahwa Aku tidak memiliki apa-apa untuk diwariskan, ibu tetap berada di sisi Aku dan melindungi Aku.
+Meskipun ibu angkatku meninggalkanku dan ayah menyatakan bahwa Aku tidak memiliki apa-apa untuk diwariskan, ibu tetap berada di sisiku dan melindungiku.
 
 Aku ingin mengucapkan terima kasih. Aku ingin mengatakan kepadanya bahwa Aku mencintainya.
 
-Aku ingin memperlakukannya seperti ibu Aku.
+Aku ingin memperlakukannya seperti ibuku.
 
 Hanya itu yang Aku harapkan.
 
- 
+Ayah jatuh sakit dan sepertinya pertengkaranku dengan ibu akan segera berakhir. Dalam bentuk kekalahan yang sudah kami asumsikan sejak awal.
 
-Ayah jatuh sakit dan sepertinya pertengkaranku dengan ibu akan segera berakhir. Dalam bentuk kekalahan yang kami ketahui sejak awal.
-
-Pada saat itu, seorang bangsawan dari faksi Leonor berbohong tentang sebenarnya ingin mengkhianati Leonor dan mendekati kami… dan menawarkan informasi tentang keberadaan ibu angkat.
+Pada saat itu, seorang bangsawan dari faksi Leonor berbohong tentang sebenarnya ingin mengkhianati Leonor dan mendekati kami... dan menawarkan informasi tentang keberadaan ibu angkat.
 
 Aku tahu itu jebakan tapi Aku punya ide yang berbeda.
 
 Jika ibu angkat mengaku tidak mengenalku, mungkin kita bisa menyerah pada ayah dan kerajaan.
 
-Persis seperti bagaimana ibu angkat datang ke Zoltan, ibu dan Aku bisa menyeberang ke negeri yang jauh, ke Timur di balik Tembok di Ujung Dunia dan hidup sebagai ibu dan anak yang adil.
+Persis seperti bagaimana ibu angkat datang ke Zoltan, ibu dan Aku bisa menyeberang ke negeri yang jauh, ke Timur di balik Tembok di Ujung Dunia dan hidup sebagai ibu dan anak yang sebenarnya.
 
 Jika ayah meninggal dan Aku tidak bisa naik takhta, seharusnya tidak ada yang menahan ibu untuk Veronia.
 
@@ -262,36 +230,22 @@ Aku berpikir sendiri.
 
 Aku tidak ingin kehilangan ibu untuk kedua kalinya.
 
- 
-
 ☆☆
-
- 
 
 "Aku tidak ingin kehilangan ibu untuk kedua kalinya."
 
- 
-
-Pangeran Sarius menarik napas dalam-dalam dan menghembuskan napas setelah dia berakhir. Tangannya di atas meja berkeringat karena gugup dan matanya sekarang tertunduk.
+Pangeran Sarius menarik napas dalam-dalam dan menghela napas setelah dia berakhir. Tangannya di atas meja berkeringat karena gugup dan matanya sekarang tertunduk.
 
 Ririnrara dan Pangeran Sarius akhirnya mengungkap semua motif mereka.
-
- 
 
 Selain Leonor, semua orang bertindak bukan untuk mereka sendiri tetapi untuk orang lain tetapi itu tidak berjalan seperti yang mereka inginkan.
 
 Misufia mendoakan kebahagiaan orang-orang yang dicintainya, Ririnrara berjuang sendiri demi anaknya, dan Pangeran Sarius hanya ingin menjalin kembali hubungan dengan ibunya.
 
-Hanya aliran waktu yang berlanjut sementara tidak ada keinginan mereka yang terkabul.
+Hanya waktu yang berlanjut sementara tidak ada keinginan mereka yang terkabul.
 
- 
+Aku meletakkan Sarung Tangan yang aku Simpan setelah aku mengalahkan Ririnrara di atas meja.
 
-Aku meletakkan gauntlet yang aku kumpulkan setelah aku mengalahkan Ririnrara di atas meja.
-
- 
-
-Aku akan mengembalikan ini.
-
- 
+g"Aku akan mengembalikan ini."
 
 Sarung tangan yang dipoles dengan baik memantulkan wajah Pangeran Sarius dan Ririnrara serta wajah Misufia yang jaraknya cukup dekat.
