@@ -12,9 +12,7 @@ Membuka pintu rahasia yang hanya diketahui oleh dokter itu dan beberapa rekan Hi
 
 Dan di atas meja tergeletak bayi Misufia yang seharusnya dikuburkan.
 
-Ini sangat menarik.
-
- 
+"Ini sangat menarik."
 
 Dokter yang memiliki perlindungan ilahi 『Master Racun』 menunjukkan darah yang diambilnya dari bayi.
 
@@ -22,113 +20,85 @@ Darahnya agak kebiruan.
 
 Dokter tampaknya telah mencampurkan beberapa obat lain.
 
- 
+"Apakah itu racun?"
 
-Apakah itu racun?
-
-"Iya. Ini disebut 'Racun Pemusnah Anak yang Tersembunyi'. "
+"Iya. Ini disebut 'Racun Pemusnah Anak yang Tersembunyi'."
 
 Aku tidak pernah mendengar tentang racun itu.
 
-"Ya, ini pertama kalinya aku melihatnya juga. Itu adalah racun yang digunakan oleh iblis di Benua Hitam. "
+"Ya, ini pertama kalinya aku melihatnya juga. Itu adalah racun yang digunakan oleh iblis di Benua Kegelapan."
 
-"Iblis dari Benua Hitam? Mengapa mereka menggunakan racun seperti itu… "
+"Iblis dari Benua Kegelapan? Mengapa mereka menggunakan racun seperti itu..."
 
 "Yah, aku tidak tahu banyak secara detail."
 
- 
-
 Dokter mengangkat bahu.
-
- 
 
 "Benar, bukan tugasmu untuk menyelidikinya, maaf. Jadi, racun macam apa itu? "
 
-Menurut ensiklopedia yang ditulis oleh Venom Demon, ini adalah racun yang digunakan pada tawanan perang.
+Menurut ensiklopedia yang ditulis oleh Iblis Racun, ini adalah racun yang digunakan pada tawanan perang.
 
-Tahanan perang?
+"Tawanan perang?"
 
-"Racun ini akan bertindak sebagai obat kuat yang akan membusuk organ jika dikonsumsi secara normal dengan minum tetapi ... jika seseorang terus meminumnya dalam jumlah yang sesuai selama sekitar tiga bulan, racun akan beradaptasi dengan darah orang tersebut."
-
- 
+"Racun ini akan bertindak sebagai obat kuat yang akan membusukkan organ jika dikonsumsi secara normal dengan meminumnya tetapi ... jika seseorang terus meminumnya dalam jumlah yang sesuai selama sekitar tiga bulan, racun akan beradaptasi dengan darah orang tersebut."
 
 Wajah dokter High-Elf yang tetap cantik bahkan di usianya yang sudah lanjut berubah saat dia tertawa.
 
- 
-
-Hal yang hebat tentang racun ini adalah selama infeksinya.
+"Hal yang hebat tentang racun ini adalah selama infeksinya."
 
 "Infeksi?"
 
-"Tentu tidak akan menunjukkan gejala apapun tapi darah orang yang terinfeksi akan menjadi racun juga dan racun akan membentuk kembali tubuh sambil memproduksi lebih banyak racun. Ini kemudian akan menyebabkan semua cairan tubuh berubah menjadi racun. Tapi toksisitasnya rendah sehingga tidak akan mempengaruhi kehidupan sehari-hari. "
+"Tentu tidak akan menunjukkan gejala apapun tapi darah orang yang terinfeksi akan menjadi racun juga dan racun akan membentuk kembali tubuh sambil memproduksi lebih banyak racun. Ini kemudian akan menyebabkan semua cairan tubuh berubah menjadi racun. Tapi toksisitasnya rendah sehingga tidak akan mempengaruhi kehidupan sehari-hari."
 
-"Itu kebiasaan burukmu untuk membicarakan hal-hal yang tidak perlu lagi. Ucapkan poin utamanya. "
+"Itu kebiasaan burukmu untuk membicarakan hal-hal yang penting. katakan poin utamanya."
 
-"Permintaan maaf Aku. Maka, kesimpulannya, anak-anak manusia yang lahir oleh mereka yang terinfeksi racun ini akan selalu lahir mati. "
+"maafkan aku. Maka, kesimpulannya, anak-anak manusia yang lahir oleh mereka yang terinfeksi racun ini akan selalu lahir mati."
 
-"Seperti yang diharapkan …"
+"Sudah Kuduga"
 
-"Tidak hanya itu, racun akan menginfeksi pihak lain melalui aktivitas seksual. Nah, itu jika orang tersebut tidur dengan orang yang sama beberapa kali. Itulah alasan mengapa itu adalah racun yang digunakan pada tawanan perang. Karena mereka akan menghancurkan kesuburan tanah air aslinya saat mereka dikembalikan. "
+"Tidak hanya itu, racun akan menginfeksi pihak lain melalui aktivitas seksual. Nah, itu jika orang tersebut tidur dengan orang yang sama beberapa kali. Itulah alasan mengapa itu adalah racun yang digunakan pada tawanan perang. Karena mereka akan menghancurkan kesuburan tanah air aslinya saat mereka dikembalikan."
 
 "Apa?"
 
- 
-
-Aku merasa mata Aku menjadi gelap. Dalam hal itu …
-
- 
+Aku merasa mata Aku menjadi gelap. Dalam hal itu...
 
 "Geyserik sangat berhati-hati dalam memastikan Misufia tidak diracuni. Seharusnya selalu ada penyihir High-Elf yang melindunginya. "
 
 "Namun, Ririnrara-dono dan para penyihirmu mungkin tidak menyangka darah Geyserik sendiri berubah menjadi racun."
 
-"… Geyserik."
+"... Geyserik."
 
-"Apakah itu dorongan dari perlindungan ilahi『 Kaisar 』? Cinta tidak bisa membuatnya menjadi raja. Untuk mengamankan tahtanya, dia harus memiliki ahli waris sesegera mungkin. Desas-desus tentang kereta tanpa jendela yang datang dari dan pergi ke biara tempat Leonor-sama ditahan bahkan telah mencapai ruang bawah tanah ini. "
-
- 
+"Apakah itu dorongan dari perlindungan ilahi『 Kaisar 』? Cinta tidak bisa membuatnya menjadi raja. Untuk mengamankan tahtanya, dia harus memiliki ahli waris sesegera mungkin. Desas-desus tentang kereta tanpa jendela yang datang dari dan pergi ke biara tempat Leonor-sama ditahan bahkan telah mencapai ruang bawah tanah ini."
 
 Dokter membelai janin yang mati itu dengan penuh kasih.
 
-Dorongan dari perlindungan ilahi 『Poison Master』 mungkin memengaruhi kegembiraannya terhadap racun yang tidak diketahui. Meskipun Aku tahu bahwa Aku tidak bisa menahan rasa jijik Aku terhadap dokter itu.
+Dorongan dari perlindungan ilahi 『Master Racun』 mungkin memengaruhi kegembiraannya terhadap racun yang tidak diketahui. Meskipun Aku tahu bahwa Aku tidak bisa menahan rasa jijikku terhadap dokter itu.
 
- 
+"Jadi apa yang kamu butuhkan untuk penawarnya."
 
-Jadi apa yang kamu butuhkan untuk penawarnya.
+"Penawar tidak mungkin dibuat. Ini adalah karya seni yang dibuat oleh Iblis Racun. Kecuali jika Kamu memiliki keterampilan 'Tangan Penyembuh' legendaris yang dimiliki 『Pahlawan』."
 
-"Penawar tidak mungkin dibuat. Ini adalah karya seni yang dibuat oleh Venom Demon. Kecuali jika Kamu memiliki keterampilan 'Tangan Penyembuh' legendaris yang dimiliki 『Pahlawan』. "
+"aku tidak perlu mendengarkan dongeng seperti itu! Kalau begitu, penerus raja...! "
 
-"Saya tidak perlu mendengarkan dongeng seperti itu! Kalau begitu, suksesi raja…! "
+"mustahul untuk punya anak."
 
-"Tidak mungkin punya anak."
+Itu adalah pernyataan tanpa ampun dari seorang dokter yang luar biasa. Kali ini penglihatanku benar-benar menjadi hitam.
 
- 
-
-Itu adalah pernyataan tanpa ampun dari seorang dokter yang luar biasa. Kali ini penglihatan Aku benar-benar menjadi hitam.
-
-… Namun.
-
- 
+...Namun.
 
 "Tapi jika anak itu bukan manusia, masih ada harapan."
 
-"Maksud kamu apa?"
+"Maksudmu apa?"
 
-"Kami."
+"kita."
 
- 
+Dokter menunjuk ke perut bagian bawahku.
 
-Dokter menunjuk ke perut bagian bawah Aku.
-
- 
-
-"Ririnrara-sama sangat menyadari bahwa kami para High-Elf memiliki vitalitas yang jauh lebih tinggi daripada manusia. Ada kemungkinan anak kita melawan racun. Venom Demon juga meninggalkan catatan bahwa efek pada Elf lemah. "
-
- 
+"Ririnrara-sama sangat menyadari bahwa kita para High-Elf memiliki vitalitas yang jauh lebih tinggi daripada manusia. Ada kemungkinan anak kita melawan racun. Iblis Racun juga meninggalkan catatan bahwa efek pada Elf lemah."
 
 Jantungnya berdegup kencang hingga terasa sakit. Meskipun itu adalah situasi yang tidak menguntungkan, benih emosi yang seharusnya dia buang sedikit menggembirakan dan mengalir.
 
-Sementara merasa jijik dengan dirinya sendiri…
+Sementara merasa jijik dengan dirinya sendiri...
 
  
 
