@@ -1,28 +1,16 @@
 Bab 133: Sebuah cerita yang tidak berjalan sesuai keinginan
 
-Penerjemah: Tseirp
+Aku hanya ingin berguna baginya ...
 
- 
+Aku melihat Keanehan tubuh Geyserik ketika anak pertama Misufia lahir mati.
 
-Saya hanya ingin berguna baginya ...
-
- 
-
-Saya melihat anomali tubuh Geyserik ketika anak pertama Misufia lahir mati.
-
- 
-
-"Cara ini."
-
- 
+"Kesini."
 
 Ditemani oleh seorang dokter High-Elf yang berasal dari Kiramin, aku melangkah ke penjara bawah tanah besar di bawah menara penjara Veronia.
 
 Membuka pintu rahasia yang hanya diketahui oleh dokter itu dan beberapa rekan High-Elf yang kupercaya, kami disambut oleh pemandangan mengerikan dari berbagai macam racun yang berbaris di dalam laboratorium.
 
 Dan di atas meja tergeletak bayi Misufia yang seharusnya dikuburkan.
-
- 
 
 Ini sangat menarik.
 
@@ -38,13 +26,13 @@ Dokter tampaknya telah mencampurkan beberapa obat lain.
 
 Apakah itu racun?
 
-"Iya. Ini disebut 'Racun Pemusnah Anak yang Tersembunyi'. ”
+"Iya. Ini disebut 'Racun Pemusnah Anak yang Tersembunyi'. "
 
 Aku tidak pernah mendengar tentang racun itu.
 
-“Ya, ini pertama kalinya aku melihatnya juga. Itu adalah racun yang digunakan oleh iblis di Benua Hitam. ”
+"Ya, ini pertama kalinya aku melihatnya juga. Itu adalah racun yang digunakan oleh iblis di Benua Hitam. "
 
-“Iblis dari Benua Hitam? Mengapa mereka menggunakan racun seperti itu… ”
+"Iblis dari Benua Hitam? Mengapa mereka menggunakan racun seperti itu… "
 
 "Yah, aku tidak tahu banyak secara detail."
 
@@ -54,7 +42,7 @@ Dokter mengangkat bahu.
 
  
 
-“Benar, bukan tugasmu untuk menyelidikinya, maaf. Jadi, racun macam apa itu? "
+"Benar, bukan tugasmu untuk menyelidikinya, maaf. Jadi, racun macam apa itu? "
 
 Menurut ensiklopedia yang ditulis oleh Venom Demon, ini adalah racun yang digunakan pada tawanan perang.
 
@@ -72,57 +60,57 @@ Hal yang hebat tentang racun ini adalah selama infeksinya.
 
 "Infeksi?"
 
-“Tentu tidak akan menunjukkan gejala apapun tapi darah orang yang terinfeksi akan menjadi racun juga dan racun akan membentuk kembali tubuh sambil memproduksi lebih banyak racun. Ini kemudian akan menyebabkan semua cairan tubuh berubah menjadi racun. Tapi toksisitasnya rendah sehingga tidak akan mempengaruhi kehidupan sehari-hari. "
+"Tentu tidak akan menunjukkan gejala apapun tapi darah orang yang terinfeksi akan menjadi racun juga dan racun akan membentuk kembali tubuh sambil memproduksi lebih banyak racun. Ini kemudian akan menyebabkan semua cairan tubuh berubah menjadi racun. Tapi toksisitasnya rendah sehingga tidak akan mempengaruhi kehidupan sehari-hari. "
 
-“Itu kebiasaan burukmu untuk membicarakan hal-hal yang tidak perlu lagi. Ucapkan poin utamanya. ”
+"Itu kebiasaan burukmu untuk membicarakan hal-hal yang tidak perlu lagi. Ucapkan poin utamanya. "
 
-"Permintaan maaf saya. Maka, kesimpulannya, anak-anak manusia yang lahir oleh mereka yang terinfeksi racun ini akan selalu lahir mati. "
+"Permintaan maaf Aku. Maka, kesimpulannya, anak-anak manusia yang lahir oleh mereka yang terinfeksi racun ini akan selalu lahir mati. "
 
 "Seperti yang diharapkan …"
 
-“Tidak hanya itu, racun akan menginfeksi pihak lain melalui aktivitas seksual. Nah, itu jika orang tersebut tidur dengan orang yang sama beberapa kali. Itulah alasan mengapa itu adalah racun yang digunakan pada tawanan perang. Karena mereka akan menghancurkan kesuburan tanah air aslinya saat mereka dikembalikan. ”
+"Tidak hanya itu, racun akan menginfeksi pihak lain melalui aktivitas seksual. Nah, itu jika orang tersebut tidur dengan orang yang sama beberapa kali. Itulah alasan mengapa itu adalah racun yang digunakan pada tawanan perang. Karena mereka akan menghancurkan kesuburan tanah air aslinya saat mereka dikembalikan. "
 
 "Apa?"
 
  
 
-Saya merasa mata saya menjadi gelap. Dalam hal itu …
+Aku merasa mata Aku menjadi gelap. Dalam hal itu …
 
  
 
-“Geyserik sangat berhati-hati dalam memastikan Misufia tidak diracuni. Seharusnya selalu ada penyihir High-Elf yang melindunginya. ”
+"Geyserik sangat berhati-hati dalam memastikan Misufia tidak diracuni. Seharusnya selalu ada penyihir High-Elf yang melindunginya. "
 
-“Namun, Ririnrara-dono dan para penyihirmu mungkin tidak menyangka darah Geyserik sendiri berubah menjadi racun.”
+"Namun, Ririnrara-dono dan para penyihirmu mungkin tidak menyangka darah Geyserik sendiri berubah menjadi racun."
 
-”… Geyserik.”
+"… Geyserik."
 
-“Apakah itu dorongan dari perlindungan ilahi『 Kaisar 』? Cinta tidak bisa membuatnya menjadi raja. Untuk mengamankan tahtanya, dia harus memiliki ahli waris sesegera mungkin. Desas-desus tentang kereta tanpa jendela yang datang dari dan pergi ke biara tempat Leonor-sama ditahan bahkan telah mencapai ruang bawah tanah ini. "
+"Apakah itu dorongan dari perlindungan ilahi『 Kaisar 』? Cinta tidak bisa membuatnya menjadi raja. Untuk mengamankan tahtanya, dia harus memiliki ahli waris sesegera mungkin. Desas-desus tentang kereta tanpa jendela yang datang dari dan pergi ke biara tempat Leonor-sama ditahan bahkan telah mencapai ruang bawah tanah ini. "
 
  
 
 Dokter membelai janin yang mati itu dengan penuh kasih.
 
-Dorongan dari perlindungan ilahi 『Poison Master』 mungkin memengaruhi kegembiraannya terhadap racun yang tidak diketahui. Meskipun saya tahu bahwa saya tidak bisa menahan rasa jijik saya terhadap dokter itu.
+Dorongan dari perlindungan ilahi 『Poison Master』 mungkin memengaruhi kegembiraannya terhadap racun yang tidak diketahui. Meskipun Aku tahu bahwa Aku tidak bisa menahan rasa jijik Aku terhadap dokter itu.
 
  
 
 Jadi apa yang kamu butuhkan untuk penawarnya.
 
-“Penawar tidak mungkin dibuat. Ini adalah karya seni yang dibuat oleh Venom Demon. Kecuali jika Anda memiliki keterampilan 'Tangan Penyembuh' legendaris yang dimiliki 『Pahlawan』. "
+"Penawar tidak mungkin dibuat. Ini adalah karya seni yang dibuat oleh Venom Demon. Kecuali jika Kamu memiliki keterampilan 'Tangan Penyembuh' legendaris yang dimiliki 『Pahlawan』. "
 
-“Saya tidak perlu mendengarkan dongeng seperti itu! Kalau begitu, suksesi raja…! ”
+"Saya tidak perlu mendengarkan dongeng seperti itu! Kalau begitu, suksesi raja…! "
 
-“Tidak mungkin punya anak.”
+"Tidak mungkin punya anak."
 
  
 
-Itu adalah pernyataan tanpa ampun dari seorang dokter yang luar biasa. Kali ini penglihatan saya benar-benar menjadi hitam.
+Itu adalah pernyataan tanpa ampun dari seorang dokter yang luar biasa. Kali ini penglihatan Aku benar-benar menjadi hitam.
 
 … Namun.
 
  
 
-“Tapi jika anak itu bukan manusia, masih ada harapan.”
+"Tapi jika anak itu bukan manusia, masih ada harapan."
 
 "Maksud kamu apa?"
 
@@ -130,11 +118,11 @@ Itu adalah pernyataan tanpa ampun dari seorang dokter yang luar biasa. Kali ini 
 
  
 
-Dokter menunjuk ke perut bagian bawah saya.
+Dokter menunjuk ke perut bagian bawah Aku.
 
  
 
-“Ririnrara-sama sangat menyadari bahwa kami para High-Elf memiliki vitalitas yang jauh lebih tinggi daripada manusia. Ada kemungkinan anak kita melawan racun. Venom Demon juga meninggalkan catatan bahwa efek pada Elf lemah. "
+"Ririnrara-sama sangat menyadari bahwa kami para High-Elf memiliki vitalitas yang jauh lebih tinggi daripada manusia. Ada kemungkinan anak kita melawan racun. Venom Demon juga meninggalkan catatan bahwa efek pada Elf lemah. "
 
  
 
@@ -144,45 +132,45 @@ Sementara merasa jijik dengan dirinya sendiri…
 
  
 
-“Apakah penawarnya benar-benar tidak ada?”
+"Apakah penawarnya benar-benar tidak ada?"
 
  
 
-Saya konfirmasi dengan dokter.
+Aku konfirmasi dengan dokter.
 
-Anak yang lahir menyerupai ayahnya. Saya tidak akan pernah melupakan perasaan ketika saya menggendong anak itu dalam pelukan saya.
+Anak yang lahir menyerupai ayahnya. Aku tidak akan pernah melupakan perasaan ketika Aku menggendong anak itu dalam pelukan Aku.
 
-Saya masih merasa menggigil ketika mengingat bahwa saya berencana meminta dokter menara penjara mengukir wajah anak itu jika anak itu mirip dengan saya.
+Aku masih merasa menggigil ketika mengingat bahwa Aku berencana meminta dokter menara penjara mengukir wajah anak itu jika anak itu mirip dengan Aku.
 
  
 
-“Aku ibumu hanya untuk hari ini…”
+"Aku ibumu hanya untuk hari ini…"
 
  
 
 Bayi di pelukanku berteriak 'Ah ~' dan tersenyum oleh kata-kataku.
 
-Saya menangis sebelum saya menyadarinya.
+Aku menangis sebelum Aku menyadarinya.
 
  
 
-Saya akan menyerahkan anak saya ke Misufia.
+Aku akan menyerahkan anak Aku ke Misufia.
 
-Memikirkan kembali, saya mengakui bahwa kata-kata ceroboh yang saya ucapkan kepada Misufia dan menyembunyikan kebenaran adalah langkah yang buruk.
+Memikirkan kembali, Aku mengakui bahwa kata-kata ceroboh yang Aku ucapkan kepada Misufia dan menyembunyikan kebenaran adalah langkah yang buruk.
 
-Tapi… saya takut. Terlepas dari alasannya, saya telah mengkhianati Misufia. Misufia tidak bisa melahirkan anak untuk Geyserik jadi saya terpaksa mengasuh Geyserik dan anak saya sebagai miliknya demi Geyserik.
+Tapi… Aku takut. Terlepas dari alasannya, Aku telah mengkhianati Misufia. Misufia tidak bisa melahirkan anak untuk Geyserik jadi Aku terpaksa mengasuh Geyserik dan anak Aku sebagai miliknya demi Geyserik.
 
-Jika saya berada di posisi Misufia, saya akan merasa itu sama sekali tidak bisa dimaafkan. Saya mungkin akan mengutuk dia karena tidak tahu malu.
+Jika Aku berada di posisi Misufia, Aku akan merasa itu sama sekali tidak bisa dimaafkan. Aku mungkin akan mengutuk dia karena tidak tahu malu.
 
  
 
-… Saya tidak tenang.
+… Aku tidak tenang.
 
-Jika saya tenang, saya akan berpikir lebih dalam tentang skema Leonor.
+Jika Aku tenang, Aku akan berpikir lebih dalam tentang skema Leonor.
 
-Saya merasa itu berkah dan diyakinkan ... bahwa Leonor akan membalas dendam untuk ayah dan suaminya sampai mengorbankan masa depannya sendiri.
+Aku merasa itu berkah dan diyakinkan ... bahwa Leonor akan membalas dendam untuk ayah dan suaminya sampai mengorbankan masa depannya sendiri.
 
-Saya terkejut mendengar bahwa Leonor juga memiliki anak setelah Sarius lahir.
+Aku terkejut mendengar bahwa Leonor juga memiliki anak setelah Sarius lahir.
 
 Jika Leonor meminum Racun Pemusnah Keturunan Tersembunyi atas kemauannya sendiri dan memiliki hubungan dengan Geyserik, bayinya seharusnya juga lahir mati.
 
@@ -200,13 +188,13 @@ Sejak saat itu… aku melindungi Sarius dan bergerak untuk menjadikannya raja.
 
 Pada akhirnya… aku bahkan mengkhianati cita-citaku untuk menjadi bantuan Geyserik dan pindah demi anakku sendiri…
 
-Dimana saya salah?
+Dimana Aku salah?
 
-Apa yang harus saya lakukan?
+Apa yang harus Aku lakukan?
 
  
 
-Jika saya tidak bertemu Geyserik ketika dia masih terikat rantai sebagai budak pendayung di kapal bajak laut… apakah saya tidak akan mengalami masalah saya saat ini dan tetap sebagai bajak laut yang tidak terkendali?
+Jika Aku tidak bertemu Geyserik ketika dia masih terikat rantai sebagai budak pendayung di kapal bajak laut… apakah Aku tidak akan mengalami masalah Aku saat ini dan tetap sebagai bajak laut yang tidak terkendali?
 
  
 
@@ -214,11 +202,11 @@ Jika saya tidak bertemu Geyserik ketika dia masih terikat rantai sebagai budak p
 
 Misufia… ibu lari sebelum aku sadar akan sekitarku.
 
-Jadi saya tidak punya banyak kenangan tentang ibu.
+Jadi Aku tidak punya banyak kenangan tentang ibu.
 
 Aku hanya bisa sedikit mengingat sosok wanita yang diam-diam melihat dari kejauhan saat aku bermain.
 
-Ketika saya mendengar cerita bahwa ibu dan ayah saya menyerang ibu kota kerajaan ketika mereka menjadi bajak laut, saya sering bingung karena bayangan ibu di kepala saya berbeda dengan cerita.
+Ketika Aku mendengar cerita bahwa ibu dan ayah Aku menyerang ibu kota kerajaan ketika mereka menjadi bajak laut, Aku sering bingung karena bayangan ibu di kepala Aku berbeda dengan cerita.
 
  
 
@@ -234,27 +222,27 @@ Sarius, apa yang kamu lakukan?
 
 Kata-kata pertama Ririnrara kepadaku selalu seperti itu.
 
-Tidak peduli apa yang saya lakukan, bahkan jika dia tahu dengan mata tunggalnya bahwa saya sedang bermain, Ririnrara akan selalu mengatakan kata-kata itu kepada saya.
+Tidak peduli apa yang Aku lakukan, bahkan jika dia tahu dengan mata tunggalnya bahwa Aku sedang bermain, Ririnrara akan selalu mengatakan kata-kata itu kepada Aku.
 
  
 
 Bahkan setelah menjadi bangsawan, Ririnrara masih menutupi salah satu matanya dengan penutup mata hitam seperti saat dia menjadi bajak laut. Bahkan jika dia mengenakan gaun bangsawan yang mewah, dia akan selalu memiliki pedang pendek kasar seperti bajak laut di pinggangnya.
 
-Orang-orang disekitarnya menghindarinya seperti orang asing tapi saya suka bertemu Ririnrara.
+Orang-orang disekitarnya menghindarinya seperti orang asing tapi Aku suka bertemu Ririnrara.
 
-Alih-alih cerita tentang bangsawan dan ksatria yang anggun, Ririnrara menceritakan kepada saya kisah-kisah laut yang menarik.
+Alih-alih cerita tentang bangsawan dan ksatria yang anggun, Ririnrara menceritakan kepada Aku kisah-kisah laut yang menarik.
 
-Meskipun saya tidak bisa keluar, dia diam-diam membawa saya ke kapalnya dan mengajari saya warna dan bau laut.
+Meskipun Aku tidak bisa keluar, dia diam-diam membawa Aku ke kapalnya dan mengajari Aku warna dan bau laut.
 
  
 
-Saya menemukan bahwa ibu bukanlah ibu kandung saya ketika saya berpetualang dengan Naga Radiant bernama Alhazen.
+Aku menemukan bahwa ibu bukanlah ibu kandung Aku ketika Aku berpetualang dengan Naga Radiant bernama Alhazen.
 
 Ada banyak petualangan yang disukai Naga Radi, seperti pangeran dan naga melawan penyihir jahat hutan… tapi itu tidak relevan jadi aku akan mengabaikannya.
 
 Yang penting adalah aku mengambil satu set sarung tangan di dalam kamar Ririnrara.
 
-Itu adalah artikel luar biasa yang dibuat dengan menggunakan baja hijau dan menjadi benda ajaib, sangat pas dengan tangan anak saya.
+Itu adalah artikel luar biasa yang dibuat dengan menggunakan baja hijau dan menjadi benda ajaib, sangat pas dengan tangan anak Aku.
 
 Meskipun aku hanya tahu pedang itu sejauh bermain-main dengannya, ketika aku memakai tantangan itu, aku bisa dengan bebas mengayunkan pedang seolah-olah aku adalah seorang pejuang veteran dan aku bisa melawan monster di hutan.
 
@@ -262,29 +250,29 @@ Dan saat aku mengalahkan penyihir itu ... mulut penyihir itu berubah menyeringai
 
  
 
-Tentu saja saya kaget.
+Tentu saja Aku kaget.
 
-Baik ayah maupun ibu saya bukanlah Peri Tinggi.
+Baik ayah maupun ibu Aku bukanlah Peri Tinggi.
 
-Dengan kata lain, salah satu dari mereka bukanlah orang tua saya yang sebenarnya.
+Dengan kata lain, salah satu dari mereka bukanlah orang tua Aku yang sebenarnya.
 
 Saat aku berpikir, satu High-Elf muncul di pikiranku.
 
-Begitu saya menyadarinya, kecurigaan itu berubah menjadi keyakinan dengan cukup cepat. Atau lebih tepatnya, saya harus mengatakan bahwa saya menerimanya sejak awal.
+Begitu Aku menyadarinya, kecurigaan itu berubah menjadi keyakinan dengan cukup cepat. Atau lebih tepatnya, Aku harus mengatakan bahwa Aku menerimanya sejak awal.
 
-Dan perkataan penyihir itu didukung oleh fakta bahwa penuaan saya sangat lambat. Penampilan saya tidak banyak berubah, tidak seperti manusia biasa.
+Dan perkataan penyihir itu didukung oleh fakta bahwa penuaan Aku sangat lambat. Penampilan Aku tidak banyak berubah, tidak seperti manusia biasa.
 
  
 
-Hari-hari perebutan kekuasaan tidak pernah berakhir dan saya tidak dapat memiliki ketenangan pikiran tetapi saya senang bahwa ibu saya berjuang demi saya.
+Hari-hari perebutan kekuasaan tidak pernah berakhir dan Aku tidak dapat memiliki ketenangan pikiran tetapi Aku senang bahwa ibu Aku berjuang demi Aku.
 
-Meskipun ibu angkat saya meninggalkan saya dan ayah menyatakan bahwa saya tidak memiliki apa-apa untuk diwariskan, ibu tetap berada di sisi saya dan melindungi saya.
+Meskipun ibu angkat Aku meninggalkan Aku dan ayah menyatakan bahwa Aku tidak memiliki apa-apa untuk diwariskan, ibu tetap berada di sisi Aku dan melindungi Aku.
 
-Saya ingin mengucapkan terima kasih. Saya ingin mengatakan kepadanya bahwa saya mencintainya.
+Aku ingin mengucapkan terima kasih. Aku ingin mengatakan kepadanya bahwa Aku mencintainya.
 
-Saya ingin memperlakukannya seperti ibu saya.
+Aku ingin memperlakukannya seperti ibu Aku.
 
-Hanya itu yang saya harapkan.
+Hanya itu yang Aku harapkan.
 
  
 
@@ -292,17 +280,17 @@ Ayah jatuh sakit dan sepertinya pertengkaranku dengan ibu akan segera berakhir. 
 
 Pada saat itu, seorang bangsawan dari faksi Leonor berbohong tentang sebenarnya ingin mengkhianati Leonor dan mendekati kami… dan menawarkan informasi tentang keberadaan ibu angkat.
 
-Saya tahu itu jebakan tapi saya punya ide yang berbeda.
+Aku tahu itu jebakan tapi Aku punya ide yang berbeda.
 
 Jika ibu angkat mengaku tidak mengenalku, mungkin kita bisa menyerah pada ayah dan kerajaan.
 
-Persis seperti bagaimana ibu angkat datang ke Zoltan, ibu dan saya bisa menyeberang ke negeri yang jauh, ke Timur di balik Tembok di Ujung Dunia dan hidup sebagai ibu dan anak yang adil.
+Persis seperti bagaimana ibu angkat datang ke Zoltan, ibu dan Aku bisa menyeberang ke negeri yang jauh, ke Timur di balik Tembok di Ujung Dunia dan hidup sebagai ibu dan anak yang adil.
 
-Jika ayah meninggal dan saya tidak bisa naik takhta, seharusnya tidak ada yang menahan ibu untuk Veronia.
+Jika ayah meninggal dan Aku tidak bisa naik takhta, seharusnya tidak ada yang menahan ibu untuk Veronia.
 
-Saya berpikir sendiri.
+Aku berpikir sendiri.
 
-Saya tidak ingin kehilangan ibu untuk kedua kalinya.
+Aku tidak ingin kehilangan ibu untuk kedua kalinya.
 
  
 
@@ -310,7 +298,7 @@ Saya tidak ingin kehilangan ibu untuk kedua kalinya.
 
  
 
-"Saya tidak ingin kehilangan ibu untuk kedua kalinya."
+"Aku tidak ingin kehilangan ibu untuk kedua kalinya."
 
  
 
