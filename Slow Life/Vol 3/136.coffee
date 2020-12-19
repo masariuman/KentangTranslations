@@ -88,15 +88,13 @@ Kurt menggaruk kepalanya karena malu.
 
 Tidak mungkin, itu aneh tidak peduli bagaimana Kamu melihatnya.
 
-"Kebetulan, apa pengalaman Kamu dengan memasak?"
+g"apa pengalamanmu dalam memasak?"
 
 "Aku pertama kali memasak ketika Aku masuk tentara."
 
-"Yah, itu kadang-kadang terjadi, tapi ... apakah ada yang mengajarimu cara memasak?"
+g"Yah, itu kadang-kadang terjadi, tapi ... apakah ada yang mengajarimu cara memasak?"
 
 "Aku tidak diajari cara memasak, tetapi diajari cara mengelola inventaris dan mencegah pelaut mencuri."
-
- 
 
 Begitu, mungkin itu keterampilan paling penting yang dibutuhkan Kurt di kapal ini.
 
