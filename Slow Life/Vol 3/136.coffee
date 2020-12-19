@@ -38,43 +38,33 @@ Masakan angkatan laut Veronia ya?
 
 Karena permusuhan antara Kerajaan Veronia dan Kerajaan Avalonia, Aku tidak pernah mencicipi masakan angkatan laut Veronia. Aku sangat penasaran bagaimana rasanya.
 
-Aku akan mengambil beberapa dalam kasus itu.
+g"kalau begitu Aku akan memakannya."
 
-"Sangat baik."
-
- 
+"tentu saja."
 
 Sepertinya dia adalah seorang perwira karena setelah dia dengan keras memerintahkan bawahannya, beberapa tentara yang tidak bercukur dengan cepat membawakan sup dan roti secukupnya untuk sejumlah orang.
 
 Kuahnya berwarna putih agak keruh, tapi cukup bening untuk melihat ke dasar mangkuk.
 
-Aromanya… tidak banyak.
+Aromanya... tidak terlalu menggoda.
 
 Sup itu memiliki daging babi, daun bawang dan wortel yang dipotong tidak teratur di dalamnya.
 
 Daging babi itu tebal dan masih berwarna kemerahan.
 
- 
+"..."
 
-"……"
+Hn... jangan-jangan ini...
 
- 
+Aku menyendok sup dengan sendok dan membawanya ke mulutku.
 
-Hn… apakah ini kebetulan.
-
-Aku menyendok sup dengan sendok dan membawanya ke mulut Aku.
-
-Itu air asin.
+Itu air laut.
 
 Ketika Aku mencicipi bahan-bahannya, tidak ada yang benar-benar matang dan intinya tetap setengah matang, atau lebih tepatnya, bagian dalamnya masih dingin.
 
 Itu buruk.
 
- 
-
-"Ini buruk."
-
- 
+r"Ini buruk."
 
 Ruti yang duduk di sampingku berkata terus terang.
 
