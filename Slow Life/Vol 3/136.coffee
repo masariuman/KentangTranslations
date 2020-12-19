@@ -172,23 +172,19 @@ Bahkan ada kapten yang memperlakukan tentaranya dengan buruk dan tidak membiarka
 
 Dengan kata lain, bahkan saat kapal berada di pelabuhan, mereka akan menghabiskan sebagian besar waktu mereka untuk makan di kapal.
 
- 
+"Sudah lama sekali aku tidak makan sesuatu yang begitu enak. Apakah Kamu seorang 『Koki』? "
 
-"Sudah lama sekali aku tidak makan sesuatu yang begitu enak. Apakah Kamu seorang 『Cook』? "
-
-"Tidak, Aku hanya memiliki keterampilan memasak yang umum di level 1."
+g"Tidak, Aku hanya memiliki skill memasak yang umum di level 1."
 
 "Keterampilan level 1 bisa membuat sesuatu begitu enak !?"
 
-"Saya memiliki keterampilan tetapi yang terpenting Aku memiliki hafalan dasar-dasar memasak."
-
- 
+"aku memiliki skill tetapi yang terpenting Aku menghafal dasar-dasar memasak."
 
 Pentingnya persiapan pra-memasak, prinsip membumbui, dan membayangkan jenis rasa yang dibutuhkan hidangan saat memasak.
 
-Hanya itu yang ada untuk itu tetapi karena sebagian besar orang di dunia ini percaya Perlindungan dan keterampilan Ilahi adalah segalanya, banyak dari mereka mengabaikan dasar-dasarnya.
+Hanya itu yang bisa kulakukan tetapi karena sebagian besar orang di dunia ini percaya dengan Perlindungan ilahi dan skill adalah segalanya, banyak dari mereka mengabaikan dasar-dasarnya.
 
-Namun demikian, kenyataannya adalah bahwa naik level entah bagaimana akan menutupi kurangnya dasar-dasar sehingga berkontribusi pada tren saat ini.
+kenyataannya adalah bahwa level meingkat entah bagaimana akan menutupi kurangnya dasar-dasar sehingga berkontribusi pada tren saat ini.
 
 Yah, mungkin akan baik-baik saja jika ternyata baik-baik saja.
 
