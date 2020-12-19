@@ -188,45 +188,31 @@ g"Mulai sekarang, tolong berdiskusi dengan Pangeran Sarius. Kalian mungkin akan 
 
 "Apa Sarius memintamu melakukan ini?"
 
- 
-
-Seperti dugaan Ririnrara, tadi malam Pangeran Sarius meminta Aku untuk melihat kondisi Ririnrara.
+Seperti dugaan Ririnrara, tadi malam Pangeran Sarius memintaku untuk melihat kondisi Ririnrara.
 
 Saat ini, Pangeran Sarius mungkin masih belum tahu bagaimana cara menjaga penderitaan dan keragu-raguan Ririnrara karena selama ini ia dilindungi olehnya.
 
 Satu-satunya orang yang Pangeran Sarius tahu yang bisa dia tuju hanyalah bawahan Ririnrara. Tetapi meskipun mereka mengidolakan Ririnrara, mereka adalah tentara atau bajak laut yang telah terpatri dengan anggapan bahwa mematuhi Ririnrara adalah hal yang wajar.
 
-Karena itu, Aku seharusnya mendorongnya.
+Karena itu, Akulah yang menyemangatinya.
 
 Yah, itu sendiri tidak masalah, tapi Ririnrara dan bahkan Pangeran Sarius bertahun-tahun lebih tua dari Aku.
 
- 
-
-"Merah, apakah kamu sebenarnya…"
-
- 
+"red, kamu sebenarnya siapa..."
 
 Ririnrara bergumam sambil menatap wajahku.
 
- 
+g"Ya?"
 
-"Ya?"
+"apakah kamu Fey atau sesuatu yang lebih tua dariku?"
 
-"Beberapa Fey atau sesuatu yang lebih tua dariku?"
-
-"Tentu saja tidak."
-
- 
+g"Tentu saja tidak."
 
 High-Elf bisa hidup berkali-kali lebih lama dari manusia dan terlebih lagi, Ririnrara mungkin tidak lagi muda bahkan sebagai High-Elf. Meski penampilannya tidak pernah berubah.
 
-Diduga lebih tua dari Ririnrara tidak lagi pada level kedewasaan.
-
- 
+dianggap lebih tua dari Ririnrara tidak lagi pada level kedewasaan.
 
 "Kuku, bercanda."
-
- 
 
 Ririnrara tertawa bahagia. Perilakunya tidak terpikirkan mengingat kami bertarung sampai mati sebagai musuh hanya setengah bulan yang lalu.
 
