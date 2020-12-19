@@ -278,95 +278,61 @@ Pada hari Standing Party.
 
 Koki Angkatan Darat Veronian, Kurt, menyambutku dengan mata berbinar.
 
-Aku mengatakan kepada mereka bahwa mereka bisa saja meminta seseorang dengan Perlindungan Ilahi dari 『Cook』 tetapi Pangeran Sarius dan Ririnrara memaksa Aku sebagai gantinya.
+Aku mengatakan kepada mereka bahwa mereka bisa saja meminta seseorang dengan Perlindungan Ilahi dari 『Koki』 tetapi Pangeran Sarius dan Ririnrara memaksaku sebagai gantinya.
 
 Mereka mungkin ingin aku mengajari Kurt cara memasak juga.
 
-Imbalannya cukup bagus. Itu bahkan membayangi penjualan Aku yang biasa dari toko.
-
- 
+bayarannya cukup bagus. Itu bahkan melebihi penghasilan biasa dari toko.
 
 "Aku diberkati dengan keberuntungan karena membuka warung Oden di sini!"
 
- 
-
 Oparara, pemilik kios Oden menyingsingkan lengan bajunya.
 
- 
+g"Tidak, aku benar-benar mengandalkanmu."
 
-"Tidak, aku benar-benar mengandalkanmu."
+Dia adalah bantuan yang aku ajak bersama Ruti karena Aku merasa khawatir.
 
- 
+Bahkan jika masakanku ternyata tidak enak, oden yang dimasak Oparara akan berfungsi sebagai penggantinya.
 
-Dia adalah seorang pembantu. Aku mengajak bersama Ruti karena Aku merasa khawatir.
+"Tapi tokoh utama hari ini adalah red. Aku hanyalah karakter pendukung, tendon untuk menarikmu."
 
-Bahkan jika masakanku ternyata tidak enak, oden yang dimasak Oparara akan berfungsi sebagai asuransi.
-
- 
-
-"Tapi karakter utama hari ini adalah Merah. Aku hanyalah karakter pendukung, tendon untuk menarik Kamu. "
-
- 
-
-Kata Oparara sambil mulai menyiapkan urat daging sapi sambil menyeringai.
+Kata Oparara sambil mulai menyiapkan urat daging sapi sambil tersenyum.
 
 Apa? Apakah dia baru saja membuat lelucon oden?
 
- 
+g"Yah, karena aku mendapatkan banyak bayaran, aku akan melakukan apa yang aku bisa."
 
-"Yah, karena aku mendapatkan banyak hadiah, aku akan melakukan apa yang aku bisa."
-
- 
-
-Aku mengambil pisau dapur favorit Aku dan memakai celemek.
-
- 
+Aku mengambil pisau dapur favoritku dan memakai celemek.
 
 "Ngomong-ngomong, pisau itu tidak terbuat dari tembaga?"
 
-"Tentu saja."
+g"Tentu saja."
 
-"Tentu saja. Pedangmu seharusnya lebih penting. "
-
- 
+"Tentu saja apanya. Pedangmu seharusnya lebih penting."
 
 Oparara tertawa karena menurutnya itu lucu.
 
 Tentu saja, memberi tahu seseorang bahwa senjata yang mempertaruhkan nyawaku adalah pedang tembaga tapi pisau dapur yang aku gunakan untuk memasak terbuat dari baja pasti aneh.
 
- 
-
-"Merah."
-
- 
+l"red."
 
 Menoleh ke belakang untuk melihat suara yang memanggilku, aku melihat Lit dan Ruti.
 
- 
+l"Persiapan kami sebagai asisten juga oke."
 
-"Persiapan kami sebagai asisten juga oke."
-
-"Aku akan melakukan yang terbaik."
-
- 
+r"Aku akan melakukan yang terbaik."
 
 Lit memakai celemek merah sedangkan Ruti memakai celemek bergambar wajah kucing dan entah kenapa keduanya dilengkapi dengan centong di tangan kanan mereka.
 
- 
-
-"Saya merasa itu cocok dengan tema memasak."
-
- 
+l"aku merasa itu cocok dengan tema memasak."
 
 Lit menutupi mulutnya saat dia tertawa.
 
-Itu lucu tapi mereka berdua tidak pandai memasak.
+Itu imut tapi mereka berdua tidak pandai memasak.
 
-Dalam hal memasak, bahkan Pahlawan Lit dan Pahlawan Ruti terkuat umat manusia hanya mengetahui dasar-dasar memasak di luar ruangan yang dilakukan orang biasa.
+Dalam hal memasak, bahkan Pahlawan Lit dan Pahlawan Ruti terkuat umat manusia hanya mengetahui dasar-dasar memasak dilakukan orang biasa.
 
-Seni memasak sangat mendalam karena bahkan kemampuan fisik manusia super dan kekuatan magis roh tidak berdaya sebelum memasak.
-
- 
+Seni memasak sangat mendalam karena bahkan kemampuan fisik manusia super dan kekuatan sihir roh tidak berdaya ketika memasak.
 
 Nah, sekarang saatnya Aku mulai memasak.
 
