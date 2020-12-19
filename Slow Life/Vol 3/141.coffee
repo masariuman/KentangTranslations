@@ -48,13 +48,9 @@ Walikota Tonedo.
 
 Pada akhirnya, Walikota Tonedo memutuskan untuk melepas baju besi yang tidak biasa dia gunakan dan mengenakan kemeja rantai yang lebih mudah untuk bergerak dan sebuah tabard yang dibordir dengan lambang nasional Republik Zoltan.
 
-Aku kira piring penuh terlalu berat.
+mungkin armor penuh terlalu berat untuknya.
 
- 
-
-"Seperti yang diharapkan dari Hero Lit, kami pasti akan menang dengan strategi itu."
-
- 
+"Seperti yang diharapkan dari Pahlawan Lit, kami pasti akan menang dengan strategi itu."
 
 Walikota Tonedo berkata dengan penuh kemenangan.
 
@@ -64,25 +60,19 @@ Namun, kami akan menyergap mereka tanpa meninggalkan sungai.
 
 Secara alami, kapal Zoltan kecil tidak dapat menyerang kapal perang Veronia secara langsung.
 
-Namun, armada galleon canggih dan kapal Raja Iblis tidak dapat memasuki sungai dangkal.
+Namun, armada gali canggih dan kapal Raja Iblis tidak dapat memasuki sungai dangkal.
 
 Bahkan kapal Zoltan bisa mendapat keuntungan jika lawannya adalah kapal kecil yang digunakan untuk mendarat.
 
 Masalahnya adalah bagaimana jika mereka berhasil mendarat di pantai.
 
- 
+"Sangat berani menggunakan kekuatan tempur utama, kapal karavel, sebagai kapal peledak."
 
-"Sangat berani menggunakan kekuatan tempur utama, kapal karavel, sebagai kapal pemadam."
+Inti dari strategi Lit adalah mengisi kapal karavel dengan minyak alkimia dan kayu bakar dan menggunakannya sebagai kapal peledak, untuk membuat lawan waspada. Dengan kapasitas muatan karavel, itu harus memiliki kekuatan penghancur yang cukup untuk menenggelamkan sebuah gali... tentu saja, dengan asumsi itu adalah serangan langsung.
 
- 
-
-Inti dari strategi Lit adalah mengisi kapal karavel dengan minyak alkimia dan kayu bakar dan menggunakannya sebagai kapal pemadam, untuk membuat lawan waspada. Dengan kapasitas muatan karavel, itu harus memiliki kekuatan penghancur yang cukup untuk menenggelamkan sebuah galleon… tentu saja, dengan asumsi itu adalah serangan langsung.
-
-Taktik yang disebut sebagai kapal api dan membakar itu tidak jarang sehingga pasukan Veronia harus terbiasa dengan taktik untuk menghindarinya tetapi mereka membutuhkan banyak tenaga untuk melakukannya.
+Taktik yang disebut sebagai kapal ledakan dan membakar itu tidak jarang sehingga pasukan Veronia harus terbiasa dengan taktik untuk menghindarinya tetapi mereka membutuhkan banyak tenaga untuk melakukannya.
 
 Jika mereka pindah ke darat di pantai dan menyerang Zoltan, dia akan mengambil kesempatan untuk mengirim kapal dan menghancurkan kapal mereka. Tentara Veronia tidak mampu untuk menurunkan tentara selama ada ancaman dari kapal pemadam kebakaran.
-
- 
 
 Dibandingkan dengan Kerajaan Veronia, Republik Zoltan adalah negara kecil yang tak tertandingi.
 
