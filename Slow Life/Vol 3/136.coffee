@@ -258,31 +258,23 @@ l"Benar, redku luar biasa."
 
 r"Yup, Onii-chan-ku hebat."
 
-Tanpa kusadari, Pangeran Sarius dan yang lainnya telah turun ke aula dan Lit dan Ruti berdiri berdampingan dengan dada membengkak karena bangga.
+Tanpa kusadari, Pangeran Sarius dan yang lainnya telah turun ke aula dan Lit dan Ruti berdiri berdampingan dengan membusungkan dada karena bangga.
 
-"Umu, aku harus memperbaiki masakanku juga. Ha… Ririnrara sama sekali tidak memperhatikan makanan. "
-
- 
+"Umu, aku harus memperbaiki masakanku juga. Ha... Ririnrara sama sekali tidak memperhatikan makanan."
 
 Pangeran Sarius mengangguk beberapa kali saat dia bergumam pada dirinya sendiri.
 
 Saat itulah Aku benar-benar merasakan sesuatu yang merepotkan.
 
- 
-
 Beberapa hari setelah itu.
 
-Misufia dan Walikota Tonedo keluar dari jalan mereka ke toko Aku dan meminta pesta berdiri untuk tentara bersama dengan Kurt.
+Misufia dan Walikota Tonedo keluar ke tokoku dan meminta standing party untuk tentara bersama dengan Kurt.
 
 ☆☆
 
- 
+"Guru! Tolong Bimbing Aku! "
 
-"Guru! Aku akan berada dalam perawatan Kamu hari ini! "
-
- 
-
-Pada hari pesta berdiri.
+Pada hari Standing Party.
 
 Koki Angkatan Darat Veronian, Kurt, menyambutku dengan mata berbinar.
 
