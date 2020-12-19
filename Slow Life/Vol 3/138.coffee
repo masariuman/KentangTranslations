@@ -146,59 +146,45 @@ g"dan yang paling penting lagi, Raja Geyserik adalah masalahnya."
 
 "Geyserik?"
 
-"Geyserik adalah seorang『 Kaisar 』. Aku tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu."
+g"Geyserik adalah seorang『 Kaisar 』. Aku tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu."
 
-g"Bagaimana Kamu bisa mengatakan dengan pasti meskipun Kamu belum pernah bertemu Geyserik."
+"Bagaimana Kamu bisa mengatakan dengan pasti meskipun Kamu belum pernah bertemu Geyserik."
 
-"Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor."
+g"Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor."
 
 "Geyserik adalah pria yang penuh kasih sayang. Tidak akan ada masalah jika Geyserik merahasiakannya. Seharusnya tidak ada alasan bagi Geyserik untuk memilih Leonor. "
 
-"『 Kaisar 』tidak akan mengizinkan itu. Satu-satunya preseden dari pemegang perlindungan dewa 『Kaisar』 adalah Raja Robert yang mendirikan Kerajaan Avalonia tetapi selama tahun-tahun terakhirnya, ia hanyalah bayangan dari pahlawan bijak, mengusir atau mengeksekusi pengikut dan putranya karena kecurigaan. 『Kaisar』 mungkin memiliki dorongan untuk memprioritaskan mempertahankan posisi mereka sendiri sebagai raja di atas segalanya. "
+g"『 Kaisar 』tidak akan mengizinkan itu. Satu-satunya orang dari pemegang perlindungan ilahi 『Kaisar』 adalah Raja Robert yang mendirikan Kerajaan Avalonia tetapi selama tahun-tahun terakhirnya, ia hanyalah bayangan dari pahlawan bijak, mengusir atau mengeksekusi pengikut dan putranya karena kecurigaan. 『Kaisar』 mungkin memiliki dorongan untuk memprioritaskan mempertahankan posisi mereka sendiri sebagai raja di atas segalanya."
 
 "Geyserik tidak seperti itu."
 
-"Mungkin ada perbedaan dalam tingkatnya, tapi Geyserik pasti juga menyerah pada dorongan hatinya."
-
- 
+g"Mungkin ada perbedaan dalam tingkatnya, tapi Geyserik pasti juga menyerah pada dorongan hatinya."
 
 Ririnrara mengerutkan kening dan memelototiku.
 
- 
+g"Ini hanyalah dugaan ... tapi jika dia bisa menekan impuls dari perlindungan ilahi, dia mungkin tidak akan memulai hubungannya dengan Leonor."
 
-"Ini hanyalah dugaan ... tapi jika dia bisa menekan impuls dari perlindungan ilahi, dia mungkin tidak akan memulai hubungan dengan Leonor."
-
-"……"
+"......"
 
 Ririnrara menunjukkan ekspresi muram tapi dia tidak keberatan.
 
-Aku mendesah pelan dan melanjutkan dengan kata-kata yang memberi semangat.
+Aku menghela nafas pelan dan melanjutkan dengan kata-kata yang memberi semangat.
 
- 
-
-"Yah, tidak ada gunanya menyesali masa lalu. Bahkan jika tangan Kamu terikat, Kamu memilih pilihan yang Kamu yakini sebagai yang terbaik, bukan? Itulah hidup. "
+g"Yah, tidak ada gunanya menyesali masa lalu. Bahkan jika tanganmu terikat, Kamu memilih pilihan yang Kamu yakini sebagai yang terbaik, bukan? Itulah hidup."
 
 "Hanya Dewa Demis yang tahu apakah itu benar atau salah ... kau benar, aku seharusnya tidak memikirkannya."
 
- 
+Dengan sigap Ririnrara mengangkat pancingannya.
 
-Dengan sigap Ririnrara mengangkat jorannya.
-
-Ikan mas yang ditangkap memutar tubuhnya saat menggeliat.
-
- 
+Ikan mas yang ditangkap memutar tubuhnya.
 
 "Kuku, aku yang menangkapnya dulu."
 
-"Aku rasa kamu baik-baik saja sekarang karena kamu bisa bercanda."
-
- 
+g"Aku rasa kamu sudah baikan sekarang karena kamu bisa bercanda."
 
 Sheesh.
 
- 
-
-"Mulai sekarang, tolong bicarakan dengan Pangeran Sarius. Kalian mungkin akan segera meninggalkan Zoltan. "
+g"Mulai sekarang, tolong berdiskusi dengan Pangeran Sarius. Kalian mungkin akan segera meninggalkan Zoltan. "
 
 "Apa Sarius memintamu melakukan ini?"
 
