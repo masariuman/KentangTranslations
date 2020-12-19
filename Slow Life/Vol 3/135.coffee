@@ -132,11 +132,9 @@ g"Tidak, apa kamu tahu tentang pesta untuk Pangeran Sarius dan eselon atas Zolta
 
 Meskipun masalah dengan Pangeran Sarius masih ada, untuk saat ini masalah yang dihadapi Zoltan, catatan Gereja, serangan terhadap Distrik Pelabuhan dan nyawa Mistome-shi warga Zoltan, semuanya telah diselesaikan.
 
-Pangeran Sarius membayar kompensasi atas serangan di Harbour Distract seperti yang dijanjikan dan menarik permintaannya untuk mendaftar Gereja.
+Pangeran Sarius membayar kompensasi atas serangan di distrik pelabuhan seperti yang dijanjikan dan menarik permintaannya untuk catatan Gereja.
 
-Untuk membantu pangeran dari kekuatan besar menyelamatkan muka, Zoltan mengusulkan konsesi sederhana, seperti untuk mengisi kembali persediaan mereka dan membiarkan angkatan laut mereka memasuki Distrik Pelabuhan, dan upacara penandatanganan resmi yang juga akan berfungsi sebagai pesta akan berlangsung hari ini. dari siang hari.
-
- 
+Untuk membantu pangeran dari kekuatan besar, Zoltan mengusulkan konsesi sederhana, seperti untuk mengisi kembali persediaan mereka dan membiarkan angkatan laut mereka memasuki Distrik Pelabuhan, dan upacara penandatanganan resmi yang juga akan berfungsi sebagai pesta akan berlangsung hari ini. dari siang hari.
 
 "Dan di tempat terpisah dari tempat Pangeran Sarius dan yang lainnya berada, angkatan laut reguler juga akan mengadakan buffet. Aku mengangkut jeruk ini ke sana untuk digunakan. "
 
