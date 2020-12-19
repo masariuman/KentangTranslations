@@ -218,31 +218,23 @@ Pada akhirnya, Aku akhirnya membuat bubur roti dengan roti yang sekeras batu, me
 
 Kurt membantu dengan hidangan yang Aku tambahkan. Nah, bubur roti, panggangan ikan kering, dan kentang tumbuk semuanya adalah hidangan sederhana.
 
-Perbedaan terbesar dengan atau tanpa keterampilan adalah bumbu. Bahkan hidangan yang dimasak hanya dengan garam akan terasa nikmat jika dimasak dengan tingkat skill Cooking yang tinggi.
+Perbedaan terbesar dengan atau tanpa skill adalah bumbu. Bahkan hidangan yang dimasak hanya dengan garam akan terasa nikmat jika dimasak dengan tingkat skill memasak yang tinggi.
 
-Lalu apa yang harus dilakukan jika tidak memiliki keterampilan?
+Lalu apa yang harus dilakukan jika tidak memiliki skill?
 
-Sebaiknya Kamu memilih hidangan yang paling enak Kamu buat dengan bumbu yang ada. Ini mungkin jawaban yang jelas tapi itu jawaban terbaik.
+kamu harus memilih hidangan yang paling enak yang Kamu buat dengan bumbu yang ada. Ini mungkin jawaban yang jelas tapi itu jawaban terbaik.
 
-Tetapi hanya sebagian kecil juru masak yang bisa melakukannya. Karena banyak yang percaya bahwa hasil dan penyebab kegagalan adalah karena Perlindungan dan keterampilan Ilahi.
+Tetapi hanya sebagian kecil juru masak yang bisa melakukannya. Karena banyak yang percaya bahwa hasil dan penyebab kegagalan adalah karena Perlindungan ilahi dan skill.
 
- 
-
-"Iya!"
-
- 
+"Yes!"
 
 Kurt memberi hormat seolah memberi hormat kepada atasan dan dengan penuh semangat membawa piring keluar.
 
-Tentu saja, itu tidak akan memberi makan semua orang yang hadir tetapi harus cukup untuk sejumlah besar orang.
+Tentu saja, itu tidak bisa memberi makan semua orang yang ada sekarang tetapi paling tidak cukup untuk sejumlah besar orang.
 
-Sambil berpikir bahwa Aku tidak memiliki kewajiban untuk melakukannya, Aku menyadari bahwa bibir Aku membentuk senyuman ketika Aku mendengar sorak-sorai dari ruangan lain.
-
- 
+Sambil berpikir bahwa Aku tidak memiliki kewajiban untuk melakukannya, Aku menyadari bahwa bibirku membentuk senyuman ketika Aku mendengar teriakan dari ruangan lain.
 
 ☆☆
-
- 
 
 Nah, tujuan memasak adalah untuk menyenangkan orang lain.
 
