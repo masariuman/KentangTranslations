@@ -1,19 +1,12 @@
 Bab 142: Nama kedua Pahlawan
 
-Penerjemah: Tseirp
-
-
- 
-
 Hari berikutnya.
 
 Saat matahari pagi meninggalkan cakrawala.
 
-Orang-orang Zoltan mengundang pagi hari sambil tidur siang bergiliran.
+Orang-orang Zoltan menunggu pagi hari sambil tidur bergiliran.
 
- 
-
-"Hero Lit."
+"Pahlawan Lit."
 
 "Ser Willam, ada apa?"
 
