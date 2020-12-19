@@ -1,34 +1,26 @@
 Bab 138: Karena berenang lebih cepat daripada mendayung
 
-Penerjemah: Tseirp
-
- 
-
 Setengah bulan kemudian. Distrik Pelabuhan Zoltan.
-
- 
 
 Pelabuhan Zoltan dibangun di dekat muara sungai dan lebih kecil dibandingkan dengan kota lain.
 
-Sementara kapal kargo kecil bisa berlabuh di dekat dermaga yang membentang dari pelabuhan, kapal besar dan kapal militer yang membawa ratusan tentara harus tetap di lepas pantai tanpa memiliki pilihan untuk memasuki sungai.
+Sementara kapal kargo kecil bisa berlabuh di dekat dermaga yang membentang dari pelabuhan, kapal besar dan kapal militer yang membawa ratusan tentara harus tetap di turun pantai tanpa memiliki pilihan untuk memasuki sungai.
 
 Banyak perahu dayung kecil yang berisi material bergerak menuju dapur militer Ririnrara yang mengapung lebih jauh di laut dari muara sungai.
 
- 
+"Sepertinya masalah serius."
 
-“Sepertinya masalah serius.”
-
-“Itu adalah tugas yang berat setiap saat. Melihatnya sebagai penonton benar-benar membuat saya kagum bagaimana saya bisa bekerja seperti itu. ”
+"Itu adalah tugas yang berat setiap saat. Melihatnya sebagai penonton benar-benar membuat Aku kagum bagaimana Aku bisa bekerja seperti itu. "
 
  
 
-Ririnrara menjawab ucapan saya.
+Ririnrara menjawab ucapan Aku.
 
  
 
 "Mereka melakukan pekerjaan dengan baik dalam melayani kapal di laut tanpa menggunakan sihir."
 
-“Bisa dikatakan, alangkah baiknya jika kita bisa memperbaiki kapal kapan saja menggunakan sihir dan skill.”
+"Bisa dikatakan, alangkah baiknya jika kita bisa memperbaiki kapal kapan saja menggunakan sihir dan skill."
 
  
 
@@ -38,7 +30,7 @@ Karena kapal terus berlayar dari Veronia ke Zoltan, kapal itu harus dirawat deng
 
  
 
-“Jadi, biasanya kamu harus ada di sana memberi perintah dengan keringat di kepalamu bersama Pangeran Sarius tapi kenapa kamu santai saja memancing di sini?”
+"Jadi, biasanya kamu harus ada di sana memberi perintah dengan keringat di kepalamu bersama Pangeran Sarius tapi kenapa kamu santai saja memancing di sini?"
 
  
 
@@ -46,13 +38,13 @@ Ririnrara berada di sudut pelabuhan agak jauh dari tentara Veronia yang sibuk me
 
  
 
-“Semua ilmu yang saya miliki sebagai nakhoda kapal sudah terbawa ke Sarius. Dia harus bisa menjadi bajak laut hebat yang namanya tercatat dalam sejarah. Tidak akan ada masalah. ”
+"Semua ilmu yang Aku miliki sebagai nakhoda kapal sudah terbawa ke Sarius. Dia harus bisa menjadi bajak laut hebat yang namanya tercatat dalam sejarah. Tidak akan ada masalah. "
 
-“Pangeran menjadi bajak laut? Geyserik adalah kebalikannya. ”
+"Pangeran menjadi bajak laut? Geyserik adalah kebalikannya. "
 
-“Haha, mundur ya. Itu benar."
+"Haha, mundur ya. Itu benar."
 
-“Kembali ke topik, mengapa kamu memiliki ekspresi lesu seperti itu?”
+"Kembali ke topik, mengapa kamu memiliki ekspresi lesu seperti itu?"
 
  
 
@@ -68,7 +60,7 @@ Ririnrara saat ini tampak lebih tidak bisa diandalkan dibandingkan dengan Oparar
 
 "Agak."
 
-“Kamu orang yang usil.”
+"Kamu orang yang usil."
 
  
 
@@ -76,27 +68,27 @@ Dia secara terbuka menunjukkan wajah jijik.
 
  
 
-“Saya juga sedikit lelah mencoba menghibur seorang bajak laut legendaris, yang telah hidup lebih lama dari saya, sedih oleh sesuatu. Bagaimanapun juga, pada dasarnya kamu mencoba membunuhku. "
+"Aku juga sedikit lelah mencoba menghibur seorang bajak laut legendaris, yang telah hidup lebih lama dari Aku, sedih oleh sesuatu. Bagaimanapun juga, pada dasarnya kamu mencoba membunuhku. "
 
-“Aku hanya mencoba menangkapmu. Sheesh, kamu orang yang menarik. Kalau begitu, kamu bisa saja meninggalkanku sendiri. ”
+"Aku hanya mencoba menangkapmu. Sheesh, kamu orang yang menarik. Kalau begitu, kamu bisa saja meninggalkanku sendiri. "
 
-“Aku tidak akan mengatakan apa-apa jika kalian berencana untuk menjalani kehidupan yang lambat di kota lain tanpa kembali ke Veronia tapi kalian berencana untuk kembali ke Veronia untuk mempertahankan posisi Pangeran Sarius setelah kehilangan posisinya untuk tahta. Apalagi kamu berencana untuk mengubah Kerajaan Veronia yang telah disusupi oleh Tentara Raja Iblis, dengan kata lain, itu akan menjadi perang saudara. Perang yang tidak menguntungkan dengan prospek kekalahan yang tinggi dan perang saudara melawan rekan senegaranya adalah perang yang melemahkan hati. "
+"Aku tidak akan mengatakan apa-apa jika kalian berencana untuk menjalani kehidupan yang lambat di kota lain tanpa kembali ke Veronia tapi kalian berencana untuk kembali ke Veronia untuk mempertahankan posisi Pangeran Sarius setelah kehilangan posisinya untuk tahta. Apalagi kamu berencana untuk mengubah Kerajaan Veronia yang telah disusupi oleh Tentara Raja Iblis, dengan kata lain, itu akan menjadi perang saudara. Perang yang tidak menguntungkan dengan prospek kekalahan yang tinggi dan perang saudara melawan rekan senegaranya adalah perang yang melemahkan hati. "
 
-“Anda berbicara seolah-olah Anda mengalaminya sendiri. Seberapa banyak pengalaman yang telah Anda kumpulkan di usia muda itu. "
+"Kamu berbicara seolah-olah Kamu mengalaminya sendiri. Seberapa banyak pengalaman yang telah Kamu kumpulkan di usia muda itu. "
 
-"Anda tidak perlu peduli dengan keadaan saya."
+"Kamu tidak perlu peduli dengan keadaan Aku."
 
-“Tidak, saya tertarik.”
-
- 
-
-Saya melihat mata tunggal Ririnrara tampaknya telah mendapatkan kembali kekuatannya.
-
-Saya memiliki firasat bahwa saya melakukan sesuatu yang tidak perlu.
+"Tidak, Aku tertarik."
 
  
 
-“Saya tidak bermaksud menggunakan identitas Anda sebagai kartu untuk negosiasi atau memberi tahu siapa pun. Ini hanya minat pribadi saya. "
+Aku melihat mata tunggal Ririnrara tampaknya telah mendapatkan kembali kekuatannya.
+
+Aku memiliki firasat bahwa Aku melakukan sesuatu yang tidak perlu.
+
+ 
+
+"Aku tidak bermaksud menggunakan identitas Kamu sebagai kartu untuk negosiasi atau memberi tahu siapa pun. Ini hanya minat pribadi Aku. "
 
  
 
@@ -104,15 +96,15 @@ Ririnrara meraih lenganku dan dengan paksa menarikku ke arahnya.
 
  
 
-“Pertama-tama, Red. Apakah kamu manusia? ”
+"Pertama-tama, Red. Apakah kamu manusia? "
 
 "Kasar."
 
-“Kenapa pria sepertimu memiliki wajah yang begitu tenang. Seorang Hero akan selalu mengejar mimpi yang mustahil dan selalu menunjukkan ekspresi yang tegang. Apakah perlindungan ilahi di dalam Anda adalah perlindungan yang terus menerus mencurahkan dan mengisi kembali sumber ambisi para pahlawan yang tak ada habisnya? "
+"Kenapa pria sepertimu memiliki wajah yang begitu tenang. Seorang Hero akan selalu mengejar mimpi yang mustahil dan selalu menunjukkan ekspresi yang tegang. Apakah perlindungan ilahi di dalam Kamu adalah perlindungan yang terus menerus mencurahkan dan mengisi kembali sumber ambisi para pahlawan yang tak ada habisnya? "
 
-“Aku tidak akan mengatakan apapun bahkan jika kamu mencoba menebak. Simpan benang dan kail untukku. "
+"Aku tidak akan mengatakan apapun bahkan jika kamu mencoba menebak. Simpan benang dan kail untukku. "
 
-“Saya tidak keberatan tapi saya tidak menyiapkan pancing apapun.”
+"Aku tidak keberatan tapi Aku tidak menyiapkan pancing apapun."
 
  
 
@@ -120,19 +112,19 @@ Aku duduk di samping Ririnrara, menghunus pedang tembaga-ku, dan mengikat benang
 
  
 
-“Nyaman, bukan?”
+"Nyaman, bukan?"
 
-“Tidak, sarung pedang yang bahkan tidak bisa ditekuk tidak bisa menggantikan joran.”
+"Tidak, sarung pedang yang bahkan tidak bisa ditekuk tidak bisa menggantikan joran."
 
-“Ini mungkin tidak cocok untuk memancing tapi itu cukup jika aku hanya ingin menghabiskan waktu sambil memandangi sungai dengan santai.”
+"Ini mungkin tidak cocok untuk memancing tapi itu cukup jika aku hanya ingin menghabiskan waktu sambil memandangi sungai dengan santai."
 
-“Hidup manusia itu pendek. Itulah mengapa kami menganggap manusia sebagai ras yang membakar hidup mereka untuk mencapai prestasi yang sama seperti High-Elf dalam jangka waktu yang singkat. "
+"Hidup manusia itu pendek. Itulah mengapa kami menganggap manusia sebagai ras yang membakar hidup mereka untuk mencapai prestasi yang sama seperti High-Elf dalam jangka waktu yang singkat. "
 
-“Tidak semua orang hidup demi prestasi. Ada juga beberapa yang hanya ingin dirinya dan orang yang mereka cintai bahagia. "
+"Tidak semua orang hidup demi prestasi. Ada juga beberapa yang hanya ingin dirinya dan orang yang mereka cintai bahagia. "
 
-“Dan kamu salah satunya?”
+"Dan kamu salah satunya?"
 
-“Lumayan lah menunggu ikan yang tidak bisa saya tangkap sambil dengan santai melihat aliran sungai. Meskipun memancing tidak akan menghasilkan pencapaian besar, itu tidak mengubah fakta bahwa waktu yang dihabiskan untuk memancing itu menyenangkan. ”
+"Lumayan lah menunggu ikan yang tidak bisa Aku tangkap sambil dengan santai melihat aliran sungai. Meskipun memancing tidak akan menghasilkan pencapaian besar, itu tidak mengubah fakta bahwa waktu yang dihabiskan untuk memancing itu menyenangkan. "
 
  
 
@@ -142,7 +134,7 @@ Aku tersenyum kecut dan menunjuk ujung pancing Ririnrara.
 
  
 
-“Kalau begitu, bagaimana denganmu? Berapa lama Anda berencana untuk tetap merendam tali pancing saat umpan sudah diambil. ”
+"Kalau begitu, bagaimana denganmu? Berapa lama Kamu berencana untuk tetap merendam tali pancing saat umpan sudah diambil. "
 
 "Apa?"
 
@@ -156,7 +148,7 @@ Ririnrara mengerutkan kening dan menusuk cacing tanah lain di kail sebagai umpan
 
 "Tidak kusangka bahwa bajak laut hebat yang mewakili era bajak laut dari 50 tahun yang lalu akan mendapatkan umpannya yang dicuri."
 
-“Sangat bias mengharapkan semua perompak pandai memancing. Itu hanya diperuntukkan bagi orang-orang yang memiliki berkah ilahi yang mendukung pertempuran laut dan memiliki penglihatan bawah air yang lebih besar. Mereka yang memiliki perlindungan dewa Bajak Laut seperti saya membutuhkan keterampilan tempur dan keterampilan untuk memanipulasi kapal sehingga tidak ada kelonggaran untuk mendapatkan keterampilan seperti 'Memancing'. "
+"Sangat bias mengharapkan semua perompak pandai memancing. Itu hanya diperuntukkan bagi orang-orang yang memiliki berkah ilahi yang mendukung pertempuran laut dan memiliki penglihatan bawah air yang lebih besar. Mereka yang memiliki perlindungan dewa Bajak Laut seperti Aku membutuhkan keterampilan tempur dan keterampilan untuk memanipulasi kapal sehingga tidak ada kelonggaran untuk mendapatkan keterampilan seperti 'Memancing'. "
 
  
 
@@ -170,17 +162,17 @@ Akhirnya, Ririnrara bergumam.
 
  
 
-"Jika, pada saat itu, saya mengakui segalanya, saya bertanya-tanya apakah tidak akan menjadi seperti ini."
+"Jika, pada saat itu, Aku mengakui segalanya, Aku bertanya-tanya apakah tidak akan menjadi seperti ini."
 
 Maksudmu waktu sebelum Misufia meninggalkan Veronia?
 
-“Jika saya melakukan itu, Misufia mungkin menerima rencana Sarius dan Leonor tidak akan pernah berhasil. Sekarang ketika sudah terlambat, saya pikir jika mungkin akan menjadi lebih baik seperti itu. "
+"Jika Aku melakukan itu, Misufia mungkin menerima rencana Sarius dan Leonor tidak akan pernah berhasil. Sekarang ketika sudah terlambat, Aku pikir jika mungkin akan menjadi lebih baik seperti itu. "
 
-“Dan sekarang kamu khawatir jika pilihan untuk kembali ke Veronia untuk bertarung adalah pilihan yang tepat.”
+"Dan sekarang kamu khawatir jika pilihan untuk kembali ke Veronia untuk bertarung adalah pilihan yang tepat."
 
-"Tepat sekali. Saya tidak bisa tidak memikirkannya tetapi saya juga tidak berniat untuk melarikan diri. Ketika saya berpikir bahwa itu adalah sesuatu yang akan saya sesali sekali lagi, saya ingin berpaling dari masa depan apapun yang terjadi. "
+"Tepat sekali. Aku tidak bisa tidak memikirkannya tetapi Aku juga tidak berniat untuk melarikan diri. Ketika Aku berpikir bahwa itu adalah sesuatu yang akan Aku sesali sekali lagi, Aku ingin berpaling dari masa depan apapun yang terjadi. "
 
-“Yah, tidak ada cara untuk memilih pilihan yang tepat untuk semuanya tapi… hanya karena Misufia menerimanya sekarang tidak berarti Misufia akan menerimanya di masa lalu.”
+"Yah, tidak ada cara untuk memilih pilihan yang tepat untuk semuanya tapi… hanya karena Misufia menerimanya sekarang tidak berarti Misufia akan menerimanya di masa lalu."
 
  
 
@@ -190,11 +182,11 @@ Dia mengubah namanya menjadi Mistome di Zoltan, menjadi seorang petualang, menja
 
 Ririnrara menyembunyikan fakta bahwa Misufia tidak bisa melahirkan anak karena racun. Saat menitipkan Sarius kepadanya, ia menyampaikan bahwa hal itu harus dilakukan untuk mempersiapkan suksesi sebelum Leonor melahirkan anak dan memberikan harapan agar ada kemungkinan ia bisa melahirkan di kemudian hari.
 
-Jika dulu Misufia yang merasa tersudut, jika dia diberitahu yang sebenarnya dan diminta untuk membesarkan Ririnrara dan anak Geyserik sebagai anaknya, saya bertanya-tanya apakah dia bisa menerimanya.
+Jika dulu Misufia yang merasa tersudut, jika dia diberitahu yang sebenarnya dan diminta untuk membesarkan Ririnrara dan anak Geyserik sebagai anaknya, Aku bertanya-tanya apakah dia bisa menerimanya.
 
  
 
-"Saya yakin akan ada kemungkinan besar terjadinya keretakan yang tidak dapat diperbaiki antara Misufia dan Anda sendiri."
+"Aku yakin akan ada kemungkinan besar terjadinya keretakan yang tidak dapat diperbaiki antara Misufia dan Kamu sendiri."
 
 "... Itu mungkin benar."
 
@@ -202,15 +194,15 @@ Lebih penting lagi, Raja Geyserik adalah masalahnya.
 
 Geyserik?
 
-“Geyserik adalah seorang『 Emperor 』. Saya tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu. "
+"Geyserik adalah seorang『 Emperor 』. Aku tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu. "
 
-"Bagaimana Anda bisa mengatakan dengan pasti meskipun Anda belum pernah bertemu Geyserik."
+"Bagaimana Kamu bisa mengatakan dengan pasti meskipun Kamu belum pernah bertemu Geyserik."
 
-“Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor. ”
+"Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor. "
 
-“Geyserik adalah pria yang penuh kasih sayang. Tidak akan ada masalah jika Geyserik merahasiakannya. Seharusnya tidak ada alasan bagi Geyserik untuk memilih Leonor. ”
+"Geyserik adalah pria yang penuh kasih sayang. Tidak akan ada masalah jika Geyserik merahasiakannya. Seharusnya tidak ada alasan bagi Geyserik untuk memilih Leonor. "
 
-“『 Kaisar 』tidak akan mengizinkan itu. Satu-satunya preseden dari pemegang perlindungan dewa 『Kaisar』 adalah Raja Robert yang mendirikan Kerajaan Avalonia tetapi selama tahun-tahun terakhirnya, ia hanyalah bayangan dari pahlawan bijak, mengusir atau mengeksekusi pengikut dan putranya karena kecurigaan. 『Kaisar』 mungkin memiliki dorongan untuk memprioritaskan mempertahankan posisi mereka sendiri sebagai raja di atas segalanya. "
+"『 Kaisar 』tidak akan mengizinkan itu. Satu-satunya preseden dari pemegang perlindungan dewa 『Kaisar』 adalah Raja Robert yang mendirikan Kerajaan Avalonia tetapi selama tahun-tahun terakhirnya, ia hanyalah bayangan dari pahlawan bijak, mengusir atau mengeksekusi pengikut dan putranya karena kecurigaan. 『Kaisar』 mungkin memiliki dorongan untuk memprioritaskan mempertahankan posisi mereka sendiri sebagai raja di atas segalanya. "
 
 "Geyserik tidak seperti itu."
 
@@ -224,7 +216,7 @@ Ririnrara mengerutkan kening dan memelototiku.
 
 "Ini hanyalah dugaan ... tapi jika dia bisa menekan impuls dari perlindungan ilahi, dia mungkin tidak akan memulai hubungan dengan Leonor."
 
-”……”
+"……"
 
 Ririnrara menunjukkan ekspresi muram tapi dia tidak keberatan.
 
@@ -232,7 +224,7 @@ Aku mendesah pelan dan melanjutkan dengan kata-kata yang memberi semangat.
 
  
 
-“Yah, tidak ada gunanya menyesali masa lalu. Bahkan jika tangan Anda terikat, Anda memilih pilihan yang Anda yakini sebagai yang terbaik, bukan? Itulah hidup. ”
+"Yah, tidak ada gunanya menyesali masa lalu. Bahkan jika tangan Kamu terikat, Kamu memilih pilihan yang Kamu yakini sebagai yang terbaik, bukan? Itulah hidup. "
 
 "Hanya Dewa Demis yang tahu apakah itu benar atau salah ... kau benar, aku seharusnya tidak memikirkannya."
 
@@ -246,7 +238,7 @@ Ikan mas yang ditangkap memutar tubuhnya saat menggeliat.
 
 "Kuku, aku yang menangkapnya dulu."
 
-“Aku rasa kamu baik-baik saja sekarang karena kamu bisa bercanda.”
+"Aku rasa kamu baik-baik saja sekarang karena kamu bisa bercanda."
 
  
 
@@ -254,25 +246,25 @@ Sheesh.
 
  
 
-“Mulai sekarang, tolong bicarakan dengan Pangeran Sarius. Kalian mungkin akan segera meninggalkan Zoltan. ”
+"Mulai sekarang, tolong bicarakan dengan Pangeran Sarius. Kalian mungkin akan segera meninggalkan Zoltan. "
 
-“Apa Sarius memintamu melakukan ini?”
+"Apa Sarius memintamu melakukan ini?"
 
  
 
-Seperti dugaan Ririnrara, tadi malam Pangeran Sarius meminta saya untuk melihat kondisi Ririnrara.
+Seperti dugaan Ririnrara, tadi malam Pangeran Sarius meminta Aku untuk melihat kondisi Ririnrara.
 
 Saat ini, Pangeran Sarius mungkin masih belum tahu bagaimana cara menjaga penderitaan dan keragu-raguan Ririnrara karena selama ini ia dilindungi olehnya.
 
 Satu-satunya orang yang Pangeran Sarius tahu yang bisa dia tuju hanyalah bawahan Ririnrara. Tetapi meskipun mereka mengidolakan Ririnrara, mereka adalah tentara atau bajak laut yang telah terpatri dengan anggapan bahwa mematuhi Ririnrara adalah hal yang wajar.
 
-Karena itu, saya seharusnya mendorongnya.
+Karena itu, Aku seharusnya mendorongnya.
 
-Yah, itu sendiri tidak masalah, tapi Ririnrara dan bahkan Pangeran Sarius bertahun-tahun lebih tua dari saya.
+Yah, itu sendiri tidak masalah, tapi Ririnrara dan bahkan Pangeran Sarius bertahun-tahun lebih tua dari Aku.
 
  
 
-“Merah, apakah kamu sebenarnya…”
+"Merah, apakah kamu sebenarnya…"
 
  
 
@@ -302,17 +294,17 @@ Ririnrara tertawa bahagia. Perilakunya tidak terpikirkan mengingat kami bertarun
 
 High-Elf akan mengubah sikap mereka saat mereka tahu orang itu bisa diandalkan.
 
-Sepertinya saya benar-benar melebihi batas kepercayaannya.
+Sepertinya Aku benar-benar melebihi batas kepercayaannya.
 
  
 
-“Sarius sepertinya juga menyukaimu… bagaimana kabarmu, kapal kami mungkin tenggelam jika menghadapi badai tapi jika berhasil selamat dari badai, kau akan terkenal dan berharga. Jangkauan Anda dapat meluas bahkan ke kursi Raja di Kerajaan… apakah Anda ingin bergabung dengan armada saya? ”
+"Sarius sepertinya juga menyukaimu… bagaimana kabarmu, kapal kami mungkin tenggelam jika menghadapi badai tapi jika berhasil selamat dari badai, kau akan terkenal dan berharga. Jangkauan Kamu dapat meluas bahkan ke kursi Raja di Kerajaan… apakah Kamu ingin bergabung dengan armada Aku? "
 
-“Saya akan menahan diri dari itu. Saya suka hidup saya di Zoltan. ”
+"Aku akan menahan diri dari itu. Aku suka hidup Aku di Zoltan. "
 
-“Jawaban seketika ya, sayang… oh, tali pancingmu ditarik.”
+"Jawaban seketika ya, sayang… oh, tali pancingmu ditarik."
 
-“Ah, sepertinya aku menangkap sesuatu yang besar… guh, ini berat.”
+"Ah, sepertinya aku menangkap sesuatu yang besar… guh, ini berat."
 
  
 
@@ -320,11 +312,11 @@ Pancing yang diikat ke sarung pedangku ditarik kencang.
 
 Karena sarungnya tidak bengkok, tali pancing akan putus begitu ikan meronta-ronta karena guncangan tidak dapat dikurangi.
 
-Saya akan memanipulasi tongkat sesuai dengan gerakan ... yah, dalam hal ini, saya sedang memanipulasi sarungnya.
+Aku akan memanipulasi tongkat sesuai dengan gerakan ... yah, dalam hal ini, Aku sedang memanipulasi sarungnya.
 
  
 
-“Itu sebabnya aku menyuruhmu menggunakan joran yang tepat!”
+"Itu sebabnya aku menyuruhmu menggunakan joran yang tepat!"
 
  
 
@@ -342,7 +334,7 @@ Aku menegang dan mengangkat kedua lenganku.
 
  
 
-“Jyaaan!”
+"Jyaaan!"
 
  
 
@@ -350,7 +342,7 @@ Itu adalah seorang gadis muda yang muncul di permukaan air dengan sedikit senyum
 
  
 
-“Apa, kamu !?”
+"Apa, kamu !?"
 
  
 
@@ -360,7 +352,7 @@ Memang benar, karena dia tidak memiliki keahlian untuk menangani kapal, lebih ce
 
  
 
-“Apakah kamu membutuhkan handuk?”
+"Apakah kamu membutuhkan handuk?"
 
 "Tidak masalah."
 
@@ -390,7 +382,7 @@ Ruti memastikan pakaian dan tubuhnya benar-benar kering sebelum beralih ke Ririn
 
  
 
-“Angkatan Laut Veronia akan datang. Mereka akan mencapai Zoltan dalam waktu sekitar 16 jam. "
+"Angkatan Laut Veronia akan datang. Mereka akan mencapai Zoltan dalam waktu sekitar 16 jam. "
 
  
 
