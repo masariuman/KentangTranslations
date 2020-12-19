@@ -100,43 +100,33 @@ Dia mengenakan pakaian seremonial tetapi dia memakainya dengan cara yang cukup s
 
 g"Bukankah kamu seharusnya menghadiri pesta diplomatik di aula Kongres?"
 
-"Aku menyerahkan sisi itu pada Ririnrara. Semua orang membicarakan tentang kapten bajak laut High-Elf wanita yang legendaris. Mereka sebenarnya repot-repot memainkan orkestra musik latar sambil berbicara. Sangat menarik melihat Ririnrara terlihat pemalu dan meminta bantuan Mistome. "
+"Aku menyerahkan sisi itu pada Ririnrara. Semua orang membicarakan tentang kapten bajak laut High-Elf wanita yang legendaris. Mereka repot-repot memainkan orkestra sambil berbicara. Sangat menarik melihat Ririnrara terlihat pemalu dan meminta bantuan Mistome."
 
-"Begitulah adanya."
+g"begitu ya...."
 
-"Jadi Aku menyelinap keluar dengan alasan bahwa Aku ingin melihat bagaimana keadaan tentara. Meskipun niat sejatiku adalah mencoba masakanmu yang sangat dipuji oleh tentara. "
+"Jadi Aku menyelinap keluar dengan alasan bahwa Aku ingin melihat bagaimana keadaan tentara. Meskipun niat asliku adalah mencoba masakanmu yang sangat dipuji oleh tentara."
 
-"Itu tidak cukup baik untuk memenuhi selera bangsawan."
+g"Itu tidak cukup baik untuk memenuhi selera bangsawan."
 
 "Sangat rendah hati. Bukankah Putri Logavia sangat memuji masakanmu? "
 
- 
-
-Ada beberapa hidangan yang dibuat oleh Putri Logavia itu juga.
+Ada beberapa hidangan yang dibuat oleh Putri Logavia juga.
 
 Dia mungkin tidak mengharapkan itu.
 
-Itu sendiri lucu dan aku terkekeh.
+Itu lucu dan aku tertawa kecil.
 
- 
+g"Baiklah, silakan makan."
 
-"Baiklah, silakan makan."
+"Baiklah."
 
-Aku akan melakukannya.
-
- 
-
-Pangeran Sarius menggigit bistik tersebut dan menunjukkan keterkejutan sesaat sebelum menghabiskannya dalam waktu singkat.
+Pangeran Sarius menggigit steak dan menunjukkan terkejut sesaat sebelum menghabiskannya dalam waktu singkat.
 
 Dia makan dengan lahap tapi mungkin karena dia dibesarkan sebagai bangsawan atau darah High-Elf-nya, masih ada keanggunan dalam cara makannya.
 
- 
+"Sangat lezat. Sampai-sampai aku ingin mengundangmu menjadi juru masak kapalku."
 
-"Sangat lezat. Sampai-sampai aku ingin mengundangmu menjadi juru masak kapal Aku. "
-
-Aku dengan sopan menolak.
-
- 
+g"Aku dengan sopan menolaknya."
 
 Pangeran Sarius tertawa dengan mulut terbuka lebar.
 
