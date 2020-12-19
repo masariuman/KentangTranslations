@@ -92,37 +92,29 @@ Karena dia menyadari kematiannya yang akan datang, hati Leonor dipenuhi dengan k
 
 "Aku setuju."
 
-Kedua Asura yang berwujud dua pangeran itu mengenang sosok Geyserik.
+Kedua Asura yang berwujud dua pangeran itu mengingat sosok Geyserik.
 
-Terkikis oleh penyakit paru-paru dan lemah hingga titik di mana tidak akan aneh jika dia meninggal kapan saja, Geyserik masih berpegang teguh pada kehidupan seolah menunggu sesuatu.
+Terkikis oleh penyakit paru-paru dan lemah hingga titik di mana tidak akan aneh jika dia meninggal kapan saja, Geyserik masih berpegang teguh pada kehidupannya seolah menunggu sesuatu.
 
-Jika itu menyebabkan penderitaan sebanyak itu dan jika menanggung penderitaan itu hanya akan menyebabkan kematian yang sama, Asura bertanya-tanya apakah mereka akan mampu melawan seperti yang dilakukan Geyserik.
+Jika itu menyebabkan penderitaan sebanyak itu dan jika menanggung penderitaan itu hanya akan menyebabkan kematian yang sama, Asura penasaran apakah mereka akan mampu melawan seperti yang dilakukan Geyserik.
 
 Silverio dan Uzuku mungkin akan menyerah dan mati. Bahkan jika itu adalah kehidupan terakhir mereka tanpa reinkarnasi lagi, Asura tidak akan menahan rasa sakit saat tidak ada harapan.
 
-Manusia itu menarik.
+Manusia sungguh menarik.
 
 Itulah mengapa keduanya memilih untuk tinggal di Veronia dan mengambil alih kerajaan menggunakan metode yang akan memakan waktu lama.
 
- 
-
 Geyserik yang memiliki berkah ilahi langka dari 『Kaisar』 dan menjadi raja seperti yang diinginkan oleh perlindungan ilahi.
 
-Ririnrara yang dilahirkan untuk menjadi bajak laut dengan perlindungan ilahi of Pirate 』tetapi memilih untuk menjadi Jenderal demi Geyserik.
+Ririnrara yang dilahirkan untuk menjadi bajak laut dengan perlindungan ilahi 『 Bajak Laut 』tetapi memilih untuk menjadi Jenderal demi Geyserik.
 
 Dan Leonor, dengan perlindungan ilahi Warrior yang sama tetapi berhasil memimpin tiga pahlawan melalui rencananya dan akan mendapatkan kemenangan.
-
- 
 
 "Itu belum lengkap sampai kita melihat akhirnya."
 
 "Ya, Aku berharap untuk melihat bagaimana ibu meninggal."
 
- 
-
-Asura berbicara seolah-olah mereka menikmati drama teater saat mereka menertawakan kehidupan Leonor dan yang lainnya.
-
- 
+Asura berbicara seolah-olah mereka menikmati drama teater dan mereka menertawakan kehidupan Leonor dan yang lainnya.
 
 ☆☆
 
@@ -130,23 +122,15 @@ Lima hari kemudian. Pusat Kota Zoltan.
 
 Aku berjalan dengan sekeranjang penuh jeruk.
 
- 
-
 "Red-oniichan, kenapa kita mengumpulkan jeruk? Apakah kita akan membuat selai? "
-
- 
 
 Mungkin karena dia baru saja makan siang, Tanta sepertinya sedang dalam mood yang bagus.
 
- 
+g"Tidak, apa kamu tahu tentang pesta untuk Pangeran Sarius dan eselon atas Zoltan?"
 
-"Tidak, apa kau tahu tentang pesta untuk Pangeran Sarius dan eselon atas Zoltan?"
+"Yup, malam ini, kan? Mistome-san dan Ruti-san entah bagaimana berhasil membuatnya bekerja!"
 
-"Yup, terjadi malam ini, kan? Mistome-san dan Ruti-san entah bagaimana berhasil membuat sesuatu bekerja! "
-
- 
-
-Meskipun masalah dengan Pangeran Sarius masih ada, untuk saat ini masalah yang dihadapi Zoltan, daftar Gereja, serangan terhadap Distrik Pelabuhan dan nyawa Mistome-shi warga Zoltan, semuanya telah diselesaikan.
+Meskipun masalah dengan Pangeran Sarius masih ada, untuk saat ini masalah yang dihadapi Zoltan, catatan Gereja, serangan terhadap Distrik Pelabuhan dan nyawa Mistome-shi warga Zoltan, semuanya telah diselesaikan.
 
 Pangeran Sarius membayar kompensasi atas serangan di Harbour Distract seperti yang dijanjikan dan menarik permintaannya untuk mendaftar Gereja.
 
