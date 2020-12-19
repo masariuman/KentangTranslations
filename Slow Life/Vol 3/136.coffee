@@ -142,7 +142,7 @@ Aku mengiris daging babi tipis-tipis dan meletakkannya di atas sayuran.
 
 Aku menambahkan air sekitar setengah dari jumlah sayuran. Aku masih belum memasak sup.
 
-Saat air mulai mendidih, Aku menutupinya dan mengukusnya selama 7 menit. Melakukan hal itu akan memungkinkan panas melewati mereka lebih cepat daripada mendidih dan kemanisan sayuran tidak akan hilang.
+Saat air mulai mendidih, Aku menutupinya dan mengukusnya selama 7 menit. Melakukan hal itu akan memungkinkan lebih cepat panas daripada mendidih dan rasa manis sayuran tidak akan hilang.
 
 Setelah itu Aku tambahkan air dan garam dan direbus. Saat mencicipi sup, Aku menyesuaikan rasanya dengan menambahkan garam, merica, dan sedikit tepung ikan yang disimpan dalam toples kecil.
 
