@@ -1,23 +1,16 @@
-Bab 135: Badai mengarah ke barat, hari ini damai
-
-Penerjemah: Tseirp
-
-
- 
+Bab 135: Badai mengarah ke barat, hari ini sungguh damai
 
 Sekitar 1.500 km di sebelah barat Zoltan.
 
 Sebuah kapal perang baja sedang berlayar di lautan sambil mengeluarkan asap hitam.
 
-Di dalam kabin, seorang gadis muda dengan gaun yang sepertinya baru remaja sedang duduk di sofa.
+Di dalam kabin, seorang gadis muda dengan gaun sedang duduk di sofa.
 
 Dia adalah Leonor‧Of‧Veronia.
 
-Sebagai ratu Veronia dan dengan Geyserik mencapai akhir dari harapan hidupnya, tidak berlebihan untuk mengklaim bahwa dia memiliki otoritas terbesar di Veronia saat ini.
+Sebagai ratu Veronia dan dengan Geyserik mencapai akhir dari hidupnya, tidak berlebihan untuk mengklaim bahwa dia memiliki otoritas terbesar di Veronia saat ini.
 
- 
-
-"Bagaimana itu? Apakah Sarius sudah bertindak? ”
+"Bagaimana itu? Apakah Sarius sudah bertindak?"
 
  
 
@@ -59,7 +52,7 @@ Meskipun dia terlihat seperti seorang gadis muda, tubuh Leonor bahkan lebih lema
 
  
 
-“Dengan ini, Ririnrara, Sarius, dan Onee-sama sudah berakhir.”
+"Dengan ini, Ririnrara, Sarius, dan Onee-sama sudah berakhir."
 
  
 
@@ -73,7 +66,7 @@ Itu adalah pasukan yang bisa dengan mudah menghancurkan Zoltan.
 
  
 
-“Tapi apakah ibu punya alasan untuk melakukan ini sendiri?”
+"Tapi apakah ibu punya alasan untuk melakukan ini sendiri?"
 
  
 
@@ -87,7 +80,7 @@ Namun, Leonor menggelengkan kepalanya.
 
  
 
-“Saya menjaga kesehatan saya. Bagaimanapun, saya ingin hidup lebih lama dari Onee-sama. Onee-sama akan menjalani hidup dengan kekecewaan sementara aku menjalani hidup bahagia. Saya ingin waktu itu selama mungkin. Itulah mengapa saya tidak membunuh Onee-sama. ”
+"Saya menjaga kesehatan saya. Bagaimanapun, saya ingin hidup lebih lama dari Onee-sama. Onee-sama akan menjalani hidup dengan kekecewaan sementara aku menjalani hidup bahagia. Saya ingin waktu itu selama mungkin. Itulah mengapa saya tidak membunuh Onee-sama. "
 
  
 
@@ -95,17 +88,17 @@ Leonor menyentuh sisinya sendiri.
 
  
 
-“Sepertinya penyakit hati. Saat ini saya menekannya dengan obat-obatan tetapi saya mungkin akan mengikuti setelah Geyserik. ”
+"Sepertinya penyakit hati. Saat ini saya menekannya dengan obat-obatan tetapi saya mungkin akan mengikuti setelah Geyserik. "
 
 Umu.
 
-“Kalian sudah tahu juga kan? Tidak mungkin Pangeran Veronian yang mampu meramal, mampu melihat apa yang sedang terjadi di negeri terpencil, tidak akan menyadari penyakit ibu mereka yang ada di samping mereka. ”
+"Kalian sudah tahu juga kan? Tidak mungkin Pangeran Veronian yang mampu meramal, mampu melihat apa yang sedang terjadi di negeri terpencil, tidak akan menyadari penyakit ibu mereka yang ada di samping mereka. "
 
-“Clairvoyance kami hanya bisa melihat sekilas dari sekitar orang-orang yang kami tahu nama dan wajah mereka. Kami hanya bisa menggunakannya sekali sehari. Kami tidak akan bisa melihat melalui penyakit visceral. "
+"Clairvoyance kami hanya bisa melihat sekilas dari sekitar orang-orang yang kami tahu nama dan wajah mereka. Kami hanya bisa menggunakannya sekali sehari. Kami tidak akan bisa melihat melalui penyakit visceral. "
 
-“Apalagi penampilan ibu sudah diperbaiki. Saya tidak melihat tanda-tanda penyakit. "
+"Apalagi penampilan ibu sudah diperbaiki. Saya tidak melihat tanda-tanda penyakit. "
 
-“Hoho… mari kita berhenti di situ.”
+"Hoho… mari kita berhenti di situ."
 
  
 
@@ -115,7 +108,7 @@ Berbeda dengan Asura yang abadi.
 
  
 
-“Itulah kenapa aku harus melihat dengan mata kepalaku sendiri Onee-sama sekarat saat menderita sebelum aku mati.”
+"Itulah kenapa aku harus melihat dengan mata kepalaku sendiri Onee-sama sekarat saat menderita sebelum aku mati."
 
  
 
@@ -153,7 +146,7 @@ Dan Leonor, dengan perlindungan ilahi Warrior yang sama tetapi berhasil memimpin
 
  
 
-“Itu belum lengkap sampai kita melihat akhirnya.”
+"Itu belum lengkap sampai kita melihat akhirnya."
 
 "Ya, saya berharap untuk melihat bagaimana ibu meninggal."
 
@@ -171,7 +164,7 @@ Saya berjalan dengan sekeranjang penuh jeruk.
 
  
 
-“Red-oniichan, kenapa kita mengumpulkan jeruk? Apakah kita akan membuat selai? ”
+"Red-oniichan, kenapa kita mengumpulkan jeruk? Apakah kita akan membuat selai? "
 
  
 
@@ -179,9 +172,9 @@ Mungkin karena dia baru saja makan siang, Tanta sepertinya sedang dalam mood yan
 
  
 
-“Tidak, apa kau tahu tentang pesta untuk Pangeran Sarius dan eselon atas Zoltan?”
+"Tidak, apa kau tahu tentang pesta untuk Pangeran Sarius dan eselon atas Zoltan?"
 
-“Yup, terjadi malam ini, kan? Mistome-san dan Ruti-san entah bagaimana berhasil membuat sesuatu bekerja! ”
+"Yup, terjadi malam ini, kan? Mistome-san dan Ruti-san entah bagaimana berhasil membuat sesuatu bekerja! "
 
  
 
@@ -193,11 +186,11 @@ Untuk membantu pangeran dari kekuatan besar menyelamatkan muka, Zoltan mengusulk
 
  
 
-“Dan di tempat terpisah dari tempat Pangeran Sarius dan yang lainnya berada, angkatan laut reguler juga akan mengadakan buffet. Saya mengangkut jeruk ini ke sana untuk digunakan. ”
+"Dan di tempat terpisah dari tempat Pangeran Sarius dan yang lainnya berada, angkatan laut reguler juga akan mengadakan buffet. Saya mengangkut jeruk ini ke sana untuk digunakan. "
 
-“Tapi kenapa Red-oniichan melakukannya?”
+"Tapi kenapa Red-oniichan melakukannya?"
 
-“Aku juga heran kenapa… sebenarnya, aku akan membuat sesuatu juga.”
+"Aku juga heran kenapa… sebenarnya, aku akan membuat sesuatu juga."
 
 "Betulkah!?"
 
@@ -209,9 +202,9 @@ Saya adalah pemilik Apoteker, bukan seorang juru masak.
 
  
 
-“Tapi masakan Red-oniichan enak jadi semua orang pasti suka!”
+"Tapi masakan Red-oniichan enak jadi semua orang pasti suka!"
 
-“Itu akan bagus.”
+"Itu akan bagus."
 
  
 
