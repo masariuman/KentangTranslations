@@ -188,41 +188,31 @@ kenyataannya adalah bahwa level meingkat entah bagaimana akan menutupi kurangnya
 
 Yah, mungkin akan baik-baik saja jika ternyata baik-baik saja.
 
-Namun menjadi masalah jika masyarakat memutuskan bahwa mereka tidak bisa memasak karena tidak memiliki keahlian.
+Namun akan menjadi masalah jika masyarakat memutuskan bahwa mereka tidak bisa memasak karena tidak memiliki keahlian.
 
 Itu tidak hanya terbatas pada memasak, itu juga berlaku untuk pedang.
 
-Kurangnya teknik pedang adalah kejadian biasa di pasukan mana pun sehingga ada pendapat bahwa daripada menghabiskan waktu untuk menghafal teknik pedang, berburu monster dan naik level jauh lebih baik dan bahkan ada beberapa komandan yang benar-benar menghapus pelatihan dan menggunakan waktu itu. untuk menaklukkan monster dari berbagai daerah.
+Kurangnya teknik pedang adalah kejadian biasa di pasukan mana pun sehingga ada pendapat bahwa daripada menghabiskan waktu untuk menghafal teknik pedang, berburu monster dan naik level jauh lebih baik dan bahkan ada beberapa komandan yang benar-benar menghapus pelatihan dan menggunakan waktu itu untuk menaklukkan monster dari berbagai daerah.
 
-Akibatnya, satu-satunya metode untuk memecahkan masalah adalah dengan 'menaikkan level Kamu'.
+Akibatnya, satu-satunya metode untuk memecahkan masalah adalah dengan 'menaikkan levelmu'.
 
 Tetapi apa yang harus mereka lakukan ketika mereka memiliki masalah yang harus mereka selesaikan pada saat itu juga tetapi mereka tidak memiliki tingkat yang diperlukan untuk melakukannya?
 
- 
-
-Kapten dari Ordo Kesatria Bahamut tempat Aku berada adalah seorang yang sangat mendukung perlunya teknik pedang.
+Kapten dari Ksatria Ordo Bahamut tempat Aku berada adalah seorang yang sangat mendukung perlunya teknik pedang.
 
 Saat dia memperoleh kekuatan melebihi level seseorang melalui ilmu pedang,
 
-Captain menguasai penggunaan umum semua senjata seperti pedang, tombak, kapak, pentungan, dan sabit, bukan hanya senjata yang bisa digunakan oleh Captain.
+Kapten menguasai penggunaan umum semua senjata seperti pedang, tombak, kapak, pentungan, dan sabit, bukan hanya senjata yang biasa digunakan oleh kapten.
 
-Meskipun dia biasanya tenang dan santai, saat itu menjadi topik senjata dia akan dengan senang hati mulai berbicara dengan cepat ke titik di mana para ksatria bawahannya curiga jika dia hanya seorang maniak senjata ... tapi bagaimanapun, sebagai 『Guide』 yang tidak bisa mengandalkan keterampilan apa pun, dia adalah dermawan Aku.
-
- 
+Meskipun dia biasanya tenang dan santai, apabila itu tentang senjata dia akan dengan senang dan mulai berbicara dengan cepat ke titik di mana para ksatria bawahannya curiga jika dia hanya seorang maniak senjata ... tapi bagaimanapun, sebagai 『Pemandu』 yang tidak bisa mengandalkan skill apa pun, dia adalah penolongku.
 
 "Begitu, jadi memasak harus dilakukan dengan mempertimbangkan hal itu."
 
- 
-
-Kurt mengangguk berkali-kali dengan emosi setelah Aku mengajarinya dasar-dasar memasak dan bumbu.
+Kurt mengangguk berkali-kali setelah Aku mengajarinya dasar-dasar memasak dan bumbu.
 
 Dan nadanya anehnya menjadi kehormatan untuk beberapa alasan.
 
- 
-
-"Kalau begitu, tolong bantu aku menyajikan makanan."
-
- 
+g"Kalau begitu, tolong bantu aku menyajikan makanan."
 
 Pada akhirnya, Aku akhirnya membuat bubur roti dengan roti yang sekeras batu, memanggang ikan kering agar lembut dan empuk dan membuat banyak kentang tumbuk asin yang cocok dengan bir. Padahal aku merasa lapar.
 
