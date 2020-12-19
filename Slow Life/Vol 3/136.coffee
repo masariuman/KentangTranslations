@@ -72,31 +72,21 @@ Wajahnya tanpa ekspresi tapi alisnya hanya sedikit berkerut jadi sepertinya dia 
 
 Petugas itu tidak tampak marah dan bahkan tersenyum setelah mendengarnya.
 
- 
-
-"Kamu mendengarnya Kurt! Lagipula itu buruk! "
+"Kamu mendengarnya Kurt! Sudah kubilang ini tidak enak!"
 
 "Maaf, Aku tidak memiliki keterampilan memasak."
 
- 
+Prajurit berusia awal 30-an bernama Kurt datang dan tersenyum saat dia menjawab.
 
-Prajurit berusia awal 30-an bernama Kurt dibawa dan tersenyum saat dia menjawab.
+Tidak hanya tidak memiliki skill, tetapi tampaknya dia bahkan tidak memiliki pengetahuan dasar tentang memasak ...
 
-Tidak hanya tidak memiliki keterampilan, tetapi tampaknya dia bahkan tidak memiliki pengetahuan dasar tentang memasak ...
-
- 
-
-"Ah, jadi kamu biasanya tidak memasak? Itu tidak bisa membantu. "
+g"Ah, jadi kamu biasanya tidak memasak? yaah mau bagaimana lagi."
 
 "Tidak, Aku juru masak. Aku membuat makanan bahkan di kapal. "
-
- 
 
 Kurt menggaruk kepalanya karena malu.
 
 Tidak mungkin, itu aneh tidak peduli bagaimana Kamu melihatnya.
-
- 
 
 "Kebetulan, apa pengalaman Kamu dengan memasak?"
 
