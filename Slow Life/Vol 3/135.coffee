@@ -16,23 +16,19 @@ Kedua pangeran yang duduk dalam posisi meditasi zen menanggapi suara Leonor yang
 
 Kedua pangeran itu memiliki tubuh yang diberkati hampir setinggi dua meter dan memiliki tubuh yang diasah dengan indah.
 
-Tidak seperti kecantikan Sarius yang hanya dia warisi sedikit dari para High-Elf, mereka memiliki kecantikan manusia dan Asura.
+Tidak seperti ketampanan Sarius yang hanya dia warisi sedikit dari para High-Elf, mereka memiliki ketampanan manusia dan Asura.
 
 Silverio dan Uzuki, kedua pangeran itu perlahan membuka mata mereka dan tertawa, menunjukkan gigi putih mereka kepada Leonor yang seharusnya adalah ibu mereka.
-
- 
 
 "Ibu, Sarius baru saja menyerang Zoltan."
 
 "Begitu, kerja bagus."
 
- 
-
 Leonor menyembunyikan senyumnya yang terdistorsi di balik kipas dan tertawa dengan anggun.
 
-Tentu saja, Leonor bukanlah seorang Elf. Usianya sudah melewati 60 dan semula seharusnya sudah memasuki usia senja.
+Tentu saja, Leonor bukanlah seorang Elf. Usianya sudah melewati 60 dan seharusnya sudah memasuki usia tua.
 
-Leonor menggunakan semua jenis produk obat dan sihir untuk menjaga keremajaan tubuhnya. Dagingnya dipelihara dengan menginvestasikan emas yang tak terhitung jumlahnya.
+Leonor menggunakan semua jenis produk obat dan sihir untuk menjaga keremajaan tubuhnya. Dagingnya dirawat dengan menginvestasikan emas yang tak terhitung jumlahnya.
 
 Namun, itu hanya bisa mempertahankan penampilannya. Bahkan dengan Alkimia dan sihir, dia tidak tahu metode apa pun untuk memperpanjang hidupnya.
 
