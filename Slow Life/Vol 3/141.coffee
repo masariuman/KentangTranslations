@@ -1,49 +1,32 @@
 Bab 141: Pertarungan hebat Pahlawan Lit
 
-Penerjemah: Tseirp
-
-
-“Ini mungkin bukan pertarungan untuk melindungi Zoltan. Karena itu, kami tidak akan menyalahkan Anda jika Anda melarikan diri. Tapi, ini pertarungan untuk mempertahankan pahlawan yang melindungi Zoltan. "
-
- 
+"Ini mungkin bukan pertarungan untuk melindungi Zoltan. Karena itu, kami tidak akan menyalahkanmu jika Kamu melarikan diri. Tapi, ini pertarungan untuk mempertahankan pahlawan yang melindungi Zoltan."
 
 Ser William mengepalkan tangan dan berpidato.
 
-Di depan Ser William adalah Zoltan menjalankan ksatria drake yang mengenakan baju besi ringan untuk kavaleri yang dipersenjatai dengan pedang yang sedikit melengkung, penjaga dengan chainmail bersenjatakan tombak dan busur, bangsawan dengan pedang ramping menghiasi pinggang mereka, petualang tanpa peralatan seragam, pencuri dengan pedang tajam mengintip dari dalam mantel hitam mereka, dan tentara milisi yang terbuat dari warga Zoltan dilengkapi dengan tombak dan perisai.
+Di depan Ser William ada  ksatria Zoltan dengan drake pelari yang mengenakan baju besi ringan untuk kavaleri yang dipersenjatai dengan pedang yang sedikit melengkung, penjaga dengan chainmail bersenjatakan tombak dan busur, bangsawan dengan pedang ramping menghiasi pinggang mereka, petualang tanpa peralatan yang seragam, pencuri dengan pedang tajam dari dalam mantel hitam mereka, dan tentara milisi yang terbuat dari warga Zoltan dilengkapi dengan tombak dan perisai.
 
- 
+"Mistome-shi berimigrasi ke Zoltan 45 tahun lalu. Dia muncul bersama dengan kapal layar yang bersinar untuk membantu Zoltan selama krisisnya dari sisa-sisa Raja Goblin. Saat itu, Aku masih anak-anak yang tidak memiliki kemampuan untuk memahami apa yang terjadi di sekitarku tetapi Aku ingat sorakan orang-orang yang diselamatkan oleh Mistome-shi."
 
-“Mistome-shi berimigrasi ke Zoltan 45 tahun lalu. Dia muncul bersama dengan kapal layar yang bersinar untuk membantu Zoltan selama krisisnya dari sisa-sisa Raja Goblin. Saat itu, saya masih anak-anak yang tidak memiliki kemampuan untuk memahami apa yang terjadi di sekitar saya tetapi saya ingat sorakan orang-orang yang diselamatkan oleh Mistome-shi. ”
-
- 
-
-Di antara orang-orang yang berkumpul, mereka yang cukup umur untuk mengetahui apa yang terjadi saat itu tersentak.
+Di antara orang-orang yang berkumpul, mereka yang tua untuk mengetahui apa yang terjadi saat itu tersentak.
 
 Dia berbicara tentang masa lalu Mistome-san yang dirahasiakan. Dan itu adalah pemimpin militer Zoltan yang melanggar aturan tak terucapkan itu.
 
 Orang-orang Zoltan mengerti bahwa serangan dari Kerajaan Veronia adalah karena pahlawan Zoltan, masa lalu Mistome-san.
 
-Tise dan saya melihat reaksi orang-orang dari sudut.
+Tise dan Aku melihat reaksi orang-orang dari sudut.
 
- 
-
-“Ku, oooo !! Aku akhirnya bisa membayar kembali Mistome-sama karena menyelamatkan kita saat itu! ”
-
- 
+"Ku, oooo !! Aku akhirnya bisa membayar kembali Mistome-sama karena menyelamatkan kita saat itu!"
 
 Seorang petualang paruh baya berteriak.
 
- 
+"Aku akhirnya bisa berterima kasih padanya!"
 
-“Saya akhirnya bisa berterima kasih padanya!”
+"Musuh Mistome-sama adalah musuhku! Ayo kita lawan mereka! "
 
-“Musuh Mistome-sama adalah musuhku! Biarkan mereka memilikinya! ”
+Warga Zoltan, terutama yang sudah tua untuk waspada saat itu, berteriak dengan berani dan tersenyum bahagia.
 
- 
-
-Warga Zoltan, terutama yang sudah cukup umur untuk waspada saat itu, berteriak dengan berani dan tersenyum bahagia.
-
-Untuk membayar kembali dermawan mereka, ada pemahaman diam-diam untuk tidak meninggalkan catatan akurat yang tidak akan disadari oleh Veronia.
+Untuk membayar kembali penyelamat mereka, ada pemahaman diam-diam untuk tidak meninggalkan catatan akurat yang tidak akan disadari oleh Veronia.
 
 Tentu saja, mereka tidak tahu bahwa identitas asli Mistome-san adalah Putri Misufia tetapi mereka mengerti bahwa Mistome-san sedang melarikan diri dari masa lalunya.
 
@@ -51,29 +34,21 @@ Dan sekarang, kapal perang Veronia akhirnya datang dan mereka tidak lagi harus m
 
 Kekaguman yang mereka pegang selama 45 tahun membuat mereka dipenuhi dengan senyuman meskipun mereka sekarang berada di ambang perang.
 
- 
+g"Ini adalah kota yang bagus."
 
-“Ini adalah kota yang bagus.”
-
-"Ya."
-
- 
+t"Ya."
 
 Tise dan aku saling mengangguk.
 
 Sebuah bayangan berlari ke arah kami.
 
- 
-
-“Ou, Tifa-dono dan Red-kun, kalian ada di sini.”
+"Ou, Tifa-dono dan Red-kun, kalian ada di sini."
 
 Walikota Tonedo.
 
- 
+Pada akhirnya, Walikota Tonedo memutuskan untuk melepas baju besi yang tidak biasa dia gunakan dan mengenakan kemeja rantai yang lebih mudah untuk bergerak dan sebuah tabard yang dibordir dengan lambang nasional Republik Zoltan.
 
-Pada akhirnya, Walikota Tonedo memutuskan untuk melepas baju besi yang tidak biasa dia gunakan dan mengenakan kemeja rantai yang lebih mudah untuk dipindahkan dan sebuah tabard yang dibordir dengan lambang nasional Republik Zoltan.
-
-Saya kira piring penuh terlalu berat.
+Aku kira piring penuh terlalu berat.
 
  
 
@@ -123,7 +98,7 @@ Jika kondisi kemenangan sama, itu adalah pertempuran tanpa peluang menang tetapi
 
  
 
-“Ini adalah strategi yang menakjubkan melawan psikologi lawan. Sigh, sayang sekali jika Hero Lit menjadi istri apoteker… ups, aku tidak sopan. ”
+"Ini adalah strategi yang menakjubkan melawan psikologi lawan. Sigh, sayang sekali jika Hero Lit menjadi istri apoteker… ups, aku tidak sopan. "
 
  
 
@@ -131,7 +106,7 @@ Tonedo buru-buru menarik kembali kata-katanya setelah aku memelototinya.
 
  
 
-“Tapi Walikota. Aku yakin kamu tidak menyukai Mistome-san. ”
+"Tapi Walikota. Aku yakin kamu tidak menyukai Mistome-san. "
 
  
 
@@ -141,7 +116,7 @@ Mistome-san akan menyelesaikan semuanya dengan mengumpulkan semua informasi dan 
 
 Walikota Tonedo mengubah segalanya tanpa meninggalkan jejak sistem yang dibuat oleh Mistome-san.
 
-“Saya tidak menyalahkan Anda karena berpikir seperti itu. Sejujurnya saya tidak memuji cara Mistome-shi sebagai politisi. "
+"Aku tidak menyalahkan Kamu karena berpikir seperti itu. Sejujurnya Aku tidak memuji cara Mistome-shi sebagai politisi. "
 
  
 
@@ -149,11 +124,11 @@ Walikota Tonedo dengan jujur ​​mengakuinya.
 
  
 
-“Sebuah negara yang diatur oleh kekuatan seorang pahlawan adalah rapuh. Itu tidak bisa disebut negara yang dibangun dengan kekuatannya sendiri. Filosofi saya adalah bahwa tidak sedikit orang kuat yang melindungi negara tetapi semua warganya. "
+"Sebuah negara yang diatur oleh kekuatan seorang pahlawan adalah rapuh. Itu tidak bisa disebut negara yang dibangun dengan kekuatannya sendiri. Filosofi Aku adalah bahwa tidak sedikit orang kuat yang melindungi negara tetapi semua warganya. "
 
-“Karena berkat ilahi memiliki ketidaksetaraan, wajar jika minoritas yang unggul akan mendominasi. Itu cara berpikir yang tidak biasa. "
+"Karena berkat ilahi memiliki ketidaksetaraan, wajar jika minoritas yang unggul akan mendominasi. Itu cara berpikir yang tidak biasa. "
 
-“Bahkan pahlawan memiliki hak untuk menikmati kebahagiaan normal, bukankah kamu setuju? Baiklah… ”
+"Bahkan pahlawan memiliki hak untuk menikmati kebahagiaan normal, bukankah kamu setuju? Baiklah… "
 
  
 
@@ -161,23 +136,23 @@ Walikota Tonedo menyela.
 
  
 
-“Kalian berdua tampak bungkam jadi aku bisa memberitahumu.”
+"Kalian berdua tampak bungkam jadi aku bisa memberitahumu."
 
 Apakah ada sesuatu?
 
-“Tidak ada yang serius. Yah, ini masalah serius bagiku tapi yah, aku mungkin mati dalam pertempuran ini. Jika saya meninggalkan satu hal yang memalukan, saya akan menjadi bahan tertawaan. "
+"Tidak ada yang serius. Yah, ini masalah serius bagiku tapi yah, aku mungkin mati dalam pertempuran ini. Jika Aku meninggalkan satu hal yang memalukan, Aku akan menjadi bahan tertawaan. "
 
-"Anda bertele-tele."
+"Kamu bertele-tele."
 
-“Ahaha, Red-san, aku memikirkannya sekali lagi setelah aku melihat Hero Lit dan kamu.”
+"Ahaha, Red-san, aku memikirkannya sekali lagi setelah aku melihat Hero Lit dan kamu."
 
 "Lit dan aku?"
 
 "Jika aku telah menyingkirkan beban di pundak Mistome-shi lebih awal ... Aku mungkin akan melamarnya."
 
-“Eh, kamu melamar Mistome-san?”
+"Eh, kamu melamar Mistome-san?"
 
-“Ini sudah lama sekali ketika saya masih muda. Saat itu Mistome-shi sudah melebihi umurku tapi dia wanita yang menawan. Bahkan sekarang dia masih menawan. Yah, seorang akuntan di Merchant's Guild tidak akan bisa menyamai seorang pahlawan. "
+"Ini sudah lama sekali ketika Aku masih muda. Saat itu Mistome-shi sudah melebihi umurku tapi dia wanita yang menawan. Bahkan sekarang dia masih menawan. Yah, seorang akuntan di Merchant's Guild tidak akan bisa menyamai seorang pahlawan. "
 
  
 
@@ -199,9 +174,9 @@ Karena itu, tidak heran jika kami memilih untuk bertarung seperti ini.
 
  
 
-“Ada ketapel di belakang gudang! Yang dari 45 tahun lalu! ”
+"Ada ketapel di belakang gudang! Yang dari 45 tahun lalu! "
 
-“Bisakah mereka tetap bekerja?”
+"Bisakah mereka tetap bekerja?"
 
  
 
@@ -227,7 +202,7 @@ Selalu ada bahaya terjebak, tetapi Ririnrara mengarahkan kapalnya sendiri.
 
  
 
-“Saya sudah mengecek sungainya. Saya bisa melakukannya jika saya memikirkannya. "
+"Aku sudah mengecek sungainya. Aku bisa melakukannya jika Aku memikirkannya. "
 
  
 
@@ -239,7 +214,7 @@ Dengan itu, keunggulan kita mungkin tidak akan terguncang untuk pertempuran di s
 
  
 
-“Mungkin kita bisa mengejar tentara Veronia dengan ini?”
+"Mungkin kita bisa mengejar tentara Veronia dengan ini?"
 
  
 
@@ -249,7 +224,7 @@ Situasinya jelas tidak terlalu buruk tapi ...
 
  
 
-“Saya masih merasa tidak nyaman tentang sesuatu. Saya tahu ada perbedaan kekuatan tapi saya yakin ini bisa dikatakan sebagai situasi yang baik. "
+"Aku masih merasa tidak nyaman tentang sesuatu. Aku tahu ada perbedaan kekuatan tapi Aku yakin ini bisa dikatakan sebagai situasi yang baik. "
 
  
 
@@ -259,7 +234,7 @@ Tidak, yah, seperti yang dikatakan Tise.
 
  
 
-“Yah, meskipun strategi Lit sempurna, selalu ada banyak tempat yang salah.”
+"Yah, meskipun strategi Lit sempurna, selalu ada banyak tempat yang salah."
 
  
 
@@ -269,9 +244,9 @@ Bahkan selama pertempuran di Logavia, setiap kali dia mengklaim dengan tampilan 
 
  
 
-“Itu bukan salah Lit-san. Saya tidak percaya itu akan terjadi kali ini juga. "
+"Itu bukan salah Lit-san. Aku tidak percaya itu akan terjadi kali ini juga. "
 
-"Saya rasa begitu. Mungkin saya terlalu memikirkannya. "
+"Aku rasa begitu. Mungkin Aku terlalu memikirkannya. "
 
  
 
@@ -279,13 +254,13 @@ Aku menatap Tise dan tersenyum.
 
 Benar, hal seperti itu seharusnya tidak terjadi kali ini.
 
-Bahkan jika itu seharusnya tidak terjadi, saya masih harus merencanakan solusi. Ya.
+Bahkan jika itu seharusnya tidak terjadi, Aku masih harus merencanakan solusi. Ya.
 
  
 
 "Haruskah kita pergi memeriksa keadaan Ruti di sisinya?"
 
-“Yup, ayo lakukan itu.”
+"Yup, ayo lakukan itu."
 
  
 
