@@ -10,9 +10,7 @@ Dia adalah Leonor‧Of‧Veronia.
 
 Sebagai ratu Veronia dan dengan Geyserik mencapai akhir dari hidupnya, tidak berlebihan untuk mengklaim bahwa dia memiliki otoritas terbesar di Veronia saat ini.
 
-"Bagaimana itu? Apakah Sarius sudah bertindak?"
-
- 
+"Bagaimana? Apakah Sarius sudah bertindak?"
 
 Kedua pangeran yang duduk dalam posisi meditasi zen menanggapi suara Leonor yang jernih dan indah dan membuka mata mereka.
 
