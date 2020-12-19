@@ -130,29 +130,27 @@ g"Dan sekarang kamu khawatir jika pilihan untuk kembali ke Veronia untuk bertaru
 
 g"Yah, tidak ada cara untuk memilih pilihan yang tepat tapi... hanya karena Misufia menerimanya sekarang tidak berarti Misufia akan menerimanya di masa lalu."
 
-Waktu yang lama telah berlalu untuk Misufia saat ini sejak keputusasaan yang dia rasakan di masa lalu.
+Waktu yang lama telah berlalu untuk Misufia sejak keputusasaan yang dia rasakan di masa lalu.
 
-Dia mengubah namanya menjadi Mistome di Zoltan, menjadi seorang petualang, menjadi pemimpin Guild Magician, memperoleh kekayaan dan ketenaran sebagai walikota… tentu saja itu dalam standar Zoltan tetapi dia telah berpengalaman cukup banyak.
+Dia mengubah namanya menjadi Mistome di Zoltan, menjadi seorang petualang, menjadi pemimpin Guild Magician, memperoleh kekayaan dan ketenaran sebagai walikota... tentu saja itu dalam standar Zoltan tetapi dia telah berpengalaman cukup banyak.
 
-Ririnrara menyembunyikan fakta bahwa Misufia tidak bisa melahirkan anak karena racun. Saat menitipkan Sarius kepadanya, ia menyampaikan bahwa hal itu harus dilakukan untuk mempersiapkan suksesi sebelum Leonor melahirkan anak dan memberikan harapan agar ada kemungkinan ia bisa melahirkan di kemudian hari.
+Ririnrara menyembunyikan fakta bahwa Misufia tidak bisa melahirkan anak karena racun. Saat menitipkan Sarius kepadanya, ia menyampaikan bahwa hal itu harus dilakukan untuk mempersiapkan penerusan takhta sebelum Leonor melahirkan anak dan memberikan harapan agar ada kemungkinan ia bisa melahirkan di kemudian hari.
 
-Jika dulu Misufia yang merasa tersudut, jika dia diberitahu yang sebenarnya dan diminta untuk membesarkan Ririnrara dan anak Geyserik sebagai anaknya, Aku bertanya-tanya apakah dia bisa menerimanya.
+Jika dulu Misufia yang merasa tersudut, jika dia diberitahu yang sebenarnya dan diminta untuk membesarkan anak Ririnrara sebagai anaknya, Aku tidak yakin apakah dia bisa menerimanya.
 
- 
-
-"Aku yakin akan ada kemungkinan besar terjadinya keretakan yang tidak dapat diperbaiki antara Misufia dan Kamu sendiri."
+g"Aku yakin akan ada kemungkinan besar terjadinya keretakan yang tidak dapat diperbaiki antara Misufia dan Kamu sendiri."
 
 "... Itu mungkin benar."
 
-Lebih penting lagi, Raja Geyserik adalah masalahnya.
+g"dan yang paling penting lagi, Raja Geyserik adalah masalahnya."
 
-Geyserik?
+"Geyserik?"
 
-"Geyserik adalah seorang『 Emperor 』. Aku tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu. "
+"Geyserik adalah seorang『 Kaisar 』. Aku tidak dapat mengatakan dengan pasti karena tidak banyak informasi tentang Perlindungan Ilahi yang langka tetapi dia mungkin tidak akan menerima Pangeran Sarius 40 tahun yang lalu."
 
-"Bagaimana Kamu bisa mengatakan dengan pasti meskipun Kamu belum pernah bertemu Geyserik."
+g"Bagaimana Kamu bisa mengatakan dengan pasti meskipun Kamu belum pernah bertemu Geyserik."
 
-"Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor. "
+"Saat itu, yang dia butuhkan adalah ahli waris dengan darah bangsawan. Bukan darah Geyserik. Jika Geyserik tahu asal usul Pangeran Sarius, dia pasti akan memprioritaskan anak Leonor."
 
 "Geyserik adalah pria yang penuh kasih sayang. Tidak akan ada masalah jika Geyserik merahasiakannya. Seharusnya tidak ada alasan bagi Geyserik untuk memilih Leonor. "
 
