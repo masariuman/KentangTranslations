@@ -122,17 +122,15 @@ Aku pindah ke dapur tanpa mengucapkan sepatah kata pun dan tidak peduli dengan K
 
 Aku lapar.
 
-Kali ini, Aku akan meneruskan membuat hidangan yang akan memakan waktu lama.
+Kali ini, Aku akan membuat hidangan yang akan memakan waktu lama.
 
-"Aku akan membuat sup babi dan sayur yang sama."
+g"Aku akan membuat sup babi dan sayur yang sama."
 
 "Dengan bahan yang sama?"
 
-Yang paling dasar, ya.
+g"untuk bahan dasarnya, iya."
 
- 
-
-Aku memotong wortel menjadi potongan-potongan kecil tanpa mengupasnya. Sayuran akar adalah yang paling enak di dekat kulit mereka.
+Aku memotong wortel menjadi potongan-potongan kecil tanpa mengupasnya. rasa enak dari Sayuran akar berada didekat kulitnya.
 
 Aku memotong bagian putih dari daun bawang secara diagonal menjadi irisan tipis dan memotong bagian hijaunya dengan halus.
 
