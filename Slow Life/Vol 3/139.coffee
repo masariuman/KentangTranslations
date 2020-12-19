@@ -12,11 +12,7 @@ Ririnrara dan yang lainnya tidak berniat bersembunyi di Zoltan untuk bertarung d
 
 Oleh karena itu, Ririnrara dan yang lainnya kemungkinan besar akan meninggalkan Zoltan.
 
- 
-
-"Kapal Raja Iblis ya?"
-
- 
+g"Kapal Raja Iblis ya?"
 
 Wendy Dart.
 
@@ -24,39 +20,33 @@ Kapal baja yang melintasi laut menggunakan batu bara, bukan angin.
 
 Selain itu, hal itu disertai dengan armada kapal layar galleon besar terbaru.
 
-Tentara Ririnrara semuanya terlatih dengan baik tetapi kapalnya adalah dapur tua yang dirancang lebih dari 50 tahun yang lalu.
+Tentara Ririnrara semuanya terlatih dengan baik tetapi kapalnya adalah gali tua yang dirancang lebih dari 50 tahun yang lalu.
 
 Kapal yang dirancang di Veronia mendukung dek yang lebih tinggi dari kapal perang lain 50 tahun yang lalu dan sangat populer karena dapat menghujani lawan mereka dari atas.
 
 Namun, kemajuan besar telah dicapai dalam teknologi pembuatan kapal layar.
 
-Galleon terbaru memiliki dek yang jauh lebih tinggi dari galai Ririnrara, tidak membutuhkan banyak pendayung dan memiliki kapasitas transportasi yang besar.
+Galleon terbaru memiliki dek yang jauh lebih tinggi dari gali Ririnrara, tidak membutuhkan banyak pendayung dan memiliki kapasitas transportasi yang besar.
 
 Gaya bertarung bajak laut juga berubah.
 
-Ketika Ririnrara secara aktif memimpin Bajak Laut Peri, kekuatan bajak laut menguasai kekuatan angkatan laut negara itu. Para perompak bisa dengan berani menyerang kapal angkatan laut nasional dan mereka langsung menghadapi angkatan laut yang datang untuk menundukkan mereka.
+Ketika Ririnrara secara aktif memimpin Bajak Laut Peri, kekuatan bajak laut menguasai kekuatan angkatan laut negara itu. Para bajak laut bisa dengan berani menyerang kapal angkatan laut nasional dan mereka langsung menghadapi angkatan laut yang datang untuk menundukkan mereka.
 
 Sekarang berbeda. Bajak laut menyerang kapal transportasi dan kapal dagang menggunakan kapal layar cepat berukuran sedang dan akan melarikan diri ke segala arah menggunakan mobilitas mereka ketika kapal perang angkatan laut datang.
 
 Mereka akan melarikan diri ke berbagai wilayah laut, menjarah dari yang lemah dan melarikan diri ketika mereka dalam keadaan siaga.
 
-Ririnrara tampaknya masih berada di puncak usianya tapi dia mungkin, seperti kapalnya, sebuah eksistensi yang ditinggalkan oleh zaman.
+Ririnrara tampaknya masih berada pada kondisi puncak dengan usianya sekarang tapi dia mungkin, seperti kapalnya, sebuah eksistensi yang ketinggalan zaman.
 
-Pikiran seperti itu berputar-putar di benak Aku.
+Pikiran seperti itu berputar-putar di benakku.
 
- 
-
-"Nah, bukankah Wendy Dart sebuah kapal yang berusia lebih dari 50 tahun juga?"
-
- 
+g"Nah, bukankah Wendy Dart sebuah kapal yang berusia lebih dari 50 tahun juga?"
 
 Aku menggelengkan kepalaku dan menghapus pikiranku.
 
 Ini tidak akan berhasil, Aku menjadi terlalu sentimental.
 
 Bagaimanapun, itu pasti situasi yang parah bagi Ririnrara dan Pangeran Sarius.
-
- 
 
 Masalahnya adalah bagaimana Aku harus bertindak.
 
@@ -70,121 +60,87 @@ Dia tidak lagi punya alasan untuk menyembunyikan identitasnya kepada Pangeran Sa
 
 Begitu Ririnrara, Pangeran Sarius, dan Mistome-shi pergi, Zoltan tidak lagi menjadi perhatian.
 
-Bahkan jika Mistome-shi adalah pahlawan Zoltan… bahkan jika seluruh pasukan Zoltan menjadi sekutu Mistome-shi, hasilnya mungkin tidak akan berubah.
+Bahkan jika Mistome-shi adalah pahlawan Zoltan... bahkan jika seluruh pasukan Zoltan menjadi sekutu Mistome-shi, hasilnya mungkin tidak akan berubah.
 
 Tapi jika itu kami ...
 
- 
-
-Ups.
-
- 
+g"Ups."
 
 Ketika Aku menarik tali pancing ke atas, ada seekor ikan kecil yang tertangkap di kail.
 
- 
-
-"Jadi pancing seperti ini masih bisa menangkap sesuatu sesekali… kurasa aku bisa menggunakannya untuk sup."
-
- 
+g"Jadi pancing seperti ini masih bisa menangkap sesuatu ya... kurasa aku bisa menggunakannya untuk sup."
 
 Aku mengambil ikan dari kailnya dan memasukkannya ke dalam kantong air.
 
-Aku menghabiskan waktu dengan cara yang Anda tidak akan mengira armada Veronian mendekat.
+Aku menghabiskan waktu dengan cara seperti tidak akan mengira armada Veronian mendekat.
 
 Namun.
 
- 
-
 Meskipun begitu, apa lagi yang harus Aku lakukan?
 
- 
+Ya, Aku bukannya tidak suka Mistome-shi, Pangeran Sarius atau Ririnrara.
 
-Ya, Aku tidak suka Mistome-shi, Pangeran Sarius atau Ririnrara.
-
-Jika Anda bertanya apakah Aku merasa tidak apa-apa melihat mereka mati, Aku akan berkata bahwa Aku akan merasa sangat sedih sehingga Aku akan merasa mual.
+Jika kamu bertanya apakah Aku merasa tidak apa-apa melihat mereka mati, Aku akan berkata bahwa Aku akan merasa sangat sedih sehingga Aku akan merasa sakit.
 
 Namun, lawannya adalah Kerajaan Veronia yang terhubung dengan Tentara Raja Iblis dan Ratu Leonor.
 
 Seolah-olah dunia mempersiapkan pertempuran tepat di depan kami meskipun pilihan kami untuk berhenti melawan Tentara Raja Iblis ... Aku tidak bisa menghilangkan gagasan seperti itu.
 
-Seolah-olah kita bertarung di sini, kita akan diseret kembali ke pertempuran untuk menyelamatkan dunia…
+Seolah-olah jika kita bertarung di sini, kita akan diseret kembali ke pertempuran untuk menyelamatkan dunia...
 
-"Merah."
-
- 
+l"red."
 
 Aku mendengar panggilan Lit.
 
 Melihat ke belakang, Aku melihat Lit dengan kakao susu yang mengepul di kedua tangannya.
 
- 
+l"Apakah kamu menangkap sesuatu?"
 
-"Apakah kamu menangkap sesuatu?"
-
-"Satu ikan kecil."
-
- 
+g"Satu ikan kecil."
 
 Lit duduk di sampingku.
 
 Kakao susu yang dia berikan kepadaku hangat berkat sihir Lit dan kehangatan perlahan menyebar ke seluruh tubuhku saat aku memancing di samping sungai musim dingin.
 
- 
+g"Hou."
 
-Hou.
+l"Apakah itu enak?"
 
-"Apakah itu bagus?"
+g"Yup, ini enak."
 
-"Yup, ini enak."
+l"Benarkah? Aku sudah berlatih selama ini."
 
-"Baik? Aku sudah berlatih selama ini. "
+g"Latihan?"
 
-"Latihan?"
-
-"Meskipun teh dan coklat yang dibuat Red enak, ada kalanya Red mungkin ingin minuman yang dibuat oleh orang lain. Aku ingin menjadikannya untuk Red untuk saat-saat itu. "
-
- 
+l"Meskipun teh dan coklat yang dibuat Red enak, ada kalanya Red mungkin ingin minuman yang dibuat oleh orang lain. Aku ingin membuatnya untuk Red untuk saat-saat itu."
 
 Aku menyesap lagi kakao susu.
 
-Rasa manis lembut menyelimuti hawa dingin dan menghangatkan tubuh Aku.
+Rasa manis lembut menyelimuti hawa dingin dan menghangatkan tubuhku.
 
- 
-
-"Sangat lezat."
-
- 
+g"Sangat lezat."
 
 Aku merasakan otot ekspresi wajah yang tegang di sekitar mulut Aku mengendur.
 
 Lit dan aku duduk bersama saat kami melihat sungai dan kapal Ririnrara di kejauhan.
 
- 
+l"red."
 
-"Merah."
+g"ada apa?"
 
-"Apa itu?"
+l"Seperti yang kamu katakan padaku sebelumnya, hidup yang santai bukanlah cara hidup yang mengikat."
 
-"Seperti yang kamu katakan padaku sebelumnya, hidup yang lambat bukanlah cara hidup yang mengikat."
+g"insiden Shisandan ya?"
 
-"Selama insiden Shisandan ya?"
-
-"Kali ini aku akan mengatakannya padamu. Kehidupan lambat kita tidak dimaksudkan untuk menerima sesuatu. Bukankah kehidupan lambat yang kita harapkan adalah kecepatan yang paling kita nikmati dan menjalani hidup tanpa penyesalan? "
-
- 
+l"Kali ini aku akan mengatakannya padamu. Kehidupan santai kita tidak dimaksudkan untuk menerima sesuatu. Bukankah kehidupan santai yang kita harapkan adalah kehidupan yang paling kita nikmati dan menjalani hidup tanpa penyesalan?"
 
 Pundak Lit menyentuh pundakku.
 
 Pupil biru langitnya menatap mataku dan dia tersenyum dengan bibir manisnya.
 
- 
+l"Mari kita pikirkan saat itu terjadi. Jika pertempuran mengejar kita, kita bisa menghadapinya, atau kita bisa melarikan diri atau mengabaikannya jika itu merepotkan. Jika saatnya tiba, lakukan saja apa yang ingin kamu lakukan. Tidakkah kamu akan merasa buruk jika meninggalkan penyesalan saat menjalani kehidupan yang santai?"
 
-"Mari kita pikirkan saat itu terjadi. Jika pertempuran mengejar kita, kita bisa mengalahkannya, atau kita bisa melarikan diri atau mengabaikannya jika itu merepotkan. Jika saatnya tiba, lakukan saja apa yang ingin Anda lakukan. Tidakkah kamu akan merasa buruk jika meninggalkan penyesalan saat menjalani kehidupan yang lambat? "
-
-"… Itu benar, kamu benar, Lit."
-
- 
+g"... Itu benar, kamu benar, Lit."
 
 Aku menarik kail dari sungai.
 
@@ -194,25 +150,17 @@ Ikan yang bahkan tidak melihat umpan ketika berada di kail dengan cepat mengunya
 
 Ikan yang pintar.
 
- 
+g"Tapi, kamu benar-benar tahu apa yang menggangguku."
 
-"Namun demikian, kamu benar-benar tahu apa yang menggangguku."
-
-"Tentu saja. Bagaimanapun juga kau adalah Merahku. "
-
- 
+l"Tentu saja. Bagaimanapun juga kau adalah redku."
 
 Lit tersenyum, menunjukkan giginya yang putih.
 
- 
+l"Selain itu, secara pribadi aku marah atas apa yang Leonor lakukan. Sayang sekali jika aku tidak bisa langsung menghajarnya!"
 
-"Selain itu, secara pribadi aku marah atas apa yang Leonor lakukan. Sayang sekali jika aku tidak bisa langsung menghajarnya! "
+g"Begitu... Terima kasih, Lit."
 
-"Begitu… Terima kasih, Lit."
-
- 
-
-Aku teringat saat Aku menatap peta dan memikirkan rencana pertempuran sendiri ketika Aku berada di pesta pahlawan.
+Aku teringat saat Aku menatap peta dan memikirkan rencana pertempuran sendiri ketika Aku berada di tim pahlawan.
 
 Pada saat itu, Aku memiliki banyak sekali item sihir, gelar Ksatria Bahamut, dan teman heroik yang bisa menggerakkan bangsa.
 
@@ -220,27 +168,17 @@ Aku tidak lagi memiliki semua itu.
 
 Sekarang, Aku hanya memiliki pedang tembaga murahan di tangan, seorang kekasih untuk dipeluk, seorang adik perempuan yang manis dan seorang teman yang dapat diandalkan.
 
-Hei, bukankah pilihan Aku lebih dapat diandalkan sekarang?
+Hei, bukankah pilihanku lebih dapat diandalkan sekarang?
 
- 
+Aku berdiri dengan pedang di pinggangku.
 
-Aku berdiri dengan pedang di pinggang Aku.
+g"Ayo pergi ke Ruti."
 
- 
+l"Baik!"
 
-"Ayo pergi ke Ruti."
-
-"Baik!"
-
- 
-
-Lit dan aku berjalan berdampingan saat kami menuju ke Distrik Pusat tempat parliamant Zoltan ditahan.
-
- 
+Lit dan aku berjalan berdampingan saat kami menuju ke Distrik Pusat tempat rapat Zoltan diadakan.
 
 ☆☆
-
- 
 
 Ketika kami sampai di gedung parlemen, para penjaga membiarkan kami lewat dengan lancar tanpa perselisihan.
 
@@ -248,20 +186,12 @@ Nah, itu wajar.
 
 Pahlawan Lit ada di sini.
 
- 
+"Red-san. Aku melihatmu bertarung dengan Albert. Tolong ajari aku berpedang suatu hari nanti."
 
-"Red-san. Aku melihat Anda bertarung dengan Albert. Tolong ajari aku pedang suatu hari nanti. "
+g"Eh?"
 
-"Eh?"
+Seorang penjaga muda memberi hormat ke arahku.
 
- 
-
-Seorang penjaga muda memberi hormat ke arah Aku.
-
- 
-
-"Semua orang tahu tentang kualitas baik Anda."
-
- 
+l"Semua orang sudah tahu tentang kualitasmu."
 
 Lit berkata dan tersenyum bahagia.
