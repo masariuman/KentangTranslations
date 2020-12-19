@@ -136,32 +136,24 @@ Pangeran Sarius membayar kompensasi atas serangan di distrik pelabuhan seperti y
 
 Untuk membantu pangeran dari kekuatan besar, Zoltan mengusulkan konsesi sederhana, seperti untuk mengisi kembali persediaan mereka dan membiarkan angkatan laut mereka memasuki Distrik Pelabuhan, dan upacara penandatanganan resmi yang juga akan berfungsi sebagai pesta akan berlangsung hari ini. dari siang hari.
 
-"Dan di tempat terpisah dari tempat Pangeran Sarius dan yang lainnya berada, angkatan laut reguler juga akan mengadakan buffet. Aku mengangkut jeruk ini ke sana untuk digunakan. "
+g"Dan di tempat terpisah dari tempat Pangeran Sarius dan yang lainnya berada, angkatan laut reguler juga akan mengadakan buffet. Aku mengangkut jeruk ini untuk digunakan disana."
 
 "Tapi kenapa Red-oniichan melakukannya?"
 
-"Aku juga heran kenapa… sebenarnya, aku akan membuat sesuatu juga."
+g"Entahlah... sebenarnya, aku akan membuat sesuatu juga."
 
 "Betulkah!?"
-
- 
 
 Aku memiringkan kepalaku sambil tersenyum kecut.
 
 Aku adalah pemilik Apoteker, bukan seorang juru masak.
 
- 
-
 "Tapi masakan Red-oniichan enak jadi semua orang pasti suka!"
 
-"Itu akan bagus."
-
- 
+g"semoga saja."
 
 Meski disembuhkan oleh senyum polos Tanta, aku tak bisa menyembunyikan kegelisahanku memasuki wilayah asing dengan memamerkan masakanku kepada banyak orang.
 
 Perutku sakit.
 
- 
-
-Tentang kenapa jadi begini… Aku harus memutar ulang ceritanya sedikit.
+Tentang kenapa jadi begini... Aku harus memutar ulang ceritanya sedikit.
