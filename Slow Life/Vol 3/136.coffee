@@ -4,53 +4,39 @@ Pada hari kami mengembalikan Ririnrara kepada Pangeran Sarius.
 
 Setelah itu, kami meninggalkan Misufia, Pangeran Sarius, dan Ririnrara di kamar dan turun ke aula penginapan tempat para pelaut berada.
 
-Para prajurit tampaknya sedang makan bergiliran di sana saat mereka makan sup dan roti.
+Para prajurit tampaknya sedang antri makanan di sana untuk makan sup dan roti.
 
- 
-
-"Aku merasa lapar."
-
- 
+g"Aku merasa lapar."
 
 Di luar sudah gelap.
 
-Aku pergi untuk mengantarkan obat ke klinik Newman pada siang hari, bertengkar dengan Ririnrara di sepanjang jalan, membawanya ke rumah Ruti, yang disebut Misufia dan yang lainnya, Pangeran Sarius menyerang dan kami membawa Ririnrara dan yang lainnya ke sini.
+Aku pergi untuk mengantarkan obat ke klinik Newman pada siang hari, melawan Ririnrara di perjalanan, membawanya ke rumah Ruti, membawa Misufia dan yang lainnya, Pangeran Sarius menyerang dan kami membawa Ririnrara dan yang lainnya ke sini.
 
-Hari ini cukup sibuk.
+Hari ini cukup menyibukkan.
 
 Aku ingin bersantai besok.
 
- 
+"ou, apa kamu lapar?"
 
-"Aduh, apa kamu lapar?"
-
- 
-
-Seorang prajurit ... seorang pria yang tampaknya setengah Manusia-setengah High Elf memanggil kami.
+Seorang prajurit ... seorang pria yang tampaknya setengah Manusia-setengah-High Elf memanggil kami.
 
 Terlepas dari ujung telinganya yang sedikit runcing, dia tampak persis seperti manusia. Ciri-ciri tubuhnya hampir seluruhnya manusia.
 
-Dia mungkin memiliki High Elf di generasi kakek buyutnya.
+Dia mungkin memiliki gen High Elf dari generasi kakek buyutnya.
 
 Kulit kecokelatan dan kasarnya jelas terlihat seperti seorang pelaut, tetapi wajahnya yang tanpa kerutan dan mata dingin yang tidak sesuai dengan warna kulitnya menunjukkan sisa-sisa High Elf.
 
-Lelaki itu memelototi kami dengan penuh permusuhan saat lawan yang menangkap Ririnrara saat kami kembali ke aula, tetapi setelah bawahan Ririnrara yang ditangkap bersamanya menjelaskan rekonsiliasi, dia menjadi sangat ramah.
+Lelaki itu memelototi kami sebagai musuh yang menangkap Ririnrara saat kami datang, tetapi setelah bawahan Ririnrara yang ditangkap bersamanya menjelaskan situasinya, dia menjadi sangat ramah.
 
- 
+g"Ya, aku tidak makan apa-apa sejak tengah hari."
 
-"Ya, aku tidak makan apa-apa sejak tengah hari."
-
-"Apakah begitu? Lalu kamu bisa mendapatkan ini jika kamu setuju? "
-
- 
+"begitukah? kamu bisa makan ini jika kamu tidak masalah dengan makanan ini."
 
 Pria itu berkata sambil menunjuk sup di atas meja.
 
 Masakan angkatan laut Veronia ya?
 
 Karena permusuhan antara Kerajaan Veronia dan Kerajaan Avalonia, Aku tidak pernah mencicipi masakan angkatan laut Veronia. Aku sangat penasaran bagaimana rasanya.
-
- 
 
 Aku akan mengambil beberapa dalam kasus itu.
 
