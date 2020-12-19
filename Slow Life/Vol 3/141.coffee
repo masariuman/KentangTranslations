@@ -74,31 +74,23 @@ Taktik yang disebut sebagai kapal ledakan dan membakar itu tidak jarang sehingga
 
 Jika mereka pindah ke darat di pantai dan menyerang Zoltan, dia akan mengambil kesempatan untuk mengirim kapal dan menghancurkan kapal mereka. Tentara Veronia tidak mampu untuk menurunkan tentara selama ada ancaman dari kapal pemadam kebakaran.
 
-Dibandingkan dengan Kerajaan Veronia, Republik Zoltan adalah negara kecil yang tak tertandingi.
+Dibandingkan dengan Kerajaan Veronia, Republik Zoltan adalah negara kecil yang tidak dapat dibandingkan.
 
-Ini adalah perang yang pasti akan menang dimana Veronia tidak mungkin kalah.
+Ini adalah perang dimana Veronia pasti menang.
 
-Karena itu, daripada memikirkan apakah kami bisa menang melawan Veronia, kami harus memikirkan metode seperti apa yang memiliki peluang terbaik untuk menang. Karena Leonor tidak dapat menggunakan angkatan laut yang dipimpin oleh putra Ririnrara, dia mungkin mengumpulkan tentara bayaran.
+Karena itu, daripada memikirkan apakah kami bisa menang melawan Veronia, kami harus memikirkan metode seperti memiliki peluang terbaik untuk menang. Karena Leonor tidak dapat menggunakan angkatan laut yang dipimpin oleh putra Ririnrara, dia mungkin mengumpulkan tentara bayaran.
 
-Tentara bayaran dikenal sangat menjaga hidup mereka sendiri karena memenangkan pertempuran.
+Tentara bayaran dikenal sangat menjaga hidup mereka sendiri untuk memenangkan pertempuran.
 
 Singkatnya, Veronia harus memenangkan kemenangan total tanpa kehilangan satu pun kapal perang.
 
 Jika kondisi kemenangan sama, itu adalah pertempuran tanpa peluang menang tetapi jika berbeda, ada peluang.
 
- 
-
-"Ini adalah strategi yang menakjubkan melawan psikologi lawan. Sigh, sayang sekali jika Hero Lit menjadi istri apoteker… ups, aku tidak sopan. "
-
- 
+"Ini adalah strategi yang menakjubkan melawan psikologi lawan. haaaa, sayang sekali jika Pahlawan Lit menjadi istri apoteker... ups, aku tidak sopan."
 
 Tonedo buru-buru menarik kembali kata-katanya setelah aku memelototinya.
 
- 
-
-"Tapi Walikota. Aku yakin kamu tidak menyukai Mistome-san. "
-
- 
+g"Tapi Walikota. Aku yakin kamu tidak menyukai Mistome-san."
 
 Cara Tonedo melakukan sesuatu sebagai walikota bertentangan dengan semua yang dilakukan Mistome-san.
 
@@ -106,45 +98,35 @@ Mistome-san akan menyelesaikan semuanya dengan mengumpulkan semua informasi dan 
 
 Walikota Tonedo mengubah segalanya tanpa meninggalkan jejak sistem yang dibuat oleh Mistome-san.
 
-"Aku tidak menyalahkan Kamu karena berpikir seperti itu. Sejujurnya Aku tidak memuji cara Mistome-shi sebagai politisi. "
-
- 
+"Aku tidak menyalahkanmu karena berpikir seperti itu. Sejujurnya Aku tidak memuji cara Mistome-shi sebagai politisi."
 
 Walikota Tonedo dengan jujur ​​mengakuinya.
 
- 
+"Sebuah negara yang diatur oleh kekuatan seorang pahlawan itu rapuh. Itu tidak bisa disebut negara yang dibangun dengan kekuatannya sendiri. Filosofiku adalah bahwa tidak sedikit orang kuat yang melindungi negara tetapi semua warganya."
 
-"Sebuah negara yang diatur oleh kekuatan seorang pahlawan adalah rapuh. Itu tidak bisa disebut negara yang dibangun dengan kekuatannya sendiri. Filosofi Aku adalah bahwa tidak sedikit orang kuat yang melindungi negara tetapi semua warganya. "
+l"Karena perlindungan ilahi memiliki ketidaksetaraan, wajar jika minoritas yang unggul akan mendominasi. Itu cara berpikir yang tidak biasa."
 
-"Karena berkat ilahi memiliki ketidaksetaraan, wajar jika minoritas yang unggul akan mendominasi. Itu cara berpikir yang tidak biasa. "
-
-"Bahkan pahlawan memiliki hak untuk menikmati kebahagiaan normal, bukankah kamu setuju? Baiklah… "
-
- 
+g"Bahkan pahlawan memiliki hak untuk menikmati kebahagiaan normal, bukankah kamu setuju?"
 
 Walikota Tonedo menyela.
 
- 
+"Kalian berdua tampaknya bisa menjaga rahasia jadi aku bisa memberitahumu."
 
-"Kalian berdua tampak bungkam jadi aku bisa memberitahumu."
+g"Apakah ada sesuatu?"
 
-Apakah ada sesuatu?
+"Tidak ada yang serius. Yah, ini masalah serius bagiku tapi yah, aku mungkin mati dalam pertempuran ini. Jika Aku meninggalkan satu hal yang memalukan, Aku akan menjadi bahan tertawaan."
 
-"Tidak ada yang serius. Yah, ini masalah serius bagiku tapi yah, aku mungkin mati dalam pertempuran ini. Jika Aku meninggalkan satu hal yang memalukan, Aku akan menjadi bahan tertawaan. "
+g"Kamu mengada-ngada."
 
-"Kamu bertele-tele."
+"Ahaha, Red-san, aku memikirkannya sekali lagi setelah aku melihat Pahlawan Lit dan kamu."
 
-"Ahaha, Red-san, aku memikirkannya sekali lagi setelah aku melihat Hero Lit dan kamu."
-
-"Lit dan aku?"
+g"Lit dan aku?"
 
 "Jika aku telah menyingkirkan beban di pundak Mistome-shi lebih awal ... Aku mungkin akan melamarnya."
 
-"Eh, kamu melamar Mistome-san?"
+g"Eh, kamu melamar Mistome-san?"
 
-"Ini sudah lama sekali ketika Aku masih muda. Saat itu Mistome-shi sudah melebihi umurku tapi dia wanita yang menawan. Bahkan sekarang dia masih menawan. Yah, seorang akuntan di Merchant's Guild tidak akan bisa menyamai seorang pahlawan. "
-
- 
+"Ini sudah lama sekali ketika Aku masih muda. Saat itu Mistome-shi sudah melebihi umurku tapi dia wanita yang menawan. Bahkan sekarang dia masih menawan. Yah, seorang akuntan di Guild Merchant tidak akan bisa menyamai seorang pahlawan."
 
 Walikota Tonedo tertawa karena malu.
 
@@ -154,33 +136,25 @@ Apa pun yang terjadi di negara kecil ini tidak akan pernah muncul dalam buku sej
 
 Meski begitu, ada banyak orang yang tinggal di sana bersama dengan kisah-kisah kehidupan banyak orang.
 
- 
-
 Karena itu, tidak heran jika kami memilih untuk bertarung seperti ini.
 
- 
-
 ☆☆
-
- 
 
 "Ada ketapel di belakang gudang! Yang dari 45 tahun lalu! "
 
 "Bisakah mereka tetap bekerja?"
 
- 
-
 Zoltan sedang membuat persiapan.
 
-Distrik Pelabuhan dan tembok kota dilapisi dengan tentara dan milisi dengan busur dan lembing.
+Distrik Pelabuhan dan tembok kota dipenuhi dengan tentara dengan busur dan Javelin yang berbaris.
 
-Javelin adalah senjata paling umum yang digunakan oleh milisi di Benua Avalon.
+Javelin adalah senjata paling umum yang digunakan oleh militer di Benua Avalon.
 
-Keterampilan melempar adalah keterampilan umum dan bahkan pemilik perlindungan ilahi khusus non-pertempuran biasanya telah mengalokasikan poin keterampilan untuk meningkatkan tingkat perlindungan ilahi mereka.
+skill melempar adalah skill umum dan bahkan pemilik perlindungan ilahi khusus non-pertempuran biasanya telah mengalokasikan poin skill untuk meningkatkan tingkat perlindungan ilahi mereka.
 
-Itu adalah pertandingan yang buruk untuk bertarung melawan pasukan biasa yang terdiri dari perlindungan ilahi yang berorientasi pada pertempuran tetapi tidak seperti busur atau busur yang menempati kedua tangan, mereka dapat bertarung sambil memegang perisai sehingga mereka dapat memainkan peran aktif dalam pertempuran jarak jauh sampai tingkat tertentu.
+Itu adalah pertandingan yang buruk untuk bertarung melawan pasukan biasa yang terdiri dari perlindungan ilahi yang berorientasi pada pertempuran tetapi tidak seperti panah atau crossbow yang memakai kedua tangan, mereka dapat bertarung sambil memegang perisai sehingga mereka dapat memainkan peran aktif dalam pertempuran jarak jauh sampai tingkat tertentu.
 
-Kali ini, karena ada tembok kastil, meskipun tembok itu tidak bisa diandalkan yang bisa dengan cepat diubah skalanya, itu pasti merepotkan pasukan Veronia.
+Kali ini, karena ada tembok istana, meskipun tembok itu tidak bisa diandalkan yang bisa dengan cepat hancur, itu pasti merepotkan pasukan Veronia.
 
 Di sungai, selain dua kapal karavel tentara Zoltan, ada perahu kecil komersial lainnya yang membawa tentara.
 
