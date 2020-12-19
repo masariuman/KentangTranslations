@@ -148,31 +148,19 @@ Setelah itu Aku tambahkan air dan garam dan direbus. Saat mencicipi sup, Aku men
 
 Itu adalah sup sederhana yang membutuhkan waktu kurang dari 20 menit untuk menyelesaikannya termasuk waktu persiapannya.
 
-Terakhir, Aku mengukir peterseli dan membiarkannya mengapung di atas sup dan itu lengkap.
+Terakhir, Aku memotong daun sup dan membiarkannya mengapung di atas sup dan semuanya selesai.
 
- 
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Aku bisa mencium bau harum sayuran ketika Aku menuangkannya ke dalam mangkuk.
 
- 
+"Oo, biarkan aku mencobanya juga."
 
-"Oo, biarkan aku juga."
+g"Tentu, Aku membuat cukup untuk sekitar 20 mangkuk."
 
-Tentu, Aku membuat cukup untuk sekitar 20 mangkuk.
+Kurt mengambil mangkuk yang kuberikan dan langsung merasakannya bahkan tanpa pergi ke aula.
 
- 
-
-Kurt mengambil mangkuk yang kuberikan dan menyesap di tempat bahkan tanpa pergi ke aula.
-
- 
-
-"Lezat!!"
-
- 
+"Enak!!"
 
 Kehidupan di kapal perang begitu parah hingga tak tertahankan bagi orang biasa.
 
