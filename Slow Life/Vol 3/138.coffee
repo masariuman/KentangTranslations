@@ -6,47 +6,33 @@ Pelabuhan Zoltan dibangun di dekat muara sungai dan lebih kecil dibandingkan den
 
 Sementara kapal kargo kecil bisa berlabuh di dekat dermaga yang membentang dari pelabuhan, kapal besar dan kapal militer yang membawa ratusan tentara harus tetap di turun pantai tanpa memiliki pilihan untuk memasuki sungai.
 
-Banyak perahu dayung kecil yang berisi material bergerak menuju dapur militer Ririnrara yang mengapung lebih jauh di laut dari muara sungai.
+Banyak perahu dayung kecil yang berisi material bergerak menuju gali militer Ririnrara yang mengapung lebih jauh di laut dari muara sungai.
 
-"Sepertinya masalah serius."
+g"Sepertinya itu masalah serius."
 
-"Itu adalah tugas yang berat setiap saat. Melihatnya sebagai penonton benar-benar membuat Aku kagum bagaimana Aku bisa bekerja seperti itu. "
+"Itu adalah tugas yang berat setiap saat. Melihatnya sebagai penonton benar-benar membuatku kagum bagaimana Aku bisa bekerja seperti itu."
 
- 
+Ririnrara menjawab ucapanku.
 
-Ririnrara menjawab ucapan Aku.
+g"Mereka melakukan pekerjaan dengan baik dalam melayani kapal di laut tanpa menggunakan sihir."
 
- 
+"begitulah, alangkah baiknya jika kami bisa memperbaiki kapal kapan saja menggunakan sihir dan skill."
 
-"Mereka melakukan pekerjaan dengan baik dalam melayani kapal di laut tanpa menggunakan sihir."
-
-"Bisa dikatakan, alangkah baiknya jika kita bisa memperbaiki kapal kapan saja menggunakan sihir dan skill."
-
- 
-
-Kapal Ririnrara adalah sebuah dapur yang ditenagai bukan oleh manusia tetapi oleh kayu bakar. Drafnya dangkal dan rentan terhadap laut yang ganas.
+Kapal Ririnrara adalah sebuah gali yang ditenagai bukan oleh manusia tetapi oleh kayu bakar. Drafnya dangkal dan rentan terhadap laut yang ganas.
 
 Karena kapal terus berlayar dari Veronia ke Zoltan, kapal itu harus dirawat dengan baik sebelum kembali ke rumah.
 
- 
+g"Jadi, biasanya kamu harus ada di sana memberi perintah dengan keringat di kepalamu bersama Pangeran Sarius tapi kenapa kamu santai saja memancing di sini?"
 
-"Jadi, biasanya kamu harus ada di sana memberi perintah dengan keringat di kepalamu bersama Pangeran Sarius tapi kenapa kamu santai saja memancing di sini?"
+Ririnrara berada di sudut pelabuhan agak jauh dari tentara Veronia yang sibuk melakukan pekerjaan mereka sementara dia santai dengan kail dan pancing... atau lebih tepatnya dia sedang memancing.
 
- 
+"Semua ilmu yang Aku miliki sebagai nakhoda kapal sudah terbawa ke Sarius. Dia bisa menjadi bajak laut hebat yang namanya tercatat dalam sejarah. Tidak akan ada masalah."
 
-Ririnrara berada di sudut pelabuhan agak jauh dari tentara Veronia yang sibuk melakukan pekerjaan mereka sementara dia santai dengan kail dan pancing… atau lebih tepatnya dia sedang memancing tanpa sadar.
+g"Pangeran menjadi bajak laut? Geyserik adalah malah kebalikannya."
 
- 
+"Haha, terbalik ya. Itu benar."
 
-"Semua ilmu yang Aku miliki sebagai nakhoda kapal sudah terbawa ke Sarius. Dia harus bisa menjadi bajak laut hebat yang namanya tercatat dalam sejarah. Tidak akan ada masalah. "
-
-"Pangeran menjadi bajak laut? Geyserik adalah kebalikannya. "
-
-"Haha, mundur ya. Itu benar."
-
-"Kembali ke topik, mengapa kamu memiliki ekspresi lesu seperti itu?"
-
- 
+g"Kembali ke topik, mengapa kamu memiliki ekspresi lesu seperti itu?"
 
 Ririnrara perlahan berbalik ke arahku.
 
@@ -54,127 +40,95 @@ Dengan penutup mata menutupi luka besar yang melintang di salah satu matanya, wa
 
 Ririnrara saat ini tampak lebih tidak bisa diandalkan dibandingkan dengan Oparara dari warung oden.
 
- 
-
 "Apakah kamu datang jauh-jauh ke sini untuk memberitahuku itu?"
 
-"Agak."
+g"begitulah."
 
 "Kamu orang yang usil."
 
- 
-
 Dia secara terbuka menunjukkan wajah jijik.
 
- 
+g"Aku juga sedikit lelah mencoba menghibur seorang bajak laut legendaris, yang telah hidup lebih lama dariku, sedih oleh sesuatu. Bagaimanapun juga, pada dasarnya kamu mencoba membunuhku."
 
-"Aku juga sedikit lelah mencoba menghibur seorang bajak laut legendaris, yang telah hidup lebih lama dari Aku, sedih oleh sesuatu. Bagaimanapun juga, pada dasarnya kamu mencoba membunuhku. "
+"Aku hanya mencoba menangkapmu. Sheesh, kamu orang yang menarik. Kalau begitu, kamu bisa saja meninggalkanku sendiri."
 
-"Aku hanya mencoba menangkapmu. Sheesh, kamu orang yang menarik. Kalau begitu, kamu bisa saja meninggalkanku sendiri. "
+g"Aku tidak akan mengatakan apa-apa jika kalian berencana untuk menjalani kehidupan yang santai di kota lain tanpa kembali ke Veronia tapi kalian berencana untuk kembali ke Veronia untuk mempertahankan posisi Pangeran Sarius setelah kehilangan posisinya untuk tahta. Apalagi kamu berencana untuk mengubah Kerajaan Veronia yang telah disusupi oleh Tentara Raja Iblis, dengan kata lain, itu akan menjadi perang saudara. Perang yang tidak menguntungkan dengan prospek kekalahan yang tinggi dan perang saudara melawan rekan senegaranya adalah perang yang melemahkan hati."
 
-"Aku tidak akan mengatakan apa-apa jika kalian berencana untuk menjalani kehidupan yang lambat di kota lain tanpa kembali ke Veronia tapi kalian berencana untuk kembali ke Veronia untuk mempertahankan posisi Pangeran Sarius setelah kehilangan posisinya untuk tahta. Apalagi kamu berencana untuk mengubah Kerajaan Veronia yang telah disusupi oleh Tentara Raja Iblis, dengan kata lain, itu akan menjadi perang saudara. Perang yang tidak menguntungkan dengan prospek kekalahan yang tinggi dan perang saudara melawan rekan senegaranya adalah perang yang melemahkan hati. "
+"Kamu berbicara seolah-olah Kamu pernah mengalaminya. Seberapa banyak pengalaman yang telah Kamu kumpulkan di usia muda itu."
 
-"Kamu berbicara seolah-olah Kamu mengalaminya sendiri. Seberapa banyak pengalaman yang telah Kamu kumpulkan di usia muda itu. "
-
-"Kamu tidak perlu peduli dengan keadaan Aku."
+g"Kamu tidak perlu peduli dengan keadaanku."
 
 "Tidak, Aku tertarik."
-
- 
 
 Aku melihat mata tunggal Ririnrara tampaknya telah mendapatkan kembali kekuatannya.
 
 Aku memiliki firasat bahwa Aku melakukan sesuatu yang tidak perlu.
 
- 
-
-"Aku tidak bermaksud menggunakan identitas Kamu sebagai kartu untuk negosiasi atau memberi tahu siapa pun. Ini hanya minat pribadi Aku. "
-
- 
+"Aku tidak bermaksud menggunakan identitasmu sebagai kartu untuk negosiasi atau memberi tahu siapa pun. Ini hanya minat pribadi Aku."
 
 Ririnrara meraih lenganku dan dengan paksa menarikku ke arahnya.
 
- 
-
 "Pertama-tama, Red. Apakah kamu manusia? "
 
-"Kasar."
+g"Kasarnya."
 
-"Kenapa pria sepertimu memiliki wajah yang begitu tenang. Seorang Hero akan selalu mengejar mimpi yang mustahil dan selalu menunjukkan ekspresi yang tegang. Apakah perlindungan ilahi di dalam Kamu adalah perlindungan yang terus menerus mencurahkan dan mengisi kembali sumber ambisi para pahlawan yang tak ada habisnya? "
+"Kenapa pria sepertimu memiliki wajah yang begitu tenang. Seorang pahlawan akan selalu mengejar mimpi yang mustahil dan selalu menunjukkan ekspresi yang tegang. Apakah perlindungan ilahimu adalah perlindungan yang terus menerus mencurahkan dan mengisi kembali sumber ambisi para pahlawan yang tak ada habisnya?"
 
-"Aku tidak akan mengatakan apapun bahkan jika kamu mencoba menebak. Simpan benang dan kail untukku. "
+g"Aku tidak akan mengatakan apapun bahkan jika kamu mencoba menebak. berikan benang dan kail untukku."
 
-"Aku tidak keberatan tapi Aku tidak menyiapkan pancing apapun."
-
- 
+"Aku tidak keberatan tapi Aku tidak menyiapkan pancing lain."
 
 Aku duduk di samping Ririnrara, menghunus pedang tembaga-ku, dan mengikat benang dan kail ikan ke lubang di ujung sarungnya.
 
- 
+g"Sungguh berguna, bukan?"
 
-"Nyaman, bukan?"
+"Tidak, sarung pedang yang bahkan tidak bisa ditekuk tidak bisa menggantikan pancingan."
 
-"Tidak, sarung pedang yang bahkan tidak bisa ditekuk tidak bisa menggantikan joran."
+g"Ini mungkin tidak cocok untuk memancing tapi ini sudah cukup jika aku hanya ingin menghabiskan waktu sambil memandangi sungai dengan santai."
 
-"Ini mungkin tidak cocok untuk memancing tapi itu cukup jika aku hanya ingin menghabiskan waktu sambil memandangi sungai dengan santai."
+"Hidup manusia itu pendek. Itulah mengapa kami menganggap manusia sebagai ras yang membakar hidup mereka untuk mencapai prestasi yang sama seperti High-Elf dalam jangka waktu yang singkat."
 
-"Hidup manusia itu pendek. Itulah mengapa kami menganggap manusia sebagai ras yang membakar hidup mereka untuk mencapai prestasi yang sama seperti High-Elf dalam jangka waktu yang singkat. "
-
-"Tidak semua orang hidup demi prestasi. Ada juga beberapa yang hanya ingin dirinya dan orang yang mereka cintai bahagia. "
+g"Tidak semua orang hidup demi prestasi. Ada juga beberapa yang hanya ingin dirinya dan orang yang mereka cintai bahagia."
 
 "Dan kamu salah satunya?"
 
-"Lumayan lah menunggu ikan yang tidak bisa Aku tangkap sambil dengan santai melihat aliran sungai. Meskipun memancing tidak akan menghasilkan pencapaian besar, itu tidak mengubah fakta bahwa waktu yang dihabiskan untuk memancing itu menyenangkan. "
-
- 
+g"tidak buruk juga menunggu ikan yang tidak bisa Aku tangkap sambil dengan santai melihat aliran sungai. Meskipun memancing tidak akan menghasilkan pencapaian besar, itu tidak mengubah fakta bahwa waktu yang dihabiskan untuk memancing itu menyenangkan."
 
 Ririnrara mengangkat bahunya.
 
-Aku tersenyum kecut dan menunjuk ujung pancing Ririnrara.
+Aku tersenyum dan menunjuk ujung pancing Ririnrara.
 
- 
-
-"Kalau begitu, bagaimana denganmu? Berapa lama Kamu berencana untuk tetap merendam tali pancing saat umpan sudah diambil. "
+g"Kalau begitu, bagaimana denganmu? Berapa lama Kamu berencana untuk tetap merendam tali pancing saat umpan sudah dimakan."
 
 "Apa?"
-
- 
 
 Ririnrara mengangkat pancing dan kail pancing yang umpannya diambil terombang-ambing di udara.
 
 Ririnrara mengerutkan kening dan menusuk cacing tanah lain di kail sebagai umpan segar.
 
- 
+g"Tidak kusangka bahwa bajak laut hebat yang mewakili era bajak laut dari 50 tahun yang lalu kehilangan umpannya."
 
-"Tidak kusangka bahwa bajak laut hebat yang mewakili era bajak laut dari 50 tahun yang lalu akan mendapatkan umpannya yang dicuri."
-
-"Sangat bias mengharapkan semua perompak pandai memancing. Itu hanya diperuntukkan bagi orang-orang yang memiliki berkah ilahi yang mendukung pertempuran laut dan memiliki penglihatan bawah air yang lebih besar. Mereka yang memiliki perlindungan dewa Bajak Laut seperti Aku membutuhkan keterampilan tempur dan keterampilan untuk memanipulasi kapal sehingga tidak ada kelonggaran untuk mendapatkan keterampilan seperti 'Memancing'. "
-
- 
+"tidak semua bajak laut pandai memancing. Itu hanya diperuntukkan bagi orang-orang yang memiliki perlindungan ilahi yang mendukung pertempuran laut dan memiliki penglihatan bawah air yang lebih besar. Mereka yang memiliki perlindungan ilahi Bajak Laut sepertiku membutuhkan skill tempur dan skill untuk memanipulasi kapal sehingga tidak ada celah untuk mendapatkan skill seperti 'Memancing'."
 
 Kail Ririnrara jatuh ke sungai dengan bunyi plop.
 
 Kailnya bergoyang lembut di sungai.
 
-Kami iseng mulai di sungai dengan pancing kami menjulur keluar berdampingan tanpa menangkap apapun.
+Kami dengan diam memandang sungai dengan pancing kami berdampingan tanpa menangkap apapun.
 
 Akhirnya, Ririnrara bergumam.
 
- 
+"Jika, pada saat itu, Aku mengakui semuanya, Aku penasaran apakah tidak akan menjadi seperti ini."
 
-"Jika, pada saat itu, Aku mengakui segalanya, Aku bertanya-tanya apakah tidak akan menjadi seperti ini."
+g"Maksudmu waktu sebelum Misufia meninggalkan Veronia?"
 
-Maksudmu waktu sebelum Misufia meninggalkan Veronia?
+"Jika Aku melakukan itu, Misufia mungkin menerima rencana Sarius dan Leonor tidak akan pernah berhasil. Sekarang sudah terlambat. Aku berpikir mungkin akan menjadi lebih baik juka seperti itu."
 
-"Jika Aku melakukan itu, Misufia mungkin menerima rencana Sarius dan Leonor tidak akan pernah berhasil. Sekarang ketika sudah terlambat, Aku pikir jika mungkin akan menjadi lebih baik seperti itu. "
+g"Dan sekarang kamu khawatir jika pilihan untuk kembali ke Veronia untuk bertarung adalah pilihan yang tepat."
 
-"Dan sekarang kamu khawatir jika pilihan untuk kembali ke Veronia untuk bertarung adalah pilihan yang tepat."
+"Tepat sekali. Aku tidak bisa tidak memikirkannya tetapi Aku juga tidak berniat untuk melarikan diri. Ketika Aku berpikir bahwa itu adalah sesuatu yang akan Aku sesali sekali lagi, Aku ingin berpaling dari masa depan apapun yang terjadi."
 
-"Tepat sekali. Aku tidak bisa tidak memikirkannya tetapi Aku juga tidak berniat untuk melarikan diri. Ketika Aku berpikir bahwa itu adalah sesuatu yang akan Aku sesali sekali lagi, Aku ingin berpaling dari masa depan apapun yang terjadi. "
-
-"Yah, tidak ada cara untuk memilih pilihan yang tepat untuk semuanya tapi… hanya karena Misufia menerimanya sekarang tidak berarti Misufia akan menerimanya di masa lalu."
-
- 
+g"Yah, tidak ada cara untuk memilih pilihan yang tepat tapi... hanya karena Misufia menerimanya sekarang tidak berarti Misufia akan menerimanya di masa lalu."
 
 Waktu yang lama telah berlalu untuk Misufia saat ini sejak keputusasaan yang dia rasakan di masa lalu.
 
