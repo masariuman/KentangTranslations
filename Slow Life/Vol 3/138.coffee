@@ -220,94 +220,58 @@ High-Elf akan mengubah sikap mereka saat mereka tahu orang itu bisa diandalkan.
 
 Sepertinya Aku benar-benar melebihi batas kepercayaannya.
 
- 
+"Sarius sepertinya juga menyukaimu... bagaimana kalai, kapal kami mungkin tenggelam jika menghadapi badai tapi jika berhasil selamat dari badai, kau akan terkenal dan berharga. Jangkauanmu dapat meluas bahkan ke kursi Raja di Kerajaan... apakah Kamu ingin bergabung dengan armadaku? "
 
-"Sarius sepertinya juga menyukaimu… bagaimana kabarmu, kapal kami mungkin tenggelam jika menghadapi badai tapi jika berhasil selamat dari badai, kau akan terkenal dan berharga. Jangkauan Kamu dapat meluas bahkan ke kursi Raja di Kerajaan… apakah Kamu ingin bergabung dengan armada Aku? "
+g"Aku akan menahan diri dari itu. Aku suka hidupku di Zoltan. "
 
-"Aku akan menahan diri dari itu. Aku suka hidup Aku di Zoltan. "
+"Jawaban langsung ya, sayang sekali... oh, tali pancingmu ditarik."
 
-"Jawaban seketika ya, sayang… oh, tali pancingmu ditarik."
-
-"Ah, sepertinya aku menangkap sesuatu yang besar… guh, ini berat."
-
- 
+g"Ah, sepertinya aku menangkap sesuatu yang besar... guh, ini berat."
 
 Pancing yang diikat ke sarung pedangku ditarik kencang.
 
-Karena sarungnya tidak bengkok, tali pancing akan putus begitu ikan meronta-ronta karena guncangan tidak dapat dikurangi.
+Karena sarungnya tidak bengkok, tali pancing akan putus karena ikan meronta-ronta karena guncangan yang tidak dapat dikurangi.
 
-Aku akan memanipulasi tongkat sesuai dengan gerakan ... yah, dalam hal ini, Aku sedang memanipulasi sarungnya.
+Aku akan memanipulasi pancing sesuai dengan gerakan ... yah, dalam hal ini, Aku sedang memanipulasi sarungnya.
 
- 
-
-"Itu sebabnya aku menyuruhmu menggunakan joran yang tepat!"
-
- 
+"Itu sebabnya aku menyuruhmu menggunakan pancingan yang tepat!"
 
 Saat aku berpikir bahwa aku seharusnya mendengarkan kata-kata Ririnrara, aku melihat bayangan biru di sungai.
 
-Eh, itu dia.
+Eh, itu....
 
- 
-
-"... Nah, di sini."
-
- 
+g"... Nah, ini dia."
 
 Aku menegang dan mengangkat kedua lenganku.
 
- 
-
-"Jyaaan!"
-
- 
+r"Jyaaan!"
 
 Itu adalah seorang gadis muda yang muncul di permukaan air dengan sedikit senyuman dan pose.
 
- 
-
 "Apa, kamu !?"
 
- 
-
-Bahkan Ririnrara benar-benar terkejut saat mulutnya terbuka dan tertutup berulang kali.
+Bahkan Ririnrara benar-benar terkejut karena mulutnya terbuka dan tertutup berulang kali.
 
 Memang benar, karena dia tidak memiliki keahlian untuk menangani kapal, lebih cepat baginya untuk berenang.
 
- 
+g"Apakah kamu membutuhkan handuk?"
 
-"Apakah kamu membutuhkan handuk?"
-
-"Tidak masalah."
-
- 
+r"Tidak perlu."
 
 Gadis itu menggelengkan kepalanya untuk tawaranku.
 
-Gadis muda berambut biru yang terlihat puas entah kenapa setelah melihat ekspresi kaget dan bingung Ririnrara adalah… adik perempuanku Ruti.
+Gadis muda berambut biru yang terlihat puas entah kenapa setelah melihat ekspresi kaget dan bingung Ririnrara adalah... adik perempuanku Ruti.
 
 Setelah sampai ke pantai, Ruti menarik nafas dan memfokuskan kekuatannya pada tubuhnya.
 
- 
-
-Panci!
-
- 
+Pan!
 
 Bersamaan dengan suara sesuatu yang meledak, air di tubuhnya berubah menjadi uap halus dan menghilang.
 
- 
+r"Aku tidak apa-apa saja sekarang."
 
-"Aku baik-baik saja sekarang."
+Ruti memastikan pakaian dan tubuhnya benar-benar kering sebelum melihat ke Ririnrara yang sudah benar-benar berhenti berpikir.
 
- 
+r"Angkatan Laut Veronia akan datang. Mereka akan mencapai Zoltan dalam waktu sekitar 16 jam. "
 
-Ruti memastikan pakaian dan tubuhnya benar-benar kering sebelum beralih ke Ririnrara yang sudah benar-benar berhenti berpikir.
-
- 
-
-"Angkatan Laut Veronia akan datang. Mereka akan mencapai Zoltan dalam waktu sekitar 16 jam. "
-
- 
-
-Dia memberitahunya dengan acuh tak acuh.
+Dia memberitahunya dengan cuek.
