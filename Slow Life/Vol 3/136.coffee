@@ -238,19 +238,11 @@ Sambil berpikir bahwa Aku tidak memiliki kewajiban untuk melakukannya, Aku menya
 
 Nah, tujuan memasak adalah untuk menyenangkan orang lain.
 
- 
-
 "Sudah lama sekali aku tidak makan sesuatu yang begitu enak!"
-
- 
 
 Aku dikelilingi oleh tentara Veronia yang merupakan musuh beberapa waktu yang lalu dan menerima banyak pujian.
 
- 
-
 "Lebih penting lagi, sungguh menakjubkan bahwa Kurt membuat lauk yang lezat ini!"
-
- 
 
 Semua orang bisa membuat kentang tumbuk ... tapi hanya orang yang tahu dasar-dasar memasak yang tahu.
 
