@@ -56,33 +56,27 @@ High-Elf mengangkat kedua tangannya sebagai tanda menyerah.
 
 ☆☆
 
-Piring-piring itu berbaris di atas piring-piring.
+Piring-piring berbaris.
 
-Kali ini, dengan gaya prasmanan di mana peserta dapat mengambil apa pun yang mereka suka dari piring.
+Kali ini, dengan gaya prasmanan di mana peserta dapat mengambil apa pun yang mereka suka.
 
-Tampaknya Oparara dan juru masak lainnya akan melakukan pengisian ulang sementara otoritas Zoltan telah mempersiapkan orang-orang untuk berkeliling menyajikan alkohol.
+Tampaknya Oparara dan juru masak lainnya akan mengisi ilang makanan sementara otoritas Zoltan telah mempersiapkan orang-orang untuk berkeliling menyajikan alkohol.
 
 Dengan kata lain, pekerjaanku berakhir saat pesta dimulai.
 
 Yang harus Aku lakukan hanyalah melihat reaksi tentara Veronia sambil makan oden Oparara.
 
- 
+"Steak ini enak. Ini benar-benar berbeda dari daging yang kita makan di atas kapal. "
 
-"Steak ini enak. Ini benar-benar berbeda dari daging yang kami makan di atas kapal. "
-
-"Mungkin karena saus yang berbeda. Apalagi, keripik bawang putih kecil ini melengkapi rasanya. "
+"Mungkin karena saus yang berbeda. Apalagi, keripik bawang putih kecil ini melengkapi rasanya."
 
 "Sup bawang juga cocok dengan itu."
 
-"Kaya warna dari keju putih, tomat merah, dan kemangi hijau membuat hidangan ini terlihat lezat. Tentu saja, itu enak juga. "
+"Kaya warna dari keju putih, tomat merah, dan kemangi hijau membuat hidangan ini terlihat lezat. Tentu saja, itu enak juga."
 
- 
-
-Ulasan para sangat bagus.
+Ulasannya sangat bagus.
 
 Semua tentara Veronia memiliki senyum lebar di wajah kecokelatan mereka.
-
- 
 
 "Kentang bisa selezat ini !?"
 
@@ -90,33 +84,21 @@ Semua tentara Veronia memiliki senyum lebar di wajah kecokelatan mereka.
 
 "Ini bukan daging mentah!"
 
- 
+... Ulasan yang Aku dapatkan dengan senang hati sebenarnya memiliki standar yang cukup rendah untuk dievaluasi tetapi makanan yang enak tetaplah enak.
 
-… Review yang Aku dapatkan dengan senang hati sebenarnya memiliki standar yang cukup rendah untuk evaluasi tetapi makanan yang enak harus tetap enak.
+"Ada rasa di makanannya, MANTAAAPPPPPP !!!!"
 
- 
+Aku benar-benar memegang kepalaku ketika Aku mendengar seorang tentara berteriak.
 
-"Ada rasa di makanannya, amazinggggg !!!!"
+"Hahaha, maaf soal itu. Dia tidak bermaksud menyinggung."
 
- 
-
-Aku benar-benar menahan kepala Aku ketika Aku mendengar seorang tentara berteriak dengan emosi.
-
- 
-
-"Hahaha, maaf soal itu. Dia tidak bermaksud menyinggung. "
-
-"Pangeran Sarius !?"
-
- 
+g"Pangeran Sarius !?"
 
 Saat aku berbalik, aku melihat Pangeran Sarius tertawa sambil memegang sepiring steak dan kentang goreng.
 
 Dia mengenakan pakaian seremonial tetapi dia memakainya dengan cara yang cukup santai.
 
- 
-
-"Bukankah kamu seharusnya menghadiri pesta diplomatik di aula Kongres?"
+g"Bukankah kamu seharusnya menghadiri pesta diplomatik di aula Kongres?"
 
 "Aku menyerahkan sisi itu pada Ririnrara. Semua orang membicarakan tentang kapten bajak laut High-Elf wanita yang legendaris. Mereka sebenarnya repot-repot memainkan orkestra musik latar sambil berbicara. Sangat menarik melihat Ririnrara terlihat pemalu dan meminta bantuan Mistome. "
 
