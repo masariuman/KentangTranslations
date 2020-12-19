@@ -158,74 +158,50 @@ Kali ini, karena ada tembok istana, meskipun tembok itu tidak bisa diandalkan ya
 
 Di sungai, selain dua kapal karavel tentara Zoltan, ada perahu kecil komersial lainnya yang membawa tentara.
 
-Yang paling mengejutkan, bahkan dapur kapal Rarael pun memasuki sungai.
+Yang paling mengejutkan, bahkan kapal gali Rarael pun memasuki sungai.
 
-Bahkan dengan draf yang dangkal, dapurnya adalah kapal besar.
+Bahkan dengan draf yang dangkal, galinya adalah kapal besar.
 
 Selalu ada bahaya terjebak, tetapi Ririnrara mengarahkan kapalnya sendiri.
 
- 
+"Aku sudah mengecek sungainya. Aku bisa melakukannya jika Aku memikirkannya."
 
-"Aku sudah mengecek sungainya. Aku bisa melakukannya jika Aku memikirkannya. "
+Dia berkata begitu, dia sepertinya cukup percaya diri.
 
- 
-
-Dia berkata begitu dia sepertinya cukup percaya diri.
-
-Itu mungkin kemampuan Ririnrara dan kru dari pengalaman yang melampaui apa yang bisa diberikan oleh keterampilan mereka dari berkah ilahi.
+Itu mungkin karena kemampuan Ririnrara dan krunya yang berasal dari pengalaman yang melampaui apa yang diberikan oleh skill mereka dari perlindungan ilahi.
 
 Dengan itu, keunggulan kita mungkin tidak akan terguncang untuk pertempuran di sungai.
 
- 
-
-"Mungkin kita bisa mengejar tentara Veronia dengan ini?"
-
- 
+t"Mungkin kita bisa mengusir tentara Veronia dengan ini?"
 
 Tise, bersama Ugeuge-san, berkata saat dia melihat orang-orang Zoltan yang sedang melakukan persiapan.
 
 Situasinya jelas tidak terlalu buruk tapi ...
 
- 
+g"Aku masih merasa tidak nyaman tentang sesuatu. Aku tahu ada perbedaan kekuatan tapi Aku yakin ini bisa dikatakan sebagai situasi yang baik."
 
-"Aku masih merasa tidak nyaman tentang sesuatu. Aku tahu ada perbedaan kekuatan tapi Aku yakin ini bisa dikatakan sebagai situasi yang baik. "
-
- 
-
-Tise memiringkan kepalanya saat melihat wajah panjangku.
+Tise memiringkan kepalanya ketika melihat wajahku.
 
 Tidak, yah, seperti yang dikatakan Tise.
 
- 
+g"Yah, meskipun strategi Lit sempurna, terdapat banyak kesalahan."
 
-"Yah, meskipun strategi Lit sempurna, selalu ada banyak tempat yang salah."
+Bukan berarti strategi Lit buruk, hanya saja ada banyak kesalahan yang tidak bisa diprediksi siapa pun.
 
- 
+Bahkan selama pertempuran di Logavia, setiap kali dia mengklaim dengan sombongnya 『Aku punya ide bagus!』 Dan menyusun strategi, berkali-kali kami harus menindaklanjuti ide tersebut ...
 
-Bukan berarti strategi Lit buruk, hanya saja ada banyak kecelakaan yang tidak bisa diprediksi siapa pun.
+t"Itu bukan salah Lit-san. Aku tidak percaya itu akan terjadi kali ini juga."
 
-Bahkan selama pertempuran di Logavia, setiap kali dia mengklaim dengan tampilan sombong 『Aku punya ide bagus!』 Dan menyusun strategi, berkali-kali kami harus menindaklanjuti ...
-
- 
-
-"Itu bukan salah Lit-san. Aku tidak percaya itu akan terjadi kali ini juga. "
-
-"Aku rasa begitu. Mungkin Aku terlalu memikirkannya. "
-
- 
+g"Aku rasa begitu. Mungkin Aku terlalu memikirkannya. "
 
 Aku menatap Tise dan tersenyum.
 
 Benar, hal seperti itu seharusnya tidak terjadi kali ini.
 
-Bahkan jika itu seharusnya tidak terjadi, Aku masih harus merencanakan solusi. Ya.
+Bahkan jika itu seharusnya tidak terjadi, Aku masih harus merencanakan solusi. Yup.
 
- 
+g"Haruskah kita pergi memeriksa keadaan Ruti?"
 
-"Haruskah kita pergi memeriksa keadaan Ruti di sisinya?"
-
-"Yup, ayo lakukan itu."
-
- 
+t"Yup, ayo lakukan itu."
 
 Tise dan aku memutuskan untuk memeriksa situasi Ruti di hutan tempat tinggal bawahan Mistome-san.
