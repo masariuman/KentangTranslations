@@ -96,45 +96,33 @@ g"Yah, itu kadang-kadang terjadi, tapi ... apakah ada yang mengajarimu cara mema
 
 "Aku tidak diajari cara memasak, tetapi diajari cara mengelola inventaris dan mencegah pelaut mencuri."
 
-Begitu, mungkin itu keterampilan paling penting yang dibutuhkan Kurt di kapal ini.
+Begitu, mungkin itu skill paling penting yang dibutuhkan Kurt di kapal ini.
 
- 
-
-"Ya, masakannya tidak enak tapi Kurt adalah seorang『 Sniper 』. Keterampilannya sebagai pengintai luar biasa. "
+"Ya, masakannya tidak enak tapi Kurt adalah seorang『Sniper』. skillnya sebagai pengintai luar biasa."
 
 "Terima kasih banyak."
 
- 
+Itu pasti penting juga tapi... tapi.
 
-Itu pasti penting juga tapi… tapi.
-
- 
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Setelah ragu-ragu sebentar, Aku berdiri.
 
-Aku akan memasak.
+g"Aku akan memasak."
 
 "Apa?"
 
-"Karena Kamu bepergian sejauh ini ke Zoltan, Aku tidak dapat menerimanya sebagai warga Zoltan jika Kamu menggunakan bahan Zoltan untuk memasak seperti itu."
+g"Karena Kamu bepergian sejauh ini ke Zoltan, Aku tidak dapat menerimanya sebagai warga Zoltan jika Kamu menggunakan bahan Zoltan untuk memasak seperti itu."
 
 "O, oh?"
 
- 
+Nah, alasan utamanya adalah perut kosongku tidak bisa menahan makanan yang begitu mengerikan.
 
-Nah, alasan utamanya adalah perut kosong Aku tidak bisa menahan makanan yang begitu mengerikan.
-
-Aku pindah ke dapur tanpa mengucapkan sepatah kata pun dan tidak peduli dengan Kurt yang mengikutinya sambil terlihat bingung saat aku mulai bersiap.
+Aku pindah ke dapur tanpa mengucapkan sepatah kata pun dan tidak peduli dengan Kurt yang mengikutiku sambil terlihat bingung saat aku mulai bersiap.
 
 Aku lapar.
 
 Kali ini, Aku akan meneruskan membuat hidangan yang akan memakan waktu lama.
-
- 
 
 "Aku akan membuat sup babi dan sayur yang sama."
 
