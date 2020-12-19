@@ -250,23 +250,15 @@ Sama seperti bagaimana seseorang yang tidak pernah memegang pedang tidak akan da
 
 Dan mereka akan meyakinkan diri sendiri bahwa mereka gagal karena mereka tidak memiliki skill yang relevan dan apapun yang mereka buat yang bisa dimakan bisa dibuat karena tidak membutuhkan skill.
 
- 
-
-… Pada saat itu, Aku mungkin telah melupakan kengerian berdiri.
-
- 
+... Pada saat itu, Aku mungkin telah melupakan seramnya kalau aku menonjol.
 
 "Ini benar-benar enak."
 
-"Benar, Merahku luar biasa."
+l"Benar, redku luar biasa."
 
-"Yup, Onii-chan-ku hebat."
-
- 
+r"Yup, Onii-chan-ku hebat."
 
 Tanpa kusadari, Pangeran Sarius dan yang lainnya telah turun ke aula dan Lit dan Ruti berdiri berdampingan dengan dada membengkak karena bangga.
-
- 
 
 "Umu, aku harus memperbaiki masakanku juga. Ha… Ririnrara sama sekali tidak memperhatikan makanan. "
 
