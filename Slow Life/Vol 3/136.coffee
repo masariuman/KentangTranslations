@@ -136,7 +136,7 @@ Aku memotong bagian putih dari daun bawang secara diagonal menjadi irisan tipis 
 
 Selanjutnya, Aku memotong sebagian besar mentega dan melarutkannya di dalam wajan.
 
-Setelah itu Aku tambahkan sayuran dan aduk rata. Dengan menumis, Aku bisa mencegah sayuran agar tidak pecah dan rasa serta nutrisinya hilang.
+Setelah itu Aku tambahkan sayuran dan aduk rata. Dengan menumis, Aku bisa mencegah sayuran agar tidak pecah dan mencegah rasa serta nutrisinya menghilang.
 
 Aku mengiris daging babi tipis-tipis dan meletakkannya di atas sayuran.
 
