@@ -130,31 +130,21 @@ g"Aku dengan sopan menolaknya."
 
 Pangeran Sarius tertawa dengan mulut terbuka lebar.
 
-Tindakannya tampak lebih seperti bangsawan yang hilang dengan pakaiannya yang rapi daripada bangsawan seperti dia.
+Tindakannya tidak tampak seperti keturunan raja dengan bajunya yang diluar celananya.
 
 "Hn, apa kamu penasaran?"
 
- 
+Pangeran Sarius memperhatikan tatapanku dan memegang pakaiannya.
 
-Pangeran Sarius memperhatikan tatapanku dan mengenakan pakaiannya.
+"ini adalah adat High-Elf untuk mendekorasi dengan pakaian baru pada acara-acara khusus, tapi aku tidak mewarisi temperamen itu. Ini sangat formal."
 
- 
+g"Bukankah ada banyak peluang seperti itu di Istana Kerajaan Veronia?"
 
-"Para High-Elf biasanya mendekorasi dengan pakaian baru pada acara-acara khusus, tapi aku tidak mewarisi temperamen itu. Ini sangat formal. "
-
-"Bukankah ada banyak peluang seperti itu di Istana Kerajaan Veronia?"
-
-"Aku selalu suka memakai baju yang mudah untuk bergerak. Ibu… Ririnrara selalu memarahiku karena itu."
-
- 
+"Aku selalu suka memakai baju yang mudah untuk bergerak. Ibu... Ririnrara selalu memarahiku karena itu."
 
 Pangeran Sarius menjawab dengan sedikit senyum malu.
 
- 
-
-"Aku mungkin lebih mirip ayah Aku dalam aspek itu, ayah selalu mengganggu rombongannya juga."
-
- 
+"Aku mungkin lebih mirip ayahku dalam aspek itu, ayah selalu mengganggu rombongannya juga."
 
 Bajak Laut Geyserik dengan perlindungan ilahi 『Kaisar』.
 
@@ -162,131 +152,99 @@ Dia adalah seorang pahlawan dan juga seorang pria yang mengganggu kehidupan bany
 
 Sebagai warga negara asing, di negara asalku Kerajaan Avalonia, reputasi Geyserik adalah sebagai bajak laut yang secara diam-diam mencuri mahkota dengan kudeta sebelum invasi Tentara Raja Iblis.
 
-Setelah invasi Tentara Raja Iblis, dia dipandang sebagai raja yang pikun dan pemalu yang duduk di pagar.
+Setelah invasi Tentara Raja Iblis, dia dipandang sebagai raja yang pikun dan pemalu.
 
 Itu adalah hal yang mengerikan.
 
-Dia tidak menerima fitnah seperti itu secara langsung tetapi… bahkan jika tindakannya dapat dijelaskan oleh dorongan dari perlindungan ilahi, Aku tidak berpikir dia tidak bersalah atas apa yang dia lakukan.
-
- 
+Dia tidak menerima fitnah seperti itu secara langsung tetapi... bahkan jika tindakannya dapat dijelaskan oleh dorongan dari perlindungan ilahi, Aku tidak berpikir dia tidak bersalah atas apa yang dia lakukan.
 
 "Kalian adalah orang baik."
 
-"Hah?"
+g"Hah?"
 
-"Ekspresi wajahmu sedikit berubah ketika aku berbicara tentang ayah. Anda mencoba untuk menutupi ekspresi Anda demi Aku. "
+"Ekspresi wajahmu sedikit berubah ketika aku berbicara tentang ayah. Kamu mencoba untuk menutupi ekspresimu demi Aku. "
 
-"Yah, seperti yang Anda duga, pikiran negatif muncul di benak Anda."
+g"Yah, seperti yang kamu pikirkan, pikiran negatif muncul di benakku."
 
-"Perlindungan ilahi ayah memiliki kekuatan yang tak terukur. Mau bagaimana lagi. "
+"Perlindungan ilahi ayah memiliki kekuatan yang tak terukur. Mau bagaimana lagi."
 
- 
-
-Tapi di sampingku ada Ruti yang memiliki perlindungan ilahi dari 『Hero』.
+Tapi di sampingku ada Ruti yang memiliki perlindungan ilahi dari 『Pahlawan』.
 
 Meski Ruti diikat oleh dorongan kuat seperti itu, dia tetap bisa berfungsi sebagai Ruti.
 
-Jadi Aku tidak puas dengan penjelasan bahwa itu tidak dapat membantu karena dia memiliki perlindungan ilahi dari 『Kaisar』.
+Jadi Aku tidak puas dengan penjelasan bahwa itu dibiarkan saja karena dia memiliki perlindungan ilahi dari 『Kaisar』.
 
 Melihat penampilanku, mata Pangeran Sarius menyipit.
 
- 
-
 "Sepertinya kami telah membuat kalian kesal."
 
-"Yah, ini adalah keributan yang belum pernah terjadi sebelumnya bagi Zoltan."
+g"Yah, ini adalah keributan yang belum pernah terjadi sebelumnya bagi Zoltan."
 
 "Meski begitu, kamu masih bekerja keras untuk membuat masakan ini."
 
-Karena Aku diminta untuk.
+g"Karena Aku diminta untuk."
 
- 
-
-Aku bisa menolak sebagai seorang Petualang tetapi Aku tidak bisa menolak jika Aku diminta sebagai Merah dari Apoteker Merah & Lit.
+Aku bisa menolak sebagai seorang Petualang tetapi Aku tidak bisa menolak jika Aku diminta sebagai red dari Apotek red & Lit.
 
 Karena aku suka kota bernama Zoltan ini.
 
- 
+"Semua orang Zoltan seperti itu. Di negara lain, masalah tidak akan diselesaikan hanya karena pihak yang memulai kekerasan meminta maaf. Aku membayangkan satu atau dua warga akan melempar batu."
 
-"Semua orang Zoltan seperti itu. Di negara lain, masalah tidak akan diselesaikan hanya karena pihak yang memulai kekerasan meminta maaf. Aku membayangkan satu atau dua warga akan melempar batu. "
+g"Tidak akan setenang ini jika perang benar-benar pecah."
 
-"Tidak akan setenang ini jika perang benar-benar pecah."
+"Kesederhanaan itu mempesona bagiku... aku dibesarkan di Veronia Royal Palace di mana semuanya seputar keluarga atau orang dalam ... Benarkah otoritas di Zoltan ditentukan oleh senioritas?"
 
-"Kesederhanaan itu mempesona bagiku saat aku dibesarkan di Veronia Royal Palace di mana persekongkolan berputar ... Benarkah otoritas di Zoltan ditentukan oleh senioritas?"
-
-"Iya."
-
- 
+g"Iya."
 
 Pangeran Sarius terkejut.
 
- 
+"Jika negaraku mempraktikkannya juga, masalah penerus takhta akan mudah diselesaikan."
 
-"Jika negara Aku mempraktikkannya juga, masalah suksesi akan mudah diselesaikan."
+g"Negara besar seperti Veronia akan segera runtuh jika menggunakan metode seperti itu."
 
-Negara besar seperti Veronia akan segera runtuh jika menggunakan metode seperti itu.
+"Itu benar tapi mungkin bisa bekerja secara tidak terduga? Tidak apa-apa jika bagian atasnya hanya hiasan, yang menjalankan negara adalah orang-orangnya."
 
-"Itu benar tapi mungkin bekerja secara tidak terduga? Tidak apa-apa jika bagian atasnya hanya hiasan, yang menjalankan negara adalah orang-orangnya. "
+g"Haruskah putra seorang『 Kaisar 』mengatakan kata-kata seperti itu?"
 
-"Haruskah putra seorang『 Kaisar 』mengatakan kata-kata seperti itu?"
+"Karena perlindungan ilahiku bukanlah『 Kaisar 』. Itu adalah perlindungan ilahi umum 『Arcane Archer』. "
 
-"Karena perlindungan ilahi Aku bukanlah『 Kaisar 』. Itu adalah perlindungan ilahi umum 『Arcane Archer』. "
-
- 
-
-『Arcane Archer』 adalah berkah ilahi tipe prajurit sihir yang mampu menyuntikkan sihir ke busur dan anak panah mereka.
+『Arcane Archer』 adalah perlindungan ilahi tipe prajurit sihir yang mampu memberikan sihir ke busur dan anak panah mereka.
 
 Sebagai perlindungan ilahi yang unggul, tidak banyak orang yang menyebutnya biasa tetapi sebagian besar perlindungan ilahi dapat dikatakan umum jika dibandingkan dengan 『Kaisar』.
 
 『Kaisar』 adalah perlindungan dewa yang sama langkanya dengan 『Pahlawan』.
 
- 
-
 "Bukankah aneh jika pemanah sepertiku menjadi raja?"
 
-"Bukankah Pangeran baru saja menyebutkannya sendiri?"
+g"Bukankah Pangeran baru saja menyebutkannya sendiri?"
 
 "Hm? Apa yang aku bilang?"
 
-"Rakyatlah yang menjalankan negara. Bukan perlindungan ilahi. "
-
- 
+g"Rakyatlah yang menjalankan negara. Bukan perlindungan ilahi. "
 
 Pangeran Sarius tertegun sejenak sebelum tersenyum kecut.
 
- 
+"Itu meresahkan. Aku benar-benar ingin mengajakmu. "
 
-"Itu meresahkan. Aku benar-benar ingin memandu Anda. "
+g"Tapi aku akan menolak."
 
-"Tapi aku akan menolak."
-
-"Siapa sebenarnya dirimu, aku merasa bahwa aku pernah melihatmu sebelumnya… tapi kurasa itu tidak sopan untuk membongkarnya."
-
- 
+"Siapa sebenarnya dirimu, aku merasa bahwa aku pernah melihatmu sebelumnya... tapi kurasa itu tidak sopan untuk menanyakannya."
 
 Pangeran Sarius menghentikan seorang anak laki-laki yang sedang berjalan di dekatnya dan memberinya peralatan makan yang dia gunakan setelah dia selesai.
 
- 
+"Sudah waktunya aku kembali. Arbitrase yang tersisa mungkin akan berakhir dalam waktu kurang dari setengah bulan. Kami mengirim utusan ke Veronia tetapi Aku mempertimbangkan untuk tinggal di negara lain tanpa kembali. Aku berpikir untuk kabur ke timur dan meninggalkan segalanya tapi... Aku tidak tahan melihat negaraku menjadi negara wadah untuk Tentara Raja Iblis di bawah Leonor. "
 
-"Sudah waktunya aku kembali. Arbitrase yang tersisa mungkin akan berakhir dalam waktu kurang dari setengah bulan. Kami mengirim utusan ke Veronia tetapi Aku mempertimbangkan untuk tinggal di negara lain tanpa kembali. Aku berpikir untuk kabur ke timur dan meninggalkan segalanya tapi… Aku tidak tahan melihat negaraku menjadi negara wadah untuk Tentara Raja Iblis di bawah Leonor. "
-
-"Apakah kamu akan berperang?"
+g"Apakah kamu akan berperang?"
 
 "Selama darah seorang Kaisar mengalir di tubuhku, aku punya alasan besar untuk membebaskan Veronia."
-
- 
 
 Pangeran Sarius dan Ririnrara sepertinya telah memilih untuk bertarung.
 
 Aku tersenyum dan berjabat tangan dengan Pangeran Sarius.
 
- 
+g"Semoga keberuntungan menyertaimu."
 
-"Semoga keberuntungan perang menyertai Anda."
-
-"Terima kasih. Senang mendengar kata-kata penyemangat yang tidak memiliki kepentingan pribadi di baliknya. "
-
- 
+"Terima kasih. Senang mendengar kata-kata penyemangat yang tidak memiliki kepentingan pribadi di baliknya."
 
 Ini mungkin akan menjadi perang yang pahit karena negara asal mereka akan menjadi musuh mereka.
 
