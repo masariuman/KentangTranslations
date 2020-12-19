@@ -190,33 +190,23 @@ Para petualang hanya terdiri dari individu malas yang membenci hadiah tinggi den
 
 "Kalau begitu kita bisa bertanya kepada warga Zoltan. Kami tidak akan menghentikan mereka jika mereka memilih untuk melarikan diri. Tapi kami tentara Zoltan siap mempertaruhkan nyawa untuk melindungi warga."
 
-"Guild Magician berhutang budi padamu. Sekaranglah waktunya untuk nilai sebenarnya dari penelitian kita. "
+"Guild Magician berhutang budi padamu. Sekaranglah waktunya untuk nilai sebenarnya dari penelitian kita."
 
-"Mistome-shi adalah pahlawan bagi para petualang. Mereka belum diberitahu situasinya tetapi jika mereka diberitahu bahwa Kamu berencana untuk melawan Veronia dengan Pangeran Sarius, kami akan dibanjiri dengan sukarelawan untuk bertarung dengan Kamu. "
+"Mistome-shi adalah pahlawan bagi para petualang. Mereka belum diberitahu situasinya tetapi jika mereka diberitahu bahwa Kamu berencana untuk melawan Veronia dengan Pangeran Sarius, kami akan dibanjiri dengan sukarelawan untuk bertarung denganmu."
 
-"We Thieves Guild mungkin tidak berteman denganmu tapi kami penduduk dari masyarakat bawah tanah menghormatimu semua sama. Kami akan bekerja sama dan menekan kekacauan di kota. "
-
- 
+"kami guild pencuri mungkin tidak berteman denganmu tapi kami penduduk dari masyarakat bawah menghormatimu. Kami akan bekerja sama dan menekan kekacauan di kota."
 
 Terakhir, Walikota Tonedo mengangguk dan melanjutkan.
 
- 
-
-"Setiap warga negara memiliki tanggung jawabnya sendiri. Dan tanggung jawab kami adalah keinginan kami untuk melindungi Kamu. Kami dapat membangun kembali jika rumah kami terbakar. Kami terbiasa kehilangan Zoltan. Namun, bahkan Zoltan tahu bahwa ada hal-hal yang tidak dapat diperoleh kembali setelah hilang. "
-
- 
+"Setiap warga negara memiliki tanggung jawabnya sendiri. Dan tanggung jawab kami adalah keinginan kami untuk melindungimu. Kami dapat membangun kembali jika rumah kami terbakar. Kami terbiasa kehilangan Zoltan. Namun, bahkan Zoltan tahu bahwa ada hal-hal yang tidak dapat diperoleh kembali setelah hilang."
 
 Tidak ada keraguan dalam kata-kata Tonedo.
 
 Zoltan, tanah kemalasan.
 
- 
+g"Tapi, itu benar."
 
-"Tapi, itu benar."
-
-"Ya, itu benar."
-
- 
+l"Ya, itu benar."
 
 Lit dan aku mengangguk setelah melihat mereka.
 
@@ -224,57 +214,37 @@ Lit dan Aku tinggal di kota ini.
 
 Kita telah melihat berkali-kali kemanusiaan yang ditunjukkan oleh penduduk pusat kota yang malas dan tidak bertanggung jawab kepada teman-teman mereka.
 
-Bahkan setelah insiden dengan Big Hawk, warga Zoltan yang riang tidak memandang warga distrik Rawa Selatan dengan waspada meski mereka di ambang kerusuhan dan kami masih melihat warga menerima mereka dengan cara yang riang.
+Bahkan setelah insiden dengan Big Hawk, warga Zoltan yang riang tidak memandang warga distrik Marsh Selatan dengan waspada meski mereka di ambang kerusuhan dan kami masih melihat warga menerima mereka dengan cara yang riang.
 
- 
-
-"Begitulah Zoltan."
-
- 
+g"Begitulah Zoltan."
 
 Lit tersenyum menanggapi kata-kataku.
 
- 
-
-"Sebagai Putri Logavia, Aku mungkin mengatakan mereka idiot karena bertarung dalam pertempuran dengan kekalahan tertentu, tetapi sebagai Lit Zoltan, Aku bangga dengan sifat riang mereka."
-
- 
+l"Sebagai Putri Logavia, Aku mungkin mengatakan mereka idiot karena bertarung dalam pertempuran yang sudah pasti kalah, tetapi sebagai Lit Zoltan, Aku bangga dengan sifat riang mereka."
 
 Melihat kami sedang bercakap-cakap secara rahasia, Ririnrara berjalan mendekat.
 
- 
+"Mengapa kamu berbicara sesama kalian saja, hentikan orang-orang ini! Aku tidak akan melibatkan mereka dalam perang yang tidak bisa mereka menangkan!"
 
-"Mengapa kamu berbicara di antara kamu sendiri, hentikan orang-orang ini! Aku tidak akan melibatkan mereka dalam perang yang tidak bisa mereka menangkan! "
-
-"Bajak laut benar-benar egois, bahkan setelah memberi Zoltan begitu banyak masalah."
+g"Bajak laut benar-benar egois, bahkan setelah memberi Zoltan begitu banyak masalah."
 
 "Sekarang bukan waktunya bercanda!"
 
-"Maaf maaf. Yah, aku setuju itu buruk tapi Lit dan aku juga merasakan hal yang sama. "
+g"Maaf maaf. Yah, aku setuju itu buruk tapi Lit dan aku juga merasakan hal yang sama. "
 
 "Apa?"
 
- 
-
 Saat aku melihat ke arah Lit, ekspresi Lit menegang dan dia mendekati meja dengan wajah percaya diri sebagai Pahlawan Lit.
 
- 
+l"Musuhnya adalah Kerajaan Veronia yang besar. Ratu jahat yang tak tertandingi Leonor mungkin akan tercatat dalam sejarah selama seribu tahun yang akan datang. Memimpin tujuh kapal perang tipe gali mutakhir kapal baja, Wendy Dart. Menentang mereka, kita memiliki satu kapal perang tipe lama milik Pangeran Sarius dan tiga kapal layar berukuran sedang milik Zoltan. Dinding Zoltan mudah dipanjat dan tidak ada yang menghalangi mereka jika mereka menyerbu dari sungai. Dan kita tidak punya waktu. Ini situasinya, benar kan?"
 
-"Musuhnya adalah Kerajaan Veronia yang besar. Ratu jahat yang tak tertandingi Leonor mungkin akan tercatat dalam sejarah selama seribu tahun yang akan datang. Memimpin tujuh kapal perang tipe galleon mutakhir adalah kapal baja, Wendy Dart. Menentang mereka, kami memiliki satu kapal perang tipe lama milik Pangeran Sarius dan tiga kapal layar berukuran sedang milik Zoltan. Dinding Zoltan mudah dipanjat dan tidak ada yang menghalangi mereka jika mereka menyerbu dari sungai. Dan kami tidak punya waktu. Ini situasinya, benar? "
-
- 
-
-Ekspresi Ser William dan yang lainnya tertutupi.
+Ekspresi Ser William dan yang lainnya terdiam.
 
 Perbedaan kekuatan tidak ada harapan dan tidak ada keuntungan geografis.
 
 Lit menunjukkan senyum tak kenal takut.
 
- 
-
-"Karena kita telah selesai memastikan situasinya, yang tersisa hanyalah menang."
-
- 
+l"Karena kita telah selesai memastikan situasinya, yang tersisa hanyalah menang."
 
 Mengapa Lit disebut Pahlawan Lit?
 
@@ -282,10 +252,6 @@ Itu mungkin karena suara dan senyumnya yang percaya diri.
 
 Jika itu Lit, dia bisa menghancurkan situasi tanpa harapan. Suara dan senyumnya membawa kekuatan untuk membuat orang lain percaya.
 
- 
-
-"Meskipun Aku bangga dengan semangat riang Zoltan, Aku lebih bangga pada Lit."
-
- 
+g"Meskipun Aku bangga dengan semangat riang Zoltan, Aku lebih bangga pada Lit."
 
 Aku bergumam sedemikian rupa sehingga tidak ada yang mendengar dan aku menuju ke sisi Lit untuk mencari cara agar bisa menang.
