@@ -124,9 +124,7 @@ Lit telah memerah dan melihat ke bawah sejak tadi.
 
 Dia menyembunyikan senyumnya dengan bandana dan sesekali menatapku ke samping.
 
- 
-
-"Terlepas dari itu, bagus sekali Lit memiliki payung."
+l"Terlepas dari itu, bagus sekali Lit memiliki payung."
 
 Kataku sambil tertawa.
 
@@ -134,19 +132,15 @@ Lit dan aku berjalan di tengah hujan.
 
 Lit dan aku mengenakan pakaian biasa kami, tanpa jas hujan.
 
-Sebagai gantinya, Aku memegang payung besar dengan tangan kiri Aku.
+Sebagai gantinya, Aku memegang payung besar dengan tangan kiriku.
 
 Payung yang digunakan untuk hujan bukanlah alat biasa. Terbuat dari kain lilin tahan lama, payung ini biasanya digunakan oleh bangsawan dan dibawa oleh pelayan mereka.
 
-Untuk travelling, lebih sering melihat mantel yang menutupi seluruh tubuh atau mantel tahan hujan yang menutupi kepala.
+Untuk travelling, biasanya menggunakan mantel yang menutupi seluruh tubuh atau mantel tahan hujan yang menutupi kepala.
 
 Lebih penting lagi, bahkan payung termurah pun harganya 4 Peryl. Petualang lebih suka menghabiskan 2 seperempat Peryl untuk membeli mantel tahan air.
 
- 
-
-"Ya, aku tidak membayangkan penggunaan payung yang begitu menyenangkan."
-
- 
+l"Ya, aku tidak membayangkan payung bisa digunakan dengan sangat menyenangkan seperti ini."
 
 Lit bergumam malu-malu.
 
