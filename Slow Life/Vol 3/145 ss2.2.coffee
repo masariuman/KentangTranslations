@@ -273,23 +273,15 @@ Punggungnya ditarik tepat saat dia akan jatuh.
 
 Seutas benang menjulur dari punggungnya ke langit-langit gua.
 
-Saat melihatnya tersandung, Ugeuge-san langsung meregangkan utasnya.
+Saat melihatnya tersandung, Ugeuge-san langsung meregangkan jaringnya.
 
- 
-
-"Mou! Mengapa ada depresi di sini! "
-
- 
+"Mou! Mengapa ada depresi di sini!"
 
 Kata gadis itu dengan wajah merah karena malu.
 
-Dia tersandung batu di kakinya yang mengalami depresi bulat.
+Dia tersandung batu di kakinya yang mengalami depresi.
 
- 
-
-"Ini… tidak dibuat secara alami."
-
- 
+"Ini... tidak dibuat secara alami."
 
 Gadis itu merasa penasaran dan berjongkok untuk melihatnya.
 
@@ -297,61 +289,41 @@ Ada lingkaran sempurna dengan kedalaman seragam di atas batu yang tampak keras.
 
 Sungguh tak terbayangkan fenomena alam seperti pelapukan atau erosi.
 
-Pada saat itu, Ugeuge-san menaikkan utasnya dan naik ke langit-langit.
+Pada saat itu, Ugeuge-san menaikkan jaringnya dan naik ke langit-langit.
 
- 
-
-"Apa yang salah?"
-
- 
+"ada yang salah?"
 
 Gadis itu dengan cemas mengikuti Ugeuge-san dengan matanya.
 
-Ugeuge-san berhenti di titik di langit-langit dimana ada cermin tepat di atas depresi.
+Ugeuge-san berhenti di titik di langit-langit dimana ada cermin tepat di atas.
 
 Karena pantulan bayangan dari cahaya yang datang dari luar, cermin tidak dapat dilihat tanpa melihat ke arah langit-langit dengan cahaya yang menyinari cermin tersebut.
 
 Ugeuge-san secara kebetulan menyadari sensasi yang berbeda dibandingkan dengan permukaan batu saat benang itu menempel di langit-langit.
 
-Mungkin itu tertahan disana dengan sihir tapi Ugeuge-san, sebagai seekor laba-laba, tidak mengerti itu.
+Mungkin itu berada disana dengan sihir tapi Ugeuge-san, sebagai seekor laba-laba, tidak mengerti itu.
 
 Ugeuge-san memiringkan kepalanya dan kembali ke gadis itu.
 
- 
-
 "... Aku tidak mengerti tapi ayo pergi."
 
- 
-
-Gadis itu melihat depresi di lantai dan cermin di langit-langit sekali lagi sebelum dia melangkah lebih jauh ke dalam gua.
-
- 
+Gadis itu melihat tanah dan cermin di langit-langit sekali lagi sebelum dia melangkah lebih jauh ke dalam gua.
 
 ☆☆
-
- 
 
 Dengan pedang di tangan kirinya dan mengangkat obor buatan tangan yang dibuat dengan melilitkan kain lap pada sebatang kayu, gadis itu maju ke dalam gua.
 
 Ugeuge-san sedang berada di bahu gadis itu memakan serangga yang ditangkapnya.
 
-Benang yang meludah menghabiskan kekuatan fisik. Itu harus memasok kembali bila bisa.
+mengeluarkan jaring laba-laba menghabiskan kekuatan fisik. makan bisa memasok kembali energinya.
 
- 
-
-Ada garpu.
-
- 
+"Ada persimpangan."
 
 Kata gadis itu dengan gelisah.
 
 Gua itu terbelah menjadi dua jalur di depan matanya.
 
- 
-
 "Kemana aku harus pergi?"
-
- 
 
 Mendengar kata-katanya, Ugeuge-san berhenti makan dan berpikir.
 
@@ -359,25 +331,15 @@ Melihat ke tanah, terlihat bahwa naga itu sering keluar-masuk dari kanan tetapi 
 
 Ugeuge-san menyampaikan itu pada gadis itu dengan mengetukkan kakinya.
 
- 
-
-"Yup, lokasi dengan harta karun itu adalah gudang. Tempat dengan lebih banyak jejak kaki akan menjadi ruang tamu dimana dia tidur jadi tempat dengan jejak kaki yang lebih sedikit akan menjadi penyimpanannya! Ayo pergi ke kiri! "
-
- 
+"Yup, lokasi dengan harta karun itu adalah gudang. Tempat dengan lebih banyak jejak kaki akan menjadi ruang dimana dia tidur jadi tempat dengan jejak kaki yang lebih sedikit akan menjadi penyimpanannya! Ayo pergi ke kiri!"
 
 Gadis itu mengangguk pada kata-katanya sendiri dan pergi.
-
- 
 
 Setelah berjalan kaki singkat, gua itu menemui jalan buntu.
 
 Tapi di depan matanya ada artefak buatan yang tidak cocok dengan gua itu.
 
- 
-
 "Sebuah pintu?"
-
- 
 
 Ada pintu batu di dinding.
 
@@ -385,72 +347,46 @@ Itu bukan masalah bagi gadis itu tapi itu adalah pintu yang agak kecil untuk ora
 
 Tentu saja, seekor naga tidak bisa masuk melaluinya.
 
- 
-
 "Terkunci."
-
- 
 
 Gadis itu mendorong pintu tetapi tidak bergerak.
 
 Ugeuge-san melompat dari bahu gadis itu.
 
- 
-
-"Spider-san, bisakah kamu membukanya?"
-
- 
+"laba-laba-san, bisakah kamu membukanya?"
 
 Ugeuge-san mengintip ke dalam lubang kunci dan mengambil benang ke tangannya dan melemparkannya ke dalam lubang kunci.
 
-Itu gelisah selama beberapa waktu… lalu terdengar bunyi klik.
-
- 
+ia gelisah selama beberapa waktu... lalu terdengar bunyi klik.
 
 "Luar biasa !!"
-
- 
 
 Gadis itu dengan polosnya berseru.
 
 Orang dewasa yang bijaksana mungkin akan menyadari kemampuan Ugeuge-san melebihi kemampuan laba-laba biasa sekarang dan mungkin bertanya-tanya apakah itu mungkin iblis yang menyamar tapi gadis itu hanya memiliki perasaan hormat terhadap Ugeuge-san yang dia percayai sebagai teman.
 
-Spider-san ini luar biasa!
+laba-laba-san luar biasa!
 
- 
+Gadis itu berusaha keras untuk membuka pintu batu.
 
-Gadis itu bekerja keras untuk membuka pintu batu.
-
- 
-
-"Fuu… ada gudang kecil di dalamnya?"
-
- 
+"Fuu... ada gudang kecil di dalamnya?"
 
 Ada ruang kecil 50cm di luar pintu.
 
-Di dalam, ada alas dengan cermin tua diletakkan di atasnya. Itu terbuat dari perak tetapi tidak mendung meskipun telah diabaikan selama bertahun-tahun.
+Di dalam, ada alas dengan cermin tua diletakkan di atasnya. Itu terbuat dari perak tetapi tidak kusam meskipun telah diabaikan selama bertahun-tahun.
 
-Itu mungkin telah disihir dengan sihir. Ini harus bernilai cukup banyak jika diambil.
+Itu mungkin telah disihir dengan sihir. Ini bernilai cukup mahal jika diambil.
 
 Namun, gadis itu belum pernah melihat perak yang dipoles sebelumnya dan tidak tahu berapa nilainya.
 
 Ugeuge-san melompat ke alas dan berlari berputar-putar di cermin, melambaikan tangannya pada gadis itu.
 
- 
-
-"Eh? Kamu ingin Aku membawa ini? "
-
- 
+"Eh? Kamu ingin Aku membawa ini?"
 
 Ugeuge-san melompat di tempat sebagai balasan.
 
-Gadis itu mengambil cermin perak dengan kedua tangannya dan terkejut dengan beratnya tetapi dengan patuh menyimpannya di tasnya.
+Gadis itu mengambil cermin perak dengan kedua tangannya dan terkejut dengan beratnya tetapi menyimpannya di tasnya.
 
- 
-
-"Sepertinya ini jalan yang salah jadi… ayo kembali dan ambil jalan kiri."
-
- 
+"Sepertinya ini jalan yang salah jadi... ayo kembali dan ambil jalan kiri."
 
 Ugeuge-san kembali ke bahu gadis itu dan melambaikan tangannya ke depan.
