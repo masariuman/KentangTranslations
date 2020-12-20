@@ -1,6 +1,6 @@
-Bab 139: Hal-hal yang hilang dan hal-hal yang diperoleh
+Bab 139: Hal-hal yang hilang dan hal-hal yang didapatkan
 
-Saya memancing sendiri di pelabuhan.
+Aku memancing sendiri di pelabuhan.
 
 Ruti dan Ririnrara harus menghadiri parlemen Zoltan.
 
@@ -42,25 +42,25 @@ Mereka akan melarikan diri ke berbagai wilayah laut, menjarah dari yang lemah da
 
 Ririnrara tampaknya masih berada di puncak usianya tapi dia mungkin, seperti kapalnya, sebuah eksistensi yang ditinggalkan oleh zaman.
 
-Pikiran seperti itu berputar-putar di benak saya.
+Pikiran seperti itu berputar-putar di benak Aku.
 
  
 
-“Nah, bukankah Wendy Dart sebuah kapal yang berusia lebih dari 50 tahun juga?”
+"Nah, bukankah Wendy Dart sebuah kapal yang berusia lebih dari 50 tahun juga?"
 
  
 
 Aku menggelengkan kepalaku dan menghapus pikiranku.
 
-Ini tidak akan berhasil, saya menjadi terlalu sentimental.
+Ini tidak akan berhasil, Aku menjadi terlalu sentimental.
 
 Bagaimanapun, itu pasti situasi yang parah bagi Ririnrara dan Pangeran Sarius.
 
  
 
-Masalahnya adalah bagaimana saya harus bertindak.
+Masalahnya adalah bagaimana Aku harus bertindak.
 
-Saya memiliki tujuan yang langsung berhubungan dengan kehidupan kami di sini, untuk melindungi Zoltan tempat kami tinggal.
+Aku memiliki tujuan yang langsung berhubungan dengan kehidupan kami di sini, untuk melindungi Zoltan tempat kami tinggal.
 
 Namun, krisis terhadap Zoltan telah hilang.
 
@@ -80,29 +80,29 @@ Ups.
 
  
 
-Ketika saya menarik tali pancing ke atas, ada seekor ikan kecil yang tertangkap di kail.
+Ketika Aku menarik tali pancing ke atas, ada seekor ikan kecil yang tertangkap di kail.
 
  
 
-“Jadi pancing seperti ini masih bisa menangkap sesuatu sesekali… kurasa aku bisa menggunakannya untuk sup.”
+"Jadi pancing seperti ini masih bisa menangkap sesuatu sesekali… kurasa aku bisa menggunakannya untuk sup."
 
  
 
-Saya mengambil ikan dari kailnya dan memasukkannya ke dalam kantong air.
+Aku mengambil ikan dari kailnya dan memasukkannya ke dalam kantong air.
 
-Saya menghabiskan waktu dengan cara yang Anda tidak akan mengira armada Veronian mendekat.
+Aku menghabiskan waktu dengan cara yang Kamu tidak akan mengira armada Veronian mendekat.
 
 Namun.
 
  
 
-Meskipun begitu, apa lagi yang harus saya lakukan?
+Meskipun begitu, apa lagi yang harus Aku lakukan?
 
  
 
-Ya, saya tidak suka Mistome-shi, Pangeran Sarius atau Ririnrara.
+Ya, Aku tidak suka Mistome-shi, Pangeran Sarius atau Ririnrara.
 
-Jika Anda bertanya apakah saya merasa tidak apa-apa melihat mereka mati, saya akan berkata bahwa saya akan merasa sangat sedih sehingga saya akan merasa mual.
+Jika Kamu bertanya apakah Aku merasa tidak apa-apa melihat mereka mati, Aku akan berkata bahwa Aku akan merasa sangat sedih sehingga Aku akan merasa mual.
 
 Namun, lawannya adalah Kerajaan Veronia yang terhubung dengan Tentara Raja Iblis dan Ratu Leonor.
 
@@ -116,11 +116,11 @@ Seolah-olah kita bertarung di sini, kita akan diseret kembali ke pertempuran unt
 
 Aku mendengar panggilan Lit.
 
-Melihat ke belakang, saya melihat Lit dengan kakao susu yang mengepul di kedua tangannya.
+Melihat ke belakang, Aku melihat Lit dengan kakao susu yang mengepul di kedua tangannya.
 
  
 
-“Apakah kamu menangkap sesuatu?”
+"Apakah kamu menangkap sesuatu?"
 
 "Satu ikan kecil."
 
@@ -134,21 +134,21 @@ Kakao susu yang dia berikan kepadaku hangat berkat sihir Lit dan kehangatan perl
 
 Hou.
 
-“Apakah itu bagus?”
+"Apakah itu bagus?"
 
-“Yup, ini enak.”
+"Yup, ini enak."
 
-"Baik? Saya sudah berlatih selama ini. "
+"Baik? Aku sudah berlatih selama ini. "
 
 "Latihan?"
 
-“Meskipun teh dan coklat yang dibuat Red enak, ada kalanya Red mungkin ingin minuman yang dibuat oleh orang lain. Saya ingin menjadikannya untuk Red untuk saat-saat itu. "
+"Meskipun teh dan coklat yang dibuat Red enak, ada kalanya Red mungkin ingin minuman yang dibuat oleh orang lain. Aku ingin menjadikannya untuk Red untuk saat-saat itu. "
 
  
 
 Aku menyesap lagi kakao susu.
 
-Rasa manis lembut menyelimuti hawa dingin dan menghangatkan tubuh saya.
+Rasa manis lembut menyelimuti hawa dingin dan menghangatkan tubuh Aku.
 
  
 
@@ -156,7 +156,7 @@ Rasa manis lembut menyelimuti hawa dingin dan menghangatkan tubuh saya.
 
  
 
-Saya merasakan otot ekspresi wajah yang tegang di sekitar mulut saya mengendur.
+Aku merasakan otot ekspresi wajah yang tegang di sekitar mulut Aku mengendur.
 
 Lit dan aku duduk bersama saat kami melihat sungai dan kapal Ririnrara di kejauhan.
 
@@ -166,11 +166,11 @@ Lit dan aku duduk bersama saat kami melihat sungai dan kapal Ririnrara di kejauh
 
 "Apa itu?"
 
-“Seperti yang kamu katakan padaku sebelumnya, hidup yang lambat bukanlah cara hidup yang mengikat.”
+"Seperti yang kamu katakan padaku sebelumnya, hidup yang lambat bukanlah cara hidup yang mengikat."
 
 "Selama insiden Shisandan ya?"
 
-“Kali ini aku akan mengatakannya padamu. Kehidupan lambat kita tidak dimaksudkan untuk menerima sesuatu. Bukankah kehidupan lambat yang kita harapkan adalah kecepatan yang paling kita nikmati dan menjalani hidup tanpa penyesalan? "
+"Kali ini aku akan mengatakannya padamu. Kehidupan lambat kita tidak dimaksudkan untuk menerima sesuatu. Bukankah kehidupan lambat yang kita harapkan adalah kecepatan yang paling kita nikmati dan menjalani hidup tanpa penyesalan? "
 
  
 
@@ -180,15 +180,15 @@ Pupil biru langitnya menatap mataku dan dia tersenyum dengan bibir manisnya.
 
  
 
-“Mari kita pikirkan saat itu terjadi. Jika pertempuran mengejar kita, kita bisa mengalahkannya, atau kita bisa melarikan diri atau mengabaikannya jika itu merepotkan. Jika saatnya tiba, lakukan saja apa yang ingin Anda lakukan. Tidakkah kamu akan merasa buruk jika meninggalkan penyesalan saat menjalani kehidupan yang lambat? "
+"Mari kita pikirkan saat itu terjadi. Jika pertempuran mengejar kita, kita bisa mengalahkannya, atau kita bisa melarikan diri atau mengabaikannya jika itu merepotkan. Jika saatnya tiba, lakukan saja apa yang ingin Kamu lakukan. Tidakkah kamu akan merasa buruk jika meninggalkan penyesalan saat menjalani kehidupan yang lambat? "
 
-”… Itu benar, kamu benar, Lit.”
+"… Itu benar, kamu benar, Lit."
 
  
 
-Saya menarik kail dari sungai.
+Aku menarik kail dari sungai.
 
-Saya melepaskan umpan dari kail dan melemparkannya ke sungai.
+Aku melepaskan umpan dari kail dan melemparkannya ke sungai.
 
 Ikan yang bahkan tidak melihat umpan ketika berada di kail dengan cepat mengunyah umpan bebas.
 
@@ -196,7 +196,7 @@ Ikan yang pintar.
 
  
 
-“Namun demikian, kamu benar-benar tahu apa yang menggangguku.”
+"Namun demikian, kamu benar-benar tahu apa yang menggangguku."
 
 "Tentu saja. Bagaimanapun juga kau adalah Merahku. "
 
@@ -206,29 +206,29 @@ Lit tersenyum, menunjukkan giginya yang putih.
 
  
 
-“Selain itu, secara pribadi aku marah atas apa yang Leonor lakukan. Sayang sekali jika aku tidak bisa langsung menghajarnya! "
+"Selain itu, secara pribadi aku marah atas apa yang Leonor lakukan. Sayang sekali jika aku tidak bisa langsung menghajarnya! "
 
-“Begitu… Terima kasih, Lit.”
-
- 
-
-Saya teringat saat saya menatap peta dan memikirkan rencana pertempuran sendiri ketika saya berada di pesta pahlawan.
-
-Pada saat itu, saya memiliki banyak sekali item sihir, gelar Ksatria Bahamut, dan teman heroik yang bisa menggerakkan bangsa.
-
-Saya tidak lagi memiliki semua itu.
-
-Sekarang, saya hanya memiliki pedang tembaga murahan di tangan, seorang kekasih untuk dipeluk, seorang adik perempuan yang manis dan seorang teman yang dapat diandalkan.
-
-Hei, bukankah pilihan saya lebih dapat diandalkan sekarang?
+"Begitu… Terima kasih, Lit."
 
  
 
-Saya berdiri dengan pedang di pinggang saya.
+Aku teringat saat Aku menatap peta dan memikirkan rencana pertempuran sendiri ketika Aku berada di pesta pahlawan.
+
+Pada saat itu, Aku memiliki banyak sekali item sihir, gelar Ksatria Bahamut, dan teman heroik yang bisa menggerakkan bangsa.
+
+Aku tidak lagi memiliki semua itu.
+
+Sekarang, Aku hanya memiliki pedang tembaga murahan di tangan, seorang kekasih untuk dipeluk, seorang adik perempuan yang manis dan seorang teman yang dapat diandalkan.
+
+Hei, bukankah pilihan Aku lebih dapat diandalkan sekarang?
 
  
 
-“Ayo pergi ke Ruti.”
+Aku berdiri dengan pedang di pinggang Aku.
+
+ 
+
+"Ayo pergi ke Ruti."
 
 "Baik!"
 
@@ -250,17 +250,17 @@ Pahlawan Lit ada di sini.
 
  
 
-“Red-san. Saya melihat Anda bertarung dengan Albert. Tolong ajari aku pedang suatu hari nanti. "
+"Red-san. Aku melihat Kamu bertarung dengan Albert. Tolong ajari aku pedang suatu hari nanti. "
 
-“Eh?”
-
- 
-
-Seorang penjaga muda memberi hormat ke arah saya.
+"Eh?"
 
  
 
-"Semua orang tahu tentang kualitas baik Anda."
+Seorang penjaga muda memberi hormat ke arah Aku.
+
+ 
+
+"Semua orang tahu tentang kualitas baik Kamu."
 
  
 
