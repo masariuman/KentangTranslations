@@ -148,9 +148,7 @@ Kata resepsionis wanita sambil menyentuh kakinya yang hilang dari bawah lutut.
 
 ☆☆
 
-Ini tempatnya.
-
- 
+l"Ini tempatnya."
 
 Lislet tiba di rumah biasa di pinggiran kota.
 
@@ -158,19 +156,11 @@ Tidak ada tanda dan itu adalah 2 kamar umum dengan tata ruang makan dan dapur ya
 
 Lislet mengetuk pintu sambil merasa sedikit gugup.
 
- 
-
-"Datang ~"
-
- 
+"ok ~"
 
 Suara menenangkan datang dari dalam rumah bersamaan dengan langkah kaki yang mendekat.
 
- 
-
 "Ya ya, Aku ingin tahu siapa itu?"
-
- 
 
 Seorang pria tua berpakaian rapi muncul setelah membuka pintu.
 
@@ -178,51 +168,31 @@ Rambut putihnya disisir rapi dan bajunya disetrika lurus.
 
 Mata di balik kacamatanya yang hijau tua tampak ramah.
 
- 
-
-"Er, erm, kudengar ada petualangan yang bisa didapat di sini."
-
- 
+l"Er, erm, kudengar ada petualangan yang bisa didapat di sini."
 
 Dengan sedikit gugup, Lislet menunjukkan medali yang diterimanya.
 
- 
-
-"Seorang petualang baru-san? Selamat datang, ini adalah cabang peringkat anak-anak dari Guild Petualang Logavia. Aku Sembold, pemimpin serikat untuk cabang ini. "
-
- 
+"Seorang petualang baru-san? Selamat datang, ini adalah cabang tingkat anak-anak dari Guild Petualang Logavia. Aku Sembold, pemimpin guild untuk cabang ini."
 
 Sembold tersenyum dan mengulurkan tangannya.
 
 Lislet membalas senyuman itu dan menjabat tangan lelaki tua itu dalam suasana hati yang baik.
 
- 
+l"Aku Li-Lit! Senang bertemu denganmu, Sembold-san!"
 
-"Aku Li-Lit! Senang bertemu denganmu, Sembold-san! "
-
-"Senang bertemu denganmu juga, petualang Lit. Yup, itu senyum yang indah. "
-
- 
+"Senang bertemu denganmu juga, petualang Lit. Yup, itu senyum yang indah."
 
 Sembold membawa Lislet ke kamar.
 
 Lit duduk di kursi sementara Sembold meletakkan susu dan kue di depan Lit.
 
- 
+"ini."
 
-"Sini."
+l"Terima kasih!"
 
-"Terima kasih!"
-
- 
-
-Ini mungkin tidak sehalus masakan istana yang selalu dimakan Lislet, tapi rasanya seperti di rumah yang membuatnya lezat.
-
- 
+Ini mungkin tidak seenak masakan istana yang selalu dimakan Lislet, tapi memberikan rasa buatan rumah yang membuatnya lezat.
 
 "Kamu anak yang berperilaku baik."
-
- 
 
 Sembold berkomentar sambil melihat tindakan Lislet.
 
@@ -232,57 +202,37 @@ Lislet tanpa sadar berhenti makan.
 
 Sembold tertawa.
 
- 
-
-"Dan intuisi Kamu tajam. Ya, kamu memiliki masa depan yang cerah, Nak. "
-
- 
+"Dan intuisimu tajam. Ya, kamu memiliki masa depan yang cerah, Nak."
 
 Di bawah desakan Sembold, Lislet terus makan.
 
-Meskipun pertukarannya singkat, Lit sedikit bersemangat.
-
- 
+Meskipun pertemuannya singkat, Lit sedikit bersemangat.
 
 (Dia merasa persis seperti yang Aku bayangkan sebagai seorang petualang!)
-
- 
 
 Setelah makan, Lislet dan Sembold pindah ke papan yang tergantung di dinding di ujung ruangan.
 
 Ada berbagai jenis kertas yang menempel di papan tulis.
 
- 
-
 "Kamu dapat menerima permintaan di sini."
 
- 
+Lislet membaca kertas yang ditempel di dinding sambil merasakan kegembiraan.
 
-Lislet membaca koran yang ditempel di dinding sambil merasakan kegembiraan.
-
- 
-
-"Erm, mengantar dan mengantarkan surat, membeli sayuran, menjaga jalan-jalan, menghilangkan gulma taman…"
-
- 
+l"Erm, mengantar dan mengantarkan surat, membeli sayuran, perjagaan jalan-jalan, menghilangkan gulma taman..."
 
 Imbalannya hanya beberapa koin tembaga biasa.
 
 Tampaknya orang dewasa yang mencintai anak-anak berkumpul di sini dan meminta bantuan kecil.
 
-Mereka mungkin berpikir untuk membiarkan anak-anak yang ingin menjadi petualang merasakan bagaimana rasanya.
+Mereka mungkin berpikir untuk membiarkan anak-anak yang ingin menjadi petualang merasakan bagaimana rasanya menjadi petualang.
 
 Sembold, staf Guild Petualang dan Safi menyediakan taman bermain anak-anak ini bersama-sama.
 
 Lislet menunjuk ke salah satu pemberitahuan itu.
 
- 
+l"Aku ingin mencoba melakukan permintaan pembelian sayuran ini!"
 
-"Aku ingin mencoba melakukan permintaan pembelian sayuran ini!"
-
- 
-
-Lislet berkata dengan suara yang hidup.
+Lislet berkata dengan suara yang riang.
 
 Sebagai seorang putri, Lislet secara alami tidak pernah membeli sayuran dari penjual sayur kota.
 
