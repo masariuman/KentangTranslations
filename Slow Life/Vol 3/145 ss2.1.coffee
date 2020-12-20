@@ -76,13 +76,11 @@ Saat Ugeuge-san muncul melalui lubang di dinding, gadis di dalam gubuk itu berte
 
 Gadis itu berusia 14 tahun tahun ini.
 
-Dia tampak sedikit lebih muda dari generasi yang sama, mungkin karena gizi buruk yang menyebabkan perkembangan yang tertunda.
+Dia tampak sedikit lebih muda dari generasinya, mungkin karena gizi buruk yang menyebabkan perkembangan yang tertunda.
 
-Bagaimanapun, kulitnya memiliki warna yang sehat dan bersinar dan dia pasti dilahirkan dengan vitalitas untuk bertahan hidup melawan kemiskinan.
+kulitnya memiliki warna yang sehat dan bersinar dan dia pasti dilahirkan dengan vitalitas untuk bertahan hidup melawan kemiskinan.
 
 Terutama rambut emasnya, meski tidak dirawat dengan baik, namun tetap begitu indah hingga membuat iri para putri bangsawan.
-
- 
 
 Ugeuge-san melompat ke atas kepala gadis itu dan menunjukkan koin tembaga itu padanya.
 
@@ -94,103 +92,71 @@ Ugeuge-san melompat ke dalam kandang serangga sambil makan sampai perutnya penuh
 
 Gadis itu menatap kejenakaannya dengan riang.
 
- 
-
 Ini adalah hari kelima Ugeuge-san datang ke rumah ini.
 
 Ugeuge-san mungkin tidak tahu nama gadis itu tapi dia mengenalinya sebagai teman.
 
 Ugeuge-san, setelah menyelesaikan makannya, tidur siang dengan puas saat perutnya yang bulat mengguncang.
 
- 
-
 ☆☆
 
- 
-
-Malam.
+Malam hari.
 
 Dua anak laki-laki berusia akhir belasan duduk di dekat sisi gubuk tempat gadis itu tinggal dan sedang melakukan sesuatu.
 
- 
+"Penyihir naga, kamu akan dihukum dibakar."
 
-"Penyihir naga, kamu akan dihukum bakar."
-
- 
-
-Bocah itu sepertinya menemukan sesuatu yang lucu dalam kata-katanya sendiri saat dia tertawa keras.
+Bocah itu sepertinya menemukan sesuatu yang lucu dan dia tertawa keras.
 
 Mereka sedang menyiapkan kayu bakar dan minyak. Mereka bermaksud untuk membakar gubuk gadis itu.
 
-The divine protection of the boy taking the initiative to prepare for the arson was 『Inquisition Officer』. In his case, the sense of justice of his divine blessing was skewed in the wrong direction.
+Perlindungan ilahi dari bocah yang mengambil inisiatif untuk mempersiapkan pembakaran adalah 『Petugas Inkuisisi』. Dalam kasusnya, rasa keadilan dari perlindungan ilahi miring ke arah yang salah.
 
-The other boy had the common 『Warrior』 divine protection but he was influenced by the 『Inquisition Officer』boy and believed that they were doing the right thing, further reinforcing the boy’s impulses.
+bocah lainnya lain memiliki perlindungan ilahi warrior yang umum tetapi dia dipengaruhi oleh anak laki-laki『 Petugas Inkuisisi 』dan percaya bahwa mereka melakukan hal yang benar, yang semakin memperkuat dorongan bocah itu.
 
- 
+"kamu bisa memadamkan api dengan menyiramkan air abu-abu yang berbau busuk ke rumahmu sendiri, tapi baunya mungkin akan bertahan seumur hidup."
 
-"You could extinguish the fire by splashing that grey stinking water on your own home but the smell will probably last a lifetime."
+Anak laki-laki itu tertawa dengan senyum yang menyimpang.
 
- 
+Arson adalah kejahatan serius. Tapi mereka tidak menyadarinya.
 
-The young boys laughed with distorted smiled.
+Anak laki-laki itu melempar ranting yang menyala.
 
-Arson was a serious crime. But they were not aware of it.
+Ranting itu menggambar parabola berputar ke arah kayu bakar yang disiram dengan banyak minyak... tapi tiba-tiba terbang kembali ke wajah anak itu.
 
- 
-
-The boy threw a lighted twig.
-
-The twig drew a parabola as it rotated toward the firewood doused with plenty of oil … but it suddenly flew back at the boy’s face.
-
-Titik terang dari ranting itu mengenai tepat di hidung anak laki-laki itu dengan kekuatan yang cukup untuk membayangkan itu akan menyebabkan suara bantingan.
-
- 
+Titik terang dari ranting itu mengenai tepat di hidung bocah itu dengan kekuatan yang cukup untuk membayangkan itu akan menyebabkan suara bantingan.
 
 "Gyaaa !!"
-
- 
 
 Selanjutnya, ranting yang terbakar itu menempel di wajah bocah itu.
 
 Bocah itu panik dan jatuh sambil memegangi hidungnya yang semakin membara.
 
- 
-
 "I-itu kutukan penyihir !!"
 
-Anak-anak lelaki, yang untungnya tidak menjadi penjahat, menjerit saat mereka melarikan diri dengan tergesa-gesa.
+bocah itu, yang untungnya tidak menjadi penjahat, menjerit dan mereka melarikan diri dengan tergesa-gesa.
 
-Ugeuge-san, yang sedang memanipulasi benang dari belakang anak laki-laki itu, mengangkat tangannya ke punggung mereka dan mengancam mereka untuk tidak pernah datang lagi.
+Ugeuge-san, yang sedang memanipulasi benang dari belakang bocah itu, mengangkat tangannya ke punggung mereka dan mengancam mereka untuk tidak pernah datang lagi.
 
 "Apa yang terjadi?"
 
 Gadis itu keluar dari gubuk setelah mendengar suara di luar.
 
- 
-
-"Spider-san."
-
- 
+"laba-laba-san."
 
 Ugeuge-san menyambutnya dengan melompat ke udara.
 
 Gadis itu tersenyum tetapi ekspresinya menjadi kabur ketika dia melihat kayu bakar tertinggal di dinding.
 
- 
+"Apakah kamu membantu mengusir mereka?"
 
-"Apakah Anda membantu mengusir mereka?"
-
- 
-
-Ugeuge-san melambaikan tangannya dengan berani tapi gadis itu tidak percaya kalau laba-laba kecil bisa mengusir anak-anak yang tidak bisa diatur yang bahkan orang dewasa desa pun punya masalah.
+Ugeuge-san melambaikan tangannya dengan berani tapi gadis itu tidak percaya kalau laba-laba kecil bisa mengusir anak-anak yang tidak bisa diatur yang bahkan orang dewasa desa pun bermasalah mengurus mereka.
 
 Dia menyimpulkan bahwa mereka membakar diri mereka sendiri saat menangani api.
 
 Setelah gadis itu menyingkirkan kayu bakar, dia kembali ke gubuk dengan ekspresi sedih.
 
 Ugeuge-san mengejar punggungnya.
-
- 
 
 Di dalam gubuk.
 
@@ -200,21 +166,13 @@ Ugeuge-san, terlahir sebagai pemburu, tahu bahwa gadis itu hidup sendiri.
 
 Tidak peduli berapa lama dia menunggu, mungkin tidak akan ada yang kembali.
 
- 
-
-"Spider-san, ini hanya waktu yang singkat tapi terima kasih."
-
- 
+"laba-laba-san, ini hanya waktu yang singkat tapi terima kasih."
 
 Gadis itu menatap Ugeuge-san dengan senyum kesepian.
 
 Ugeuge-san memiringkan kepalanya.
 
- 
-
 "Aku pikir Aku akan meninggalkan desa ini besok pagi."
-
- 
 
 Ugeuge-san mengangkat lengannya.
 
@@ -226,71 +184,45 @@ Itulah mengapa mereka percaya bahwa pilihan gadis itu untuk melarikan diri dari 
 
 Meskipun gadis itu tidak mengerti ucapan Ugeuge-san.
 
- 
+"Terima kasih laba-laba-san... karena telah mendukungku."
 
-"Terima kasih spider-san… karena telah mendukungku."
-
- 
-
-Tapi perasaan Ugeuge-san terpancar.
-
- 
+Tapi perasaan Ugeuge-san sampai kepadanya.
 
 ☆☆
 
- 
-
 "Gadis penyihir naga itu mengutuk putraku! Aku tidak akan tahan untuk itu !! "
 
-"Jangan berteriak. Meskipun mereka masih anak-anak, kami tidak dapat membela mereka karena telah menyalakan api. Jika mereka benar-benar membakar, mereka akan digantung. "
+"Jangan berteriak. Meskipun mereka masih anak-anak, kita tidak dapat membela mereka karena telah menyalakan api. Jika mereka benar-benar membakar, mereka akan digantung."
 
-"Tapi! Anak itu memang penyihir! Sama seperti ibunya! "
-
- 
+"Tapi! Anak itu memang penyihir! Sama seperti ibunya!"
 
 Terjadi kecelakaan.
 
- 
-
 "Aduh!?"
-
- 
 
 Sebuah cangkir jatuh di atas kepala wanita yang berisik itu.
 
-Para penduduk desa melihat ke langit-langit tetapi tidak ada seorang pun di langit-langit yang diterangi oleh kandil.
-
- 
+Para penduduk desa melihat ke langit-langit tetapi tidak ada seorang pun di langit-langit.
 
 "Itu kutukan penyihir !!"
-
- 
 
 Seseorang berteriak. Penduduk desa sibuk.
 
 Diantara saat itu, seorang lelaki tua bergumam.
 
- 
-
 "Dia mungkin menyimpan dendam pada kita."
 
-"... Tapi, kita tidak bisa berbuat apa-apa, pihak lain adalah tuannya ... apa yang akan kita lakukan jika dia menoleh ke pedang?"
+"... Tapi, kita tidak bisa berbuat apa-apa, mereka adalah lord ... apa yang akan kita lakukan jika mereka menyerang kita?"
 
-"Karena kami merasa tidak enak untuk itu, kami telah memberi makan gadis itu sejauh ini dengan persediaan makanan kami yang terbatas jadi dia harus bersyukur, tidak ada alasan baginya untuk marah!"
+"Karena kita merasa tidak enak untuk itu, kita telah memberi makan gadis itu sejauh ini dengan persediaan makanan kita yang terbatas jadi dia harus bersyukur, tidak ada alasan baginya untuk marah!"
 
 "Bahkan setelah kita mengusirnya untuk tinggal di samping sungai abu-abu itu?"
 
-"A-ada apa denganmu! Seperti Anda adalah orang yang berbicara! "
-
- 
+"A-ada apa denganmu! padahal kamu juga melakukannya!"
 
 Ugeuge-san telah mengamati desa-desa yang bertikai dari atas balok langit-langit untuk sementara waktu tapi memutuskan bahwa tidak ada artinya menonton lagi dan dia pergi.
 
- 
-
 ☆☆
-
- 
 
 Hari berikutnya.
 
@@ -300,57 +232,31 @@ Dia membawa kenang-kenangan ayahnya, pedang baja, di punggungnya dan dia mengena
 
 Dia memiliki perisai kayu juga tapi dia bukan pejuang yang kuat seperti ayahnya dan tidak bisa menggunakan pedang ayahnya dengan satu tangan sehingga dia meninggalkannya.
 
- 
-
 Dia melihat pohon tumbang dan memutuskan untuk istirahat.
 
- 
-
 "Kyaa !?"
-
- 
 
 Sebuah bayangan kecil muncul dari pohon tumbang dan gadis itu berteriak karena terkejut.
 
 Namun, setelah melihat sosok bayangan itu, senyuman muncul di wajahnya.
 
- 
-
-"Spider-san !?"
-
- 
+"laba-laba-san !?"
 
 Ugeuge-san mengangkat kaki kanan depan dengan jentikan sebagai salam.
 
- 
-
 "Mengapa kamu di sini!?"
-
- 
 
 Daripada menjawab, Ugeuge-san melompat ke bahunya.
 
- 
-
 "Apakah kamu ikut denganku?"
 
- 
+dia menggelengkan kepalanya ke samping.
 
-Itu menggelengkan kepalanya ke samping.
+"Begitu, jadi hanya sebentar saja... tapi aku senang! Aku tidak berpikir akan ada orang yang peduli denganku!"
 
- 
+Ugeuge-san menepuk tangan dan menggerakkan kakinya.
 
-"Begitu, jadi sampai setengah jalan… tapi aku senang! Aku tidak berpikir akan ada orang yang peduli dengan Aku! "
-
- 
-
-Ugeuge-san pitter-tepuk dan menggerakkan kakinya.
-
- 
-
-"Itu benar, spider-san bukanlah siapa-siapa selain laba-laba. Ahaha… semua orang desa membenciku tapi aku puas jika spider-san adalah temanku. "
-
- 
+"Itu benar, laba-laba-san bukanlah siapa-siapa selain laba-laba. Ahaha... semua orang desa membenciku tapi aku puas jika laba-laba-san adalah temanku."
 
 Seekor laba-laba kecil di bahunya adalah pemandu perjalanan gadis itu.
 
