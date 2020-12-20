@@ -342,33 +342,21 @@ Seperti permata yang hancur dan pecah, Leonor berbaring di dasar sungai.
 
 Namun, matanya bersinar dengan cahaya yang kuat sampai akhir... sampai-sampai Aku tanpa sadar merasa bahwa itu indah.
 
- 
-
-"Dia meninggal."
-
- 
+g"Dia sudah mati."
 
 Aku berbalik dan mengumumkan kepada semua orang.
 
- 
-
 "Begitu, jadi sudah berakhir."
-
- 
 
 Mistome-shi tidak lagi memiliki energi yang tersisa dan duduk.
 
 Dia tampak seperti akan pingsan jadi Garadin mendukungnya.
 
- 
+"Sheesh, jangan buat aku khawatir di usia ini."
 
-"Sheesh, jangan buat aku khawatir untukmu ketika aku sudah seusia ini."
+"Terima kasih atas kerja kerasnya. Tapi... ini yang terakhir."
 
-"Terima kasih atas kerja kerasnya. Tapi... ini yang terakhir. "
-
-"Yang terakhir ya? Baik Kamu dan Aku sudah berada pada usia di mana sulit untuk menggunakan pedang. Mari hidup dengan tenang dan damai mulai sekarang. "
-
- 
+"Yang terakhir ya? Baik Kamu dan Aku sudah berada pada usia di mana sulit untuk menggunakan pedang. Mari hidup dengan tenang dan damai mulai sekarang."
 
 Mata Garadin baik dan ada kasih sayang yang ditemukan di antara para sahabat.
 
@@ -376,37 +364,25 @@ Mistome-shi tidak mengatakan apa-apa lagi dan menutup matanya dengan tenang.
 
 Aku mengamati medan perang.
 
- 
-
 "Sepertinya pertempuran telah berakhir juga."
-
- 
 
 Lit mengangkat teriakan kemenangan untuk menekankan kekalahan Leonor.
 
 Meskipun bahkan dengan hilangnya Leonor dan kapal Raja Iblis, pasukan Veronia masih memiliki keunggulan dalam hal kekuatan militer ...
 
- 
+"Kembali ke kapal! Musuh belum mencapai laut!"
 
-"Kembali ke kapal! Musuh belum mencapai laut! "
+"Komandan tewas! Gali ini saja tidak cukup sebagai hadiah!"
 
-"Komandan tewas! Galiung ini saja tidak cukup sebagai hadiah! "
+"Kita tidak bisa kembali ke Veronia karena ratu sudah mati! Cepat lari!"
 
-"Kita tidak bisa kembali ke Veronia karena ratu sudah mati! Cepat lari! "
-
- 
-
-Moral di antara tentara Veronia benar-benar runtuh.
+semangat di antara tentara Veronia benar-benar runtuh.
 
 Lagipula, itu adalah kumpulan tentara bayaran yang dijauhi yang bersedia berpihak pada pasukan Raja Iblis jika ada emas.
 
 Tidak ada yang mencoba membalas dendam kepada ratu karena beberapa melarikan diri dengan kapal, beberapa naik ke darat dan melarikan diri jauh dan, tidak banyak, tetapi beberapa melemparkan senjata mereka dan menyerah.
 
- 
-
-"Seperti yang diharapkan dari Lit."
-
- 
+g"Seperti yang diharapkan dari Lit."
 
 Meski itu adalah perang pertama yang dialami tentara Zoltan, jumlah korbannya kecil.
 
@@ -414,14 +390,10 @@ Perintah Lit sangat bagus.
 
 Dia melakukannya dengan baik melindungi para prajurit yang tidak terbiasa berperang.
 
- 
+r"Onii Chan."
 
-"Onii Chan."
+g"Kerja bagus Ruti."
 
-Kerja bagus Ruti.
+r"Yup... Aku lelah, begitu, jadi seperti inilah rasanya lelah."
 
-"Yup... Aku lelah, begitu, jadi seperti inilah rasanya lelah."
-
- 
-
-Ruti memelukku dan 'Fuuu' menghembuskan nafas.
+Ruti memelukku dan 'Fuuu' menghela nafas.
