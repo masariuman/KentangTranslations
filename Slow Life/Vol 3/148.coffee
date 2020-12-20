@@ -172,17 +172,15 @@ Setelah itu, dia berjalan lurus menuju Leonor.
 
 "Aku membuatmu menunggu."
 
-"Kamu benar-benar melakukannya. Apakah itu semua kata perpisahan yang Kamu miliki untuk teman Kamu? "
+"Kamu benar-benar melakukannya. Apakah itu semua kata perpisahan yang Kamu miliki untuk temanmu? "
 
-"Bagaimana denganmu? Kamu tidak memiliki siapa pun untuk meninggalkan kata-kata perpisahan Kamu? Bagaimana dengan Geyserik? "
+"Bagaimana denganmu? Kamu tidak memiliki siapa pun untuk meninggalkan kata-kata perpisahanmu? Bagaimana dengan Geyserik?"
 
-"Tidak ada. Aku tidak tertarik pada siapa yang memikirkan Aku setelah Aku mati. "
+"Tidak ada. Aku tidak tertarik pada siapa yang memikirkanku setelah Aku mati."
 
-"Aku melihat. Hidup yang sepi. "
+"begitu ya... Hidup yang sepi."
 
 "Dan hidupmu adalah saat dimana kamu terus-menerus kehilangan teman."
-
- 
 
 Mereka berdua menyiapkan pedang mereka.
 
