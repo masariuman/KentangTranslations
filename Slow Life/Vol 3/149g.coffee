@@ -74,6 +74,8 @@ l"Ini juga terlihat enak hari ini."
 
 Lit meletakkan kepalanya di pundakku dan memelukku dari belakang saat dia berkomentar.
 
+<gambar>
+
 g"Ruti akan senang hari ini juga dengan bento Red."
 
 Bento yang Aku buat akan dikirim ke Ruti.
