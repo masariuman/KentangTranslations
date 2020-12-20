@@ -100,33 +100,25 @@ l"aku benar-benar menolak! Aku tidak akan mempertimbangkan kehidupan Lit selain 
 
 Dia menolak mereka begitu saja.
 
-Karena Ruti, Lit, dan Tise, diriku tersembunyi dan Aku bisa melanjutkan dengan damai seperti ini jadi Aku merasa sedikit menyesal.
+Karena Ruti, Lit, dan Tise, diriku tersembunyi dan Aku bisa melanjutkan dengan damai seperti ini jadi Aku merasa sedikit bersalah untuk mereka.
 
-"Ruti akhirnya bisa kabur dari『 Hero 』dan memulai hidup lambat tapi sekarang dia terlibat dalam kejadian seperti itu lagi."
-
- 
+g"Ruti akhirnya bisa kabur dari『 Pahlawan 』dan memulai hidup santai tapi sekarang dia terlibat dalam kejadian seperti itu lagi."
 
 Entah apa pendapat Ruti tentang itu.
 
 Aku sedikit khawatir.
 
- 
+g"Kalau begitu aku akan pergi sebentar."
 
-"Kalau begitu aku akan pergi sebentar."
+l"Baiklah, hati-hati."
 
-"Baiklah, hati-hati."
-
- 
-
-Lit melepaskan Aku dan Aku berjalan menuju kongres yang terletak di Distrik Pusat tempat Ruti berada.
+Lit melepaskanku dan Aku berjalan menuju kongres yang terletak di Distrik Pusat tempat Ruti berada.
 
 ☆☆
 
- 
+Kota Zoltan dipenuhi dengan semangat.
 
-Kota Zoltan dipenuhi dengan vitalitas.
-
-Ada sepasang bajak laut dan penjaga minum sejak siang hari dan bernyanyi sambil bahu membahu.
+Ada sepasang bajak laut dan penjaga yang minum sejak siang hari dan bernyanyi sambil bahu membahu.
 
 Pedagang yang menjual peralatan hasil rampasan perang.
 
@@ -134,17 +126,13 @@ Seorang petualang yang menceritakan kisah pahlawan perang dengan tombak di tanga
 
 Para petualang bersorak sambil terlihat sedang bersenang-senang.
 
- 
+"Oi, para Ksatria Drake pelari Zoltan dan para pelaut Pangeran Sarius sedang minum-minum di sana!"
 
-"Oi, para Ksatria Drake Lari Zoltan dan para pelaut Pangeran Sarius sedang minum-minum di sana!"
-
-"Serius? Mari kita lihat! "
-
- 
+"Serius? ayo kita lihat! "
 
 Setelah seseorang berteriak, kerumunan petualang pergi dalam sekejap mata.
 
-Petualang agung yang tertinggal itu menjatuhkan bahunya dan para pedagang tidak bisa menahan tawa.
+Petualang yang tertinggal itu menjatuhkan bahunya dan para pedagang tidak bisa menahan tawa.
 
 Para bajak laut dan penjaga pergi ke petualang dan memberinya alkohol yang mereka minum.
 
