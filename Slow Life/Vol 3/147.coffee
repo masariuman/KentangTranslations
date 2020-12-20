@@ -198,31 +198,23 @@ t"itu mungkin item sihir yang mengesankan tapi orang yang menggunakannya tidak."
 
 Setelah kehilangan armadanya, pasukannya, Iblis Asura dan bahkan harta Veronia (kartu andalannya), tampaknya Leonor telah menghabiskan semua kemampuannya.
 
-Pada akhirnya, Leonor mengangkat pedang tipis di tangan kanannya dan menusukkannya ke arah Ruti saat dia berdiri di antara dia dan Mistome-shi.
+Pada akhirnya, Leonor mengangkat pedang tipis di tangan kanannya dan menusukkannya ke arah Ruti ketika dia berdiri di antara dia dan Mistome-shi.
 
-Pemogokan itu anggun dan penampilannya tampak seperti buku teks.
+tapi tusukan itu anggun dan penampilannya tampak seperti tusukan buku.
 
 Tapi tentu saja, itu tidak bisa dibandingkan dengan serangan dari Iblis Asura dan lebih rendah dari prajurit biasa.
 
- 
-
-"Eh?"
-
- 
+r"Eh?"
 
 Tapi Ruti menerima serangan lambat itu.
 
-Pedang Leonor menyerempet kulit Ruti namun gagal meninggalkan goresan di tubuh Ruti yang diperkuat oleh 『Hero』.
+Pedang Leonor menyerempet kulit Ruti namun gagal meninggalkan goresan di tubuh Ruti yang diperkuat oleh 『Pahlawan』.
 
 Meski begitu, Ruti mundur dan menatap Leonor dengan ekspresi tidak percaya.
 
- 
+"Ada apa dengan ekspresi itu? Untuk pahlawan brilian sepertimu, aku hanyalah lawan yang lusuh."
 
-"Ada apa dengan ekspresi itu? Untuk pahlawan brilian sepertimu, aku hanyalah lawan yang lusuh. "
-
-"O-Onii-chan! Tingkat perlindungan ilahi Leonor !! "
-
- 
+r"O-Onii-chan! level perlindungan ilahi Leonor !! "
 
 Ruti sedang ditekan.
 
@@ -230,15 +222,11 @@ Tise dan Garadin sepertinya menyadarinya dan mereka berhenti bergerak karena ter
 
 Aku berdiri untuk menutupi Ruti dan menjawab pertanyaannya.
 
- 
-
-"Ya itu benar. Perlindungan ilahi Leonor adalah 『Prajurit』. Dan tingkat perlindungan ilahi-nya adalah 1 ... bahkan setelah melakukan semua ini, Leonor belum pernah membunuh satu orang pun sebelumnya. "
-
- 
+"Ya itu benar. Perlindungan ilahi Leonor adalah 『Warrior』. Dan level perlindungan ilahi-nya adalah 1 ... bahkan setelah melakukan semua ini, Leonor belum pernah membunuh satu orang pun sebelumnya."
 
 Dunia ini dipenuhi dengan perkelahian.
 
-Semua makhluk hidup saling membunuh untuk menumbuhkan perlindungan ilahi mereka.
+Semua makhluk hidup saling membunuh untuk meningkatkan perlindungan ilahi mereka.
 
 Leonor jahat.
 
