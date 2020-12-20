@@ -1,34 +1,24 @@
-Bab 147: Wanita jahat berdarah dan perlindungan ilahi murni
-
-Penerjemah: Tseirp
-
- 
+Bab 147: Wanita jahat dan perlindungan ilahi murni
 
 "Apa yang membuatmu sangat marah, Onee-sama?"
 
- 
-
 Leonor bertanya dengan wajah gadis muda yang lugu dengan senyum penuh niat buruk.
 
- 
+"Leonor! Bahkan jika kamu membenciku, dan aku mengerti jika kamu membenci Geyserik dan Ririnrara juga... tapi kamu masih seorang bangsawan Veronian! Kamu sebenarnya sengaja memotong garis keturunan dari keluarga kerajaan Veronia !!"
 
-Leonor! Bahkan jika kamu membenciku, dan aku mengerti jika kamu membenci Geyserik dan Ririnrara juga… tapi kamu masih seorang bangsawan Veronian! Kamu sebenarnya sengaja memotong garis keturunan dari keluarga kerajaan Veronia !! ”
+"Eh~ terus?"
 
-“Eh jadi apa?”
+"Apa..."
 
-“Apa…”
-
-“Sebagai tambahan, setelah Raja Geyserik meninggal, aku berencana menyerahkan Kerajaan Veronia kepada kedua Asura ini.”
+"Sebagai tambahan, setelah Raja Geyserik meninggal, aku berencana menyerahkan Kerajaan Veronia kepada kedua Asura ini."
 
 "Mengapa."
 
 "Mengapa?"
 
-“Anda terobsesi dengan posisi ratu Veronia. Bukankah itu untuk mengamankan putramu sebagai raja…? ”
+"Kamu terobsesi dengan posisi ratu Veronia. Bukankah itu untuk mengamankan putramu sebagai raja...? "
 
-“Fufu… Onee-sama masih bisa mengatakan hal seperti itu setelah aku melakukan banyak hal padamu. Kamu orang yang sederhana. "
-
- 
+"Fufu... Onee-sama masih bisa mengatakan hal seperti itu setelah aku melakukan banyak hal padamu. Kamu orang yang sederhana. "
 
 Ada suara lembut dari udara yang keluar.
 
@@ -38,11 +28,11 @@ Tidak banyak tenaga tapi mungkin dilapisi dengan racun.
 
  
 
-“Sayangnya, bahkan wanita tua jelek sepertimu memiliki seorang kesatria. Meskipun peralatannya cukup lusuh. ”
+"Sayangnya, bahkan wanita tua jelek sepertimu memiliki seorang kesatria. Meskipun peralatannya cukup lusuh. "
 
  
 
-Leonor berkomentar saat dia menunjuk ke pedang tembaga saya dan tertawa.
+Leonor berkomentar saat dia menunjuk ke pedang tembaga Aku dan tertawa.
 
  
 
@@ -56,31 +46,31 @@ Leonor berhenti tertawa setelah aku memanggil namanya.
 
 "Kamu adalah?"
 
-“Red, hanya seorang apoteker. Saya bukan seorang ksatria. "
+"Red, hanya seorang apoteker. Aku bukan seorang ksatria. "
 
-"Apakah begitu? Jika Anda seorang apoteker maka tolong jaga kesehatan Onee-sama. Saya akan sedih jika dia meninggal karena sakit sebelum saya membunuhnya. "
+"Apakah begitu? Jika Kamu seorang apoteker maka tolong jaga kesehatan Onee-sama. Aku akan sedih jika dia meninggal karena sakit sebelum Aku membunuhnya. "
 
-“Ratu, kamu adalah segumpal keserakahan. Tapi tampaknya Anda tidak memiliki tujuan untuk kekuatan yang Anda peroleh. "
+"Ratu, kamu adalah segumpal keserakahan. Tapi tampaknya Kamu tidak memiliki tujuan untuk kekuatan yang Kamu peroleh. "
 
-“Apa yang akan diketahui oleh apoteker belaka? Itu wajar, saya adalah ratu. Mengatur dapat dilakukan oleh siapa pun selain saya. ”
+"Apa yang akan diketahui oleh apoteker belaka? Itu wajar, Aku adalah ratu. Mengatur dapat dilakukan oleh siapa pun selain Aku. "
 
-Itu sebabnya saya mengatakan Anda tidak memiliki kepentingan pribadi. Saya tidak dapat membayangkan berapa banyak sihir dan alkimia yang Anda gunakan untuk mempertahankan tubuh Anda seperti itu tetapi itu harus sangat menyakitkan ... itu bukan untuk mempertahankan bantuan dari Geyserik yang tidak Anda cintai sehingga harus mempertahankan kekuatan. Obsesi itu mengerikan. "
+Itu sebabnya Aku mengatakan Kamu tidak memiliki kepentingan pribadi. Aku tidak dapat membayangkan berapa banyak sihir dan alkimia yang Kamu gunakan untuk mempertahankan tubuh Kamu seperti itu tetapi itu harus sangat menyakitkan ... itu bukan untuk mempertahankan bantuan dari Geyserik yang tidak Kamu cintai sehingga harus mempertahankan kekuatan. Obsesi itu mengerikan. "
 
-Langsung ke poin Anda.
+Langsung ke poin Kamu.
 
-“Bahkan jika tujuan Anda jahat, vitalitas Anda berada di alam di mana orang biasa tidak akan pernah mencapainya. Saya murni hanya memuji Anda untuk itu. "
+"Bahkan jika tujuan Kamu jahat, vitalitas Kamu berada di alam di mana orang biasa tidak akan pernah mencapainya. Aku murni hanya memuji Kamu untuk itu. "
 
-“……”
+"......"
 
-“Tapi apa yang terjadi setelah itu? Apa yang Anda dapatkan setelah semua kerja keras, pertempuran, dan rasa sakit itu? Itu bukan untuk mewariskan kekuatan kepada keturunan Anda juga bukan untuk mengumpulkan kekayaan untuk kesenangan materi. Dan itu bukan demi darah bangsawanmu. "
+"Tapi apa yang terjadi setelah itu? Apa yang Kamu dapatkan setelah semua kerja keras, pertempuran, dan rasa sakit itu? Itu bukan untuk mewariskan kekuatan kepada keturunan Kamu juga bukan untuk mengumpulkan kekayaan untuk kesenangan materi. Dan itu bukan demi darah bangsawanmu. "
 
-“Ya, semuanya salah.”
+"Ya, semuanya salah."
 
-“Ini juga bukan dorongan dari perlindungan ilahi Anda. Perlindungan ilahi Anda jelas merupakan 『Prajurit』 ... Saya terkejut tetapi ada hal lain yang memengaruhi tindakan Anda selain peran yang diinginkan perlindungan ilahi Anda. "
+"Ini juga bukan dorongan dari perlindungan ilahi Kamu. Perlindungan ilahi Kamu jelas merupakan 『Prajurit』 ... Aku terkejut tetapi ada hal lain yang memengaruhi tindakan Kamu selain peran yang diinginkan perlindungan ilahi Kamu. "
 
-Tentu saja, ini adalah keinginan saya sendiri dan bukan karena perlindungan ilahi saya.
+Tentu saja, ini adalah keinginan Aku sendiri dan bukan karena perlindungan ilahi Aku.
 
-“Leonor, apa sebenarnya yang kamu dapatkan? Apa yang tersisa dari hidup Anda yang akan segera habis? ”
+"Leonor, apa sebenarnya yang kamu dapatkan? Apa yang tersisa dari hidup Kamu yang akan segera habis? "
 
  
 
@@ -92,11 +82,11 @@ Leonor memamerkan giginya dan membuka mulutnya cukup lebar untuk merobeknya saat
 
  
 
-“Ahahahaha… heesh, aku bertanya-tanya apa yang akan kamu katakan.”
+"Ahahahaha... heesh, aku bertanya-tanya apa yang akan kamu katakan."
 
-“……”
+"......"
 
-“Keuntungan, meninggalkan warisan… Saya tidak membutuhkan hal-hal seperti itu dalam hidup saya. Satu-satunya alasan saya hidup di dunia ini adalah untuk saya. Tidak ada artinya memikirkan apa yang tersisa setelah aku mati. Aku mengasingkan Onee-sama hanya karena aku ingin melakukannya. Saya akan memberikan negara kepada Asura karena alasan yang sama. Seperti memutuskan untuk makan apel atau anggur di pagi hari, apakah Anda memikirkan alasan untuk setiap pilihan yang Anda buat? Kamu tidak. Bahkan jika orang-orang menderita atau negaranya runtuh, saya tidak peduli. Dalam hidup saya, saya selalu melakukan apapun yang saya ingin lakukan, itu saja. ”
+"Keuntungan, meninggalkan warisan... Aku tidak membutuhkan hal-hal seperti itu dalam hidup Aku. Satu-satunya alasan Aku hidup di dunia ini adalah untuk Aku. Tidak ada artinya memikirkan apa yang tersisa setelah aku mati. Aku mengasingkan Onee-sama hanya karena aku ingin melakukannya. Aku akan memberikan negara kepada Asura karena alasan yang sama. Seperti memutuskan untuk makan apel atau anggur di pagi hari, apakah Kamu memikirkan alasan untuk setiap pilihan yang Kamu buat? Kamu tidak. Bahkan jika orang-orang menderita atau negaranya runtuh, Aku tidak peduli. Dalam hidup Aku, Aku selalu melakukan apapun yang Aku ingin lakukan, itu saja. "
 
  
 
@@ -120,15 +110,15 @@ Leonor memelototi saat dia mengangkat tongkatnya.
 
  
 
-“Apakah aku membuatmu marah, Onee-sama? Eh, kurasa wajar saja aku melakukannya. Onee-sama dengan anggun meninggalkan negara karena kamu mengira aku masih bangsawan Veronia meskipun aku jahat. Kerajaan ada karena negara itu ada sehingga tidak ada orang idiot yang akan menghancurkan negara mereka sendiri. "
+"Apakah aku membuatmu marah, Onee-sama? Eh, kurasa wajar saja aku melakukannya. Onee-sama dengan anggun meninggalkan negara karena kamu mengira aku masih bangsawan Veronia meskipun aku jahat. Kerajaan ada karena negara itu ada sehingga tidak ada orang idiot yang akan menghancurkan negara mereka sendiri. "
 
-“Ya, itulah yang saya pikirkan. Aku kehilanganmu dan kehilangan segalanya. Tapi saya yakin Geyserik dan Veronia akan tetap ada. ”
+"Ya, itulah yang Aku pikirkan. Aku kehilanganmu dan kehilangan segalanya. Tapi Aku yakin Geyserik dan Veronia akan tetap ada. "
 
-"Meskipun saya tidak tahu semua itu, cukup menghibur untuk menggosokkannya di depan orang yang saya hancurkan."
+"Meskipun Aku tidak tahu semua itu, cukup menghibur untuk menggosokkannya di depan orang yang Aku hancurkan."
 
-“Betapa menyedihkan hidup.”
+"Betapa menyedihkan hidup."
 
-“Hanya saya yang dapat menentukan nilai hidup saya sendiri, bahkan jika semua kebencian dunia berkumpul pada saya, saya memiliki kehidupan yang bahagia… dan akan terus memilikinya! Aku akan melewati hidup yang bahagia setelah aku mengakhiri dirimu, Onee-sama !! ”
+"Hanya Aku yang dapat menentukan nilai hidup Aku sendiri, bahkan jika semua kebencian dunia berkumpul pada Aku, Aku memiliki kehidupan yang bahagia... dan akan terus memilikinya! Aku akan melewati hidup yang bahagia setelah aku mengakhiri dirimu, Onee-sama !! "
 
 Mistome-shi membuat segel sedangkan Leonor hanya memerintahkan Asura Demons untuk menyerang.
 
@@ -138,7 +128,7 @@ Garadin dan aku berlari untuk menghentikan Asura Demons di jalur mereka.
 
  
 
-“Sebarkan, manusia!”
+"Sebarkan, manusia!"
 
  
 
@@ -154,7 +144,7 @@ Karena itu adalah satu pedang melawan enam pedang, tidak menguntungkan menerima 
 
  
 
-Jadi saya menyerang.
+Jadi Aku menyerang.
 
 Aku menangkis serangan Gashasura dan membuatnya menarik tubuhnya kembali.
 
@@ -168,15 +158,15 @@ Bahkan jika aku tahu kalau itu akan diblokir, itu menguntungkan bagiku untuk mem
 
  
 
-Alih-alih menjawab, saya melanjutkan dengan ayunan ke atas dari bawah.
+Alih-alih menjawab, Aku melanjutkan dengan ayunan ke atas dari bawah.
 
-Saya meninggalkan Gashasura dengan luka di bagian pahanya karena saya tidak tahan lagi dan mundur.
+Aku meninggalkan Gashasura dengan luka di bagian pahanya karena Aku tidak tahan lagi dan mundur.
 
 Kemudian, mantra Mistome-shi selesai.
 
  
 
-“Ayo, api dari tujuh lapisan neraka! Api penyucian yang menghancurkan segalanya! Suar Setan Ajaib Tertinggi !! ”
+"Ayo, api dari tujuh lapisan neraka! Api penyucian yang menghancurkan segalanya! Suar Setan Ajaib Tertinggi !! "
 
  
 
@@ -184,7 +174,7 @@ Api hitam legam dilepaskan dari tongkat Mistome-shi.
 
  
 
-“Sihir Misterius Iblis Tingkat Lanjut !!”
+"Sihir Misterius Iblis Tingkat Lanjut !!"
 
  
 
@@ -192,13 +182,13 @@ Chugara berteriak dan menyilangkan pedangnya untuk membuat penghalang melawan ma
 
  
 
-“Aku tidak menjarah Benua Hitam hanya untuk pertunjukan!”
+"Aku tidak menjarah Benua Hitam hanya untuk pertunjukan!"
 
  
 
 Itu adalah Sihir Iblis yang melepaskan semua kekuatan sihir yang tersisa di tubuhnya untuk membakar musuhnya.
 
-Itu adalah mantra skala besar yang saya lihat hanya sekali ketika saya bertarung melawan Tentara Raja Iblis.
+Itu adalah mantra skala besar yang Aku lihat hanya sekali ketika Aku bertarung melawan Tentara Raja Iblis.
 
 Kurasa Mistome-shi mendapat kesempatan untuk mempelajari Sihir Iblis Terkuat saat berkeliling Benua Hitam.
 
@@ -210,7 +200,7 @@ Saat itulah Ruti melompat masuk.
 
  
 
-"Mustahil! Ini adalah mantra terkuat di Benua Hitam !! ”
+"Mustahil! Ini adalah mantra terkuat di Benua Hitam !! "
 
  
 
@@ -232,7 +222,7 @@ Kedua Asura Demons runtuh.
 
  
 
-Leonor !? ”
+Leonor !? "
 
  
 
@@ -244,9 +234,9 @@ Permata merah tua di tangan kiri Leonor menyedot semua api Mistome-shi.
 
  
 
-“Ini adalah harta keluarga kerajaan Veronia,『 Sage 』Riris 'Heart Stone. Permata ini bisa menyerap mantra apa pun dan bahkan memantulkannya! "
+"Ini adalah harta keluarga kerajaan Veronia,『 Sage 』Riris 'Heart Stone. Permata ini bisa menyerap mantra apa pun dan bahkan memantulkannya! "
 
-“『 Sage 』Riris !? Warisan dari pendamping pahlawan generasi sebelumnya !! ”
+"『 Sage 』Riris !? Warisan dari pendamping pahlawan generasi sebelumnya !! "
 
  
 
@@ -254,7 +244,7 @@ Leonor mengarahkan permata itu pada kami.
 
  
 
-“Menyesal karena menjadi『 Archmage 』dan mati!”
+"Menyesal karena menjadi『 Archmage 』dan mati!"
 
  
 
@@ -264,7 +254,7 @@ Tapi saat berikutnya.
 
  
 
-“Gya !?”
+"Gya !?"
 
  
 
@@ -274,9 +264,9 @@ Pisau yang dilemparkan Tise menembus tangan Leonor dan Batu Hati Riris berguling
 
  
 
-“Ini mungkin item sihir yang mengesankan tapi orang yang menggunakannya tidak.”
+"Ini mungkin item sihir yang mengesankan tapi orang yang menggunakannya tidak."
 
-“Ka-kamu berani melukai dagingku…!”
+"Ka-kamu berani melukai dagingku...!"
 
  
 
@@ -290,7 +280,7 @@ Tapi tentu saja, itu tidak bisa dibandingkan dengan serangan dari Asura Demons d
 
  
 
-“Eh?”
+"Eh?"
 
  
 
@@ -302,9 +292,9 @@ Meski begitu, Ruti mundur dan menatap Leonor dengan ekspresi tidak percaya.
 
  
 
-“Ada apa dengan ekspresi itu? Untuk pahlawan brilian sepertimu, aku hanyalah lawan yang lusuh. "
+"Ada apa dengan ekspresi itu? Untuk pahlawan brilian sepertimu, aku hanyalah lawan yang lusuh. "
 
-“O-Onii-chan! Tingkat perlindungan ilahi Leonor !! "
+"O-Onii-chan! Tingkat perlindungan ilahi Leonor !! "
 
  
 
@@ -312,7 +302,7 @@ Ruti sedang ditekan.
 
 Tise dan Garadin sepertinya menyadarinya dan mereka berhenti bergerak karena terkejut.
 
-Saya berdiri untuk menutupi Ruti dan menjawab pertanyaannya.
+Aku berdiri untuk menutupi Ruti dan menjawab pertanyaannya.
 
  
 
