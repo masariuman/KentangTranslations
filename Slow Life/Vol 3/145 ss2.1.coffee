@@ -1,6 +1,6 @@
 Bab SS2.1: Ugeuge-san dan Naga Emas Bagian 1
 
-Zoltan. The Downtown smithy.
+Zoltan. The pandai besi pusat kota.
 
 Seekor laba-laba berjalan melintasi balok langit-langit.
 
@@ -8,85 +8,49 @@ Di bawahnya, kurcaci Mogurim sedang menceritakan kisah kepahlawanannya di depan 
 
 Mogurim adalah pandai besi yang membuat pedang tembaga yang digunakan Red dan shotel yang digunakan petualang Al.
 
- 
+"Ini adalah kisah ketika Aku tinggal di desa perintis Lingkaran Biru! Apakah kamu tahu tentang itu? Sebelum orang menetap di Lingkaran Biru, naga emas tinggal di tanah terkutuk itu. Pada malam badai, naga emas akan terbang ke langit dan menjarah makanan, harta, dan gadis-gadis tak berdosa dari desa perintis!"
 
-"Baik! Ini adalah kisah ketika saya tinggal di desa perintis Lingkaran Biru! Apakah kamu tahu tentang itu? Sebelum orang menetap di Lingkaran Biru, naga emas tinggal di tanah terkutuk itu. Pada malam badai, naga emas akan terbang ke langit dan menjarah makanan, harta, dan gadis-gadis tak berdosa dari desa perintis! ”
+"Ah - yeah yeah, terima kasih untuk pedang barunya."
 
-“Ah - yeah yeah, terima kasih untuk pedang barunya.”
+Petualang itu tersenyum pahit dan meninggalkan toko tanpa memperhatikan Mogurim.
 
- 
-
-Petualang itu tersenyum pahit dan meninggalkan toko tanpa memperhatikan sombong Mogurim.
-
- 
-
-"Sigh, tidak ada orang yang mendengarkan ceritaku."
-
- 
+"haaa~~, tidak ada orang yang mendengarkan ceritaku."
 
 Mulutnya terkubur di janggut kurcaci yang melengkung saat dia mengeluh.
 
 Saat Mogurim merasa kesepian, bayangan kecil turun dengan mulus di depan matanya.
 
- 
-
-“Oh, kenapa bukan Ugeuge-boya Tise.”
-
- 
+"Oh, bukannya kamu Ugeuge-boya Tise."
 
 Ugeuge-san melambaikan tangannya.
 
-Itu bersikeras bahwa namanya adalah 'Ugeuge-san', bukan 'Ugeuge-boya' tapi ...
+Dia memberi tahu bahwa namanya adalah 'Ugeuge-san', bukan 'Ugeuge-boya' tapi ...
 
- 
-
-“Betapa sopannya, menyapa meski dia laba-laba.”
-
- 
+"Betapa sopannya, menyapa meski dia laba-laba."
 
 Mogurim berkomentar dengan mood yang bagus.
 
-Ugeuge-san mengundurkan diri dan menggelengkan kepalanya sebelum mengetuk konter tempatnya berdiri dengan lengan kecilnya.
+Ugeuge-san berhenti dan menggelengkan kepalanya sebelum mengetuk konter tempatnya berdiri dengan lengan kecilnya.
 
- 
+"Hn? … Begitu, jadi kamu ingin mendengar tentang petualangan besarku dalam membunuh naga!"
 
-“Hn? … Begitu, jadi kamu ingin mendengar tentang petualangan besar saya dalam membunuh naga! ”
+Kali ini berhasil, Ugeuge-san berpikir sambil melambaikan tangannya dengan gembira.
 
- 
-
-Kali ini akan berhasil, Ugeuge-san berpikir sambil melambaikan tangannya dengan gembira.
-
- 
-
-“Baiklah ~ naga emas itu mungkin musuhku tapi itu makhluk yang luar biasa.”
-
- 
+"Baiklah ~ naga emas itu mungkin musuhku tapi itu makhluk yang luar biasa."
 
 Mogurim menekankan dengan mengacungkan kedua lengannya.
 
- 
-
-“Sebuah kerangka besar yang dapat menghancurkan rumah, api menetes dari celah antara taringnya yang menakutkan sebesar manusia, matanya berwarna merah darah dan jika ia melebarkan sayapnya, ia dapat terbang lebih cepat dan lebih jauh dari burung lain di langit. Dan yang paling menakutkan adalah sisik emasnya yang bersinar. Tidak ada pedang terkenal yang bisa meninggalkan bekas di atasnya, baju besi alami yang bahkan kurcaci sepertiku bisa kagumi. Itu adalah naga yang tak tertandingi tapi soliter. Itu kuat tapi itu sepi. ”
-
- 
+"Sebuah makhluk besar yang dapat menghancurkan rumah, api menetes dari celah antara taringnya yang menakutkan sebesar manusia, matanya berwarna merah darah dan jika ia melebarkan sayapnya, ia dapat terbang lebih cepat dan lebih jauh dari burung di langit. Dan yang paling menakutkan adalah sisik emasnya yang bersinar. Tidak ada pedang terkenal yang bisa meninggalkan bekas luka di atasnya, baju besi alami yang bahkan kurcaci sepertiku bisa kagumi. Itu adalah naga yang tak tertandingi tapi soliter. ia kuat tapi ia kesepian."
 
 Saat itulah Ugeuge-san mengangkat kedua lengannya.
 
- 
-
-“Hn? Apa itu? Oh, Anda ingin saya segera melanjutkan. Baiklah baiklah. Pertarunganku dengan naga kesepian itu menyebabkan benih persahabatan tumbuh di antara kita… ”
-
- 
+"Hn? Apa itu? Oh, kamu ingin Aku segera melanjutkan. Baiklah baiklah. Pertarunganku dengan naga kesepian itu menyebabkan benih persahabatan tumbuh di antara kami..."
 
 Ugeuge-san kecewa karena tidak bisa menyampaikan maksudnya lagi.
 
 Ugeuge-san ingin memberitahunya bahwa ada dua naga emas, bukan satu.
 
- 
-
 ☆☆
-
- 
 
 Sebelum Tise dan Ugeuge-san datang ke Zoltan. Sebelum Tise berteman dengan Ruti.
 
@@ -94,29 +58,21 @@ Ugeuge-san dan Tise datang ke desa perintis bernama Lingkaran Biru.
 
 Itu adalah desa kecil dengan sekitar 30 orang di sebelah danau dan bahkan tidak ada rumah yang berdiri sendiri, hanya rumah petak yang masing-masing digunakan bersama oleh tiga rumah tangga.
 
-Di sisi barat desa, ada sebuah bukit kecil yang di atasnya terdapat rumah tuan yang dikelilingi pagar kayu.
+Di sisi barat desa, ada sebuah bukit kecil yang di atasnya terdapat rumah bangsawan yang dikelilingi pagar kayu.
 
-Lord Zutto adalah tuan generasi kedua, putra Lord Brant, tuan yang membawa para pionir ke lokasi itu.
-
- 
+Zutto adalah bangsawan generasi kedua, putra Lord Brant, bangsawan yang membawa para pionir ke lokasi itu.
 
 Di desa itu, Ugeuge-san sedang bergoyang-goyang dengan satu koin tembaga di atas kepalanya.
 
-Sebagai seekor laba-laba, Ugeuge-san tidak benar-benar memahami sistem moneter tetapi ia tahu bahwa ada seseorang yang akan memberikan bug yang enak jika ia mengirimkan bongkahan logam yang didapatnya dari Tise.
+Sebagai seekor laba-laba, Ugeuge-san tidak benar-benar memahami sistem moneter tetapi ia tahu bahwa ada seseorang yang akan memberikan serangga yang enak jika ia mengirimkan bongkahan logam yang didapatnya dari Tise.
 
 Ugeuge-san, dalam istilah manusia, bersembunyi dari Tise dan menyelinap keluar untuk membeli makanan ringan.
 
- 
-
 Manusia itu tinggal di sebuah gubuk di dasar saluran irigasi yang diambil dari danau.
 
- 
+"Laba-laba-san!"
 
-“Spider-san!”
-
- 
-
-Saat Ugeuge-san memuncak melalui lubang di dinding, gadis di dalam gubuk itu berteriak dengan gembira.
+Saat Ugeuge-san muncul melalui lubang di dinding, gadis di dalam gubuk itu berteriak dengan gembira.
 
 Gadis itu berusia 14 tahun tahun ini.
 
@@ -172,7 +128,7 @@ The other boy had the common 『Warrior』 divine protection but he was influenc
 
  
 
-“You could extinguish the fire by splashing that grey stinking water on your own home but the smell will probably last a lifetime.”
+"You could extinguish the fire by splashing that grey stinking water on your own home but the smell will probably last a lifetime."
 
  
 
@@ -190,7 +146,7 @@ Titik terang dari ranting itu mengenai tepat di hidung anak laki-laki itu dengan
 
  
 
-“Gyaaa !!”
+"Gyaaa !!"
 
  
 
@@ -200,7 +156,7 @@ Bocah itu panik dan jatuh sambil memegangi hidungnya yang semakin membara.
 
  
 
-“I-itu kutukan penyihir !!”
+"I-itu kutukan penyihir !!"
 
 Anak-anak lelaki, yang untungnya tidak menjadi penjahat, menjerit saat mereka melarikan diri dengan tergesa-gesa.
 
@@ -212,7 +168,7 @@ Gadis itu keluar dari gubuk setelah mendengar suara di luar.
 
  
 
-“Spider-san.”
+"Spider-san."
 
  
 
@@ -222,7 +178,7 @@ Gadis itu tersenyum tetapi ekspresinya menjadi kabur ketika dia melihat kayu bak
 
  
 
-“Apakah Anda membantu mengusir mereka?”
+"Apakah Anda membantu mengusir mereka?"
 
  
 
@@ -246,7 +202,7 @@ Tidak peduli berapa lama dia menunggu, mungkin tidak akan ada yang kembali.
 
  
 
-“Spider-san, ini hanya waktu yang singkat tapi terima kasih.”
+"Spider-san, ini hanya waktu yang singkat tapi terima kasih."
 
  
 
@@ -256,7 +212,7 @@ Ugeuge-san memiringkan kepalanya.
 
  
 
-“Saya pikir saya akan meninggalkan desa ini besok pagi.”
+"Aku pikir Aku akan meninggalkan desa ini besok pagi."
 
  
 
@@ -272,7 +228,7 @@ Meskipun gadis itu tidak mengerti ucapan Ugeuge-san.
 
  
 
-“Terima kasih spider-san… karena telah mendukungku.”
+"Terima kasih spider-san… karena telah mendukungku."
 
  
 
@@ -284,9 +240,9 @@ Tapi perasaan Ugeuge-san terpancar.
 
  
 
-“Gadis penyihir naga itu mengutuk putraku! Aku tidak akan tahan untuk itu !! ”
+"Gadis penyihir naga itu mengutuk putraku! Aku tidak akan tahan untuk itu !! "
 
-“Jangan berteriak. Meskipun mereka masih anak-anak, kami tidak dapat membela mereka karena telah menyalakan api. Jika mereka benar-benar membakar, mereka akan digantung. ”
+"Jangan berteriak. Meskipun mereka masih anak-anak, kami tidak dapat membela mereka karena telah menyalakan api. Jika mereka benar-benar membakar, mereka akan digantung. "
 
 "Tapi! Anak itu memang penyihir! Sama seperti ibunya! "
 
@@ -306,7 +262,7 @@ Para penduduk desa melihat ke langit-langit tetapi tidak ada seorang pun di lang
 
  
 
-“Itu kutukan penyihir !!”
+"Itu kutukan penyihir !!"
 
  
 
@@ -316,15 +272,15 @@ Diantara saat itu, seorang lelaki tua bergumam.
 
  
 
-“Dia mungkin menyimpan dendam pada kita.”
+"Dia mungkin menyimpan dendam pada kita."
 
 "... Tapi, kita tidak bisa berbuat apa-apa, pihak lain adalah tuannya ... apa yang akan kita lakukan jika dia menoleh ke pedang?"
 
-“Karena kami merasa tidak enak untuk itu, kami telah memberi makan gadis itu sejauh ini dengan persediaan makanan kami yang terbatas jadi dia harus bersyukur, tidak ada alasan baginya untuk marah!”
+"Karena kami merasa tidak enak untuk itu, kami telah memberi makan gadis itu sejauh ini dengan persediaan makanan kami yang terbatas jadi dia harus bersyukur, tidak ada alasan baginya untuk marah!"
 
-“Bahkan setelah kita mengusirnya untuk tinggal di samping sungai abu-abu itu?”
+"Bahkan setelah kita mengusirnya untuk tinggal di samping sungai abu-abu itu?"
 
-“A-ada apa denganmu! Seperti Anda adalah orang yang berbicara! "
+"A-ada apa denganmu! Seperti Anda adalah orang yang berbicara! "
 
  
 
@@ -350,7 +306,7 @@ Dia melihat pohon tumbang dan memutuskan untuk istirahat.
 
  
 
-“Kyaa !?”
+"Kyaa !?"
 
  
 
@@ -360,7 +316,7 @@ Namun, setelah melihat sosok bayangan itu, senyuman muncul di wajahnya.
 
  
 
-“Spider-san !?”
+"Spider-san !?"
 
  
 
@@ -376,7 +332,7 @@ Daripada menjawab, Ugeuge-san melompat ke bahunya.
 
  
 
-“Apakah kamu ikut denganku?”
+"Apakah kamu ikut denganku?"
 
  
 
@@ -384,7 +340,7 @@ Itu menggelengkan kepalanya ke samping.
 
  
 
-“Begitu, jadi sampai setengah jalan… tapi aku senang! Saya tidak berpikir akan ada orang yang peduli dengan saya! "
+"Begitu, jadi sampai setengah jalan… tapi aku senang! Aku tidak berpikir akan ada orang yang peduli dengan Aku! "
 
  
 
@@ -392,7 +348,7 @@ Ugeuge-san pitter-tepuk dan menggerakkan kakinya.
 
  
 
-“Itu benar, spider-san bukanlah siapa-siapa selain laba-laba. Ahaha… semua orang desa membenciku tapi aku puas jika spider-san adalah temanku. ”
+"Itu benar, spider-san bukanlah siapa-siapa selain laba-laba. Ahaha… semua orang desa membenciku tapi aku puas jika spider-san adalah temanku. "
 
  
 
