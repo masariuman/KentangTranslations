@@ -94,19 +94,11 @@ Lengan Mistome-shi kurus.
 
 Kekuatan tangan yang mencengkeram lenganku sekilas... tapi kekuatan seorang pahlawan tetap ada di matanya.
 
- 
-
-"Dimengerti."
-
- 
+g"baiklah."
 
 Aku mengundurkan diri.
 
- 
-
 "Mistome !!"
-
- 
 
 Garadin tidak bisa menahan diri untuk tidak meninggikan suaranya.
 
@@ -114,35 +106,25 @@ Mistome-shi perlahan melihat ke belakang.
 
 Garadin tampak seperti hendak mengatakan sesuatu tetapi dia tidak bisa menyuarakannya dan menelan kata-katanya.
 
- 
-
-"Melihat ke belakang, kita sudah bersama sejak lama."
+"Mengingat kembali, kita sudah bersama sejak lama."
 
 "Ya-ya... itu benar."
 
 "Itu menyenangkan."
 
-"Ya, itu juga menyenangkan bagiku. Mistome. Aku sangat menikmati hari-hari petualangan kami bersama. "
+"Ya, itu juga menyenangkan bagiku. Mistome. Aku sangat menikmati hari-hari petualangan kita bersama."
 
 "Apakah aku membuat hidupmu sulit?"
 
-"Iya! Kamu selalu berlebihan. Bahkan lebih dari Aku, meskipun Aku sudah dikenal sebagai pemberani. "
-
- 
+"Iya! Kamu selalu berlebihan. Bahkan lebih dariku, meskipun Aku sudah dikenal sebagai pemberani."
 
 Garadin menggelengkan kepalanya seolah-olah dia pasrah dan menyerahkan pedang di tangannya kepada Mistome.
 
- 
-
-"Permata yang dibuat oleh pandai besi pusat kota Mogurim. Ringan dan tajam. "
+"Permata yang dibuat oleh pandai besi pusat kota Mogurim. Ringan dan tajam."
 
 "Terima kasih Garadin, aku akan meminjam ini."
 
- 
-
 Mistome-shi mengambil pedang panjang tipis dan tajam tanpa pelindung pedang dan mengayunkannya dua kali untuk memverifikasi sensasinya.
-
- 
 
 "Itu pedang yang bagus. Aku terpesona oleh karya Mogurim. "
 
@@ -150,23 +132,13 @@ Mistome-shi mengambil pedang panjang tipis dan tajam tanpa pelindung pedang dan 
 
 "Tentu saja ..."
 
- 
-
 Sebuah bayangan kecil melompat dari tas Tise ke lengan Mistome-shi sementara dia memiliki senyum puas di wajahnya.
 
- 
-
-Oya?
-
- 
+"Oya?"
 
 Ugeuge-san melingkarkan lengan kanan Mistome-shi.
 
- 
-
-"Kamu mengikatkan pedang ke tanganku dengan benang? Jadi aku tidak akan menjatuhkan pedangku bahkan jika jariku tidak memiliki kekuatan. Ini adalah pertemuan yang menyenangkan, terima kasih Ugeuge-san kecil. "
-
- 
+"Kamu mengikatkan pedang ke tanganku dengan jaringmu? Jadi aku tidak akan menjatuhkan pedangku bahkan jika jariku tidak memiliki kekuatan. Ini adalah pertemuan yang menyenangkan, terima kasih Ugeuge-san kecil."
 
 Ugeuge-san menjawab dengan mengangkat lengan kanannya dan melompat kembali ke bahu Tise.
 
@@ -174,51 +146,31 @@ Tise tidak mengatakan apa-apa dan hanya menatap Mistome-shi.
 
 Mistome-shi mengangguk dan tersenyum.
 
- 
-
-Mistome.
-
- 
+r"Mistome."
 
 Ruti yang terakhir berbicara.
 
- 
-
-"Saya tidak akan membiarkan siapa pun cedera jika Aku berada dalam pertarungan. Pastikan untuk menang. "
-
- 
+r"Saya tidak akan membiarkan siapa pun cedera jika Aku berada dalam pertarungan. Pastikan untuk menang. "
 
 Ruti menatap langsung ke arah Mistome-shi dan berkata.
 
 Mistome-shi dengan lembut membelai rambut Ruti dan menjawab.
 
- 
-
 "Tapi kamu terluka."
-
- 
 
 Ruti kaget dan menunduk.
 
-"Terima kasih, Aku sangat senang bahwa anak baik seperti Kamu datang ke Zoltan."
-
- 
+"Terima kasih, Aku sangat senang bahwa anak baik sepertimu datang ke Zoltan."
 
 Mistome-shi memeluk Ruti dan menatapku.
 
- 
+"Aku serahkan masalah selanjutnya kepadamu."
 
-"Aku serahkan nanti masalah kepada Kamu."
-
- 
-
-Dia menyipitkan matanya lega setelah menerima kepastian dari Aku saat Aku mengangguk dan dia membalikkan punggungnya kepada kami.
+Dia menyipitkan matanya lega setelah menerima kepastian dariku saat Aku mengangguk dan dia membalikkan punggungnya kepada kami.
 
 Setelah itu, dia berjalan lurus menuju Leonor.
 
- 
-
-Aku membuatmu menunggu.
+"Aku membuatmu menunggu."
 
 "Kamu benar-benar melakukannya. Apakah itu semua kata perpisahan yang Kamu miliki untuk teman Kamu? "
 
