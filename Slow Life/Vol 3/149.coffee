@@ -134,77 +134,53 @@ Setelah seseorang berteriak, kerumunan petualang pergi dalam sekejap mata.
 
 Petualang yang tertinggal itu menjatuhkan bahunya dan para pedagang tidak bisa menahan tawa.
 
-Para bajak laut dan penjaga pergi ke petualang dan memberinya alkohol yang mereka minum.
+Para bajak laut dan penjaga memberinya alkohol yang mereka minum.
 
-Petualang itu mengambil alkohol dan menghabiskannya dalam sekali jalan sebelum tertawa keras.
+Petualang itu mengambil alkohol dan menghabiskannya dalam sekali minum sebelum tertawa keras.
 
- 
-
-"Hari ini adalah hari yang baik!"
-
- 
+"Hari ini adalah hari yang bagus!"
 
 Ya, Aku pikir juga begitu.
 
 Melihat mereka bertiga saling berpelukan sambil bernyanyi di sudut mataku membuatku tersenyum juga.
 
- 
-
 Kota itu dipenuhi orang di mana-mana.
 
-Dan di tengah adalah para pahlawan yang berjuang untuk melindungi Zoltan.
+Dan di pusatnya adalah para pahlawan yang berjuang untuk melindungi Zoltan.
 
 Terlepas dari jenis atau tingkat perlindungan ilahi mereka.
 
-Mereka menghadapi musuh yang kuat dengan rintangan yang tidak ada harapan tetapi tidak melarikan diri untuk melindungi orang yang mereka cintai.
+Mereka menghadapi musuh yang kuat dengan rintangan yang tidak ada harapan untuk menang tetapi tidak melarikan diri untuk melindungi orang yang mereka cintai.
 
 Tanpa diragukan lagi, mereka adalah pahlawan yang patut dipuji.
 
 Jadi Aku yakin ketika Aku melihat pria yang dikelilingi oleh wanita.
 
- 
+g"Tunggu, Danan !?"
 
-"Tunggu, Danan !?"
-
- 
-
-Orang yang berjalan sambil dikelilingi oleh wanita adalah 『Martial Artist』 Danan yang sedang dalam penyembuhan.
-
- 
+Orang yang berjalan sambil dikelilingi oleh wanita adalah 『Seniman Bela Diri』 Danan yang sedang dalam penyembuhan.
 
 Aku memanggil Danan yang memiliki ekspresi tegas seperti biasanya.
 
- 
-
-"Danan, ada apa dengan situasimu?"
+g"Danan, ada apa dengan situasimu?"
 
 "Aduh, tampaknya di luar gaduh jadi aku hanya ingin keluar."
 
-"Bagaimana dengan lingkaran wanita ini?"
+g"Bagaimana dengan lingkaran wanita ini?"
 
-"Wajar jika akan ada perawat saat orang yang terluka keluar untuk jalan-jalan."
-
- 
+"Wajar jika ada perawat saat orang yang terluka keluar untuk jalan-jalan."
 
 Begitu, perawat ya?
 
-Begitulah.
+hmmmm...
 
- 
-
-"Kamu tampak dekat."
-
- 
+g"Kamu tampak dekat dengan mereka."
 
 Para perawat menempel di Danan lebih dari yang diperlukan.
 
- 
+"Ya, mereka adalah temanku."
 
-"Ya, mereka adalah rekanku."
-
-"Kawan? … Jangan bilang kau ikut bertarung bahkan setelah semua peringatan itu? "
-
- 
+g"teman? ... Jangan bilang kau ikut bertarung bahkan setelah semua peringatan itu?"
 
 Sebelum perang dengan Veronia dimulai, Danan dengan tegas diberitahu untuk tidak ikut berperang.
 
@@ -212,122 +188,76 @@ Danan memang terlihat berjalan teratur tapi isi perutnya masih berantakan.
 
 Danan sendiri harus menyadari fakta itu.
 
- 
-
 "Tidak tidak."
-
- 
 
 Danan menggelengkan kepalanya.
 
- 
+"Aku bersumpah di tanganku bahwa aku tidak akan bergabung ke medan perang. Aku tidak akan mengingkari janji itu."
 
-"Aku bersumpah di tanganku bahwa aku tidak akan bergabung dengan medan perang. Aku tidak akan mengingkari janji itu. "
-
-"Kemudian?"
+g"Kemudian?"
 
 "Dia luar biasa!"
 
- 
-
 Kata perawat yang memeluk tangan kiri Danan dengan mata berbinar.
 
- 
-
-"Luar biasa…?"
+g"Luar biasa...?"
 
 "Dia perawat yang luar biasa yang bahkan mengejutkan perawat veteran!"
 
- 
-
 Apa?
 
- 
-
-"Perawat? Danan? "
-
- 
+g"Perawat? Danan?"
 
 Aku tidak pernah menyangka bahwa dia akan membantu di klinik daripada bergabung dalam pertarungan.
 
- 
+"Ya, Aku frustrasi karena tidak bisa bertarung jadi Aku membantu perawat."
 
-"Ya, Aku frustrasi karena tidak bisa bertarung jadi Aku membantu perawat keluar."
+g"Hanya duduk diam membuatmu frustasi?"
 
-"Hanya duduk diam membuatmu frustasi?"
-
- 
-
-Pria ini pada dasarnya adalah pria yang tidak bisa hidup lambat.
+Pria ini pada dasarnya adalah pria yang tidak bisa hidup santai.
 
 Danan tertawa terbahak-bahak saat melihat wajahku.
 
 Perawat lainnya meringkuk ke Danan dan melanjutkan.
 
- 
-
-"Dia bisa membawa pasien dengan mudah tidak peduli seberapa besar tubuh orang itu atau jika mereka memakai baju besi, dia bisa menyelesaikan pertolongan pertama darurat untuk luka dan patah tulang dalam sekejap dan dia akan selalu tersenyum bahkan ketika kami merasa putus asa. Padahal seharusnya Danan-san merasakan sakit di tubuhnya juga. "
-
- 
+"Dia bisa membawa pasien dengan mudah tidak peduli seberapa besar tubuh orang itu atau jika mereka memakai baju besi, dia bisa menyelesaikan pertolongan pertama darurat untuk luka dan patah tulang dalam sekejap dan dia akan selalu tersenyum bahkan ketika kami merasa putus asa. Padahal seharusnya Danan-san merasakan sakit di tubuhnya juga."
 
 Tidak, Aku cukup yakin bahwa senyuman itu berasal dari perasaan bebas setelah tidak bergerak selama beberapa waktu.
 
- 
+"Terlebih lagi, Danan-san bisa tersenyum dan menyemangati para pasien meski pasien terluka parah sehingga kamu ingin mengalihkan pandanganmu. Danan-san tidak membuang muka tidak peduli betapa sakitnya itu."
 
-"Terlebih lagi, Danan-san bisa tersenyum dan menyemangati para pasien meski pasien terluka parah sehingga Anda ingin mengalihkan pandangan. Danan-san tidak membuang muka tidak peduli betapa sakitnya itu.
+... Bagaimanapun juga, Danan adalah orang seperti itu.
 
- 
+Dalam tim pahlawan dengan satu atau dua kebiasaan aneh, Danan adalah orang yang terus terang dan jujur ​​pada suatu kesalahan.
 
-… Bagaimanapun juga, Danan adalah orang seperti itu.
-
-Dalam pesta pahlawan dengan satu atau dua kebiasaan aneh, Danan adalah orang yang terus terang dan jujur ​​pada suatu kesalahan.
-
- 
-
-"Banyak pasien terselamatkan berkat bantuan Danan-san. Bahkan jika dia tidak memasuki medan perang, Danan-san adalah pahlawan di klinik. "
+"Banyak pasien terselamatkan berkat bantuan Danan-san. Bahkan jika dia tidak memasuki medan perang, Danan-san adalah pahlawan di klinik."
 
 "Itu salah."
 
- 
-
 Senyum Danan berubah menjadi ekspresi serius saat dia menyangkal kata-kata perawat.
-
- 
 
 "Danan-san?"
 
-"Kalian para perawat dan para dokter berusaha sekuat tenaga. Tidak masuk akal kalau aku satu-satunya pahlawan. Bukan hanya aku, semua orang di sana adalah pahlawan. "
+"Kalian para perawat dan para dokter berusaha sekuat tenaga. Tidak masuk akal kalau aku satu-satunya pahlawan. Bukan hanya aku, semua orang adalah pahlawan."
 
-"Danan-san… !!"
+"Danan-san...!!"
 
- 
-
-Danan tidak mengatakan itu untuk mendapatkan respon itu tetapi hanya mengatakan apa yang dia pikirkan.
+Danan tidak mengatakan itu untuk mendapatkan respon yang dia inginkan tetapi hanya mengatakan apa yang dia pikirkan.
 
 Tapi para perawat dipenuhi kegembiraan karena diakui sebagai pahlawan oleh Danan yang tampaknya memancarkan aura heroik yang terlihat.
 
 Terlepas dari itu, bahwa Danan sama sekali tidak terpengaruh meskipun dia benar-benar dikelilingi oleh wanita.
 
- 
-
-"Merah."
-
- 
+g"red."
 
 Danan membelai dagunya dengan tangan kirinya saat berbicara.
 
- 
-
 "Ini pertama kalinya aku mengalami pertarungan seperti ini, tapi itu menarik."
 
-Menjadi perawat?
+g"Menjadi perawat?"
 
-"Ya, tidak seperti membunuh, membantu orang hidup memiliki kedalaman yang berbeda."
-
- 
+"Ya, tidak seperti membunuh, membantu orang untuk hidup memiliki rasa berbeda."
 
 Danan tersenyum dan tampak sangat bahagia.
 
- 
-
-"Saya senang terlahir sebagai『 Martial Artist 』, untuk dapat melihat bahwa mencapai puncak pertempuran bukanlah akhir."
+"aku senang terlahir sebagai『 Seniman Bela Diri 』, untuk dapat melihat bahwa mencapai puncak pertempuran bukanlah satu-satunya jalannya."
