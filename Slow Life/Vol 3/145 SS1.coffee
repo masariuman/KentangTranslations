@@ -38,23 +38,15 @@ Saat itu, Aku mencoba menengahi tapi... Aku serius ingin tidak terlibat dengan p
 
 Ares benci untuk mengubah keputusannya dan tidak akan mengalah sementara Yarandorara tidak akan puas sampai dia menerima bahwa dia telah melakukan sesuatu yang salah.
 
-Danan, yang biasanya cepat berkelahi, akan memperburuk keadaan dengan berkomentar bahwa 'Apakah mereka benar-benar bertengkar dengan kata-kata seperti ini' dan itu akan berubah menjadi pertarungan yang lebih besar yang ingin Aku hilangkan.
+Danan, yang biasanya cepat berkelahi, akan memperburuk keadaan dengan berkata bahwa 'Apakah mereka benar-benar bertengkar hanya karena seperti ini' dan itu akan berubah menjadi perkelahian yang lebih besar yang ingin Aku hilangkan.
 
- 
+l"red, kamu cemberut."
 
-"Merah, kamu cemberut."
+Lit mengulurkan tangannya ke wajah Aku dan mulai memijat di sekitar pelipisku.
 
- 
+l"Tenang, santailah."
 
-Lit mengulurkan tangannya ke wajah Aku dan mulai memijat di sekitar pelipis Aku.
-
- 
-
-"Tenang, santai."
-
-"Terima kasih, Lit. Aku baik-baik saja sekarang."
-
- 
+g"Terima kasih, Lit. Aku baik-baik saja sekarang."
 
 Lit tertawa dengan 'ehehe'.
 
@@ -62,41 +54,25 @@ Meskipun perjalanannya sangat sulit, Aku pikir Aku bisa memaafkan apa pun jika A
 
 Aku sangat mencintai Lit dan ingin memeluknya erat-erat dengan kedua lenganku.
 
- 
-
 Jadi Aku memeluknya erat-erat.
 
- 
+l"Apa !? Ada apa tiba-tiba begini? Ehehe."
 
-"Apa !? Ada apa dengan kasih sayang yang tiba-tiba? Ehehe."
+g"Apa aku harus punya alasan untuk memeluk Lit?"
 
-"Apa aku harus punya alasan untuk memeluk Lit?"
-
-"Nggak."
-
- 
+l"Nggak."
 
 Lit menjawab dengan tangannya sendiri melingkari tubuhku.
 
 Kami menghabiskan beberapa waktu di pelukan satu sama lain saat kami mendengarkan curah hujan.
 
- 
-
 ☆☆
 
- 
-
-"Jadi apa yang harus kita lakukan hari ini?"
-
- 
+l"Jadi apa yang harus kita lakukan hari ini?"
 
 Setelah berpelukan sebentar hingga kami sedikit berkeringat, kami berpisah dan Lit bertanya.
 
- 
-
-"Dimana? Tapi hujan sepertinya belum reda."
-
- 
+g"apa? Tapi hujan sepertinya belum reda."
 
 Aku melihat ke luar jendela tapi hujan tidak menunjukkan tanda-tanda akan mereda.
 
@@ -104,73 +80,47 @@ Lit menyilangkan lengannya dan cemberut.
 
 Ini di luar topik, tapi itu pemandangan yang bagus untuk dilihat ketika Lit menyilangkan lengannya dan payudaranya menjadi lebih menonjol.
 
- 
-
-"Aku tidak bisa memikirkan apa pun sekarang, tapi membuatku frustrasi untuk menyerah pada kencan dengan Red dan kalah dalam hujan!"
-
- 
+l"Aku tidak bisa memikirkan apa pun sekarang, tapi membuatku frustrasi untuk menyerah pada kencan dengan Red dan kalah dengan hujan!"
 
 Sepertinya Lit tidak ingin kalah hari ini.
 
- 
+g"Ya. Bisa dikatakan, berperahu di tengah hujan ini akan merepotkan. Sungai itu kemungkinan besar juga akan pasang. "
 
-"Ya. Bisa dikatakan, berperahu di tengah hujan ini akan merepotkan. Sungai itu kemungkinan besar juga akan naik. "
-
-"Yup, ayo menyerah itu. Tapi Aku ingin keluar. "
-
- 
+l"Yup, untuk hal itu kita bisa menyerah. Tapi Aku ingin keluar. "
 
 Aku membuka jendela sedikit.
 
 Hujan merembes melalui celah kecil dan membasahi tanganku.
 
- 
+g"Pergi keluar sepertinya sulit."
 
-"Pergi keluar sepertinya sulit."
+Lit memikirkannya sambil dia berjalan di sekitar toko.
 
- 
+Aku tersenyum melihat tindakannya dan memikirkan bagaimana aku bisa menghabiskan waktu bersama Lit hari ini juga.
 
-Lit memikirkannya saat dia berjalan di sekitar toko.
+Saat melihat ke luar, Aku melihat beberapa anak pusat kota berjalan sambil bercanda di tengah hujan.
 
-Aku tersenyum melihat tindakannya saat memikirkan bagaimana aku bisa menghabiskan waktu bersama Lit hari ini juga.
-
-Saat melihat ke luar, Aku melihat beberapa anak Downtown berjalan sambil bercanda di tengah hujan.
-
- 
-
-"Itu dia."
-
- 
+g"Itu dia."
 
 Aku menepuk tanganku saat melihat kedua anak yang berjalan di tengah hujan.
 
- 
-
-"Ayo jalan-jalan bersama hari ini."
-
- 
+g"Ayo jalan-jalan bersama hari ini."
 
 ☆☆
 
- 
+Hujan yang menandakan akhir musim dingin terasa dingin dan akan menghilangkan kehangatan tubuh siapa pun yang berjalan di jalan.
 
-Hujan yang menandakan akhir musim dingin terasa dingin dan tanpa henti akan menghilangkan kehangatan tubuh siapa pun yang berjalan di jalan.
+Sebagian besar nafas kami keluar memutih dan meleleh di tengah hujan.
 
-Sebagian besar nafas kami keluar putih dan meleleh di tengah hujan.
+g"aku kira akan tetap dingin selama beberapa hari lagi. Tahun lalu suhu meningkat secara bertahap setelah hujan mulai."
 
- 
+l"Ya."
 
-"Saya kira akan tetap dingin selama beberapa hari lagi. Tahun lalu suhu meningkat secara bertahap setelah hujan mulai. "
+g"Penghangat tangan ini mungkin tidak akan laku lagi. Aku kira kita harus memikirkan beberapa produk musim semi baru."
 
-"Ya."
+l"Ya."
 
-"Penghangat tangan ini mungkin tidak akan laku lagi. Aku kira kita harus memikirkan beberapa produk musim semi baru. "
-
-"Ya."
-
- 
-
-Lit telah menjadi merah dan melihat ke bawah sejak tadi.
+Lit telah memerah dan melihat ke bawah sejak tadi.
 
 Dia menyembunyikan senyumnya dengan bandana dan sesekali menatapku ke samping.
 
