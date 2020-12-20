@@ -56,27 +56,19 @@ l"Aku di sini untuk menjadi seorang petualang!"
 
 "kamu ingin mendaftar sebagai petualang? Kamu benar-benar wanita muda yang pemberani! "
 
-Wanita resepsionis berkata saat dia ... menyerahkan papan tulis kecil dan kapur di dekat kakinya alih-alih dokumen yang ditempatkan di sebelah tangannya yang dimaksudkan untuk pendaftaran petualang.
+Wanita resepsionis berkata sambil dia ... menyerahkan papan tulis kecil dan kapur di dekat kakinya daripada dokumen yang ditempatkan di sebelah tangannya yang dimaksudkan untuk pendaftaran petualang.
 
- 
+"Di sini nona muda, tolong tuliskan namamu, keahlianmu, apa yang tidak Kamu sukai, makanan favoritmu dan apa yang tidakmu sukai, dan ambisimu."
 
-"Di sini nona muda, tolong tuliskan nama Kamu, keahlian Kamu, apa yang tidak Kamu sukai, makanan favorit Kamu dan apa yang tidak Kamu sukai, dan ambisi Kamu."
-
- 
-
-Tidak ada yang tertulis di papan tulis selain garis batas yang digambar dengan kapur.
+Tidak ada yang tertulis di papan tulis selain garis yang digambar dengan kapur.
 
 Lislet merasa agak aneh tapi dia menuliskan jawabannya dengan jujur ​​saat dia diberitahu.
 
- 
+"Na... nama."
 
-"Na… nama."
-
-"Hn, ada apa?"
+l"Hn, ada apa?"
 
 "Tidak, tidak apa-apa!"
-
- 
 
 Dia berhenti menulis setelah menulis kata pertama untuk namanya.
 
@@ -84,19 +76,11 @@ Meskipun dia masih muda, Lislet berpikir tidak baik menuliskan nama aslinya.
 
 Dia berpikir sejenak sebelum menulis nama selain Lislet.
 
- 
-
-"Kerja bagus… namamu… Lit-chan!"
-
- 
+"Kerja bagus... namamu... Lit-chan!"
 
 Wanita resepsionis itu tidak sengaja terkikik ketika melihat nama yang tertulis di papan tulis.
 
- 
-
-"Nama imut yang cocok untuk seorang gadis yang ingin menjadi petualang. Benar, aku akan memberi Lit-chan ini. "
-
- 
+"Nama imut yang cocok untuk seorang gadis yang ingin menjadi petualang. Benar, aku akan memberi Lit-chan ini."
 
 Wanita resepsionis memberinya medali kayu.
 
@@ -104,99 +88,65 @@ Diukir di medalinya adalah sebuah perisai, simbol dari Guild Petualang.
 
 Dan di bawah perisai itu ada nama Lit yang tertulis dengan tinta.
 
- 
-
 "Mulai hari ini dan seterusnya, Lit-chan diakui sebagai petualang tingkat anak-anak yang tergabung dalam Guild Petualang Logavia!"
-
- 
 
 Ekspresi Lislet menjadi cerah.
 
- 
-
-"Aku juga seorang petualang sekarang!"
+l"Aku juga seorang petualang sekarang!"
 
 "Tepat sekali! Mulai hari ini, Kamu adalah Petualang Lit! "
 
-"Yay ​​~!"
+l"Yay ​​~!"
 
 "Tapi."
 
- 
-
 Saat Lislet merayakan, resepsionis wanita memberitahunya dengan tatapan serius.
-
- 
 
 "Petualang memiliki semua jenis janji yang harus mereka pegang."
 
-"Iya! Aku akan menepati janji! "
+l"Iya! Aku akan menepati janji! "
 
- 
-
-Itu tidak terlalu meyakinkan datang dari Lislet yang melarikan diri dari kastil tapi untungnya tidak banyak orang yang tahu identitas aslinya.
+Itu tidak terlalu meyakinkan datang dari Lislet yang melarikan diri dari istana tapi untungnya tidak banyak orang yang tahu identitas aslinya.
 
 Wanita resepsionis menjelaskan dengan nada terlatih kepada Lislet tentang tidak mendekati tempat berbahaya sendirian.
 
- 
-
 "Dan yang terpenting, pegang kebanggaan menjadi seorang petualang."
 
-"Kebanggaan?"
+l"Kebanggaan?"
 
-"Iya. Kebanggaan bahwa Kamu akan menjadi petualang yang hebat dan tepat. Untuk tidak mengarahkan jalan menjadi petualang yang buruk. Misalnya, Kamu tidak boleh menggoda teman-teman Kamu yang lain dengan membual bahwa Kamu adalah seorang petualang. "
+"Iya. Kebanggaan bahwa Kamu akan menjadi petualang yang hebat dan tepat. Untuk tidak mengarahkan jalan menjadi petualang yang buruk. Misalnya, Kamu tidak boleh menganggu teman-temanmu yang lain dengan membual bahwa Kamu adalah seorang petualang."
 
-"Tentu saja! Aku berencana untuk menjadi model bagi semua petualang! "
+l"Tentu saja! Aku berencana untuk menjadi model bagi semua petualang! "
 
-"Fufu, sangat bisa diandalkan. Sebenarnya petualang peringkat anak-anak tidak menerima permintaan petualang di sini tapi di tempat lain. "
+"Fufu, sangat bisa diandalkan. Sebenarnya petualang peringkat anak-anak tidak menerima permintaan petualang di sini tapi di tempat lain."
 
-"Baiklah. Terima kasih, Onee-san! "
+l"Baiklah. Terima kasih, Onee-san!"
 
-"Sama-sama. Semoga beruntung, Petualang Lit-chan. "
-
- 
+"Sama-sama. Semoga beruntung, Petualang Lit-chan."
 
 Beberapa petualang di sekitarnya memberi selamat padanya karena menjadi Petualang Lit.
 
- 
+l"Terima kasih! Aku akan menjadi petualang yang hebat!"
 
-"Terima kasih! Aku akan menjadi petualang yang hebat! "
-
- 
-
-Lislet berlari menuju tempat yang disuruh untuk pergi seolah-olah dia tidak bisa menahan kegembiraannya.
-
- 
+Lislet berlari menuju tempat yang disuruh untuk didatangi seolah-olah dia tidak bisa menahan kegembiraannya.
 
 ☆☆
 
 "Kerja bagus juga, Saffy-chan."
 
- 
-
 Seorang petualang berkomentar kepada wanita resepsionis.
 
- 
+"kamu benar-benar memberi anak itu medali buatan tanganmu. Bukankah kamu membuatnya di hari liburmu? Dan papan tulis dan kapur itu adalah barang pribadimu juga."
 
-"Anda benar-benar memberi anak itu medali buatan tangan Kamu. Bukankah kamu membuatnya di hari liburmu? Dan papan tulis dan kapur itu adalah barang pribadi Kamu juga. "
-
-"Itu hanya sesuatu yang Aku buat untuk bersenang-senang. Lebih jauh lagi, anak itu mungkin benar-benar menjadi seorang petualang dan bahkan mungkin disebut pahlawan suatu hari nanti. Aku bahkan mungkin disebutkan di awal memoire-nya… bukankah itu bagus? "
-
- 
+"Itu hanya sesuatu yang Aku buat untuk bersenang-senang. anak itu mungkin benar-benar menjadi seorang petualang dan bahkan mungkin disebut pahlawan suatu hari nanti. Aku bahkan mungkin disebutkan di awal ceritanya... bukankah itu bagus?"
 
 Kata resepsionis wanita sambil menyentuh kakinya yang hilang dari bawah lutut.
 
- 
-
-"Selain itu, jika aku bisa memberikan sedikit kekuatan untuk pahlawan masa depan, petualangan masa laluku… mungkin tidak akan sia-sia."
+"Selain itu, jika aku bisa memberikan sedikit kekuatan untuk pahlawan masa depan, petualangan masa laluku... mungkin tidak akan sia-sia."
 
 "Seorang mantan petualang seperti Saffy-chan yang menjadi perantara permintaan untuk kita sudah sangat membantu kita juga."
 
- 
-
 ☆☆
-
- 
 
 Ini tempatnya.
 
