@@ -62,99 +62,71 @@ Aku membalikkan badan untuk mengambil jarak sebelum serangan balasan mereka bisa
 
 Pada saat itu, Pangeran Silberio dan Pangeran Uzuku telah berubah menjadi Iblis Asura berlengan 6.
 
-"Jadi ada Pahlawan sepertimu selain Telur Raja Iblis. Sheesh, aku khawatir tentang masa depan. "
+"Jadi ada Pahlawan sepertimu selain Telur Raja Iblis. Sheesh, aku khawatir tentang masa depan."
 
- 
+Iblis Asura mengangkat bahunya. Darah menodai bahu Iblis Asura tetapi itu tidak mengganggunya.
 
-Asura Demon mengangkat bahunya. Darah menodai bahu Asura Demon tetapi itu tidak mengganggu dia.
+Iblis Asura yang sebelumnya adalah Pangeran Silberio memiliki luka yang menjalar dari pipi kanan ke telinganya dari pedangku dan telinganya robek.
 
-Asura Demon yang sebelumnya adalah Pangeran Silberio memiliki luka yang menjalar dari pipi kanan ke telinganya dari pedangku dan telinganya robek.
-
- 
-
-"De-iblis !!"
-
- 
+"Ib-iblis !!"
 
 Aku mendengar teriakan teror dari belakang.
 
-Tentara bayaran Leonor takut pada pangeran yang telah berubah menjadi Asura Demons.
+Tentara bayaran Leonor takut pada pangeran yang telah berubah menjadi Iblis Asuras.
 
- 
-
-"Setelah pembersihan akan sangat menyenangkan."
-
- 
+"pembersihan setelah ini akan sangat menyenangkan."
 
 Mayoritas tentara bayaran telah kehilangan keinginan mereka untuk bertarung dan perlahan mundur.
 
-Jika situasinya berubah ke selatan untuk kami, Garadin dan aku ditugaskan untuk menghentikan mereka tapi sekarang lebih baik fokus pada dua Asura Demons dan Leonor.
+Jika situasinya berubah untuk kami, Garadin dan aku ditugaskan untuk menghentikan mereka tapi sekarang lebih baik fokus pada dua Iblis Asura dan Leonor.
 
 Baiklah, aku mengangkat pedangku sekali lagi.
 
- 
+r"Onii Chan."
 
-"Onii Chan."
-
-"Aku baik-baik saja."
+g"Aku baik-baik saja."
 
 Aku menjawab sambil melihat lengan bajuku.
 
-Aku tidak terluka tapi hampir saja.
+Aku tidak terluka tapi hampir saja. 
 
- 
-
-"Mereka baik bahkan setelah menyembunyikan identitas mereka selama lebih dari 40 tahun."
-
- 
+g"Mereka tetap bagus bahkan setelah menyembunyikan identitas mereka selama lebih dari 40 tahun."
 
 Identitas sebenarnya dari kedua pangeran.
 
-Asura Demons yang memakan anak Leonor yang lahir mati untuk mengambil penampilan mereka.
+Iblis Asuras yang memakan anak Leonor yang lahir mati untuk mengambil penampilan mereka.
 
 Mereka adalah Gashasura dan Chugara yang pernah bertarung bersama Mistome-shi.
 
 Dengan enam lengan masing-masing, mereka mencengkeram 12 pedang besar, satu di setiap tangan. Sikap mereka memberi kesan bahwa mereka adalah pejuang yang hebat, tidak seperti Shisandan yang kami lawan di masa lalu.
 
-Menggunakan pengetahuan dan pengalaman Aku, Aku bisa bertarung dengan berspekulasi tentang perlindungan ilahi dan level lawan.
+Menggunakan pengetahuan dan pengalamanku, Aku bisa bertarung dengan berspekulasi tentang perlindungan ilahi dan level lawan.
 
-Dengan bertarung sambil mengetahui kemampuan lawan, aku bisa bertarung di tanah yang rata meski memiliki perlindungan ilahi 『Guide』 yang lebih lemah.
+Dengan bertarung sambil mengetahui kemampuan lawan, aku bisa bertarung di tanah yang rata meski memiliki perlindungan ilahi 『Pemandu』 yang lebih lemah.
 
-Namun, Asura Demons adalah satu-satunya ras tanpa perlindungan dewa.
+Namun, Iblis Asuras adalah satu-satunya ras tanpa perlindungan ilahi.
 
-Bahkan selama pertarungan melawan Tentara Raja Iblis, semakin banyak jumlah Asura Demons, semakin besar batasan pada kemampuan bertarungku.
+Bahkan selama pertarungan melawan Tentara Raja Iblis, semakin banyak jumlah Iblis Asura, semakin besar batasan pada kemampuan bertarungku.
 
- 
-
-"Terlahir sebagai Pangeran, kalian berdua seharusnya tidak memiliki kesempatan untuk pertempuran besar?"
-
- 
+g"Terlahir sebagai Pangeran, kalian berdua seharusnya tidak memiliki kekuatan untuk pertempuran besar?"
 
 Gashasura, yang dulunya Pangeran Silberio, menertawakan kata-kataku.
 
- 
-
 "Kami tidak seperti manusia yang hanya bisa tumbuh dengan membunuh orang lain."
 
-" ... Apa?"
+g" ... Apa?"
 
-"Hari-hari kami sebagai pangeran membuahkan hasil. Kami berbicara dengan Seniman Bela Diri dan Filsuf di benua ini dan berpartisipasi dalam olahraga. "
+"Hari-hari kami sebagai pangeran membuahkan hasil. Kami berbicara dengan Seniman Bela Diri dan Filsuf di benua ini dan berpartisipasi dalam olahraga."
 
-"Kami bergaul dengan bangsawan, minum anggur enak, makan makanan enak, menggendong wanita. Baru-baru ini kami berbaur dengan rakyat biasa, membajak sawah, merebus akar rumput, minum anggur murah, dan bernyanyi. Semuanya sulit untuk dialami di Asura Kshetra. Semua pengalaman baru menjadi kekuatan Asura. " (TL: Kshetra: Daerah suci / kantor polisi.)
+"Kami bergaul dengan bangsawan, minum anggur enak, makan makanan enak, menggendong wanita. Baru-baru ini kami berbaur dengan rakyat biasa, membajak sawah, merebus akar rumput, minum anggur murah, dan bernyanyi. Semuanya sulit untuk dialami di Asura Kshetra. Semua pengalaman baru menjadi kekuatan Asura. " (TL: Kshetra: Daerah suci.)
 
- 
+Kedua sosok Iblis Asura itu mengintimidasi.
 
-Kedua sosok Asura Demon itu mengintimidasi.
+Aku pikir kekuatan mereka akan berkurang setelah meninggalkan medan perang begitu lama ... tapi aku salah perhitungan.
 
-Aku pikir kekuatan mereka akan berkurang setelah meninggalkan medan perang begitu lama ... tapi itu salah perhitungan.
-
- 
-
-"Asura Demons memiliki fisiologi yang aneh."
+g"Iblis Asuras memiliki fisiologi yang aneh."
 
 "Bagi kami, kami merasa aneh bahwa makhluk hidup di dunia ini memiliki jiwa yang terpelintir oleh perlindungan ilahi mereka."
-
- 
 
 Perkataan Gashasura mungkin adalah topik yang sangat penting mengenai dunia ini tapi... Aku menghilangkannya dari pikiranku untuk saat ini.
 
@@ -164,83 +136,51 @@ Cepat dan tajam.
 
 Itu adalah presisi, bukan kekuatan, yang dibutuhkan untuk melawan serangan terus menerus dari pedang besar.
 
- 
+g"Garadin tolong konsentrasi untuk mendukung Tise, kamu akan terbunuh jika kamu melawan mereka secara langsung."
 
-"Garadin tolong konsentrasi untuk mendukung Tise, kamu akan terbunuh jika kamu melawan mereka secara langsung."
-
-"Diberitahu itu oleh seorang anak muda! Sial, aku akan melakukan seperti yang diperintahkan! "
-
- 
+"Diberitahu itu oleh seorang anak muda! Sial, aku akan melakukan seperti yang dikatakan! "
 
 Garadin berteriak dengan penyesalan dan meninggalkan warhammernya, malah menarik pedangnya.
 
 Mungkin untuk menangkis serangan cepat.
 
-Garadin mungkin petarung tingkat atas di Zoltan tetapi lawannya jauh lebih kuat darinya. Dia akan segera ditebas jika dia mencoba bertukar pukulan dengan mereka.
+Garadin mungkin petarung tingkat atas di Zoltan tetapi lawannya jauh lebih kuat darinya. Dia akan segera ditebas jika dia mencoba bertarung dengan mereka.
 
-Akan lebih baik jika dia mendukung dengan mengoordinasikan serangannya dengan Tise untuk memungkinkannya menunjukkan kekuatan 『Assassin』-nya.
+Akan lebih baik jika dia mendukung dengan mengoordinasikan serangannya dengan Tise untuk memungkinkannya menunjukkan kekuatan 『Pembunuh Bayarannya』-nya.
 
- 
-
-"Baiklah, sekarang..."
-
- 
+g"Baiklah, sekarang..."
 
 Saat aku akan menyiapkan pedangku, ledakan kekuatan sihir berasal dari belakangku.
 
- 
+"Mu."
 
-Mu.
-
- 
-
-Asura Demons dengan cepat melindungi Leonor.
-
- 
+Iblis Asuras dengan cepat melindungi Leonor.
 
 "Badai api."
 
- 
+Kebakaran hebat melilit Leonor dan Iblis Asuras.
 
-Kebakaran hebat melilit Leonor dan Asura Demons.
+Tapi api tidak mencapai Leonor karena Iblis Asuras melindunginya.
 
-Tapi api tidak mencapai Leonor karena Asura Demons melindunginya.
-
- 
-
-"Apa arti dari Leonor ini !!"
-
- 
+"Apa artinya ini !!"
 
 Teriak Mistome-shi.
 
- 
-
-"Kenapa pangeran Gashasura dan Chugara !? Kalian seharusnya sudah kembali ke Benua Hitam !! "
-
- 
+"Kenapa pangeran Gashasura dan Chugara !? Kalian seharusnya sudah kembali ke Benua Kegelapan !!"
 
 Setelah menyaksikan identitas sebenarnya dari para pangeran, Mistome-shi mengerti bagaimana Leonor dapat memiliki dua pangeran meskipun meminum racun Pemusnah Keturunan Tersembunyi.
 
-Kedua Asura Demon saling memandang di dalam api dan mengayunkan 12 pedang mereka dan memotong sihir Mistome-shi.
+Kedua Iblis Asura saling memandang di dalam api dan mengayunkan 12 pedang mereka dan memotong sihir Mistome-shi.
 
- 
+"Sudah lama sekali, Putri Misufia. Perjalanan bersamamu sangat menyenangkan."
 
-"Sudah lama sekali, Putri Misufia. Perjalanan bersamamu sangat bagus. "
+"Ini membawa kembali kenangan, Putri Misufia. Mencuri negara denganmu juga menghibur."
 
-"Ini membawa kembali kenangan, Putri Misufia. Mencuri negara denganmu juga menghibur. "
-
- 
-
-Kedua Asura Demons memamerkan taring mereka dengan wajah menakutkan mereka dan tertawa dengan riang.
-
- 
+Kedua Iblis Asuras memamerkan taring mereka dengan wajah menakutkan mereka dan tertawa dengan riang.
 
 "Mengapa ......"
 
-"Sekarang kita berdiri di samping Leonor-sama."
-
- 
+"Sekarang kami berada dipihak Leonor-sama."
 
 Mereka mengakhirinya hanya dengan itu dan menundukkan kepala sedikit sebelum menutup mulut mereka, mungkin untuk berbicara dengan Leonor.
 
