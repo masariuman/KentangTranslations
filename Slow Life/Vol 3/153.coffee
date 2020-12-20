@@ -60,77 +60,55 @@ Saat aku melihat ke belakang, Mistome-shi menjawab dengan ekspresi lembut sambil
 
 g"Kamu mungkin tidak akan melihat Geyserik lagi jika Kamu tidak mengikuti mereka ke Veronia."
 
-"Aku tahu tapi tidak apa-apa. Kami bertemu dan kemudian kami berpisah... itu adalah cerita yang sudah lama berakhir. Insiden ini bukan untuk menyelesaikan masa lalu antara aku dan Leonor tetapi untuk memperjuangkan masa depan Pangeran Sarius. "
+"Aku tahu tapi tidak apa-apa. Kami bertemu dan kemudian kami berpisah... itu adalah cerita yang sudah lama berakhir. Insiden ini bukan untuk menyelesaikan masa lalu antara aku dan Leonor tetapi untuk memperjuangkan masa depan Pangeran Sarius."
 
-"Pertarungan Pangeran Sarius ya... itu mungkin benar."
+g"Pertarungan Pangeran Sarius ya... itu mungkin benar."
 
-"Ya, aku berencana menghabiskan sisa tahunku sebagai Mistome Zoltan. Yah, mungkin menyenangkan untuk sesekali bepergian dengan petualang muda juga. "
+"Ya, aku berencana menghabiskan sisa tahunku sebagai Mistome Zoltan. Yah, mungkin menyenangkan untuk sesekali bepergian dengan petualang muda juga."
 
-"Garadin akan marah lagi jika kamu memaksakan diri terlalu keras."
+g"Garadin akan marah lagi jika kamu memaksakan diri keterlaluan."
 
-"Aku harus memikirkan alasan untuk digunakan setiap saat."
-
- 
+"Aku harus memikirkan alasan ketika pada saatnya nanti."
 
 Mistome-shi tersenyum kecut.
 
 Tapi senyum pahit itu dengan cepat berubah menjadi senyuman cerah.
 
- 
-
-"Entah bagaimana, Aku merasa bahwa cerita Aku berakhir di sini."
-
- 
+"Entah bagaimana, Aku merasa bahwa ceritaku berakhir di sini."
 
 Ada kebahagiaan dan kesepian dalam suara Mistome-shi.
 
- 
+"Setelah ini, Aku akan tinggal di Zoltan sebagai nenek yang dengan lembut mendorong punggung petualang yang mengambil langkah pertama mereka. timku akan resmi bubar juga. Aku akan mengembalikan gelar peringkat-B dan mungkin membuat mereka menjadikanku peringkat-D ".
 
-"Setelah ini, Aku akan tinggal di Zoltan sebagai nenek yang dengan lembut mendorong punggung petualang yang mengambil langkah pertama mereka. Pestaku akan resmi bubar juga. Aku akan mengembalikan gelar peringkat-B dan mungkin membuat mereka menjadikanku peringkat-D ".
-
-"Pahlawan yang menyelamatkan negara akan menjadi petualang peringkat-D?"
+g"Pahlawan yang menyelamatkan negara akan menjadi petualang peringkat-D?"
 
 "Lagipula, itu akan meninggalkan rasa tidak enak bagi petualang peringkat B untuk bergaul dengan pendatang baru."
 
-"Itu benar."
-
- 
+g"Itu benar."
 
 Mistome-shi mengangkat bahunya.
 
 Setelah itu, dia menundukkan kepalanya sejenak sebelum mengangkatnya sekali lagi dan menatap langsung ke mataku.
 
- 
-
 "Terima kasih, Red. Kalian menyelamatkan Zoltan. "
 
-"Itu semua untuk tujuan kita sendiri. Kami hanya tidak ingin kehilangan kota tempat kami tinggal dan teman-teman yang berada dalam jangkauan. "
+g"Itu semua bukan untuk kami sendiri. Kami hanya tidak ingin kehilangan kota tempat kami tinggal dan teman-teman kami disini."
 
-"Benar, Zoltan adalah negara kecil jadi itu sudah cukup..."
-
- 
+"Benar, Zoltan adalah negara kecil dan itu sudah cukup..."
 
 Ekspresi tersenyum Mistome-shi tampak sedikit lebih tua dibandingkan saat aku pertama kali bertemu dengannya.
 
- 
-
-"Aku akan menyerahkan urusan masa depan dalam perawatanmu."
-
- 
+"Aku akan menyerahkan urusan masa depan kepadamu."
 
 Mistome-shi berkata padaku.
 
- 
+Pada hari Pangeran Sarius dan Ririnrara meninggalkan Zoltan, Mistome-shi secara resmi membubarkan timnya.
 
-Pada hari Pangeran Sarius dan Ririnrara meninggalkan Zoltan, Mistome-shi secara resmi membubarkan pestanya.
+Petualang peringkat-D, 'pensiunan' Mistome.
 
-Petualang peringkat-D, 'pensiun' Mistome.
-
-Dia tidak lagi melibatkan dirinya dengan insiden besar, tetapi dia bisa terlihat menghentikan para siswa yang akan meremehkan goblin atau membantu mereka dalam petualangan pertama mereka.
+Dia tidak lagi melibatkan dirinya dengan insiden besar, tetapi dia bisa terlihat menghentikan para pendatang baru yang akan meremehkan goblin atau membantu mereka dalam petualangan pertama mereka.
 
 Ketenangannya beberapa tahun terakhir tampak damai dan Aku berpikir bahwa itu mungkin tidak seburuk itu.
-
- 
 
 Memang ada perubahan tapi kami kembali ke kehidupan sehari-hari semula yang kami bela.
 
