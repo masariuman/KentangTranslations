@@ -140,7 +140,7 @@ Untuk travelling, biasanya menggunakan mantel yang menutupi seluruh tubuh atau m
 
 Lebih penting lagi, bahkan payung termurah pun harganya 4 Peryl. Petualang lebih suka menghabiskan 2 seperempat Peryl untuk membeli mantel tahan air.
 
-l"Ya, aku tidak membayangkan payung bisa digunakan dengan sangat menyenangkan seperti ini."
+l"Ya, aku tidak membayangkan bahagianya memakai payung seperti ini."
 
 Lit bergumam malu-malu.
 
@@ -154,17 +154,13 @@ Setelah melihat itu, aku berpikir untuk berkencan dengan Lit sambil berbagi payu
 
 Berbagi payung memang agak memalukan, tapi hari ini aku menyadari bahwa Lit bahkan lebih malu dari biasanya.
 
-Lit tidak memulai percakapan apa pun dan hanya membalas Aku. Tapi seluruh tubuhnya memancarkan aura yang berteriak bahwa dia sedang bersenang-senang.
+Lit tidak memulai percakapan apa pun dan hanya membalasku. Tapi seluruh tubuhnya memancarkan aura yang berteriak bahwa dia sedang bersenang-senang.
 
- 
+g"Ah, Lit. Apakah Kamu ingin masuk ke kafe untuk beristirahat?"
 
-"Ah, Lit. Apakah Kamu ingin masuk ke kafe untuk beristirahat?"
+l"Aku ingin berjalan bersama sedikit lebih lama."
 
-"Aku ingin berjalan bersama sedikit lebih lama."
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Seperti yang diharapkan, dia sepertinya menikmati berbagi payung.
 
@@ -176,45 +172,35 @@ Karena hujan lebat, kecepatan berjalan kami secara alami melambat.
 
 Kami dengan santai menyusuri jalan setapak yang biasa kami tempuh dengan kecepatan setengah dari biasanya.
 
- 
+g"Sebentar lagi musim semi. Pohon-pohon di sini mungkin akan segera berbunga."
 
-"Sebentar lagi musim semi. Pohon-pohon di sini mungkin akan segera berbunga."
+l"aku lahir di negara bagian utara, Kerajaan Logavia. Kami harus menahan musim dingin dan musim semi sangat ditunggu-tunggu."
 
-"Saya lahir di negara bagian utara, Kerajaan Logavia. Kami harus menahan musim dingin dan musim semi sangat ditunggu."
+g"aku meninggalkan Logavia sebelum musim dingin tiba, tetapi Aku mendengar bahwa musim dingin di sana sangat mengerikan."
 
-"Saya meninggalkan Logavia sebelum musim dingin tiba, tetapi Aku mendengar bahwa musim dingin di sana sangat mengerikan."
+l"Itu karena itu adalah negara pedalaman di utara. Kupikir pertempuran dengan Tentara Raja Iblis akan berlangsung hingga musim dingin."
 
-"Itu karena itu adalah negara pedalaman di utara. Kupikir pertempuran dengan Tentara Raja Iblis akan berlangsung hingga musim dingin. "
+g"Apakah kalian semua bisa mendapatkan cukup kayu bakar setelah itu untuk menghangatkan diri?"
 
-"Apakah kalian semua bisa mendapatkan cukup kayu bakar setelah itu untuk menghangatkan diri?"
+l"Lagipula kami bisa menjarah Tentara Raja Iblis. Jadi kami bisa mengimpornya dari Kerajaan Sunland atau Republik Berria... ahaha, itulah yang Aku dengar. Bagaimanapun juga, musim dingin bukanlah sesuatu yang Aku nikmati."
 
-"Lagipula kita bisa menjarah Tentara Raja Iblis. Jadi kita bisa mengimpornya dari Kerajaan Sunland atau Republik Berria... ahaha, itulah yang Aku dengar. Bagaimanapun, musim dingin bukanlah sesuatu yang Aku nikmati."
+g" ... Bagaimana kalau sekarang?"
 
-" ... Bagaimana kalau sekarang?"
-
-"Musim dingin bersamamu menyenangkan. Musim dingin yang dingin dan hujan ini juga, itulah alasan bagiku untuk tetap dekat denganmu. Berpikir seperti itu, sangat disesalkan bahwa musim dingin akan berlalu."
-
- 
+l"Musim dingin bersamamu menyenangkan. Musim dingin yang dingin dan hujan ini juga, itulah alasan bagiku untuk tetap dekat denganmu. Berpikir seperti itu, sangat disesalkan bahwa musim dingin akan berlalu."
 
 Lit menempelkan tubuhnya lebih dekat ke Aku.
 
- 
+l"Fufufu... ini adalah kebahagiaan, ini kebahagiaan sejati bagiku. Berjalan bersama Red di tengah hujan seperti ini membuatku sangat bahagia. Sheesh, Red sangat licik. Aku menyukainya."
 
-"Fufufu... ini kebahagiaan, ini kebahagiaan sejati bagiku. Berjalan bersama Red di tengah hujan seperti ini membuatku sangat bahagia. Sheesh, Red sangat licik. Aku menyukainya."
+g"Ugh."
 
-"Ugh."
-
- 
-
-Gadis ini, Aku pikir dia terlalu malu dan tidak bisa berbicara tetapi kemudian dia tiba-tiba meninju Aku dengan keras.
+Gadis ini, Aku pikir dia terlalu malu dan tidak bisa berbicara tetapi kemudian dia tiba-tiba memukulku dengan keras.
 
 Itu adalah pukulan kritis.
 
-Jika Lit tidak mendukungku, aku akan berlutut.
+Jika Lit tidak menopangku, aku akan berlutut.
 
-Namun, dengan payung di tangan kanan dan tangan kiri di lengan Lit, aku tidak bisa menyembunyikan wajahku yang memerah pada Lit.
-
- 
+Namun, dengan payung di tangan kanan dan tangan kiriku di lengan Lit, aku tidak bisa menyembunyikan wajahku yang memerah pada Lit.
 
 Begitu, jadi sulit untuk banyak bicara saat kamu terlalu bahagia.
 
@@ -224,20 +210,16 @@ Cukup mendengarkan hujan dan menikmati waktu yang kami miliki bersama.
 
 Hari ini juga merupakan hari yang menyenangkan.
 
- 
-
 ☆☆
 
- 
+g"Ngomong-ngomong, payung ini lumayan bagus, apa dari Logavia?"
 
-"Ngomong-ngomong, payung ini lumayan bagus, apa dari Logavia?"
+l"Aku menyimpan semua yang Aku miliki dari Logavia. Kadang-kadang, lokasi permintaan untuk pekerjaan petualangku bertabrakan dengan urusan pemerintahanku sebagai putri jadi Aku akan menyimpan gaunku dan semacamnya di tas barangku untuk mengalahkan monster dan mengganti pakaian dan kembali setelah itu."
 
-"Saya menyimpan semua yang Aku miliki dari Logavia. Kadang-kadang, lokasi permintaan untuk pekerjaan petualang Aku tumpang tindih dengan urusan pemerintahan Aku sebagai putri jadi Aku akan menyimpan gaun Aku dan semacamnya di tas barang Aku untuk mengalahkan monster dan mengganti pakaian dan kembali setelah itu."
+g"Putri Tomboy, heh."
 
-"Putri Tomboy, benar."
+l"Apakah kamu benci memiliki Putri Tomboy?"
 
-"Apakah kamu benci memiliki Putri Tomboy?"
+g"Tentu saja aku mencintainya."
 
-"Tentu saja aku mencintainya."
-
-Ehehe.
+l"Ehehe."
