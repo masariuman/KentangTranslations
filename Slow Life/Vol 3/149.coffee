@@ -28,135 +28,97 @@ keributan Kali ini berakhir dalam sekejap mata.
 
 Tidak seperti insiden sebelumnya dengan Big Hawk, situasi dengan Ririnrara dan Ratu Leonor kali ini tidak memakan waktu lama.
 
-Bahkan saat kami menikmati kehidupan kami yang lambat, sebuah peristiwa yang menempati urutan teratas dalam sejarah benua, masalah suksesi Kerajaan Veronia datang menemui kami.
+Bahkan saat kami menikmati kehidupan kami yang santai, sebuah peristiwa yang menempati urutan teratas dalam sejarah benua, masalah penerusan takhta Kerajaan Veronia datang menemui kami.
 
 Zoltan mungkin telah terlibat dalam masalah ini tetapi dalam sejarah benua Avalonia, Zoltan akan dilihat hanya sebagai peran pendukung dan fokusnya akan dipusatkan pada Ratu Leonor dan Ratu Misufia.
 
-Tapi saya merasa itu yang terbaik untuk Zoltan.
+Tapi Aku merasa itu yang terbaik untuk Zoltan.
 
- 
+l"Manajemen pasca-perang juga selesai dalam sekejap."
 
-Manajemen pasca-perang juga selesai dalam sekejap.
+g"Yah, golongan Sarius mungkin akan mendapatkan kembali takhta di Kerajaan Veronia setelah ini jadi pencapaian pertama yang Pangeran Sarius bawa kembali ke Kerajaan Veronia bukanlah satu-satunya kompensasi untuk Zoltan."
 
-“Yah, golongan Sarius mungkin akan mendapatkan kembali takhta di Kerajaan Veronia setelah ini jadi pencapaian pertama yang Pangeran Sarius bawa kembali ke Kerajaan Veronia bukanlah satu-satunya kompensasi untuk Zoltan.”
+l"Dan tentara bayaran Veronia yang ditangkap cukup banyak dibebaskan tanpa syarat."
 
-“Dan tentara bayaran Veronia yang ditangkap cukup banyak dibebaskan tanpa syarat.”
+g"Tentara bayaran yang ditangkap tidak bisa ditebus untuk apa pun dan semua orang tidak mau repot-repot menjualnya ke pedagang budak. Dan Aku juga tidak ingin melakukannya, jadi Aku mendukungnya."
 
-“Tentara bayaran yang ditangkap tidak bisa ditebus untuk apa pun dan semua orang tidak mau repot-repot menjualnya ke pedagang budak. Dan saya juga tidak ingin melakukannya, jadi saya mendukungnya. "
+l"Bahkan jika uang kompensasi dari kapal Pangeran Sarius lebih dari cukup, orang-orang Zoltan pasti riang ... dan baik hati."
 
-"Bahkan jika uang kompensasi dari kapal Pangeran Sarius lebih dari cukup, orang-orang Zoltan pasti riang ... dan baik hati."
+g"Itu hal yang bagus."
 
-“Itu hal yang bagus.”
-
-“Ya, saya setuju dengan sepenuh hati.”
-
- 
+l"Ya, Aku setuju dengan sepenuh hati."
 
 Itu adalah hasil damai yang luar biasa untuk mengakhiri perang.
 
- 
-
 "Permisi."
-
- 
 
 Bel pintu berbunyi dan seorang pelanggan memasuki toko.
 
- 
-
 ""Selamat datang.""
 
- 
+Lit dan Aku menyambut pelanggan bersamaan.
 
-Lit dan saya menyambut pelanggan selaras.
-
-Itu memperkuat perasaan bahwa kami telah kembali ke kehidupan sehari-hari yang asli.
-
- 
+Itu memperkuat perasaan bahwa kami telah kembali ke kehidupan sehari-hari yang santai.
 
 ☆☆
 
- 
+Saat tengah hari tiba, Aku mengemas makanan yang Aku buat ke dalam kotak.
 
-Saat tengah hari tiba, saya mengemas makanan yang saya buat ke dalam kotak.
+g"Baiklah, sudah selesai."
 
- 
+Aku berkata dengan kepuasan setelah mengagumi hasil karyaku.
 
-"Baiklah, sudah selesai."
+Kemudian, Aku merasakan kehadiran merayapi Aku dari belakang.
 
- 
-
-Saya berkata dengan kepuasan setelah mengagumi hasil karya saya.
-
-Kemudian, saya merasakan kehadiran merayapi saya dari belakang.
-
- 
-
-“Ini juga terlihat enak hari ini.”
-
- 
+l"Ini juga terlihat enak hari ini."
 
 Lit meletakkan kepalanya di pundakku dan memelukku dari belakang saat dia berkomentar.
 
- 
+g"Ruti akan senang hari ini juga dengan bento Red."
 
-“Ruti akan senang hari ini juga dengan bento Red.”
-
- 
-
-Bento yang saya buat akan dikirim ke Ruti.
+Bento yang Aku buat akan dikirim ke Ruti.
 
 Di dalamnya ada roti hot dog dengan sosis dan selada bersama dengan telur dadar dan salad.
 
 Senyuman tergambar di telur dadar.
 
-Makan hari ini adalah sesuatu yang saya percayai. Senyuman muncul di wajah saya ketika saya membayangkan ekspresi gembira Ruti.
+aku percaya diri dengan makanan hari ini. Senyuman muncul di wajahku ketika Aku membayangkan ekspresi gembira Ruti.
 
- 
+l"Ruti sibuk sejak saat itu."
 
-Konon, Ruti sibuk sejak saat itu.
+g"... Ya."
 
-“… Ya.”
-
- 
-
-Ruti adalah satu-satunya pemimpin partai peringkat B Zoltan.
+Ruti adalah satu-satunya pemimpin tim peringkat B Zoltan.
 
 Dari keributan yang terjadi kali ini, tanpa disadari ia telah menjadi eksistensi yang diandalkan eselon atas Zoltan karena kharisma yang ia pegang dan bahkan kini ia sedang dalam rapat untuk prospek kepergian Pangeran Sarius dan rombongannya dari Zoltan.
 
 Beberapa orang datang untuk mencari tahu apakah Lit akan kembali sebagai petualang lagi tetapi mereka sekarang memiliki rasa aman yang lebih besar tidak seperti sebelumnya karena kehadiran Ruti dan Tise.
 
-Nah, untuk kasus Lit, sepertinya mereka benar-benar memintanya untuk bergabung dengan kongres daripada kembali sebagai petualang…
+Nah, untuk kasus Lit, sepertinya mereka benar-benar memintanya untuk bergabung dengan kongres daripada kembali sebagai petualang...
 
- 
-
-“Saya benar-benar menolak! Saya tidak akan mempertimbangkan kehidupan selain Lit dari Apoteker Merah & Lit! ”
-
- 
+l"aku benar-benar menolak! Aku tidak akan mempertimbangkan kehidupan Lit selain dari Apotek Merah & Lit! "
 
 Dia menolak mereka begitu saja.
 
-Karena Ruti, Lit, dan Tise, bagian saya tersembunyi dan saya bisa melanjutkan dengan damai seperti ini jadi saya merasa sedikit menyesal.
+Karena Ruti, Lit, dan Tise, diriku tersembunyi dan Aku bisa melanjutkan dengan damai seperti ini jadi Aku merasa sedikit menyesal.
 
- 
-
-“Ruti akhirnya bisa kabur dari『 Hero 』dan memulai hidup lambat tapi sekarang dia terlibat dalam kejadian seperti itu lagi.”
+"Ruti akhirnya bisa kabur dari『 Hero 』dan memulai hidup lambat tapi sekarang dia terlibat dalam kejadian seperti itu lagi."
 
  
 
 Entah apa pendapat Ruti tentang itu.
 
-Saya sedikit khawatir.
+Aku sedikit khawatir.
 
  
 
-“Kalau begitu aku akan pergi sebentar.”
+"Kalau begitu aku akan pergi sebentar."
 
 "Baiklah, hati-hati."
 
  
 
-Lit melepaskan saya dan saya berjalan menuju kongres yang terletak di Distrik Pusat tempat Ruti berada.
+Lit melepaskan Aku dan Aku berjalan menuju kongres yang terletak di Distrik Pusat tempat Ruti berada.
 
 ☆☆
 
@@ -174,9 +136,9 @@ Para petualang bersorak sambil terlihat sedang bersenang-senang.
 
  
 
-“Oi, para Ksatria Drake Lari Zoltan dan para pelaut Pangeran Sarius sedang minum-minum di sana!”
+"Oi, para Ksatria Drake Lari Zoltan dan para pelaut Pangeran Sarius sedang minum-minum di sana!"
 
-"Serius? Mari kita lihat! ”
+"Serius? Mari kita lihat! "
 
  
 
@@ -194,7 +156,7 @@ Petualang itu mengambil alkohol dan menghabiskannya dalam sekali jalan sebelum t
 
  
 
-Ya, saya pikir juga begitu.
+Ya, Aku pikir juga begitu.
 
 Melihat mereka bertiga saling berpelukan sambil bernyanyi di sudut mataku membuatku tersenyum juga.
 
@@ -210,11 +172,11 @@ Mereka menghadapi musuh yang kuat dengan rintangan yang tidak ada harapan tetapi
 
 Tanpa diragukan lagi, mereka adalah pahlawan yang patut dipuji.
 
-Jadi saya yakin ketika saya melihat pria yang dikelilingi oleh wanita.
+Jadi Aku yakin ketika Aku melihat pria yang dikelilingi oleh wanita.
 
  
 
-“Tunggu, Danan !?”
+"Tunggu, Danan !?"
 
  
 
@@ -226,11 +188,11 @@ Aku memanggil Danan yang memiliki ekspresi tegas seperti biasanya.
 
  
 
-“Danan, ada apa dengan situasimu?”
+"Danan, ada apa dengan situasimu?"
 
 "Aduh, tampaknya di luar gaduh jadi aku hanya ingin keluar."
 
-“Bagaimana dengan lingkaran wanita ini?”
+"Bagaimana dengan lingkaran wanita ini?"
 
 "Wajar jika akan ada perawat saat orang yang terluka keluar untuk jalan-jalan."
 
@@ -242,7 +204,7 @@ Begitulah.
 
  
 
-“Kamu tampak dekat.”
+"Kamu tampak dekat."
 
  
 
@@ -250,9 +212,9 @@ Para perawat menempel di Danan lebih dari yang diperlukan.
 
  
 
-“Ya, mereka adalah rekanku.”
+"Ya, mereka adalah rekanku."
 
-"Kawan? … Jangan bilang kau ikut bertarung bahkan setelah semua peringatan itu? ”
+"Kawan? … Jangan bilang kau ikut bertarung bahkan setelah semua peringatan itu? "
 
  
 
@@ -272,11 +234,11 @@ Danan menggelengkan kepalanya.
 
  
 
-“Aku bersumpah di tanganku bahwa aku tidak akan bergabung dengan medan perang. Aku tidak akan mengingkari janji itu. "
+"Aku bersumpah di tanganku bahwa aku tidak akan bergabung dengan medan perang. Aku tidak akan mengingkari janji itu. "
 
 "Kemudian?"
 
-“Dia luar biasa!”
+"Dia luar biasa!"
 
  
 
@@ -284,7 +246,7 @@ Kata perawat yang memeluk tangan kiri Danan dengan mata berbinar.
 
  
 
-“Luar biasa…?”
+"Luar biasa…?"
 
 "Dia perawat yang luar biasa yang bahkan mengejutkan perawat veteran!"
 
@@ -294,17 +256,17 @@ Apa?
 
  
 
-"Perawat? Danan? ”
+"Perawat? Danan? "
 
  
 
-Saya tidak pernah menyangka bahwa dia akan membantu di klinik daripada bergabung dalam pertarungan.
+Aku tidak pernah menyangka bahwa dia akan membantu di klinik daripada bergabung dalam pertarungan.
 
  
 
-"Ya, saya frustrasi karena tidak bisa bertarung jadi saya membantu perawat keluar."
+"Ya, Aku frustrasi karena tidak bisa bertarung jadi Aku membantu perawat keluar."
 
-“Hanya duduk diam membuatmu frustasi?”
+"Hanya duduk diam membuatmu frustasi?"
 
  
 
@@ -316,15 +278,15 @@ Perawat lainnya meringkuk ke Danan dan melanjutkan.
 
  
 
-“Dia bisa membawa pasien dengan mudah tidak peduli seberapa besar tubuh orang itu atau jika mereka memakai baju besi, dia bisa menyelesaikan pertolongan pertama darurat untuk luka dan patah tulang dalam sekejap dan dia akan selalu tersenyum bahkan ketika kami merasa putus asa. Padahal seharusnya Danan-san merasakan sakit di tubuhnya juga. ”
+"Dia bisa membawa pasien dengan mudah tidak peduli seberapa besar tubuh orang itu atau jika mereka memakai baju besi, dia bisa menyelesaikan pertolongan pertama darurat untuk luka dan patah tulang dalam sekejap dan dia akan selalu tersenyum bahkan ketika kami merasa putus asa. Padahal seharusnya Danan-san merasakan sakit di tubuhnya juga. "
 
  
 
-Tidak, saya cukup yakin bahwa senyuman itu berasal dari perasaan bebas setelah tidak bergerak selama beberapa waktu.
+Tidak, Aku cukup yakin bahwa senyuman itu berasal dari perasaan bebas setelah tidak bergerak selama beberapa waktu.
 
  
 
-“Terlebih lagi, Danan-san bisa tersenyum dan menyemangati para pasien meski pasien terluka parah sehingga Anda ingin mengalihkan pandangan. Danan-san tidak membuang muka tidak peduli betapa sakitnya itu.
+"Terlebih lagi, Danan-san bisa tersenyum dan menyemangati para pasien meski pasien terluka parah sehingga Anda ingin mengalihkan pandangan. Danan-san tidak membuang muka tidak peduli betapa sakitnya itu.
 
  
 
@@ -334,7 +296,7 @@ Dalam pesta pahlawan dengan satu atau dua kebiasaan aneh, Danan adalah orang yan
 
  
 
-“Banyak pasien terselamatkan berkat bantuan Danan-san. Bahkan jika dia tidak memasuki medan perang, Danan-san adalah pahlawan di klinik. ”
+"Banyak pasien terselamatkan berkat bantuan Danan-san. Bahkan jika dia tidak memasuki medan perang, Danan-san adalah pahlawan di klinik. "
 
 "Itu salah."
 
@@ -344,11 +306,11 @@ Senyum Danan berubah menjadi ekspresi serius saat dia menyangkal kata-kata peraw
 
  
 
-“Danan-san?”
+"Danan-san?"
 
-“Kalian para perawat dan para dokter berusaha sekuat tenaga. Tidak masuk akal kalau aku satu-satunya pahlawan. Bukan hanya aku, semua orang di sana adalah pahlawan. "
+"Kalian para perawat dan para dokter berusaha sekuat tenaga. Tidak masuk akal kalau aku satu-satunya pahlawan. Bukan hanya aku, semua orang di sana adalah pahlawan. "
 
-“Danan-san… !!”
+"Danan-san… !!"
 
  
 
@@ -380,4 +342,4 @@ Danan tersenyum dan tampak sangat bahagia.
 
  
 
-“Saya senang terlahir sebagai『 Martial Artist 』, untuk dapat melihat bahwa mencapai puncak pertempuran bukanlah akhir.”
+"Saya senang terlahir sebagai『 Martial Artist 』, untuk dapat melihat bahwa mencapai puncak pertempuran bukanlah akhir."
