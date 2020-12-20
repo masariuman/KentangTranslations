@@ -144,7 +144,7 @@ Kata resepsionis wanita sambil menyentuh kakinya yang hilang dari bawah lutut.
 
 "Selain itu, jika aku bisa memberikan sedikit kekuatan untuk pahlawan masa depan, petualangan masa laluku... mungkin tidak akan sia-sia."
 
-"Seorang mantan petualang seperti Saffy-chan yang menjadi perantara permintaan untuk kita sudah sangat membantu kita juga."
+"Seorang mantan petualang seperti Saffy-chan yang menjadi perantara permintaan untuk kami sudah sangat membantu kami juga."
 
 ☆☆
 
