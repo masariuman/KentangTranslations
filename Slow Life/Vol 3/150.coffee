@@ -108,9 +108,9 @@ Dengan sisa bahan yang Aku gunakan untuk membuat bento Ruti, Aku membuat sup dan
 
 Aku mengeluarkan kotak bekal perak mithril yang biasa aku pakai untuk membawa semur saat berpetualang yang sudah lama tersimpan di rak.
 
-Tentu saja, itu tidak sepenuhnya terbuat dari perak mithril tetapi hanya film tipis di bagian dalam tetapi itu masih merupakan barang mahal dengan harga 1000 peryl.
+Tentu saja, itu tidak sepenuhnya terbuat dari perak mithril tetapi hanya bagian tipis di bagian dalam tetapi itu masih merupakan barang mahal dengan harga 1000 peryl.
 
-Itu sempurna untuk menjaga isinya tetap hangat, tidak ada bahan yang akan mengeluarkan logam dan hanya dengan lap sederhana dapat membersihkan kotoran.
+Itu sempurna untuk menjaga isinya tetap hangat, tidak ada bahan yang akan menempel di logam dan hanya dengan lap sederhana dapat membersihkan kotoran.
 
 Dengan ini, meskipun digunakan untuk mengemas sarapan, itu bisa digunakan untuk makan siang dan makan malam juga.
 
@@ -118,88 +118,58 @@ Aku sering menggunakannya ketika kami menuju ke tempat-tempat di mana api tidak 
 
 Sia-sia menggunakannya hanya untuk piknik tetapi Aku agak merasa ingin menggunakannya hari itu.
 
- 
-
 ☆☆
 
- 
-
-20 menit berjalan kaki dari Red & Lit Apothecary.
+20 menit berjalan kaki dari Apotek Red & Lit.
 
 Lit dan aku duduk di puncak bukit kecil.
 
-Kami dapat melihat dengan jelas Zoltan Downtown dari sana… atau tidak, tetapi setidaknya itu adalah tempat dengan pemandangan yang indah.
+Kami dapat melihat dengan jelas Pusat Kota Zoltan dari sana... atau tidak, tetapi setidaknya itu adalah tempat dengan pemandangan yang indah.
 
- 
-
-"Ooo, aku belum pernah ke tempat ini."
-
- 
+g"Ooo, aku belum pernah ke tempat ini."
 
 Aku berkomentar saat Aku melihat sekeliling.
 
-Ada aliran kecil mengalir ke samping yang membuka celah di antara pepohonan.
+Ada sungai kecil mengalir ke samping yang membuka celah di antara pepohonan.
 
 Hutan kayu keras itu anehnya hangat dan sangat menenangkan.
 
- 
+l"Apa kau tidak merasa suhu di sekitar sini bagus?"
 
-"Apa kau tidak merasa suhu di sekitar sini bagus?"
-
-"Kamu benar, ini terasa sedikit kering dalam perjalanan kita ke sini jadi tempat ini terasa nyaman."
-
- 
+g"Kamu benar, ini terasa sedikit kering dalam perjalanan kita ke sini jadi tempat ini terasa nyaman."
 
 Aku membuka bento.
 
- 
-
-"Terima kasih untuk makanannya ~!"
-
- 
+l"Terima kasih untuk makanannya ~!"
 
 Lit mengisi pipinya dengan sandwich yang kubuat dengan senyum lebar.
 
- 
+l"Enaknya!"
 
-"Lezat!"
+g"Ahaha, baguslah."
 
-"Ahaha, itu bagus."
+Melihat Lit memakannya dengan sangat nikmat membuat wajahku tersenyum.
 
- 
-
-Melihat Lit memakannya dengan sangat nikmat membuat senyum di wajahku.
-
- 
-
-"Kalau begitu aku akan mulai juga."
-
- 
+g"Kalau begitu aku akan makan juga."
 
 Aku mengambil sandwich dengan bahan yang sama dengan yang dimakan Lit.
 
-Sandwich dengan tomat merah segar, selada renyah, dan telur orak-arik memiliki tekstur yang bagus dan enak jika Aku bisa mengatakannya sendiri.
+Sandwich dengan tomat merah segar, selada renyah, dan telur orak-arik memiliki tekstur yang bagus dan enak jika.
 
 Rebusannya adalah bacon dan jamur. Aku memotong bahan menjadi potongan-potongan kecil agar panasnya lebih cepat meresap.
 
 Rebusan hangat terasa lebih enak dari biasanya saat dimakan di luar ruangan di musim dingin.
 
- 
+l"Bukankah lebih baik makan di tempat seperti ini sesekali?"
 
-"Bukankah lebih baik makan di tempat seperti ini sesekali?"
+g"Ya, makanannya juga terasa lebih enak."
 
-"Ya, makanannya juga terasa lebih enak."
-
-"Makanan Red selalu enak."
-
- 
+l"Makanan Red selalu enak."
 
 Lit makan rebusan itu dengan nikmat.
 
- 
-
-"Ya! Ini yang terbaik juga. "
-
- 
+g"Ya! Ini yang terbaik juga."
 
 Kami menghabiskan waktu makan yang menyenangkan begitu saja.
+
+<gambar> vol 5 8.jpg dan 17++ ******
