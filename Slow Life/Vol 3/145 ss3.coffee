@@ -242,159 +242,103 @@ Aroma sayuran dan tanah.
 
 Suara pemilik toko yang menjual barang dagangannya dan para ibu rumah tangga mencoba mencari sayuran yang enak.
 
-Dia merasa itu sangat menarik dan menarik.
-
- 
+Dia merasa itu sangat menarik.
 
 Sembold tersenyum tipis dan menyerahkan peta kota yang digambar tangan kepada Lislet.
 
- 
+"Ini permintaan Karin yang tinggal di sini. Kamu seharusnya bisa melakukannya jika Kamu berangkat sekarang tetapi dia akan berangkat untuk membelinya sendiri malam hari. Jadi lebih baik jika Kamu pergi ke sana segera."
 
-"Ini permintaan Karin yang tinggal di sini. Kamu seharusnya bisa membuatnya jika Kamu berangkat sekarang tetapi dia akan berangkat untuk membelinya sendiri setelah mencapai malam. Jadi lebih baik jika Kamu pergi ke sana segera. "
+l"Dimengerti! Aku akan pergi ke sana sekarang!"
 
-"Dimengerti! Aku akan pergi ke sana sekarang! "
+Lislet hendak lari dengan penuh semangat tapi dia berhenti sebelum pergi dan berbalik.
 
- 
+l"Terima kasih Sembold-san! Aku akan berada dalam bimbinganmu!"
 
-Lislet hendak kabur dengan penuh semangat tapi dia berhenti sebelum pergi dan berbalik.
-
- 
-
-"Terima kasih Sembold-san! Aku akan berada dalam perawatanmu! "
-
-"Yup, hati-hati Lit. Selamat berpetualang. "
-
- 
+"Yup, hati-hati Lit. Selamat berpetualang."
 
 Lislet muda berbalik dan lari.
 
- 
-
 ☆☆
-
- 
 
 Matahari terbenam. Di rumah Sembold.
 
-Setelah dengan santai mendengarkan laporan Lislet tentang petualangannya (tugas) sambil menikmati secangkir teh, Sembold duduk di kursi berlengan untuk merokok pipanya.
+Setelah dengan santai mendengarkan laporan Lislet tentang petualangannya (tugas) sambil menikmati secangkir teh, Sembold duduk di kursi untuk merokok pipanya.
 
 Masih ada cangkir di atas meja karena Lislet baru saja pulang beberapa saat yang lalu.
 
 Agar tidak merokok di depan anak-anak, Sembold hanya menikmati pipanya setelah matahari terbenam.
 
- 
-
 Dia mendengar ketukan.
 
- 
-
-"Hn, apakah itu Lit-chan? Apakah dia melupakan sesuatu? "
-
- 
+"Hn, apakah itu Lit-chan? Apakah dia melupakan sesuatu?"
 
 Sembold meletakkan pipanya di atas meja dan pindah ke pintu masuk.
 
 Lalu, dia membuka pintu.
 
- 
+Dia terkena pukulan kuat di kepalanya dan penglihatannya menjadi hitam.
 
-Dia menderita pukulan kuat di kepalanya dan penglihatannya menjadi hitam.
-
- 
-
-"Ah… ga…"
+"Ah... ga..."
 
 Sembold jatuh ke lantai setelah menerima pukulan di kepala dari pemukul yang berisi timah.
 
- 
-
 "Seperti yang dirumorkan, ini sepertinya rumah orang kaya."
-
- 
 
 Dua pria memasuki rumah.
 
 Satu memegang tongkat pemukul yang mengenai Sembold sedangkan yang lainnya memegang pedang pendek tajam tanpa sarung.
 
- 
+"Uh, gu..."
 
-"Uh, gu…"
-
-"Hei sekarang, kamu tidak membunuhnya?"
-
- 
+"Hei, kamu tidak membunuhnya?"
 
 Pria yang memegang pedang pendek itu tersenyum tipis.
 
-"Apa? Membunuh? Hukumannya akan lebih keras jika kita tertangkap. "
+"Apa? Membunuh? Hukumannya akan lebih keras jika kita tertangkap."
 
-"Hei sekarang, hukuman kita tidak akan berubah apapun yang kita lakukan pada satu atau dua orang lagi. Menurutmu berapa banyak orang yang telah kita bunuh sampai sekarang. "
+"Hei, hukuman kita tidak akan berubah apapun yang kita lakukan pada satu atau dua orang lagi. Menurutmu berapa banyak orang yang telah kita bunuh sampai sekarang."
 
 "Hehe, itu benar."
 
- 
-
 Keduanya adalah pencuri.
 
-Selanjutnya, mereka sengaja ditujukan untuk panti jompo dan anak-anak. Pencuri kehidupan rendahan yang dibenci bahkan oleh sesama pencuri mereka.
+Selanjutnya, mereka sengaja menargetkan panti jompo dan anak-anak. Pencuri kehidupan rendahan yang dibenci bahkan oleh sesama pencuri mereka.
 
 Sembold mencoba untuk berdiri tetapi dia tidak memiliki kekuatan di lengan dan kakinya.
 
 Dia hanya bisa menyaksikan pencuri mengangkat tongkatnya dengan gerakan lambat untuk memberikan pukulan terakhir.
 
- 
+Namun, tongkat tidak berayun turun.
 
-Namun, klub tidak berayun turun.
+"Gugya."
 
- 
-
-Gugya.
-
- 
-
-Udara bocor dari mulut pencuri.
-
- 
+Udara muncul dari mulut pencuri.
 
 "A-apa !?"
 
- 
+Pencuri lain yang sedang mencari barang berharga di dalam rumah mengangkat suara bingung, gagal memahami situasinya sejenak.
 
-Pencuri lain yang sedang mencari barang berharga lebih dalam di dalam rumah mengangkat suara bingung, gagal memahami situasinya sejenak.
-
-Tubuh pencuri itu roboh.
+Tubuh pencuri itu tumbang.
 
 Satu pukulan ke titik vital seperti bagian belakang kepala memiliki kekuatan yang cukup untuk menjatuhkan pria dewasa.
 
- 
-
-Sembold-san!
-
- 
+l"Sembold-san!"
 
 Lislet bergegas.
 
 Gadis muda itu memelototi pencuri itu dan menyiapkan pentungan di tangannya.
 
- 
+"la-lari, Lit ..."
 
-"Ru-lari, Lit ..."
-
- 
-
-Bahkan saat pingsan, Sembold mengkhawatirkan Lislet dengan suara lemah.
+Bahkan saat hampir pingsan, Sembold mengkhawatirkan Lislet dengan suara lemah.
 
 Ketika Lislet mendengar suara itu, emosi aneh muncul di dalam hatinya, campuran antara kemarahan dan ketenangan yang intens.
 
-Dia sudah memutuskan untuk tidak lari dan memikirkan cara untuk mengalahkan pencuri yang terbentuk di otak Lislet.
+Dia sudah memutuskan untuk tidak lari dan memikirkan cara untuk mengalahkan pencuri.
 
- 
+"B-bocah ini! kau akan membayar untuk apa yang kau lakukan!"
 
-"B-bocah ini! Kamu akan membayar untuk apa yang Kamu lakukan! "
-
- 
-
-Pencuri itu mengancam saat dia menuduhnya.
+Pencuri itu mengancam saat dia bergerak ke arahnya.
 
 Lislet mengayunkan tongkatnya yang memiliki jangkauan lebih tinggi untuk mencegah pencuri mendekat.
 
@@ -404,59 +348,39 @@ Level perlindungan ilahi-nya mungkin tidak tinggi tapi pengalaman bertarungnya s
 
 Pencuri itu menjatuhkan tongkat yang diayunkan Lislet dan berteriak dengan cara yang mengintimidasi saat dia mengayunkan tangan kirinya ke bawah ke arah Lislet.
 
- 
-
-"Kamu hanya seorang gadis! Hanya satu seruan perang sudah cukup untuk menghentikan langkahmu! "
-
- 
+"Kamu hanya seorang bocah! Hanya satu teriakan sudah cukup untuk menghentikan langkahmu!"
 
 Pencuri itu tidak ragu-ragu meskipun dia akan memukul seorang gadis.
 
 Tapi Lislet tidak takut.
 
- 
+l"Sekarang! roh bumi-san! "
 
-"Sekarang! Earth Spirit-san! "
+tongkat di tangan Lislet menggeliat.
 
- 
+tongkat yang dia gunakan sebagai senjata adalah perwujudan dari Roh Bumi.
 
-Gada di tangan Lislet menggeliat.
-
-Gada yang dia gunakan sebagai senjata adalah perwujudan dari Roh Bumi.
-
-Tidak seperti pencuri lain yang membuatnya pingsan dengan serangan dari belakang, Lislet tahu bahwa dia tidak bisa bertarung dengan alasan yang sama dengan pencuri bersenjatakan pedang bahkan dengan Earth Spirit dalam bentuk tongkat.
+Tidak seperti pencuri lain dengan membuatnya pingsan dengan serangan dari belakang, Lislet tahu bahwa dia tidak bisa bertarung dengan alasan yang sama dengan pencuri bersenjatakan pedang bahkan dengan roh bumi dalam bentuk tongkat.
 
 Jadi dia mengandalkan waktu serangan balik.
 
-Earth Spirit melilit leher pencuri sebelum tinjunya mengenai dia.
-
- 
+roh bumi melilit leher pencuri sebelum tinjunya mengenai dia.
 
 "Gah !?"
 
- 
-
 Wajah merah pencuri karena marah dengan cepat berubah menjadi hitam kemerahan karena dia tidak bisa bernapas.
 
-Selanjutnya, lengan muncul dari Earth Spirit.
+Selanjutnya, lengan muncul dari roh bumi.
 
- 
+"Hiiii..."
 
-"Haiiii…"
+Ketakutan terlihat di wajah pencuri saat dia berusaha mati-matian untuk menghancurkan roh bumi.
 
- 
-
-Ketakutan terlihat di wajah pencuri saat dia berusaha mati-matian untuk merobek Earth Spirit.
-
-Kemudian, Earth Spirit menghujani wajah pencuri itu.
-
- 
+Kemudian, roh bumi menghujani tinju wajah pencuri itu.
 
 "Gya! Berhenti! Tolong! Tolong!!"
 
- 
-
-Tingkat perlindungan ilahi Lislet adalah satu.
+level perlindungan ilahi Lislet adalah level satu.
 
 Roh Bumi yang bisa dia panggil adalah yang terlemah dari semua roh.
 
@@ -466,43 +390,27 @@ Itu adalah roh lemah yang tidak memiliki kemampuan khusus selain mengubah bentuk
 
 Tapi pukulan dengan kekuatan orang dewasa menghujani wajah pria itu tanpa henti.
 
-Earth Spirit menghantam pencuri itu tanpa ampun, mencerminkan kemarahan Lislet.
+roh bumi menghantam pencuri itu tanpa ampun, mencerminkan kemarahan Lislet.
 
- 
-
-Saat ini, Lislet hanya bisa menahan pemanggilan sebentar.
+Saat ini, Lislet hanya bisa memanggilnya sebentar.
 
 Tapi pencuri itu tidak bisa lagi bergerak setelah Roh Bumi menghilang.
 
- 
-
-"Sembold-san, kamu baik-baik saja !?"
-
- 
+l"Sembold-san, kamu baik-baik saja !?"
 
 Lislet bergegas ke sisi Sembold.
 
- 
-
-"Water Spirit, tolong pinjamkan aku kekuatanmu!"
-
- 
+l"roh air, tolong pinjamkan aku kekuatanmu!"
 
 Sembold merasakan sakit di kepalanya hilang sedikit demi sedikit.
 
-Namun, kekuatannya hanya pada level petualang pemula.
+kekuatannya hanya pada level petualang pemula.
 
 Kekuatannya jauh lebih rendah dari para pencuri.
 
- 
-
 Dia menang melawan pencuri bukan dengan menggunakan kekuatan tetapi dengan keberanian.
 
- 
-
 (Itu adalah karakter terbesar yang dibutuhkan seorang pahlawan.)
-
- 
 
 Saat Lislet melihat luka Sembold, air mata mengalir di matanya seolah-olah dialah yang terluka.
 
