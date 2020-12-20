@@ -184,61 +184,43 @@ Setelah itu, dia berjalan lurus menuju Leonor.
 
 Mereka berdua menyiapkan pedang mereka.
 
- 
-
 Ratu Leonor mengenakan gaun kelas tinggi yang pas dan indah memegang pedang gaun.
 
 Mistome-shi mengenakan pakaian biasa dengan pedang panjang tanpa hiasan.
 
- 
-
-Leonor, aku hanya ingin mengatakan ini pada akhirnya.
+"Leonor, aku hanya ingin mengatakan ini untuk yang terakhir."
 
 "Apa?"
 
-"Aku kalah denganmu. Kamu merebut banyak hal dari Aku. Cintaku, negaraku, anakku ... sungguh banyak hal. "
+"Aku kalah denganmu. Kamu merebut banyak hal dariku. Cintaku, negaraku, anakku ... sungguh banyak hal."
 
-"Jadi kamu ingin membalas dendam untuk itu? Fufu, tentu. Tetapi bahkan dengan kematianku, nyawa yang hilang tidak akan kembali... itu sudah kemenanganku, Onee-sama. Ini kemenanganku !! "
+"Jadi kamu ingin membalas dendam untuk itu? Fufu, tentu. Tetapi bahkan dengan kematianku, nyawa yang hilang tidak akan kembali... itu sudah kemenanganku, Onee-sama. Ini kemenanganku !!"
 
-"Tidak, Leonor. Aku tidak berjuang untuk balas dendam. Aku menahan pikiran itu sampai kemarin tapi setelah bertemu denganmu, aku mengerti setelah mengingat hidupku. "
+"Tidak, Leonor. Aku tidak berjuang untuk balas dendam. Aku menahan pikiran itu sampai kemarin tapi setelah bertemu denganmu, aku mengerti setelah mengingat hidupku."
 
-Apa yang kamu mengerti?
+"Apa yang kamu mengerti?"
 
- 
+Mistome-shi menarik nafas dalam-dalam.
 
-Mistome-shi menghirup sebagian besar.
+"aku memiliki kehidupan yang beruntung!"
 
- 
-
-"Saya memiliki kehidupan yang beruntung!"
-
- 
-
-Mistome-shi berteriak begitu keras hingga aku bertanya-tanya apakah itu bahkan bisa didengar di dalam Zoltan.
+Mistome-shi berteriak begitu keras hingga aku penasaran apakah itu bahkan bisa didengar di dalam Zoltan.
 
 Dia memiliki senyum cerah di wajahnya.
 
- 
+"Aku bertemu dengan orang yang Aku cintai dalam sebuah perjalanan! Aku dikelilingi oleh banyak teman sekarang dan di masa lalu! Aku suka tanah airku Veronia! Veronia yang binasa kembali sebagai negara yang kuat! Aku suka Zoltan ini! Aku bisa menggunakan hidupku demi orang-orang malas dan damai yang Aku cintai di negara ini! Dan Aku bisa terhubung dengan Tonedo! Ketika Aku pertama kali bertemu dengannya, dia adalah anak laki-laki yang tidak bisa diandalkan tetapi dia sekarang menjadi walikota yang lebih baik dan lebih berani daripada Aku! Aku punya banyak hal yang membahagiakanku! Itu adalah hidup yang indah !! Aku memiliki kehidupan yang beruntung !!!"
 
-"Saya bertemu dengan orang yang Aku cintai dalam sebuah perjalanan! Aku dikelilingi oleh banyak teman sekarang dan di masa lalu! Aku suka tanah air Aku Veronia! Veronia yang binasa kembali sebagai negara yang kuat! Aku suka Zoltan ini! Aku bisa menggunakan hidup Aku demi orang-orang malas dan damai yang Aku cintai di negara ini! Dan Aku bisa terhubung dengan Tonedo! Ketika Aku pertama kali bertemu dengannya, dia adalah anak laki-laki yang tidak bisa diandalkan tetapi dia sekarang menjadi walikota yang lebih baik dan lebih berani daripada Aku! Aku punya banyak hal untuk membahagiakan! Itu adalah hidup yang indah !! Aku memiliki kehidupan yang beruntung !!! "
-
- 
-
-Aku bisa mendengar sorak-sorai.
+Aku bisa mendengar teriakan.
 
 Orang-orang Zoltan mendukung Mistome-shi.
 
 Leonor memandang Mistome-shi dengan ekspresi tertegun.
 
- 
-
 "Serius... Onee-sama adalah orang yang tidak menyenangkan sampai akhir."
 
-"Maaf Leonor ... sekaranglah waktunya untuk menyelesaikan ini, minta belas kasihan dari Tuhan!"
+"Maaf Leonor ... sekaranglah waktunya untuk menyelesaikan ini, minta belas kasihanlah dari Tuhan!"
 
 "Aku menolak, Aku tidak berdoa kepada Tuhan!"
-
- 
 
 Kedua belah pihak melesat pada saat bersamaan.
 
@@ -246,159 +228,111 @@ Mistome-shi memblokir tusukan elegan Leonor secara langsung.
 
 Bilahnya bertabrakan dan percikan api tersebar.
 
- 
-
 "Mistome !!"
-
- 
 
 Garadin berteriak.
 
-Mungkin Mistome-shi tidak bisa menyalurkan kekuatan ke lututnya karena dia kehabisan kekuatan magis saat postur tubuhnya runtuh.
+Mungkin Mistome-shi tidak bisa menyalurkan kekuatan ke lututnya karena dia kehabisan kekuatan magis karena postur tubuhnya runtuh.
 
 Leonor segera menyodorkan pedang tajam dan tipisnya ke dada Mistome-shi.
 
-Mistome-shi menangkis pedang Leonor dengan tongkat di tangan kirinya dan membidik kaki Leonor dengan pedangnya bahkan selama postur tubuhnya yang patah.
+Mistome-shi menangkis pedang Leonor dengan tongkat di tangan kirinya dan membidik kaki Leonor dengan pedangnya bahkan selama postur tubuhnya yang kacau.
 
 Leonor menghindarinya tepat pada waktunya.
 
 Ujung gaun potongan Leonor berkibar tertiup angin.
 
- 
-
 "Onee-sama, pijakanmu goyah."
 
-Nafasmu juga tidak teratur.
-
- 
+"Nafasmu juga tidak teratur."
 
 Kedua belah pihak menyerang sekali lagi.
 
 Bilahnya bentrok sekali dan dua kali.
 
-Melawan Leonor yang menggunakan teknik pedang elegan buku teks meskipun dia kelelahan, Mistome-shi terpaksa melakukan pertempuran defensif karena dia tidak bisa menggerakkan tubuhnya sesuai keinginan karena kelelahan.
+Melawan Leonor yang menggunakan teknik pedang elegan meskipun dia kelelahan, Mistome-shi terpaksa melakukan pertempuran defensif karena dia tidak bisa menggerakkan tubuhnya sesuai keinginannya karena kelelahan.
 
 Berbeda dengan kepribadian Leonor, tusukan pedangnya lurus dan intens, tanpa ragu sama sekali.
 
 Dia tidak bisa menggunakan teknik yang tidak biasa tetapi teknik pedangnya dengan mantap mendorong lawannya ke sudut.
 
- 
-
-Penyakit visceral?
-
- 
+"Penyakit visceral?"
 
 Aku bergumam saat aku melihat gerakan Leonor. Tubuh Leonor sudah hancur.
 
 Meskipun pertarungan itu hanya berlangsung selama satu menit, tubuh Leonor sudah berteriak bahwa dia tidak dapat menahan pertarungan itu.
 
- 
-
 " ... Cukup!!"
 
- 
-
-Leonor berteriak dengan tajam dan melangkah dalam untuk memberikan dorongan.
+Leonor berteriak dengan tajam dan melangkah lebih jauh untuk memberikan dorongan.
 
 Dia mungkin memutuskan serangan itu karena mengetahui bahwa nafasnya tidak bisa bertahan lebih lama lagi.
 
 Mistome-shi terbang ke depan seolah menunggu serangan itu, tanpa menghindari atau menangkisnya.
 
- 
-
 "Apa !?"
 
-Leonor membocorkan suara kebingungan karena serangan balik yang tak terduga.
+Leonor mengeluarkan suara kebingungan karena serangan balik yang tak terduga.
 
 Bagian atas pedang Leonor menyerempet bahu Mistome-shi dan menyebarkan darah segar.
 
 Tapi itu bukanlah luka yang mematikan.
 
- 
-
 Mistome-shi mendekat ke dada Leonor dengan langkah besar.
 
 Dan kemudian menusukkan pedang panjangnya ke tubuh Leonor yang tak berdaya.
 
- 
+"Ah .... !!"
 
-"Ah .... !! "
-
- 
-
-Ada dentang.
+Ada suara dentang.
 
 Pedang Leonor jatuh dari tangannya dan menghantam dek.
 
- 
-
 "Ka, haa...."
-
- 
 
 Mistome-shi berlutut.
 
-Dia bertarung dengan kemauan sendiri setelah menghabiskan kekuatan sihirnya tapi dia mungkin menggunakan semua kekuatannya untuk serangan terakhir itu.
+Dia bertarung dengan kemauannya sendiri setelah menghabiskan kekuatan sihirnya tapi dia mungkin menggunakan semua kekuatannya untuk serangan terakhir itu.
 
 Mistome-shi mencabut pedang dengan tangan gemetar dan mengarahkan ujungnya ke Leonor saat masih berlutut.
 
 Darah mengalir keluar dari dada Leonor.
 
- 
-
 "... Kurasa inilah akhirnya."
-
- 
 
 Leonor bergumam lemah setelah melihat gaunnya bernoda merah.
 
- 
+"aku kesal. Membunuh Onee-sama seharusnya menjadi kesenangan terakhirku. "
 
-"Saya kesal. Membunuh Onee-sama seharusnya menjadi kesenangan terakhirku. "
-
-"Itu sangat jahat untuk permintaan terakhir."
-
- 
+"Itu sangat jahat untuk permintaan terakhirmu."
 
 Kata Mistome-shi sambil tersenyum pahit.
 
 Leonor perlahan mundur ke belakang.
 
- 
-
 "Ini menjengkelkan... tapi memuaskan."
 
 "Apa yang membuatmu puas?"
 
-"Saya... hidup bagaimanapun Aku ingin keinginan hati Aku. Aku tidak menjadi orang lain selain diri Aku sendiri. "
+"aku... hidup bagaimanapun Aku inginkan. Aku tidak menjadi orang lain selain diriku sendiri. "
 
- 
+Leonor berdiri di tepi kapal.
 
-Leonor berdiri di tepi haluan.
+"Leonor ..."
 
- 
-
-Leonor ...
-
-"Bersukacitalah, ini jalan keluar dari penjahat itu. Kejahatan dan dosa Aku adalah semua perbuatan Aku. Aku tidak akan membenarkannya menggunakan Tuhan sebagai alasan dan Aku juga tidak akan memiliki satu ons pun dari diri Aku untuk kembali kepada Tuhan. Aku bangga dengan kejahatan Aku dan akan menghilang. Selamat tinggal Onee-sama, selamat tinggal banyak ... Aku harap kalian menemukan kebebasan dalam hidup Kamu. "
-
- 
+"Bersukacitalah, inilah jalan keluar dari penjahat. Kejahatan dan dosaku adalah semua perbuatanku. Aku tidak akan membenarkannya menggunakan Tuhan sebagai alasan dan Aku juga tidak akan memiliki satu ons pun dari diriku untuk kembali kepada Tuhan. Aku bangga dengan kejahatan Aku lakukan dan akan menghilang. Selamat tinggal Onee-sama, selamat tinggal ... Aku harap kalian menemukan kebebasan dalam hidupmu."
 
 Tubuh Leonor menari di udara.
 
 Gaunnya berkibar dan ratu jatuh dari kapal.
 
-Aku segera bergegas ke haluan kapal dan membungkuk untuk melihat ke bawah.
+Aku segera bergegas ke tepi kapal dan membungkuk untuk melihat ke bawah.
 
-Ada percikan dan tubuh Leonor tenggelam ke dasar sungai.
+Ada percikan darah dan tubuh Leonor tenggelam ke dasar sungai.
 
 Karena keterampilan 'Memancing' yang Aku miliki, Aku dapat dengan jelas melihat sosok Leonor saat dia tenggelam.
 
- 
-
-"......"
-
- 
+g"......"
 
 Aku berbalik.
 
