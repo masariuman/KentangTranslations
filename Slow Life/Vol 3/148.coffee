@@ -1,64 +1,42 @@
 Bab 148: Kematian Penjahat
 
-Penerjemah: Tseirp
-
- 
-
 Ruti tertekan oleh betapa besarnya perbedaan nilai Leonor dari nilai-nilai dunia ini.
 
 Dunia ini berputar di sekitar perlindungan ilahi.
 
 Semua pahlawan dan penjahat yang tercatat dalam sejarah mencapai prestasi mereka dari kekuatan perlindungan ilahi mereka yang terasah.
 
-Beberapa menentang dorongan dari perlindungan ilahi mereka seperti 『Cook』 meninggalkan nama sebagai pendekar pedang hebat atau 『Pedang Saint』 menghabiskan hidup damai sebagai pemilik peternakan.
+Beberapa menentang dorongan dari perlindungan ilahi mereka seperti 『koki』 memiliki nama sebagai pendekar pedang hebat atau 『Ahli Pedang』 menghabiskan hidup damai sebagai pemilik peternakan.
 
 Tetapi berkat dari perlindungan ilahi sangat penting untuk gaya hidup mana pun.
 
-『Cook』 memiliki keterampilan untuk memanfaatkan semua jenis bilah dan keterampilan untuk menemukan cara paling efisien untuk membedah suatu objek. Membawa pisau dapur raksasa dengan 7 bentuk berbeda, dia akan menggunakan pisau yang sesuai tergantung lawannya.
+『Koki』 memiliki keterampilan untuk memanfaatkan semua jenis bilah dan keterampilan untuk menemukan cara paling efisien untuk membedah suatu objek. Membawa pisau dapur raksasa dengan 7 bentuk berbeda, dia akan menggunakan pisau yang sesuai tergantung lawannya.
 
-『Sword Saint』 lahir buta tetapi bisa mengejar kambing dan domba dengan Heart Eye-nya dan dia bisa mendiagnosis kesehatan yang buruk pada hewan lebih baik daripada dokter hewan. Dia memiliki karakter lembut yang tidak suka berkelahi tetapi dia akan menjadi orang pertama yang melompat ke pertempuran jika monster atau binatang buas yang mengincar ternaknya muncul. Dia tinggal di desa perintis yang dikelilingi oleh hutan alami sehingga mungkin sering terjadi serangan monster.
+『Ahlu Pedang』 lahir buta tetapi bisa mengejar kambing dan domba dengan Mata hati-nya dan dia bisa mendiagnosis kesehatan yang buruk pada hewan lebih baik daripada dokter hewan. Dia memiliki karakter lembut yang tidak suka berkelahi tetapi dia akan menjadi orang pertama yang melompat ke pertempuran jika monster atau binatang buas yang mengincar ternaknya muncul. Dia tinggal di desa perintis yang dikelilingi oleh hutan alami sehingga mungkin sering terjadi serangan monster.
 
-Tidak ada gaya hidup yang diinginkan oleh perlindungan ilahi mereka tetapi mereka masih menerima berkah perlindungan ilahi mereka dan meningkatkan tingkat perlindungan ilahi mereka sehingga 『Cook』 dipuji sebagai pendekar pedang hebat dan 『Pedang Saint』 disayangi sebagai pemilik peternakan.
-
- 
+Tidak ada gaya hidup yang diinginkan oleh perlindungan ilahi mereka tetapi mereka masih menerima berkah perlindungan ilahi mereka dan meningkatkan tingkat perlindungan ilahi mereka sehingga 『Koki』 dipuji sebagai pendekar pedang hebat dan 『Ahli Pedang』 disayangi sebagai pemilik peternakan.
 
 ☆☆
 
- 
-
-“Dan dengan demikian para petualang yang benar memojokkan ratu jahat itu.”
-
- 
+"Dan dengan begitu para petualang memojokkan ratu jahat itu."
 
 Leonor berkata dengan suaranya yang indah seperti lonceng.
 
 Melihat pisau Tise yang tertancap di tangan kirinya, dia menyentuhnya dengan jari di tangan kirinya untuk mencoba menariknya keluar tetapi rasa sakit itu mengubah wajahnya dan dia sepertinya menyerah.
 
- 
+"Begitu banyak rasa sakit sampai rasanya aku akan mati... ayo kita selesaikan ini secepatnya."
 
-“Begitu banyak rasa sakit sampai rasanya aku akan mati… mari kita selesaikan ini secepatnya.”
+Seorang warrior biasa mungkin bisa menahan rasa sakit tetapi Leonor tidak bisa.
 
- 
-
-Seorang prajurit biasa mungkin bisa menahan rasa sakit tetapi Leonor tidak bisa.
-
- 
-
-"Mengapa?"
-
- 
+r"Mengapa?"
 
 Leonor memiringkan kepalanya pada pertanyaan Ruti.
 
- 
+"Apakah levelku tidak normal? Semua orang mulai dari level 1."
 
-“Apakah levelku tidak normal? Semua orang mulai dari level 1. "
+r"Tidak mungkin menghindari pertempuran dengan hidup di dunia ini. Bahkan seorang tukang roti, penjahit, gadis desa biasa atau bahkan anak-anak yang bermain di hutan, mereka harus bertarung jika bertemu dengan perlindungan ilahi mereka. Begitulah cara Tuhan menciptakan dunia ini. "
 
-“Tidak mungkin menghindari pertempuran dengan hidup di dunia ini. Bahkan seorang tukang roti, penjahit, gadis desa biasa atau bahkan anak-anak yang bermain di hutan, mereka harus bertarung jika bertemu dengan perlindungan ilahi mereka. Begitulah cara Tuhan menciptakan dunia ini. "
-
-“Tuhan mungkin telah mengatakan itu, tapi aku adalah tuanku sendiri. Saya mengandalkan diri saya sendiri dan bukan pada Tuhan… Saya tidak membutuhkan perlindungan ilahi dalam hidup saya. "
-
- 
+"Tuhan mungkin telah mengatakan itu, tapi aku adalah tuanku sendiri. Aku mengandalkan diriku sendiri dan bukan Tuhan... Aku tidak membutuhkan perlindungan ilahi dalam hidupku."
 
 Leonor tidak ragu-ragu dengan kata-katanya.
 
@@ -66,87 +44,67 @@ Dia menyangkal perlindungan ilahi tanpa ragu-ragu. Dia tidak menyangkal kehidupa
 
 Kehidupan Ruti dibuat kacau oleh perlindungan ilahi, tetapi pada saat yang sama, ia masih menerima berkah perlindungan ilahi.
 
-Kemampuan Ruti untuk bertarung secara normal dalam mantra terkuat dan mengalahkan Asura Demons dengan satu tebasan yang membuat Tise dan aku kesulitan adalah karena berkah dari perlindungan dewa.
+Kemampuan Ruti untuk bertarung secara normal dalam sihir terkuat dan mengalahkan Iblis Asura dengan satu tebasan yang membuat Tise dan aku kesulitan adalah karena berkah dari perlindungan ilahi.
 
 Bahkan sekarang, jika Ruti mau, dia bisa melintasi jarak dalam sekejap dan membunuh Leonor.
 
 Tapi dia tidak bisa melakukannya.
 
-Menghadapi Ruti adalah penjahat hebat yang menyangkal perlindungan ilahi yang terus-menerus bermasalah dengan Ruti, mengacaukan kehidupan 『Kaisar』 Geyserik dan 『Arch Mage』 Misufia, dan bersekutu dengan Tentara Raja Iblis yang terus menyudutkan umat manusia.
+didepan Ruti adalah penjahat hebat yang menyangkal perlindungan ilahi yang terus-menerus bermasalah dengan Ruti, mengacaukan kehidupan 『Kaisar』 Geyserik dan 『Arch Mage』 Misufia, dan bersekutu dengan Tentara Raja Iblis yang terus menyudutkan umat manusia.
 
-Tidak seperti kekuatan yang berasal dari perlindungan dewa, Ruti bingung dengan kekuatan yang berasal dari Leonor sendiri.
+Tidak seperti kekuatan yang berasal dari perlindungan ilahi, Ruti bingung dengan kekuatan yang berasal dari Leonor sendiri.
 
- 
+g"Ruti, aku akan menggantikanmu."
 
-"Ruti, aku akan menukarmu."
+r"Onii Chan."
 
-"Onii Chan."
+g"Kamu tidak perlu memotong siapapun yang tidak Kamu inginkan."
 
-"Anda tidak perlu memotong siapa yang tidak Anda inginkan."
+r"... Tapi itu sama untuk Onii-chan."
 
-"... Tapi itu sama untuk Onii-chan."
-
-"Saya tidak keberatan jika lawannya adalah musuh Ruti."
-
- 
+g"Aku tidak keberatan jika lawannya adalah musuh Ruti."
 
 Aku menghadapi Leonor seolah-olah untuk melindungi Ruti dan menghunus pedangku.
 
- 
+g"Jadi kamu akan menjadi lawanku."
 
-“Jadi kamu akan menjadi lawanku.”
+Aku mengambil langkah menuju penjahat korup yang menyebabkan ketidakbahagiaan banyak orang.
 
- 
-
-Saya mengambil langkah menuju penjahat korup yang menyebabkan ketidakbahagiaan banyak orang.
-
- 
-
-"Mohon tunggu."
-
- 
+"tunggu."
 
 Seseorang meraih lenganku.
 
- 
+"Mistome-san."
 
-“Mistome-san.”
+"Aku akan bertarung melawannya."
 
-"Aku akan bertarung selanjutnya."
+Sebagai hasil dari menggunakan sihir iblis flare, kelelahan terlihat jelas di wajahnya.
 
- 
+Meskipun dia bersandar pada tongkatnya, dia sepertinya bisa berdiri. Secara alami, setelah menghabiskan kekuatan magisnya, dia tidak bisa menggunakan sihir apapun.
 
-Sebagai hasil dari merapal mantra Demon Flare, kelelahan terlihat jelas di wajahnya.
-
-Meskipun dia bersandar pada tongkatnya, dia sepertinya bisa berdiri. Secara alami, setelah menghabiskan kekuatan magisnya, dia tidak bisa menggunakan mantra apapun.
-
-Bahkan jika level divine protection Leonor adalah 1, Mistome-san saat ini adalah ...
-
- 
+Bahkan jika level perlindungan ilahi Leonor adalah 1, Mistome-san saat ini adalah ...
 
 "Dosa Leonor ditujukan padaku, Leonor bukanlah musuh bagi kalian."
 
-“Tapi…”
+g"Tapi..."
 
-“Merah, Ruti, Tise, Garadin. Terima kasih telah membawa saya ke titik ini, hal ini dan seterusnya adalah akhir hidup saya. ”
-
- 
+"red, Ruti, Tise, Garadin. Terima kasih telah membawaku ke titik ini, hal ini dan seterusnya adalah akhir hidupku. "
 
 Lengan Mistome-shi kurus.
 
-Kekuatan tangan yang mencengkeram lenganku sekilas… tapi kekuatan seorang pahlawan tetap ada di matanya.
+Kekuatan tangan yang mencengkeram lenganku sekilas... tapi kekuatan seorang pahlawan tetap ada di matanya.
 
  
 
-“Dimengerti.”
+"Dimengerti."
 
  
 
-Saya mengundurkan diri.
+Aku mengundurkan diri.
 
  
 
-“Mistome !!”
+"Mistome !!"
 
  
 
@@ -158,17 +116,17 @@ Garadin tampak seperti hendak mengatakan sesuatu tetapi dia tidak bisa menyuarak
 
  
 
-“Melihat ke belakang, kita sudah bersama sejak lama.”
+"Melihat ke belakang, kita sudah bersama sejak lama."
 
-“Ya-ya… itu benar.”
+"Ya-ya... itu benar."
 
-“Itu menyenangkan.”
+"Itu menyenangkan."
 
-“Ya, itu juga menyenangkan bagiku. Mistome. Saya sangat menikmati hari-hari petualangan kami bersama. ”
+"Ya, itu juga menyenangkan bagiku. Mistome. Aku sangat menikmati hari-hari petualangan kami bersama. "
 
-“Apakah aku membuat hidupmu sulit?”
+"Apakah aku membuat hidupmu sulit?"
 
-"Iya! Anda selalu berlebihan. Bahkan lebih dari saya, meskipun saya sudah dikenal sebagai pemberani. "
+"Iya! Kamu selalu berlebihan. Bahkan lebih dari Aku, meskipun Aku sudah dikenal sebagai pemberani. "
 
  
 
@@ -176,7 +134,7 @@ Garadin menggelengkan kepalanya seolah-olah dia pasrah dan menyerahkan pedang di
 
  
 
-“Permata yang dibuat oleh pandai besi pusat kota Mogurim. Ringan dan tajam. "
+"Permata yang dibuat oleh pandai besi pusat kota Mogurim. Ringan dan tajam. "
 
 "Terima kasih Garadin, aku akan meminjam ini."
 
@@ -186,11 +144,11 @@ Mistome-shi mengambil pedang panjang tipis dan tajam tanpa pelindung pedang dan 
 
  
 
-“Itu pedang yang bagus. Saya terpesona oleh karya Mogurim. ”
+"Itu pedang yang bagus. Aku terpesona oleh karya Mogurim. "
 
-“Semoga beruntung, pastikan untuk menang!”
+"Semoga beruntung, pastikan untuk menang!"
 
-"Tentu saja …"
+"Tentu saja ..."
 
  
 
@@ -206,7 +164,7 @@ Ugeuge-san melingkarkan lengan kanan Mistome-shi.
 
  
 
-“Kamu mengikatkan pedang ke tanganku dengan benang? Jadi aku tidak akan menjatuhkan pedangku bahkan jika jariku tidak memiliki kekuatan. Ini adalah pertemuan yang menyenangkan, terima kasih Ugeuge-san kecil. ”
+"Kamu mengikatkan pedang ke tanganku dengan benang? Jadi aku tidak akan menjatuhkan pedangku bahkan jika jariku tidak memiliki kekuatan. Ini adalah pertemuan yang menyenangkan, terima kasih Ugeuge-san kecil. "
 
  
 
@@ -226,7 +184,7 @@ Ruti yang terakhir berbicara.
 
  
 
-“Saya tidak akan membiarkan siapa pun cedera jika saya berada dalam pertarungan. Pastikan untuk menang. ”
+"Saya tidak akan membiarkan siapa pun cedera jika Aku berada dalam pertarungan. Pastikan untuk menang. "
 
  
 
@@ -236,13 +194,13 @@ Mistome-shi dengan lembut membelai rambut Ruti dan menjawab.
 
  
 
-“Tapi kamu terluka.”
+"Tapi kamu terluka."
 
  
 
 Ruti kaget dan menunduk.
 
-“Terima kasih, saya sangat senang bahwa anak baik seperti Anda datang ke Zoltan.”
+"Terima kasih, Aku sangat senang bahwa anak baik seperti Kamu datang ke Zoltan."
 
  
 
@@ -250,11 +208,11 @@ Mistome-shi memeluk Ruti dan menatapku.
 
  
 
-"Saya serahkan nanti masalah kepada Anda."
+"Aku serahkan nanti masalah kepada Kamu."
 
  
 
-Dia menyipitkan matanya lega setelah menerima kepastian dari saya saat saya mengangguk dan dia membalikkan punggungnya kepada kami.
+Dia menyipitkan matanya lega setelah menerima kepastian dari Aku saat Aku mengangguk dan dia membalikkan punggungnya kepada kami.
 
 Setelah itu, dia berjalan lurus menuju Leonor.
 
@@ -262,15 +220,15 @@ Setelah itu, dia berjalan lurus menuju Leonor.
 
 Aku membuatmu menunggu.
 
-“Kamu benar-benar melakukannya. Apakah itu semua kata perpisahan yang Anda miliki untuk teman Anda? "
+"Kamu benar-benar melakukannya. Apakah itu semua kata perpisahan yang Kamu miliki untuk teman Kamu? "
 
-“Bagaimana denganmu? Anda tidak memiliki siapa pun untuk meninggalkan kata-kata perpisahan Anda? Bagaimana dengan Geyserik? ”
+"Bagaimana denganmu? Kamu tidak memiliki siapa pun untuk meninggalkan kata-kata perpisahan Kamu? Bagaimana dengan Geyserik? "
 
-“Tidak ada. Saya tidak tertarik pada siapa yang memikirkan saya setelah saya mati. "
+"Tidak ada. Aku tidak tertarik pada siapa yang memikirkan Aku setelah Aku mati. "
 
-"Saya melihat. Hidup yang sepi. ”
+"Aku melihat. Hidup yang sepi. "
 
-“Dan hidupmu adalah saat dimana kamu terus-menerus kehilangan teman.”
+"Dan hidupmu adalah saat dimana kamu terus-menerus kehilangan teman."
 
  
 
@@ -288,11 +246,11 @@ Leonor, aku hanya ingin mengatakan ini pada akhirnya.
 
 "Apa?"
 
-“Aku kalah denganmu. Anda merebut banyak hal dari saya. Cintaku, negaraku, anakku ... sungguh banyak hal. ”
+"Aku kalah denganmu. Kamu merebut banyak hal dari Aku. Cintaku, negaraku, anakku ... sungguh banyak hal. "
 
-“Jadi kamu ingin membalas dendam untuk itu? Fufu, tentu. Tetapi bahkan dengan kematianku, nyawa yang hilang tidak akan kembali… itu sudah kemenanganku, Onee-sama. Ini kemenanganku !! ”
+"Jadi kamu ingin membalas dendam untuk itu? Fufu, tentu. Tetapi bahkan dengan kematianku, nyawa yang hilang tidak akan kembali... itu sudah kemenanganku, Onee-sama. Ini kemenanganku !! "
 
-“Tidak, Leonor. Saya tidak berjuang untuk balas dendam. Aku menahan pikiran itu sampai kemarin tapi setelah bertemu denganmu, aku mengerti setelah mengingat hidupku. "
+"Tidak, Leonor. Aku tidak berjuang untuk balas dendam. Aku menahan pikiran itu sampai kemarin tapi setelah bertemu denganmu, aku mengerti setelah mengingat hidupku. "
 
 Apa yang kamu mengerti?
 
@@ -302,7 +260,7 @@ Mistome-shi menghirup sebagian besar.
 
  
 
-“Saya memiliki kehidupan yang beruntung!”
+"Saya memiliki kehidupan yang beruntung!"
 
  
 
@@ -312,11 +270,11 @@ Dia memiliki senyum cerah di wajahnya.
 
  
 
-“Saya bertemu dengan orang yang saya cintai dalam sebuah perjalanan! Saya dikelilingi oleh banyak teman sekarang dan di masa lalu! Saya suka tanah air saya Veronia! Veronia yang binasa kembali sebagai negara yang kuat! Saya suka Zoltan ini! Saya bisa menggunakan hidup saya demi orang-orang malas dan damai yang saya cintai di negara ini! Dan saya bisa terhubung dengan Tonedo! Ketika saya pertama kali bertemu dengannya, dia adalah anak laki-laki yang tidak bisa diandalkan tetapi dia sekarang menjadi walikota yang lebih baik dan lebih berani daripada saya! Aku punya banyak hal untuk membahagiakan! Itu adalah hidup yang indah !! Saya memiliki kehidupan yang beruntung !!! ”
+"Saya bertemu dengan orang yang Aku cintai dalam sebuah perjalanan! Aku dikelilingi oleh banyak teman sekarang dan di masa lalu! Aku suka tanah air Aku Veronia! Veronia yang binasa kembali sebagai negara yang kuat! Aku suka Zoltan ini! Aku bisa menggunakan hidup Aku demi orang-orang malas dan damai yang Aku cintai di negara ini! Dan Aku bisa terhubung dengan Tonedo! Ketika Aku pertama kali bertemu dengannya, dia adalah anak laki-laki yang tidak bisa diandalkan tetapi dia sekarang menjadi walikota yang lebih baik dan lebih berani daripada Aku! Aku punya banyak hal untuk membahagiakan! Itu adalah hidup yang indah !! Aku memiliki kehidupan yang beruntung !!! "
 
  
 
-Saya bisa mendengar sorak-sorai.
+Aku bisa mendengar sorak-sorai.
 
 Orang-orang Zoltan mendukung Mistome-shi.
 
@@ -324,11 +282,11 @@ Leonor memandang Mistome-shi dengan ekspresi tertegun.
 
  
 
-“Serius… Onee-sama adalah orang yang tidak menyenangkan sampai akhir.”
+"Serius... Onee-sama adalah orang yang tidak menyenangkan sampai akhir."
 
 "Maaf Leonor ... sekaranglah waktunya untuk menyelesaikan ini, minta belas kasihan dari Tuhan!"
 
-"Saya menolak, saya tidak berdoa kepada Tuhan!"
+"Aku menolak, Aku tidak berdoa kepada Tuhan!"
 
  
 
@@ -340,7 +298,7 @@ Bilahnya bertabrakan dan percikan api tersebar.
 
  
 
-“Mistome !!”
+"Mistome !!"
 
  
 
@@ -386,7 +344,7 @@ Meskipun pertarungan itu hanya berlangsung selama satu menit, tubuh Leonor sudah
 
  
 
-" … Cukup!!"
+" ... Cukup!!"
 
  
 
@@ -398,7 +356,7 @@ Mistome-shi terbang ke depan seolah menunggu serangan itu, tanpa menghindari ata
 
  
 
-“Apa !?”
+"Apa !?"
 
 Leonor membocorkan suara kebingungan karena serangan balik yang tak terduga.
 
@@ -414,7 +372,7 @@ Dan kemudian menusukkan pedang panjangnya ke tubuh Leonor yang tak berdaya.
 
  
 
-"Ah …. !! ”
+"Ah .... !! "
 
  
 
@@ -424,7 +382,7 @@ Pedang Leonor jatuh dari tangannya dan menghantam dek.
 
  
 
-“Ka, haa….”
+"Ka, haa...."
 
  
 
@@ -438,7 +396,7 @@ Darah mengalir keluar dari dada Leonor.
 
  
 
-“… Kurasa inilah akhirnya.”
+"... Kurasa inilah akhirnya."
 
  
 
@@ -446,7 +404,7 @@ Leonor bergumam lemah setelah melihat gaunnya bernoda merah.
 
  
 
-“Saya kesal. Membunuh Onee-sama seharusnya menjadi kesenangan terakhirku. ”
+"Saya kesal. Membunuh Onee-sama seharusnya menjadi kesenangan terakhirku. "
 
 "Itu sangat jahat untuk permintaan terakhir."
 
@@ -458,11 +416,11 @@ Leonor perlahan mundur ke belakang.
 
  
 
-“Ini menjengkelkan… tapi memuaskan.”
+"Ini menjengkelkan... tapi memuaskan."
 
-“Apa yang membuatmu puas?”
+"Apa yang membuatmu puas?"
 
-“Saya… hidup bagaimanapun saya ingin keinginan hati saya. Saya tidak menjadi orang lain selain diri saya sendiri. "
+"Saya... hidup bagaimanapun Aku ingin keinginan hati Aku. Aku tidak menjadi orang lain selain diri Aku sendiri. "
 
  
 
@@ -472,7 +430,7 @@ Leonor berdiri di tepi haluan.
 
 Leonor ...
 
-“Bersukacitalah, ini jalan keluar dari penjahat itu. Kejahatan dan dosa saya adalah semua perbuatan saya. Saya tidak akan membenarkannya menggunakan Tuhan sebagai alasan dan saya juga tidak akan memiliki satu ons pun dari diri saya untuk kembali kepada Tuhan. Saya bangga dengan kejahatan saya dan akan menghilang. Selamat tinggal Onee-sama, selamat tinggal banyak ... Saya harap kalian menemukan kebebasan dalam hidup Anda. "
+"Bersukacitalah, ini jalan keluar dari penjahat itu. Kejahatan dan dosa Aku adalah semua perbuatan Aku. Aku tidak akan membenarkannya menggunakan Tuhan sebagai alasan dan Aku juga tidak akan memiliki satu ons pun dari diri Aku untuk kembali kepada Tuhan. Aku bangga dengan kejahatan Aku dan akan menghilang. Selamat tinggal Onee-sama, selamat tinggal banyak ... Aku harap kalian menemukan kebebasan dalam hidup Kamu. "
 
  
 
@@ -480,25 +438,25 @@ Tubuh Leonor menari di udara.
 
 Gaunnya berkibar dan ratu jatuh dari kapal.
 
-Saya segera bergegas ke haluan kapal dan membungkuk untuk melihat ke bawah.
+Aku segera bergegas ke haluan kapal dan membungkuk untuk melihat ke bawah.
 
 Ada percikan dan tubuh Leonor tenggelam ke dasar sungai.
 
-Karena keterampilan 'Memancing' yang saya miliki, saya dapat dengan jelas melihat sosok Leonor saat dia tenggelam.
+Karena keterampilan 'Memancing' yang Aku miliki, Aku dapat dengan jelas melihat sosok Leonor saat dia tenggelam.
 
  
 
-“……”
+"......"
 
  
 
-Saya berbalik.
+Aku berbalik.
 
-Mungkin itu tak terhindarkan karena tulang dan ototnya yang lemah karena penggunaan sihirnya untuk mempertahankan citranya sebagai tubuh gadis muda atau mungkin kemarahan Tuhan karena menyangkalnya… Leonor tidak meninggal dengan penampilannya yang cantik.
+Mungkin itu tak terhindarkan karena tulang dan ototnya yang lemah karena penggunaan sihirnya untuk mempertahankan citranya sebagai tubuh gadis muda atau mungkin kemarahan Tuhan karena menyangkalnya... Leonor tidak meninggal dengan penampilannya yang cantik.
 
 Seperti permata yang hancur dan pecah, Leonor berbaring di dasar sungai.
 
-Namun, matanya bersinar dengan cahaya yang kuat sampai akhir… sampai-sampai saya tanpa sadar merasa bahwa itu indah.
+Namun, matanya bersinar dengan cahaya yang kuat sampai akhir... sampai-sampai Aku tanpa sadar merasa bahwa itu indah.
 
  
 
@@ -506,7 +464,7 @@ Namun, matanya bersinar dengan cahaya yang kuat sampai akhir… sampai-sampai sa
 
  
 
-Saya berbalik dan mengumumkan kepada semua orang.
+Aku berbalik dan mengumumkan kepada semua orang.
 
  
 
@@ -520,11 +478,11 @@ Dia tampak seperti akan pingsan jadi Garadin mendukungnya.
 
  
 
-“Sheesh, jangan buat aku khawatir untukmu ketika aku sudah seusia ini.”
+"Sheesh, jangan buat aku khawatir untukmu ketika aku sudah seusia ini."
 
-“Terima kasih atas kerja kerasnya. Tapi… ini yang terakhir. ”
+"Terima kasih atas kerja kerasnya. Tapi... ini yang terakhir. "
 
-“Yang terakhir ya? Baik Anda dan saya sudah berada pada usia di mana sulit untuk menggunakan pedang. Mari hidup dengan tenang dan damai mulai sekarang. ”
+"Yang terakhir ya? Baik Kamu dan Aku sudah berada pada usia di mana sulit untuk menggunakan pedang. Mari hidup dengan tenang dan damai mulai sekarang. "
 
  
 
@@ -532,11 +490,11 @@ Mata Garadin baik dan ada kasih sayang yang ditemukan di antara para sahabat.
 
 Mistome-shi tidak mengatakan apa-apa lagi dan menutup matanya dengan tenang.
 
-Saya mengamati medan perang.
+Aku mengamati medan perang.
 
  
 
-“Sepertinya pertempuran telah berakhir juga.”
+"Sepertinya pertempuran telah berakhir juga."
 
  
 
@@ -546,11 +504,11 @@ Meskipun bahkan dengan hilangnya Leonor dan kapal Raja Iblis, pasukan Veronia ma
 
  
 
-“Kembali ke kapal! Musuh belum mencapai laut! "
+"Kembali ke kapal! Musuh belum mencapai laut! "
 
-“Komandan tewas! Galiung ini saja tidak cukup sebagai hadiah! ”
+"Komandan tewas! Galiung ini saja tidak cukup sebagai hadiah! "
 
-“Kita tidak bisa kembali ke Veronia karena ratu sudah mati! Cepat lari! "
+"Kita tidak bisa kembali ke Veronia karena ratu sudah mati! Cepat lari! "
 
  
 
@@ -562,7 +520,7 @@ Tidak ada yang mencoba membalas dendam kepada ratu karena beberapa melarikan dir
 
  
 
-“Seperti yang diharapkan dari Lit.”
+"Seperti yang diharapkan dari Lit."
 
  
 
@@ -578,7 +536,7 @@ Dia melakukannya dengan baik melindungi para prajurit yang tidak terbiasa berper
 
 Kerja bagus Ruti.
 
-“Yup… Aku lelah, begitu, jadi seperti inilah rasanya lelah.”
+"Yup... Aku lelah, begitu, jadi seperti inilah rasanya lelah."
 
  
 
