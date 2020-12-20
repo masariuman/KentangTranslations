@@ -14,71 +14,47 @@ Di sekitar usia ini dia sepertinya sudah benar-benar berubah menjadi seorang put
 
 ☆☆
 
- 
-
 Lislet sedang menuju ke tempat yang dia rindukan.
 
 Itu adalah Guild Petualang Logavia.
 
-Sebagai sebuah bangunan yang berasal dari pendirian Kerajaan Logavia, pintu kayunya yang sudah usang mengeluarkan udara.
+Sebagai sebuah bangunan yang berasal dari pendiri Kerajaan Logavia, pintu kayunya yang sudah usang mengeluarkan udara.
 
 Mungkin banyak pahlawan berjalan melalui pintu itu untuk berangkat berpetualang dan mencapai prestasi yang dibicarakan dalam legenda.
 
 Dan hari ini, pahlawan masa depan mengambil langkah pertamanya!
 
- 
-
-Itu adalah monolog yang terjadi di kepalanya saat Lislet mendorong pintu guild dengan antusias sambil menyeringai.
+Itu adalah monolog yang terjadi di kepalanya dan Lislet mendorong pintu guild dengan antusias sambil tersenyum.
 
 Tapi pintunya jauh lebih berat daripada yang dibayangkan Lislet, jadi tidak terbuka dengan keras tapi malah terbuka perlahan.
 
- 
-
 "Apa ini?"
-
- 
 
 Para petualang di dalam guild memandang Lislet.
 
 Lislet membuat pose penuh kemenangan.
 
- 
+"Seorang bocah ya."
 
-"Seorang anak ya."
-
- 
-
-Seorang petualang terdekat berkomentar dan sepertinya langsung kehilangan minat.
+Seorang petualang terdekat berbicara dan sepertinya langsung kehilangan minat.
 
 Dia sekali lagi kembali mengobrol gaduh dengan sesama petualang.
 
- 
-
-Gununuuu.
-
- 
+l"Gununuuu."
 
 Dia cemberut dan memelototi para petualang tetapi pada usia 9 tahun, melotot hanya membuat Lislet tampak lucu.
 
 Lislet menyerah dan menenangkan dirinya sebelum berjalan menuju wanita yang duduk di meja resepsionis.
 
- 
-
-"Oneesan!"
+l"Oneesan!"
 
 "Ya, nona muda, ada apa?"
 
- 
-
 Wanita resepsionis berkata sambil tersenyum.
 
- 
+l"Aku di sini untuk menjadi seorang petualang!"
 
-"Aku di sini untuk menjadi seorang petualang!"
-
-"Anda ingin mendaftar sebagai petualang? Kamu benar-benar wanita muda yang pemberani! "
-
- 
+"kamu ingin mendaftar sebagai petualang? Kamu benar-benar wanita muda yang pemberani! "
 
 Wanita resepsionis berkata saat dia ... menyerahkan papan tulis kecil dan kapur di dekat kakinya alih-alih dokumen yang ditempatkan di sebelah tangannya yang dimaksudkan untuk pendaftaran petualang.
 
