@@ -1,6 +1,6 @@
 Bab SS3: Petualangan Muda Lit 'Langkah Pertama'
 
-Seorang gadis berusia 9 tahun berlari melintasi kota Logavia, melarikan diri dari kastil.
+Seorang gadis berusia 9 tahun berlari melintasi kota Logavia, melarikan diri dari istana.
 
 Rambut pirangnya yang indah diikat rapi menjadi ekor kuda di belakang kepalanya menggunakan bandana merah.
 
@@ -8,13 +8,9 @@ Dia memiliki alis yang bagus di dahinya yang bulat.
 
 Pupil biru langitnya bersinar dari rasa kebebasan berjalan sendiri di luar dan bibirnya terbuka menjadi senyuman polos, menunjukkan giginya yang putih.
 
- 
-
 Meskipun dia akhirnya akan dipanggil Pahlawan Lit, Lislet masih seorang gadis kecil saat ini.
 
 Di sekitar usia ini dia sepertinya sudah benar-benar berubah menjadi seorang putri tomboi.
-
- 
 
 ☆☆
 
@@ -48,7 +44,7 @@ Lislet membuat pose penuh kemenangan.
 
  
 
-“Seorang anak ya.”
+"Seorang anak ya."
 
  
 
@@ -68,9 +64,9 @@ Lislet menyerah dan menenangkan dirinya sebelum berjalan menuju wanita yang dudu
 
  
 
-“Oneesan!”
+"Oneesan!"
 
-“Ya, nona muda, ada apa?”
+"Ya, nona muda, ada apa?"
 
  
 
@@ -78,9 +74,9 @@ Wanita resepsionis berkata sambil tersenyum.
 
  
 
-“Saya di sini untuk menjadi seorang petualang!”
+"Aku di sini untuk menjadi seorang petualang!"
 
-“Anda ingin mendaftar sebagai petualang? Anda benar-benar wanita muda yang pemberani! "
+"Anda ingin mendaftar sebagai petualang? Kamu benar-benar wanita muda yang pemberani! "
 
  
 
@@ -88,7 +84,7 @@ Wanita resepsionis berkata saat dia ... menyerahkan papan tulis kecil dan kapur 
 
  
 
-"Di sini nona muda, tolong tuliskan nama Anda, keahlian Anda, apa yang tidak Anda sukai, makanan favorit Anda dan apa yang tidak Anda sukai, dan ambisi Anda."
+"Di sini nona muda, tolong tuliskan nama Kamu, keahlian Kamu, apa yang tidak Kamu sukai, makanan favorit Kamu dan apa yang tidak Kamu sukai, dan ambisi Kamu."
 
  
 
@@ -98,11 +94,11 @@ Lislet merasa agak aneh tapi dia menuliskan jawabannya dengan jujur ​​saat d
 
  
 
-“Na… nama.”
+"Na… nama."
 
 "Hn, ada apa?"
 
-“Tidak, tidak apa-apa!”
+"Tidak, tidak apa-apa!"
 
  
 
@@ -114,7 +110,7 @@ Dia berpikir sejenak sebelum menulis nama selain Lislet.
 
  
 
-“Kerja bagus… namamu… Lit-chan!”
+"Kerja bagus… namamu… Lit-chan!"
 
  
 
@@ -122,7 +118,7 @@ Wanita resepsionis itu tidak sengaja terkikik ketika melihat nama yang tertulis 
 
  
 
-“Nama imut yang cocok untuk seorang gadis yang ingin menjadi petualang. Benar, aku akan memberi Lit-chan ini. ”
+"Nama imut yang cocok untuk seorang gadis yang ingin menjadi petualang. Benar, aku akan memberi Lit-chan ini. "
 
  
 
@@ -134,7 +130,7 @@ Dan di bawah perisai itu ada nama Lit yang tertulis dengan tinta.
 
  
 
-“Mulai hari ini dan seterusnya, Lit-chan diakui sebagai petualang tingkat anak-anak yang tergabung dalam Guild Petualang Logavia!”
+"Mulai hari ini dan seterusnya, Lit-chan diakui sebagai petualang tingkat anak-anak yang tergabung dalam Guild Petualang Logavia!"
 
  
 
@@ -142,11 +138,11 @@ Ekspresi Lislet menjadi cerah.
 
  
 
-“Saya juga seorang petualang sekarang!”
+"Aku juga seorang petualang sekarang!"
 
-"Tepat sekali! Mulai hari ini, Anda adalah Petualang Lit! ”
+"Tepat sekali! Mulai hari ini, Kamu adalah Petualang Lit! "
 
-“Yay ​​~!”
+"Yay ​​~!"
 
 "Tapi."
 
@@ -156,7 +152,7 @@ Saat Lislet merayakan, resepsionis wanita memberitahunya dengan tatapan serius.
 
  
 
-“Petualang memiliki semua jenis janji yang harus mereka pegang.”
+"Petualang memiliki semua jenis janji yang harus mereka pegang."
 
 "Iya! Aku akan menepati janji! "
 
@@ -168,19 +164,19 @@ Wanita resepsionis menjelaskan dengan nada terlatih kepada Lislet tentang tidak 
 
  
 
-“Dan yang terpenting, pegang kebanggaan menjadi seorang petualang.”
+"Dan yang terpenting, pegang kebanggaan menjadi seorang petualang."
 
 "Kebanggaan?"
 
-"Iya. Kebanggaan bahwa Anda akan menjadi petualang yang hebat dan tepat. Untuk tidak mengarahkan jalan menjadi petualang yang buruk. Misalnya, Anda tidak boleh menggoda teman-teman Anda yang lain dengan membual bahwa Anda adalah seorang petualang. ”
+"Iya. Kebanggaan bahwa Kamu akan menjadi petualang yang hebat dan tepat. Untuk tidak mengarahkan jalan menjadi petualang yang buruk. Misalnya, Kamu tidak boleh menggoda teman-teman Kamu yang lain dengan membual bahwa Kamu adalah seorang petualang. "
 
-"Tentu saja! Saya berencana untuk menjadi model bagi semua petualang! "
+"Tentu saja! Aku berencana untuk menjadi model bagi semua petualang! "
 
-“Fufu, sangat bisa diandalkan. Sebenarnya petualang peringkat anak-anak tidak menerima permintaan petualang di sini tapi di tempat lain. ”
+"Fufu, sangat bisa diandalkan. Sebenarnya petualang peringkat anak-anak tidak menerima permintaan petualang di sini tapi di tempat lain. "
 
-"Baiklah. Terima kasih, Onee-san! ”
+"Baiklah. Terima kasih, Onee-san! "
 
-"Sama-sama. Semoga beruntung, Petualang Lit-chan. ”
+"Sama-sama. Semoga beruntung, Petualang Lit-chan. "
 
  
 
@@ -188,7 +184,7 @@ Beberapa petualang di sekitarnya memberi selamat padanya karena menjadi Petualan
 
  
 
-"Terima kasih! Aku akan menjadi petualang yang hebat! ”
+"Terima kasih! Aku akan menjadi petualang yang hebat! "
 
  
 
@@ -206,9 +202,9 @@ Seorang petualang berkomentar kepada wanita resepsionis.
 
  
 
-“Anda benar-benar memberi anak itu medali buatan tangan Anda. Bukankah kamu membuatnya di hari liburmu? Dan papan tulis dan kapur itu adalah barang pribadi Anda juga. "
+"Anda benar-benar memberi anak itu medali buatan tangan Kamu. Bukankah kamu membuatnya di hari liburmu? Dan papan tulis dan kapur itu adalah barang pribadi Kamu juga. "
 
-“Itu hanya sesuatu yang saya buat untuk bersenang-senang. Lebih jauh lagi, anak itu mungkin benar-benar menjadi seorang petualang dan bahkan mungkin disebut pahlawan suatu hari nanti. Aku bahkan mungkin disebutkan di awal memoire-nya… bukankah itu bagus? ”
+"Itu hanya sesuatu yang Aku buat untuk bersenang-senang. Lebih jauh lagi, anak itu mungkin benar-benar menjadi seorang petualang dan bahkan mungkin disebut pahlawan suatu hari nanti. Aku bahkan mungkin disebutkan di awal memoire-nya… bukankah itu bagus? "
 
  
 
@@ -216,9 +212,9 @@ Kata resepsionis wanita sambil menyentuh kakinya yang hilang dari bawah lutut.
 
  
 
-“Selain itu, jika aku bisa memberikan sedikit kekuatan untuk pahlawan masa depan, petualangan masa laluku… mungkin tidak akan sia-sia.”
+"Selain itu, jika aku bisa memberikan sedikit kekuatan untuk pahlawan masa depan, petualangan masa laluku… mungkin tidak akan sia-sia."
 
-“Seorang mantan petualang seperti Saffy-chan yang menjadi perantara permintaan untuk kita sudah sangat membantu kita juga.”
+"Seorang mantan petualang seperti Saffy-chan yang menjadi perantara permintaan untuk kita sudah sangat membantu kita juga."
 
  
 
@@ -238,7 +234,7 @@ Lislet mengetuk pintu sambil merasa sedikit gugup.
 
  
 
-“Datang ~”
+"Datang ~"
 
  
 
@@ -246,7 +242,7 @@ Suara menenangkan datang dari dalam rumah bersamaan dengan langkah kaki yang men
 
  
 
-“Ya ya, saya ingin tahu siapa itu?”
+"Ya ya, Aku ingin tahu siapa itu?"
 
  
 
@@ -258,7 +254,7 @@ Mata di balik kacamatanya yang hijau tua tampak ramah.
 
  
 
-“Er, erm, kudengar ada petualangan yang bisa didapat di sini.”
+"Er, erm, kudengar ada petualangan yang bisa didapat di sini."
 
  
 
@@ -266,7 +262,7 @@ Dengan sedikit gugup, Lislet menunjukkan medali yang diterimanya.
 
  
 
-“Seorang petualang baru-san? Selamat datang, ini adalah cabang peringkat anak-anak dari Guild Petualang Logavia. Saya Sembold, pemimpin serikat untuk cabang ini. "
+"Seorang petualang baru-san? Selamat datang, ini adalah cabang peringkat anak-anak dari Guild Petualang Logavia. Aku Sembold, pemimpin serikat untuk cabang ini. "
 
  
 
@@ -276,9 +272,9 @@ Lislet membalas senyuman itu dan menjabat tangan lelaki tua itu dalam suasana ha
 
  
 
-“Saya Li-Lit! Senang bertemu denganmu, Sembold-san! ”
+"Aku Li-Lit! Senang bertemu denganmu, Sembold-san! "
 
-“Senang bertemu denganmu juga, petualang Lit. Yup, itu senyum yang indah. ”
+"Senang bertemu denganmu juga, petualang Lit. Yup, itu senyum yang indah. "
 
  
 
@@ -298,7 +294,7 @@ Ini mungkin tidak sehalus masakan istana yang selalu dimakan Lislet, tapi rasany
 
  
 
-“Kamu anak yang berperilaku baik.”
+"Kamu anak yang berperilaku baik."
 
  
 
@@ -312,7 +308,7 @@ Sembold tertawa.
 
  
 
-“Dan intuisi Anda tajam. Ya, kamu memiliki masa depan yang cerah, Nak. ”
+"Dan intuisi Kamu tajam. Ya, kamu memiliki masa depan yang cerah, Nak. "
 
  
 
@@ -322,7 +318,7 @@ Meskipun pertukarannya singkat, Lit sedikit bersemangat.
 
  
 
-(Dia merasa persis seperti yang saya bayangkan sebagai seorang petualang!)
+(Dia merasa persis seperti yang Aku bayangkan sebagai seorang petualang!)
 
  
 
@@ -332,7 +328,7 @@ Ada berbagai jenis kertas yang menempel di papan tulis.
 
  
 
-"Anda dapat menerima permintaan di sini."
+"Kamu dapat menerima permintaan di sini."
 
  
 
@@ -340,7 +336,7 @@ Lislet membaca koran yang ditempel di dinding sambil merasakan kegembiraan.
 
  
 
-“Erm, mengantar dan mengantarkan surat, membeli sayuran, menjaga jalan-jalan, menghilangkan gulma taman…”
+"Erm, mengantar dan mengantarkan surat, membeli sayuran, menjaga jalan-jalan, menghilangkan gulma taman…"
 
  
 
@@ -356,7 +352,7 @@ Lislet menunjuk ke salah satu pemberitahuan itu.
 
  
 
-“Saya ingin mencoba melakukan permintaan pembelian sayuran ini!”
+"Aku ingin mencoba melakukan permintaan pembelian sayuran ini!"
 
  
 
@@ -378,9 +374,9 @@ Sembold tersenyum tipis dan menyerahkan peta kota yang digambar tangan kepada Li
 
  
 
-“Ini permintaan Karin yang tinggal di sini. Anda seharusnya bisa membuatnya jika Anda berangkat sekarang tetapi dia akan berangkat untuk membelinya sendiri setelah mencapai malam. Jadi lebih baik jika Anda pergi ke sana segera. "
+"Ini permintaan Karin yang tinggal di sini. Kamu seharusnya bisa membuatnya jika Kamu berangkat sekarang tetapi dia akan berangkat untuk membelinya sendiri setelah mencapai malam. Jadi lebih baik jika Kamu pergi ke sana segera. "
 
-“Dimengerti! Saya akan pergi ke sana sekarang! "
+"Dimengerti! Aku akan pergi ke sana sekarang! "
 
  
 
@@ -388,9 +384,9 @@ Lislet hendak kabur dengan penuh semangat tapi dia berhenti sebelum pergi dan be
 
  
 
-“Terima kasih Sembold-san! Aku akan berada dalam perawatanmu! "
+"Terima kasih Sembold-san! Aku akan berada dalam perawatanmu! "
 
-“Yup, hati-hati Lit. Selamat berpetualang. ”
+"Yup, hati-hati Lit. Selamat berpetualang. "
 
  
 
@@ -416,7 +412,7 @@ Dia mendengar ketukan.
 
  
 
-“Hn, apakah itu Lit-chan? Apakah dia melupakan sesuatu? ”
+"Hn, apakah itu Lit-chan? Apakah dia melupakan sesuatu? "
 
  
 
@@ -430,13 +426,13 @@ Dia menderita pukulan kuat di kepalanya dan penglihatannya menjadi hitam.
 
  
 
-“Ah… ga…”
+"Ah… ga…"
 
 Sembold jatuh ke lantai setelah menerima pukulan di kepala dari pemukul yang berisi timah.
 
  
 
-“Seperti yang dirumorkan, ini sepertinya rumah orang kaya.”
+"Seperti yang dirumorkan, ini sepertinya rumah orang kaya."
 
  
 
@@ -446,9 +442,9 @@ Satu memegang tongkat pemukul yang mengenai Sembold sedangkan yang lainnya memeg
 
  
 
-“Uh, gu…”
+"Uh, gu…"
 
-“Hei sekarang, kamu tidak membunuhnya?”
+"Hei sekarang, kamu tidak membunuhnya?"
 
  
 
@@ -456,7 +452,7 @@ Pria yang memegang pedang pendek itu tersenyum tipis.
 
 "Apa? Membunuh? Hukumannya akan lebih keras jika kita tertangkap. "
 
-“Hei sekarang, hukuman kita tidak akan berubah apapun yang kita lakukan pada satu atau dua orang lagi. Menurutmu berapa banyak orang yang telah kita bunuh sampai sekarang. "
+"Hei sekarang, hukuman kita tidak akan berubah apapun yang kita lakukan pada satu atau dua orang lagi. Menurutmu berapa banyak orang yang telah kita bunuh sampai sekarang. "
 
 "Hehe, itu benar."
 
@@ -484,7 +480,7 @@ Udara bocor dari mulut pencuri.
 
  
 
-“A-apa !?”
+"A-apa !?"
 
  
 
@@ -518,7 +514,7 @@ Dia sudah memutuskan untuk tidak lari dan memikirkan cara untuk mengalahkan penc
 
  
 
-“B-bocah ini! Anda akan membayar untuk apa yang Anda lakukan! "
+"B-bocah ini! Kamu akan membayar untuk apa yang Kamu lakukan! "
 
  
 
@@ -534,7 +530,7 @@ Pencuri itu menjatuhkan tongkat yang diayunkan Lislet dan berteriak dengan cara 
 
  
 
-“Kamu hanya seorang gadis! Hanya satu seruan perang sudah cukup untuk menghentikan langkahmu! ”
+"Kamu hanya seorang gadis! Hanya satu seruan perang sudah cukup untuk menghentikan langkahmu! "
 
  
 
@@ -560,7 +556,7 @@ Earth Spirit melilit leher pencuri sebelum tinjunya mengenai dia.
 
  
 
-“Gah !?”
+"Gah !?"
 
  
 
@@ -570,7 +566,7 @@ Selanjutnya, lengan muncul dari Earth Spirit.
 
  
 
-“Haiiii…”
+"Haiiii…"
 
  
 
@@ -580,7 +576,7 @@ Kemudian, Earth Spirit menghujani wajah pencuri itu.
 
  
 
-“Gya! Berhenti! Tolong! Tolong!!"
+"Gya! Berhenti! Tolong! Tolong!!"
 
  
 
@@ -604,7 +600,7 @@ Tapi pencuri itu tidak bisa lagi bergerak setelah Roh Bumi menghilang.
 
  
 
-“Sembold-san, kamu baik-baik saja !?”
+"Sembold-san, kamu baik-baik saja !?"
 
  
 
