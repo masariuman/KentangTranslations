@@ -4,11 +4,9 @@ Dua hari kemudian.
 
 Di dermaga di distrik pelabuhan Zoltan.
 
-Zoltan diblokir di utara dan timur oleh pegunungan besar, tetapi ketika Anda melihat ke arah laut, itu adalah beban luas langit biru dan laut tanpa akhir.
+Zoltan ditutup di utara dan timur oleh pegunungan besar, tetapi ketika kamu melihat ke arah laut, itu sangat luas dan langit biru juga luas tanpa akhir.
 
 Hari ini adalah hari yang hangat dan berangin, meskipun sedang musim dingin.
-
- 
 
 "Yup, itu angin yang bagus."
 
