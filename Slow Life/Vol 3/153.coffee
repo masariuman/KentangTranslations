@@ -1,4 +1,4 @@
-Bab 153: Hari Tailwind
+Bab 153: Hari Tailwind(angin yang berhembus kearah perjalanan kendaraan/angin yang berhembus dari belakang)
 
 Dua hari kemudian.
 
