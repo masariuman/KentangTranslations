@@ -1,24 +1,20 @@
 Bab SS4: Kursus shotel Lit
 
-Penerjemah: Tseirp
-
- 
-
 Senjata magis biasa yang memiliki sihir penguatan yang diterapkan pada mereka akan sangat kokoh dibandingkan dengan senjata biasa dan tidak akan berkarat bahkan dengan tingkat kotoran dan kotoran yang normal.
 
 Mereka pada dasarnya bebas perawatan.
 
 Meski begitu, mereka masih merupakan barang mewah dan kebanyakan orang akan semakin melekat padanya.
 
-Perawatan senjata mereka mungkin bukan pekerjaan tentara yang bekerja untuk negara tapi setidaknya untuk Ordo Kesatria Bahamut tempat saya berada atau unit Pengawal Kerajaan Kerajaan Logavia tempat Lit berada, praktiknya adalah mempertahankan senjata kami sendiri.
+Perawatan senjata mereka mungkin bukan pekerjaan tentara yang bekerja untuk negara tapi setidaknya untuk Ordo Kesatria Bahamut tempat Aku berada atau unit Pengawal Kerajaan Kerajaan Logavia tempat Lit berada, praktiknya adalah mempertahankan senjata kami sendiri.
 
  
 
-“Untuk mengasah sisi dalam shotel, Anda hanya perlu mengambil batu asahan seperti ini dan menggilingnya bolak-balik beberapa kali. Lakukan dengan maksud untuk merekondisi pisau daripada mempertajamnya. "
+"Untuk mengasah sisi dalam shotel, Kamu hanya perlu mengambil batu asahan seperti ini dan menggilingnya bolak-balik beberapa kali. Lakukan dengan maksud untuk merekondisi pisau daripada mempertajamnya. "
 
 """Iya!"""
 
-“Jika Anda memiliki sihir penguatan di tempat, pada dasarnya tidak perlu mengasahnya tetapi dengan menjalankan batu asah di atas bilahnya, Anda akan dapat merasakan kondisi bilahnya. Jika Anda menggiling bilahnya secara teratur dan mengingat kondisi bilahnya, Anda akan segera dapat merasakan adanya penyimpangan. Jika itu terjadi, jangan ditunda karena merepotkan dan mintalah pandai besi untuk memeriksanya. Lagi pula, hanya karena itu adalah senjata ajaib tidak berarti itu tidak akan pernah bisa pecah. "
+"Jika Kamu memiliki sihir penguatan di tempat, pada dasarnya tidak perlu mengasahnya tetapi dengan menjalankan batu asah di atas bilahnya, Kamu akan dapat merasakan kondisi bilahnya. Jika Kamu menggiling bilahnya secara teratur dan mengingat kondisi bilahnya, Kamu akan segera dapat merasakan adanya penyimpangan. Jika itu terjadi, jangan ditunda karena merepotkan dan mintalah pandai besi untuk memeriksanya. Lagi pula, hanya karena itu adalah senjata ajaib tidak berarti itu tidak akan pernah bisa pecah. "
 
  
 
@@ -30,13 +26,13 @@ Hari ini adalah hari kuliah petualang yang Lit dimulai dengan seenaknya.
 
 Itu benar-benar iseng sehingga tidak ada pemberitahuan sebelumnya tetapi petualang biasa tidak berkecil hati dan menghadiri ceramah.
 
-Biaya untuk membeli obat saya.
+Biaya untuk membeli obat Aku.
 
 Meskipun mereka bisa hadir hanya dengan membeli obat penghilang rasa sakit yang harganya hanya seperempat peryl, semua petualang yang mengagumi Lit membeli lebih dari yang diperlukan.
 
  
 
-Karena itu, untuk memenuhi tuntutan mereka, saya berusaha menyiapkan obat-obatan yang lebih sering digunakan.
+Karena itu, untuk memenuhi tuntutan mereka, Aku berusaha menyiapkan obat-obatan yang lebih sering digunakan.
 
 Misalnya obat yang disebut Minyak Zombie. Berlawanan dengan namanya, selama tiga jam setelah meminumnya akan menguatkan vitalitas seseorang.
 
@@ -54,7 +50,7 @@ Itu adalah obat yang aman, aman dan higienis.
 
  
 
-“Nah, mari kita akhiri di sana untuk pemeliharaan.”
+"Nah, mari kita akhiri di sana untuk pemeliharaan."
 
  
 
@@ -62,13 +58,13 @@ Kata Lit sambil berjalan berkeliling untuk melihat-lihat shotel para petualang.
 
  
 
-“Itu hanya perlu dilakukan dengan sangat hati-hati pada hari-hari kamu kembali dari petualangan di mana kamu menebas banyak monster. Juga, untuk petualang paruh waktu yang tidak sering menggunakan pedang, Anda harus mengoleskan sedikit minyak pencegah karat. ”
+"Itu hanya perlu dilakukan dengan sangat hati-hati pada hari-hari kamu kembali dari petualangan di mana kamu menebas banyak monster. Juga, untuk petualang paruh waktu yang tidak sering menggunakan pedang, Kamu harus mengoleskan sedikit minyak pencegah karat. "
 
  
 
 Kebetulan, kami juga menjual oli pencegah karat.
 
-Silakan beli beberapa saat Anda dalam perjalanan pulang.
+Silakan beli beberapa saat Kamu dalam perjalanan pulang.
 
  
 
@@ -82,7 +78,7 @@ Dia memiliki perlindungan ilahi 『Prajurit』 dan merupakan peserta termuda saa
 
  
 
-“Saya menerima shotel kemarin tapi pedang macam apa shotel itu?”
+"Aku menerima shotel kemarin tapi pedang macam apa shotel itu?"
 
  
 
@@ -90,7 +86,7 @@ Lit mengangguk penuh pengertian pada pertanyaan petualang itu.
 
  
 
-"Memang benar bahwa Anda harus terlebih dahulu memahami karakteristik senjata sebelum Anda dapat memahami bagaimana Anda harus menanganinya."
+"Memang benar bahwa Kamu harus terlebih dahulu memahami karakteristik senjata sebelum Kamu dapat memahami bagaimana Kamu harus menanganinya."
 
  
 
@@ -98,7 +94,7 @@ Lit mengangkat Shotel-nya.
 
  
 
-“Shotel adalah pedang bermata dua yang sangat melengkung. Ini memiliki kurva berbentuk S. "
+"Shotel adalah pedang bermata dua yang sangat melengkung. Ini memiliki kurva berbentuk S. "
 
  
 
@@ -120,7 +116,7 @@ Kemudian, dengan siku sebagai tumpuan, Lit mengayunkan kaki ke kiri dan ke kanan
 
  
 
-“Dengan gerakan mengayun ini, shotel juga memiliki ciri khas senjata tikam menggunakan ujung yang menonjol daripada serangan tebasan biasa. Bahkan ayunan kecil pun bisa meninggalkan luka yang dalam pada lawan. "
+"Dengan gerakan mengayun ini, shotel juga memiliki ciri khas senjata tikam menggunakan ujung yang menonjol daripada serangan tebasan biasa. Bahkan ayunan kecil pun bisa meninggalkan luka yang dalam pada lawan. "
 
  
 
@@ -138,9 +134,9 @@ Lalu, Lit melihat dan memberi isyarat padaku.
 
 "Merah, jadilah asistenku."
 
-"Saya?"
+"Aku?"
 
-“Jauh lebih mudah dengan lawan.”
+"Jauh lebih mudah dengan lawan."
 
  
 
@@ -150,7 +146,7 @@ Baiklah, itu adalah kewajiban pemilik toko untuk bekerja sama dengan Lit karena 
 
  
 
-“Ya ~ perhatikan, ini Red-ku, tepuk.”
+"Ya ~ perhatikan, ini Red-ku, tepuk."
 
  
 
@@ -166,29 +162,29 @@ Aku menyesuaikan pikiranku dan memegang tombak dan perisai yang diambil dari ite
 
  
 
-“Bentuk shotel bisa digunakan dengan berbagai cara. Pertama-tama, seperti yang disebutkan sebelumnya, adalah menghindari perisai dan mendaratkan pukulan. "
+"Bentuk shotel bisa digunakan dengan berbagai cara. Pertama-tama, seperti yang disebutkan sebelumnya, adalah menghindari perisai dan mendaratkan pukulan. "
 
  
 
-Lit mendemonstrasikan beberapa teknik untuk melawan saya saat saya bersiap dengan perisai.
+Lit mendemonstrasikan beberapa teknik untuk melawan Aku saat Aku bersiap dengan perisai.
 
 Hero Lit sedang mendemonstrasikan skill praktis sehingga para petualang memperhatikan dengan seksama.
 
  
 
-"Selanjutnya, Anda mengaitkan tubuh lawan dan mematahkan posisinya."
+"Selanjutnya, Kamu mengaitkan tubuh lawan dan mematahkan posisinya."
 
  
 
 Shotel Lit mengaitkan kakiku.
 
-Saat postur tubuh saya rusak, dia segera menindaklanjutinya dengan tebasan.
+Saat postur tubuh Aku rusak, dia segera menindaklanjutinya dengan tebasan.
 
  
 
-“Bilahnya bermata dua sehingga Anda tidak perlu mengubah cengkeraman Anda dan hanya menebas ke atas dari sisi dengan ujung bilah yang berlawanan.”
+"Bilahnya bermata dua sehingga Kamu tidak perlu mengubah cengkeraman Kamu dan hanya menebas ke atas dari sisi dengan ujung bilah yang berlawanan."
 
-Itu sama untuk pedang tembaga saya. Pedang bermata dua bisa mengiris hanya dengan mengayunkannya ke kiri dan ke kanan.
+Itu sama untuk pedang tembaga Aku. Pedang bermata dua bisa mengiris hanya dengan mengayunkannya ke kiri dan ke kanan.
 
 Itu cukup nyaman selama pertarungan sebenarnya.
 
@@ -196,9 +192,9 @@ Ada beberapa pedang bermata satu yang memiliki bilah bermata dua di ujungnya seh
 
  
 
-“Pengait ini juga bisa digunakan untuk menyeret musuh turun dari punggung kuda. Prajurit Shotel memfokuskan pelatihan mereka untuk tujuan itu daripada melewati perisai. "
+"Pengait ini juga bisa digunakan untuk menyeret musuh turun dari punggung kuda. Prajurit Shotel memfokuskan pelatihan mereka untuk tujuan itu daripada melewati perisai. "
 
-"Saya melihat!"
+"Aku melihat!"
 
  
 
@@ -212,7 +208,7 @@ Banyak cara untuk memanfaatkan shotel yang ditunjukkan Lit mengejutkan para petu
 
  
 
-“Dan karakteristik terpenting dari shotel.”
+"Dan karakteristik terpenting dari shotel."
 
  
 
@@ -224,7 +220,7 @@ Dengan kata lain, itu bukan lagi pedang berbentuk sabit tapi mirip dengan pedang
 
  
 
-“Melakukan itu akan memberimu pusat gravitasi lurus yang mirip dengan pedang biasa.”
+"Melakukan itu akan memberimu pusat gravitasi lurus yang mirip dengan pedang biasa."
 
  
 
@@ -240,11 +236,11 @@ Petualang dengan skill terbaik diantara para petualang yang hadir berseru.
 
 Kehebatan gerakan Lit saat ini mungkin tersampaikan kepadanya.
 
-Sulit untuk memahami gerakan unik shotel tetapi saya bisa memahami gerakan yang menyerupai gerakan di dojo pedang di Zoltan.
+Sulit untuk memahami gerakan unik shotel tetapi Aku bisa memahami gerakan yang menyerupai gerakan di dojo pedang di Zoltan.
 
  
 
-“Saat ini shotel digunakan untuk menyeret lawan dengan menunggang kuda, sedangkan pegangan ini digunakan untuk mengayun ke bawah saat menunggang kuda. Itu adalah pedang anti-kavaleri dan pedang kavaleri. Itulah salah satu karakteristik shotel. "
+"Saat ini shotel digunakan untuk menyeret lawan dengan menunggang kuda, sedangkan pegangan ini digunakan untuk mengayun ke bawah saat menunggang kuda. Itu adalah pedang anti-kavaleri dan pedang kavaleri. Itulah salah satu karakteristik shotel. "
 
  
 
@@ -258,7 +254,7 @@ Seperti yang diharapkan, menggunakannya sebagai pedang melengkung memiliki daya 
 
  
 
-“Pesona shotel adalah keserbagunaannya. Jika Anda menyusun rencana untuk menggunakannya sesuai dengan situasi dan lawan, Anda akan dapat mengalahkan lawan jenis apa pun. Tapi itu fakta bahwa itu adalah pedang yang sulit digunakan. Penting untuk berlatih mengayunkan shotel setiap hari sampai Anda terbiasa. ”
+"Pesona shotel adalah keserbagunaannya. Jika Kamu menyusun rencana untuk menggunakannya sesuai dengan situasi dan lawan, Kamu akan dapat mengalahkan lawan jenis apa pun. Tapi itu fakta bahwa itu adalah pedang yang sulit digunakan. Penting untuk berlatih mengayunkan shotel setiap hari sampai Kamu terbiasa. "
 
 """Iya!!"""
 
@@ -272,7 +268,7 @@ Para petualang juga memiliki tampilan yang lebih puas dan bersemangat dari biasa
 
  
 
-“Ayo pergi ke tempat latihan bersama! Ayo segera coba apa yang telah diajarkan kepada kita! ”
+"Ayo pergi ke tempat latihan bersama! Ayo segera coba apa yang telah diajarkan kepada kita! "
 
  
 
@@ -280,25 +276,25 @@ Para petualang berkata dan bergegas keluar dari toko.
 
  
 
-“Haha, mereka sangat menikmati kuliah Lit.”
+"Haha, mereka sangat menikmati kuliah Lit."
 
-"Akan sangat bagus jika mereka berubah menjadi petualang yang kuat dan orang-orang berhenti meminta saya untuk kembali dari masa pensiun."
+"Akan sangat bagus jika mereka berubah menjadi petualang yang kuat dan orang-orang berhenti meminta Aku untuk kembali dari masa pensiun."
 
  
 
 Senang tidak ada orang yang tertinggal, Lit memelukku dari belakang.
 
-Saya bekerja untuk menutup toko dengan Lit di punggung saya.
+Aku bekerja untuk menutup toko dengan Lit di punggung Aku.
 
  
 
-“Penjualan hari ini luar biasa berkat Lit.”
+"Penjualan hari ini luar biasa berkat Lit."
 
-“Yay, tolong beri saya hadiah.”
+"Yay, tolong beri Aku hadiah."
 
-“Hadiah huh… jika kau memberitahuku begitu tiba-tiba. Bagaimana dengan hamburger malam ini? ”
+"Hadiah huh… jika kau memberitahuku begitu tiba-tiba. Bagaimana dengan hamburger malam ini? "
 
-“Saya juga senang untuk itu, tapi.”
+"Aku juga senang untuk itu, tapi."
 
  
 
@@ -306,7 +302,7 @@ Aku berusaha keras untuk berpikir saat Lit memeluk tubuhku lebih erat.
 
  
 
-“… Ayo tidur bersama malam ini.”
+"… Ayo tidur bersama malam ini."
 
 "Begitu ya, lagipula itu adalah hadiah untukmu."
 
@@ -328,7 +324,7 @@ Di jalan raya dekat perbatasan Zoltan.
 
  
 
-“Girurururu !!”
+"Girurururu !!"
 
  
 
@@ -360,7 +356,7 @@ Dia tidak pernah benar-benar berlatih dengan menunggang kuda, tetapi dia ingin m
 
  
 
-“Aku tidak pernah memikirkannya secara mendalam dan itu hanya kepura-puraan untuk mengagumi Lit-san tapi… seperti yang diharapkan dari senjata pahlawan. Kemampuan bertarangku diperluas hanya dengan menggunakan shotel! ”
+"Aku tidak pernah memikirkannya secara mendalam dan itu hanya kepura-puraan untuk mengagumi Lit-san tapi… seperti yang diharapkan dari senjata pahlawan. Kemampuan bertarangku diperluas hanya dengan menggunakan shotel! "
 
  
 
