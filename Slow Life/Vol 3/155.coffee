@@ -148,30 +148,22 @@ r"... Terima kasih, Mantan Ratu Leonor."
 
 "Pahlawan, tolong selamatkan dunia ini.. !!"
 
-Leonor langsung menghunus pedang tipis di pinggangnya dan menusuk dada sang pahlawan.
+Leonor langsung menghunus pedang tipis di pinggangnya dan menusuk dadanya.
 
 Ekspresi pahlawan itu tidak berubah saat darah mengalir keluar darinya dan dunia kehilangan warnanya dan menjadi diam.
 
-Tubuh Leonor tua kembali ke penampilan yang sama seperti gadis mudanya ketika dia meninggal dan vitalitas yang membara kembali ke matanya yang melemah.
+Tubuh Leonor tua kembali ke penampilan yang sama seperti gadis mudanya ketika dia meninggal dan semangat yang membara kembali ke matanya yang melemah.
 
- 
-
-"Apa yang ingin kamu katakan dengan menunjukkan ini padaku? Bahwa ini adalah cara hidup yang benar? "
-
- 
+r"Apa yang ingin kamu katakan dengan menunjukkan ini padaku? Bahwa ini adalah cara hidup yang benar?"
 
 Leonor melihat ke langit pada cahaya yang tak terbatas.
 
 Sepertinya ada sesuatu di dalam cahaya itu tapi tidak bisa dilihat dengan mata manusia.
 
- 
-
 "Demis."
 
- 
-
-Leonor merasakan matanya terbakar dalam cahaya tapi bagaimanapun dia masih menatap dan berteriak pada Tuhan.
+Leonor merasakan matanya terbakar dalam cahaya tapi bagaimanapun dia masih menatap dan berteriak pada dewa.
 
 Istana Kerajaan Veronian menghilang dan sebuah jalan terwujud.
 
-Di sana Leonor berdiri sendiri, menghadap Tuhan.
+Di sana Leonor berdiri sendiri, menghadap dewa.
