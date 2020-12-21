@@ -8,23 +8,15 @@ Itu akan memicu perasaan bawahan, berlutut, dan menekan dahi seseorang ke tanah.
 
 Tapi Leonor tidak menyerah.
 
-Semangatnya yang terus menantang dunia tidak menekuk bahkan di hadapan Tuhan.
+Semangatnya yang terus menantang dunia tidak menekuk bahkan di hadapan dewa.
 
- 
-
-"Ini buang-buang waktu. Saya tidak perlu diselamatkan atau diberi belas kasihan, pada kenyataannya, tindakan itu membuat saya jijik. Anda dapat bereinkarnasi saya sebagai serangga atau menjatuhkan saya ke neraka, melakukan apapun yang Anda suka. "
-
- 
+"Ini buang-buang waktu saja. aku tidak perlu diselamatkan atau diberi belas kasihan, pada kenyataannya, tindakan itu membuatku jijik. kamu dapat melahirkanku kembali sebagai serangga atau menjatuhkanku ke neraka, melakukan apapun yang kamu suka."
 
 Leonor mengatakan bagiannya.
 
 Saat berikutnya.
 
- 
-
-Anakku tercinta.
-
- 
+"Anakku tercinta."
 
 Demis berbicara.
 
