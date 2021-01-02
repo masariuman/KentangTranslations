@@ -1,0 +1,15 @@
+1. install aapanel
+2. install default nginx
+3. import db
+4. urus dns zone domain idhostinger
+5. bikin web
+6. url rewrite laravel5
+7. enable putenv() dan proc_open() di setting php->disable function
+8. update composer
+    /usr/bin/composer self-update
+9. composer install atau composer update
+10. atur site directory nya
+11. anok .env
+12. php artisan key:generate
+13. sudo chwon -R www:www storage  <<<<< aapanel
+14. change timezone server https://linuxize.com/post/how-to-set-or-change-timezone-on-centos-7/
