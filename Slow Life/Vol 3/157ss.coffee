@@ -1,24 +1,20 @@
 Bab SS4: Kursus shotel Lit
 
-Senjata magis biasa yang memiliki sihir penguatan yang diterapkan pada mereka akan sangat kokoh dibandingkan dengan senjata biasa dan tidak akan berkarat bahkan dengan tingkat kotoran dan kotoran yang normal.
+Senjata magis biasa yang memiliki sihir penguatan yang diterapkan pada senjata tersebut akan sangat kokoh dibandingkan dengan senjata biasa dan tidak akan berkarat bahkan dengan tingkat kotoran normal.
 
-Mereka pada dasarnya bebas perawatan.
+senjata tersebut pada dasarnya tidak perlu perawatan.
 
-Meski begitu, mereka masih merupakan barang mewah dan kebanyakan orang akan semakin melekat padanya.
+senjata itu masih merupakan barang mewah dan kebanyakan orang akan semakin melekat padanya.
 
-Perawatan senjata mereka mungkin bukan pekerjaan tentara yang bekerja untuk negara tapi setidaknya untuk Ordo Kesatria Bahamut tempat Aku berada atau unit Pengawal Kerajaan Kerajaan Logavia tempat Lit berada, praktiknya adalah mempertahankan senjata kami sendiri.
+Perawatan senjata mungkin bukan pekerjaan tentara yang bekerja untuk negara tapi setidaknya untuk Ksatria Ordo Bahamut tempatku berada atau unit Pengawal Kerajaan Kerajaan Logavia tempat Lit berada, kami memiliki latihan untuk mempertahankan senjata kami sendiri.
 
- 
-
-"Untuk mengasah sisi dalam shotel, Kamu hanya perlu mengambil batu asahan seperti ini dan menggilingnya bolak-balik beberapa kali. Lakukan dengan maksud untuk merekondisi pisau daripada mempertajamnya. "
+l"Untuk mengasah sisi dalam shotel, Kamu hanya perlu memakai batu asahan seperti ini dan menggilingnya bolak-balik beberapa kali. Lakukan dengan maksud untuk merekondisi pisau daripada mempertajamnya."
 
 """Iya!"""
 
-"Jika Kamu memiliki sihir penguatan di tempat, pada dasarnya tidak perlu mengasahnya tetapi dengan menjalankan batu asah di atas bilahnya, Kamu akan dapat merasakan kondisi bilahnya. Jika Kamu menggiling bilahnya secara teratur dan mengingat kondisi bilahnya, Kamu akan segera dapat merasakan adanya penyimpangan. Jika itu terjadi, jangan ditunda karena merepotkan dan mintalah pandai besi untuk memeriksanya. Lagi pula, hanya karena itu adalah senjata ajaib tidak berarti itu tidak akan pernah bisa pecah. "
+l"Jika Kamu memiliki sihir penguatan, pada dasarnya tidak perlu mengasahnya tetapi dengan menggunakan batu asah di atas bilahnya, Kamu akan dapat merasakan kondisi bilahnya. Jika Kamu menggiling bilahnya secara teratur dan mengingat kondisi bilahnya, Kamu akan segera dapat merasakan adanya keanehan. Jika itu terjadi, jangan menundanya karena merepotkan dan mintalah pandai besi untuk memeriksanya. Lagi pula, hanya karena itu adalah senjata sihir tidak berarti itu tidak akan pernah bisa pecah."
 
- 
-
-Di halaman toko kami, Lit memberikan ceramah tentang shotel kepada para petualang yang mengagumi Hero Lit dan mulai menggunakan shotel.
+Di halaman toko kami, Lit memberikan ceramah tentang shotel kepada para petualang yang mengagumi pahlawan Lit dan mulai menggunakan shotel.
 
 Aku duduk di belakang dan juga menatap Lit yang menunjukkan cengkeramannya pada shotel.
 
