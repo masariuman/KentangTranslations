@@ -110,59 +110,39 @@ Lit tersenyum nakal saat melihat wajahku yang memerah.
 
 Baiklah, aku harus memikirkan cara untuk melakukan serangan balik dan membuat wajah Lit merah malam ini.
 
-Aku menyesuaikan pikiranku dan memegang tombak dan perisai yang diambil dari item box Lit sementara Lit memegang shotel latihan dengan bilah tumpul.
+Aku menyesuaikan pikiranku dan memegang tombak dan perisai yang diambil dari kotak item Lit sementara Lit memegang shotel latihan dengan bilah tumpul.
 
- 
+l"Bentuk shotel bisa digunakan dengan berbagai cara. Pertama-tama, seperti yang disebutkan sebelumnya, adalah menghindari perisai dan mendaratkan pukulan."
 
-"Bentuk shotel bisa digunakan dengan berbagai cara. Pertama-tama, seperti yang disebutkan sebelumnya, adalah menghindari perisai dan mendaratkan pukulan. "
+Lit mendemonstrasikan beberapa teknik untuk melawanku saat Aku bersiap dengan perisai.
 
- 
+pahlawan Lit sedang mendemonstrasikan skill praktis sehingga para petualang memperhatikan dengan seksama.
 
-Lit mendemonstrasikan beberapa teknik untuk melawan Aku saat Aku bersiap dengan perisai.
-
-Hero Lit sedang mendemonstrasikan skill praktis sehingga para petualang memperhatikan dengan seksama.
-
- 
-
-"Selanjutnya, Kamu mengaitkan tubuh lawan dan mematahkan posisinya."
-
- 
+l"Selanjutnya, Kamu mengaitkan tubuh lawan dan mematahkan posisinya."
 
 Shotel Lit mengaitkan kakiku.
 
-Saat postur tubuh Aku rusak, dia segera menindaklanjutinya dengan tebasan.
+Saat postur tubuhku kacau, dia segera menindaklanjutinya dengan tebasan.
 
- 
+l"Bilahnya bermata dua sehingga Kamu tidak perlu mengubah cengkeramanmu dan hanya menebas ke atas dari sisi dengan ujung bilah yang berlawanan."
 
-"Bilahnya bermata dua sehingga Kamu tidak perlu mengubah cengkeraman Kamu dan hanya menebas ke atas dari sisi dengan ujung bilah yang berlawanan."
+Itu berlaku juga untuk pedang tembagaku. Pedang bermata dua bisa mengiris hanya dengan mengayunkannya ke kiri dan ke kanan.
 
-Itu sama untuk pedang tembaga Aku. Pedang bermata dua bisa mengiris hanya dengan mengayunkannya ke kiri dan ke kanan.
-
-Itu cukup nyaman selama pertarungan sebenarnya.
+Itu cukup nyaman pada pertarungan sebenarnya.
 
 Ada beberapa pedang bermata satu yang memiliki bilah bermata dua di ujungnya sehingga bagian belakang bilahnya bisa digunakan juga.
 
- 
+l"Pengait ini juga bisa digunakan untuk menyeret musuh turun dari punggung kuda. Prajurit Shotel memfokuskan pelatihan mereka untuk tujuan itu daripada melewati perisai."
 
-"Pengait ini juga bisa digunakan untuk menyeret musuh turun dari punggung kuda. Prajurit Shotel memfokuskan pelatihan mereka untuk tujuan itu daripada melewati perisai. "
-
-"Aku melihat!"
-
- 
+"Aku mengerti!"
 
 Para petualang mengangguk berkali-kali.
-
- 
 
 Karakteristik shotel dalam melewati perisai untuk menyerang telah sangat ditekankan sehingga mereka melupakan fungsi pedang sabit biasa.
 
 Banyak cara untuk memanfaatkan shotel yang ditunjukkan Lit mengejutkan para petualang.
 
- 
-
-"Dan karakteristik terpenting dari shotel."
-
- 
+l"Dan karakteristik terpenting dari shotel."
 
 Lit membalik shotel dan menukar pegangannya di atasnya.
 
@@ -170,19 +150,11 @@ Bagian depan dan belakang dibalik menyerupai huruf S.
 
 Dengan kata lain, itu bukan lagi pedang berbentuk sabit tapi mirip dengan pedang melengkung biasa seperti pedang.
 
- 
+l"dengan ini akan memberimu pusat gravitasi lurus yang mirip dengan pedang biasa."
 
-"Melakukan itu akan memberimu pusat gravitasi lurus yang mirip dengan pedang biasa."
+Lit menunjukkan sekilas tarian pedang menggunakan shotel sebagai pedang.
 
- 
-
-Lit menunjukkan sekilas tarian pedang yang mengalir menggunakan shotel sebagai pedang.
-
- 
-
-Ooh!
-
- 
+"Ooh!"
 
 Petualang dengan skill terbaik diantara para petualang yang hadir berseru.
 
