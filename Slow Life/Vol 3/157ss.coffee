@@ -32,65 +32,41 @@ Misalnya obat yang disebut Minyak Zombie. Berlawanan dengan namanya, selama tiga
 
 Meski begitu, itu tidak akan cukup efektif untuk menyembuhkan luka tapi setidaknya bisa menghentikan pendarahan dari luka tertentu.
 
-Bisa dikatakan sebagai agen hemostatik tingkat lanjut.
+Bisa dikatakan sebagai hemostatik tingkat lanjut.
 
 Itu adalah obat yang efektif untuk pertempuran.
 
 Harganya 7 peryl.
 
-Ini mungkin disebut Zombie Oil tetapi itu tidak berarti cairan zombie digunakan untuk membuatnya.
+Ini mungkin disebut Minyak Zombie tetapi itu tidak berarti cairan zombie digunakan untuk membuatnya.
 
-Itu adalah obat yang aman, aman dan higienis.
+Itu adalah obat yang aman dan higienis.
 
- 
-
-"Nah, mari kita akhiri di sana untuk pemeliharaan."
-
- 
+l"Nah, cukup sampai disini saja untuk pemeliharaannya."
 
 Kata Lit sambil berjalan berkeliling untuk melihat-lihat shotel para petualang.
 
- 
+l"hal ini hanya perlu dilakukan dengan sangat hati-hati pada hari kamu kembali dari petualangan di mana kamu menebas banyak monster. Juga, untuk petualang paruh waktu yang tidak sering menggunakannya, Kamu harus mengoleskan sedikit minyak pencegah karat."
 
-"Itu hanya perlu dilakukan dengan sangat hati-hati pada hari-hari kamu kembali dari petualangan di mana kamu menebas banyak monster. Juga, untuk petualang paruh waktu yang tidak sering menggunakan pedang, Kamu harus mengoleskan sedikit minyak pencegah karat. "
+Kebetulan, kami juga menjual minyak pencegah karat.
 
- 
+tolong beli beberapa saat Kalian pulang.
 
-Kebetulan, kami juga menjual oli pencegah karat.
+"Lit-san."
 
-Silakan beli beberapa saat Kamu dalam perjalanan pulang.
+Setelah pengarahan tentang pemeliharaan senjata berakhir, seorang petualang wanita muda angkat bicara.
 
- 
-
-Lit-san.
-
- 
-
-Setelah ceramah tentang pemeliharaan senjata berakhir, seorang petualang wanita muda angkat bicara.
-
-Dia memiliki perlindungan ilahi 『Prajurit』 dan merupakan peserta termuda saat ini, mungkin seorang petualang yang masih muda.
-
- 
+Dia memiliki perlindungan ilahi 『Warrior』 dan merupakan yang termuda saat ini, mungkin seorang petualang yang masih muda.
 
 "Aku menerima shotel kemarin tapi pedang macam apa shotel itu?"
 
- 
+Lit mengangguk mengerti pada pertanyaan petualang itu.
 
-Lit mengangguk penuh pengertian pada pertanyaan petualang itu.
-
- 
-
-"Memang benar bahwa Kamu harus terlebih dahulu memahami karakteristik senjata sebelum Kamu dapat memahami bagaimana Kamu harus menanganinya."
-
- 
+l"Memang benar bahwa Kamu harus terlebih dahulu memahami karakteristik senjata sebelum Kamu dapat memahami bagaimana Kamu harus menanganinya."
 
 Lit mengangkat Shotel-nya.
 
- 
-
-"Shotel adalah pedang bermata dua yang sangat melengkung. Ini memiliki kurva berbentuk S. "
-
- 
+l"Shotel adalah pedang bermata dua yang sangat melengkung. senjata Ini memiliki kurva berbentuk S."
 
 Shotel Lit dihiasi bulu griffon pada gagangnya.
 
@@ -98,21 +74,13 @@ Itu jauh lebih modis dibandingkan denganku dan pedang para petualang.
 
 Itu terlihat lebih cocok untuk pedang Putri Pahlawan.
 
- 
+l"Karakteristik yang terkenal dari senjata ini adalah melewati perisai dengan lekukan untuk menyerang dari belakangnya."
 
-Karakteristik terkenal dari senjata ini adalah melewati perisai dengan lekukan untuk menyerang di belakangnya.
-
- 
-
-Lit mendorong shotel dengan teriakan. Bahkan melawan lawan dengan perisai, lintasan unik dari pedang berbentuk S akan menusuk lawan.
+Lit mendorong shotel. Bahkan melawan lawan dengan perisai, lintasan unik dari pedang berbentuk S akan menusuk lawan.
 
 Kemudian, dengan siku sebagai tumpuan, Lit mengayunkan kaki ke kiri dan ke kanan.
 
- 
-
-"Dengan gerakan mengayun ini, shotel juga memiliki ciri khas senjata tikam menggunakan ujung yang menonjol daripada serangan tebasan biasa. Bahkan ayunan kecil pun bisa meninggalkan luka yang dalam pada lawan. "
-
- 
+l"Dengan gerakan mengayun ini, shotel juga memiliki ciri khas senjata tikam menggunakan ujung yang menonjol daripada serangan tebasan biasa. Bahkan ayunan kecil pun bisa meninggalkan luka yang dalam pada lawan."
 
 Bilah melengkung seperti sabit bekerja secara berbeda dari pedang biasa.
 
@@ -120,35 +88,25 @@ Seorang pendekar pedang veteran yang ahli dengan pedang biasa akan menjadi seper
 
 Banyak pelatihan dibutuhkan untuk menggunakannya.
 
- 
-
 Lalu, Lit melihat dan memberi isyarat padaku.
 
- 
+l"red, jadilah asistenku."
 
-"Merah, jadilah asistenku."
+g"Aku?"
 
-"Aku?"
-
-"Jauh lebih mudah dengan lawan."
-
- 
+l"Jauh lebih menunjukkannya kalau ada lawan."
 
 Lit melambaikan tangannya.
 
 Baiklah, itu adalah kewajiban pemilik toko untuk bekerja sama dengan Lit karena dia berkontribusi dalam penjualan toko.
 
- 
-
-"Ya ~ perhatikan, ini Red-ku, tepuk."
-
- 
+l"Ya ~ perhatikan, inilah Red-ku, mari tepuk tangan."
 
 Tepuk tangan meriah pun terjadi.
 
 Itu sedikit memalukan.
 
-Lit menyeringai saat melihat wajahku yang memerah.
+Lit tersenyum nakal saat melihat wajahku yang memerah.
 
 Baiklah, aku harus memikirkan cara untuk melakukan serangan balik dan membuat wajah Lit merah malam ini.
 
