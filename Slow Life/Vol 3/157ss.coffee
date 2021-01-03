@@ -14,19 +14,17 @@ l"Untuk mengasah sisi dalam shotel, Kamu hanya perlu memakai batu asahan seperti
 
 l"Jika Kamu memiliki sihir penguatan, pada dasarnya tidak perlu mengasahnya tetapi dengan menggunakan batu asah di atas bilahnya, Kamu akan dapat merasakan kondisi bilahnya. Jika Kamu menggiling bilahnya secara teratur dan mengingat kondisi bilahnya, Kamu akan segera dapat merasakan adanya keanehan. Jika itu terjadi, jangan menundanya karena merepotkan dan mintalah pandai besi untuk memeriksanya. Lagi pula, hanya karena itu adalah senjata sihir tidak berarti itu tidak akan pernah bisa pecah."
 
-Di halaman toko kami, Lit memberikan ceramah tentang shotel kepada para petualang yang mengagumi pahlawan Lit dan mulai menggunakan shotel.
+Di halaman toko kami, Lit memberikan arahan tentang shotel kepada para petualang yang mengagumi pahlawan Lit dan mulai menggunakan shotel.
 
 Aku duduk di belakang dan juga menatap Lit yang menunjukkan cengkeramannya pada shotel.
 
 Hari ini adalah hari kuliah petualang yang Lit dimulai dengan seenaknya.
 
-Itu benar-benar iseng sehingga tidak ada pemberitahuan sebelumnya tetapi petualang biasa tidak berkecil hati dan menghadiri ceramah.
+hal ini sangat tidak direncanakan sehingga tidak ada pemberitahuan sebelumnya tetapi oara petualang tidak berkecil hati dan mengikutinya.
 
-Biaya untuk membeli obat Aku.
+Biaya untuk membeli obatku.
 
 Meskipun mereka bisa hadir hanya dengan membeli obat penghilang rasa sakit yang harganya hanya seperempat peryl, semua petualang yang mengagumi Lit membeli lebih dari yang diperlukan.
-
- 
 
 Karena itu, untuk memenuhi tuntutan mereka, Aku berusaha menyiapkan obat-obatan yang lebih sering digunakan.
 
