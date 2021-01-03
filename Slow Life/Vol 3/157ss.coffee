@@ -192,6 +192,8 @@ l"Akan sangat bagus jika mereka berubah menjadi petualang yang kuat dan orang-or
 
 Senang tidak ada orang yang tertinggal, Lit memelukku dari belakang.
 
+<gambar> vol 5 11.jpg   https://drive.google.com/uc?id=1J1LxMRatuhnx4xCTq3rvbVjEp-UR0qRA
+
 Aku menutup toko dengan Lit di punggungku.
 
 g"Penjualan hari ini luar biasa berkat Lit."
