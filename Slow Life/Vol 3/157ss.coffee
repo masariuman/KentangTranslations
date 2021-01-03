@@ -162,11 +162,7 @@ Kehebatan gerakan Lit saat ini mungkin tersampaikan kepadanya.
 
 Sulit untuk memahami gerakan unik shotel tetapi Aku bisa memahami gerakan yang menyerupai gerakan di dojo pedang di Zoltan.
 
- 
-
-"Saat ini shotel digunakan untuk menyeret lawan dengan menunggang kuda, sedangkan pegangan ini digunakan untuk mengayun ke bawah saat menunggang kuda. Itu adalah pedang anti-kavaleri dan pedang kavaleri. Itulah salah satu karakteristik shotel. "
-
- 
+l"Saat ini shotel digunakan untuk menyeret lawan dengan menunggang kuda, sedangkan pegangan ini digunakan untuk mengayun ke bawah saat menunggang kuda. Itu adalah pedang anti-kavaleri dan pedang kavaleri. Itulah salah satu karakteristik shotel."
 
 Aku meletakkan perisai dan memegang tombak dengan dua tangan untuk bertindak sebagai lawan bagi Lit untuk memamerkan tekniknya menggunakan pisau melengkung.
 
@@ -174,126 +170,84 @@ Menggunakannya sebagai pedang sabit, dia menunjukkan serangan terus menerus tida
 
 Mata para petualang bersinar karena melihat teknik pedang Lit.
 
-Seperti yang diharapkan, menggunakannya sebagai pedang melengkung memiliki daya tarik visual dan reaksi mereka lugas.
+Seperti yang diharapkan, menggunakannya sebagai pedang melengkung memiliki daya tarik visual dan reaksi mereka sungguh terkagum.
 
- 
-
-"Pesona shotel adalah keserbagunaannya. Jika Kamu menyusun rencana untuk menggunakannya sesuai dengan situasi dan lawan, Kamu akan dapat mengalahkan lawan jenis apa pun. Tapi itu fakta bahwa itu adalah pedang yang sulit digunakan. Penting untuk berlatih mengayunkan shotel setiap hari sampai Kamu terbiasa. "
+l"Pesona shotel adalah keserbagunaannya. Jika Kamu menyusun rencana untuk menggunakannya sesuai dengan situasi dan lawan, Kamu akan dapat mengalahkan lawan jenis apa pun. Tapi itu fakta bahwa itu adalah pedang yang sulit digunakan. Penting untuk berlatih mengayunkan shotel setiap hari sampai Kamu terbiasa."
 
 """Iya!!"""
 
- 
-
 Tidak hanya petualang yang menanyakan pertanyaan yang merespon, tetapi semua orang yang hadir juga merespon.
 
-Hari ini seharusnya hanya menjadi ceramah tentang memelihara shotel tetapi isi ceramahnya ternyata cukup substansial.
+Hari ini seharusnya hanya menjadi pengarahan tentang memelihara shotel tetapi isi pengarahannya ternyata cukup substansial.
 
-Para petualang juga memiliki tampilan yang lebih puas dan bersemangat dari biasanya.
+Para petualang juga menjadi lebih puas dan bersemangat dari biasanya.
 
- 
-
-"Ayo pergi ke tempat latihan bersama! Ayo segera coba apa yang telah diajarkan kepada kita! "
-
- 
+"Ayo pergi ke tempat latihan bersama! Ayo segera coba apa yang telah diajarkan kepada kita!"
 
 Para petualang berkata dan bergegas keluar dari toko.
 
- 
+g"Haha, mereka sangat menikmati kuliah Lit."
 
-"Haha, mereka sangat menikmati kuliah Lit."
-
-"Akan sangat bagus jika mereka berubah menjadi petualang yang kuat dan orang-orang berhenti meminta Aku untuk kembali dari masa pensiun."
-
- 
+l"Akan sangat bagus jika mereka berubah menjadi petualang yang kuat dan orang-orang berhenti memintaku untuk kembali dari masa pensiun."
 
 Senang tidak ada orang yang tertinggal, Lit memelukku dari belakang.
 
-Aku bekerja untuk menutup toko dengan Lit di punggung Aku.
+Aku menutup toko dengan Lit di punggungku.
 
- 
+g"Penjualan hari ini luar biasa berkat Lit."
 
-"Penjualan hari ini luar biasa berkat Lit."
+l"Yay, tolong beri Aku hadiah."
 
-"Yay, tolong beri Aku hadiah."
+g"Hadiah huh... jika kau memberitahuku begitu tiba-tiba. Bagaimana dengan hamburger malam ini?"
 
-"Hadiah huh… jika kau memberitahuku begitu tiba-tiba. Bagaimana dengan hamburger malam ini? "
-
-"Aku juga senang untuk itu, tapi."
-
- 
+l"Aku juga senang untuk itu, tapi."
 
 Aku berusaha keras untuk berpikir saat Lit memeluk tubuhku lebih erat.
 
- 
+l"... Ayo tidur bersama malam ini."
 
-"… Ayo tidur bersama malam ini."
+g"Begitu ya, lagipula itu adalah hadiah untukmu."
 
-"Begitu ya, lagipula itu adalah hadiah untukmu."
-
-Ehehe.
-
- 
+l"Ehehe."
 
 Pada akhirnya, hari ini adalah hari dimana aku dibuat tersipu.
 
 Hari ini adalah hari bahagia juga.
 
- 
-
 ☆☆
-
- 
 
 Di jalan raya dekat perbatasan Zoltan.
 
- 
-
 "Girurururu !!"
-
- 
 
 Sekawanan cacing maut meraung dengan gigi bergemeretak.
 
 Dua kavaleri berkuda di antara cacing maut yang seukuran kuda dan mulutnya yang besar terbuka lebar.
 
- 
-
 "Ha!"
-
- 
 
 Salah satu kavaleri.
 
-Charles, seorang petualang Zoltan, mengangkangi tunggangan roh yang dipanggilnya dan menebas cacing kematian dengan shotel di satu tangan.
+Charles, seorang petualang Zoltan, menaiki tunggangan roh yang dipanggilnya dan menebas cacing maut dengan shotel dengan satu tangan.
 
-Mengikuti ajaran Hero Lit, Charles memegang shotel seperti pisau melengkung dan mengayunkannya setiap kali dia melewati musuh.
+Mengikuti ajaran Pahlawan Lit, Charles memegang shotel seperti pisau melengkung dan mengayunkannya setiap kali dia melewati musuh.
 
-Pisau shotel dengan mudah mengiris tubuh cacing kematian.
+Pisau shotel dengan mudah mengiris tubuh cacing Maut.
 
- 
+"Begitu, ini bagus sekali!"
 
-"Begitu, ini bagus!"
+Dia tidak pernah benar-benar berlatih dengan menunggang kuda, tetapi dia ingin menilai kembali apakah dia bisa melawan sekumpulan lawan.
 
- 
+"Aku tidak pernah memikirkannya secara mendalam dan aku hanya berpura-pura mengagumi Lit-san tapi... seperti yang diharapkan dari senjata pahlawan. Kemampuan bertarangku diperluas hanya dengan menggunakan shotel!"
 
-Dia tidak pernah benar-benar berlatih dengan menunggang kuda, tetapi dia ingin menilai kembali apakah dia bisa melawan sekawanan lawan di luar ruangan.
+Lawannya lebih dari 30 cacing maut.
 
- 
+Dia pikir itu tidak mungkin untuk sekarang tetapi sepertinya dia bisa memenuhi permintaan.
 
-"Aku tidak pernah memikirkannya secara mendalam dan itu hanya kepura-puraan untuk mengagumi Lit-san tapi… seperti yang diharapkan dari senjata pahlawan. Kemampuan bertarangku diperluas hanya dengan menggunakan shotel! "
+Setelah mengalahkan cacing terakhir, petualang Charles dengan tenang kembali ke kelompok pedagang yang dia lindungi.
 
- 
-
-Lawannya lebih dari 30 cacing kematian.
-
-Dia pikir itu tidak mungkin untuk sementara waktu tetapi sepertinya dia bisa memenuhi permintaan pendamping.
-
-Setelah meletakkan cacing terakhir, petualang Charles dengan tenang kembali ke kelompok pedagang yang dia lindungi.
-
-Para petualang dari negara lain yang juga dalam permintaan pendamping terkejut dengan kesuksesan Charles, karena dia dibenci sebagai warga Zoltan yang malas sebelumnya, dan mereka memuji dengan beberapa kecemburuan yang tercampur di dalamnya.
+Para petualang dari negara lain yang juga dalam permintaan untuk penjaga terkejut dengan Charles, karena dia dibenci sebagai warga Zoltan yang malas sebelumnya, dan mereka memuji dengan beberapa kecemburuan yang tercampur di dalamnya.
 
 Bahkan itu nyaman bagi Charles dan dia merasakan bagaimana perasaan seorang pahlawan.
 
- 
-
-(Konon, dia adalah pahlawan yang lebih besar.)
+(yaaah, dia adalah pahlawan yang lebih besar.)
