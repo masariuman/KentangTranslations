@@ -32,29 +32,21 @@ l"Uuu, aku ingin berhenti bekerja dan bermanja dengamu."
 
 g"Tapi pelanggan masih terkadang datang datang."
 
-Lit memeluk kepalaku saat dia merengek.
+Lit memeluk kepalaku sambil merengek.
 ------
-Tapi bukankah situasi ini dianggap menggoda?
+Tapi bukankah situasi ini seperti bermanja?
 
-Aku merasakan kebahagiaan.
+Aku merasa bahagia.
 
- 
-
-"Baiklah."
-
- 
+g"Baiklah."
 
 Aku berdiri untuk menanggapi ketidakpuasan Lit.
 
- 
+l"ada apa? Apakah kamu memikirkan sesuatu?"
 
-"Apa yang salah? Apakah kamu memikirkan sesuatu? "
+g"Lit, duduklah di sini."
 
-"Lit, duduklah di sini."
-
-"Baik!"
-
- 
+l"Baik!"
 
 Aku menyuruh Lit duduk di kursi yang aku duduki.
 
@@ -64,61 +56,37 @@ Itu hanya kebalikan dari situasi barusan.
 
 Aku senang jadi Lit juga ikut senang.
 
- 
-
-"???"
-
- 
+l"???"
 
 Lit terlihat bingung.
 
 Tapi.
 
- 
+l"... Ehehe."
 
-"… Ehehe."
-
- 
-
-Setelah beberapa saat, dia menutup mulutnya dengan bandana merah di sekitar lehernya dan mulai menyeringai.
+Setelah beberapa saat, dia menutup mulutnya dengan bandana merah di sekitar lehernya dan mulai tersenyum.
 
 Wajahnya menjadi sedikit merah.
 
 Aku tahu apa pun yang membuatku bahagia akan membuat Lit juga bahagia.
 
- 
-
-Selanjutnya giliranku lagi!
-
- 
+l"Selanjutnya giliranku lagi!"
 
 Suara imut Lit bergema di toko.
 
 Dan begitulah cara kami menikmati waktu luang kami.
 
- 
-
 ☆☆
-
- 
 
 Menjelang siang, jumlah pelanggan semakin menurun.
 
- 
-
 【Pachin】
-
- 
 
 Suara yang menyenangkan bisa terdengar di toko.
 
- 
+g"Woah, langkah yang bagus."
 
-"Woah, langkah yang bagus."
-
-"Fufu ~"
-
- 
+l"Fufu ~"
 
 Lit memiliki ekspresi bangga di wajahnya saat dia bermain dengan batu di tangannya.
 
