@@ -10,42 +10,30 @@ Aku duduk di konter toko dan sesekali berurusan dengan pelanggan.
 
 Ada beberapa pembelian panik beberapa waktu yang lalu karena takut perang dan bahan yang tidak mencukupi jadi akhir-akhir ini kami tidak ngapa-ngapain.
 
-Ya, Aku sibuk jadi Aku berpikir untuk menikmati waktu luang seperti penduduk Zoltan.
+Yaaah~, Aku sibuk akhir-akhir ini jadi Aku berpikir untuk menikmati waktu luang seperti penduduk Zoltan.
 
- 
+g"Terima kasih banyak."
 
-"Terima kasih banyak."
+Setelah pelanggan pergi, Aku duduk dan melamun.
 
- 
-
-Setelah mengirim pelanggan pergi, Aku duduk dan linglung.
-
-Itu adalah cara menghabiskan waktu yang tidak akan pernah Aku impikan ketika Aku mencoba untuk tumbuh lebih kuat demi Ruti atau sibuk dengan pekerjaan Knight.
+Itu adalah cara menghabiskan waktu yang tidak akan pernah Aku impikan ketika Aku berusaha mencoba untuk menjadi lebih kuat demi Ruti atau sibuk dengan pekerjaan Knight.
 
 Bukankah hebat seperti ini juga?
 
-Saat melamun, Aku tiba-tiba merasakan sensasi lembut menekan bagian belakang kepala Aku.
+ketika melamun, Aku tiba-tiba merasakan sensasi lembut menekan bagian belakang kepalaku.
 
- 
-
-"Merah, aku bosan ~"
-
- 
+l"red, aku bosan ~" 
 
 Lit memeluk kepalaku dari belakang.
 
- 
+g"Aku juga bosan."
 
-"Aku juga bosan."
+l"Uuu, aku ingin berhenti bekerja dan bermanja dengamu."
 
-"Uuu, aku ingin menyisihkan pekerjaan dan menggoda."
-
-"Tapi pelanggan masih datang sesekali."
-
- 
+g"Tapi pelanggan masih terkadang datang datang."
 
 Lit memeluk kepalaku saat dia merengek.
-
+------
 Tapi bukankah situasi ini dianggap menggoda?
 
 Aku merasakan kebahagiaan.
