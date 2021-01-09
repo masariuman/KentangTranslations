@@ -88,77 +88,59 @@ g"Woah, langkah yang bagus."
 
 l"Fufu ~"
 
-Lit memiliki ekspresi bangga di wajahnya saat dia bermain dengan batu di tangannya.
+Lit memiliki ekspresi bangga di wajahnya sambil bermain batu di tangannya.
 
-Batu putih dan hitam menggambar pola yang rumit di papan tulis.
+Batu putih dan hitam membuat pola yang aneh di papan tulis.
 
-Kami memainkan permainan papan yang disebut 'Pertempuran Melingkar'.
+Kami memainkan permainan papan yang disebut 'Pertempuran Mengepung'.
 
-Sebuah strategi di mana Kamu bergiliran menempatkan batu dan mengelilingi tanah untuk menjadikannya wilayah Kamu. (TLN: Pada dasarnya Weiqi atau Go.)
+Sebuah strategi di mana pemain bergiliran menempatkan batu dan mengelilingi papan untuk menjadikannya wilayahmu. (seperti Weiqi atau Go.)
 
-Itu terkenal di benua Avalon. Permainan ini lebih disukai oleh generasi tua yang lebih tenang.
+permainan ini terkenal di benua Avalon dan lebih disukai oleh generasi tua yang lebih tenang.
 
-Mungkin karena itu, game ini dianggap sebagai game yang cerdas dan tidak akan disukai saat kami memainkannya di toko.
+Mungkin karena itu, permainan ini dianggap sebagai permainan yang cerdas dan tidak akan disukai saat kami memainkannya di toko.
 
-Namun, dalam hal popularitas, Ras Wyvern disukai oleh khalayak yang lebih luas.
+Namun, dalam hal popularitas, balap Wyvern memiliki banyak peminatnya.
 
-Pertempuran Mengepung membutuhkan persiapan sejumlah besar batu sementara Kamu hanya membutuhkan bidak Kamu sendiri dan tiga dadu untuk Ras Wyvern.
+Pertempuran Mengepung membutuhkan persiapan sejumlah besar batu sementara Kamu hanya membutuhkan bidakmu sendiri dan tiga dadu untuk balap Wyvern.
 
- 
+g"Bagaimana dengan ini ..."
 
-"Bagaimana dengan ini …"
+l"Kalau begitu aku akan mengambil ini."
 
-"Kalau begitu aku akan mengambil ini."
-
-"Mumumu."
-
- 
+g"Mumumu."
 
 Lit adalah master dalam Pertempuran Mengepung.
 
-Kami terkadang bermain seperti ini tetapi Aku tidak pernah menang tanpa cacat.
+Kami terkadang bermain seperti ini tetapi Aku tidak pernah menang tanpa aturan khusus.
 
-Hanya jika dia membiarkan Aku memiliki cacat menempatkan tiga batu terlebih dahulu, barulah kami akhirnya dicocokkan secara merata.
+Hanya jika dia membiarkanku menempatkan tiga batu terlebih dahulu, barulah kami setara.
 
-Putaran ini, cacatnya adalah satu batu.
+untuk sekarang, aku hanya menempatkan 1 batu.
 
-Aku berada dalam posisi yang kurang menguntungkan tapi sebagai partner Lit, aku tidak bisa terus kehilangan dia selamanya.
+Aku berada dalam posisi yang kurang menguntungkan tapi sebagai partner Lit, aku tidak bisa terus kalah.
 
- 
+g"RASAKAN INI!"
 
-"Sini!"
+l"Mu, boleh juga."
 
-"Mu, itu agak mengganggu."
-
-Sepertinya langkah Aku berikut ini mengejutkan Lit.
+Sepertinya langkahku mengejutkan Lit.
 
 Kali ini, tangan Lit berhenti dan dia menatap papan itu sambil berpikir dengan hati-hati.
 
 Momen ini adalah yang terbaik saat menghadapi lawan yang lebih kuat.
 
- 
+l"red berkembang dengan sangat cepat."
 
-Merah meningkat dengan sangat cepat.
-
- 
-
-Setelah beberapa pertimbangan, Lit bermain bertahan alih-alih melancarkan serangan balik.
+Setelah beberapa pertimbangan, Lit bermain bertahan daripada melancarkan serangan balik.
 
 Aku memenangkan pertempuran untuk tempat itu.
 
- 
-
-"Itu karena aku bisa bermain dengan Lit. Saat Aku memahami strategi di balik gerakan yang dilakukan Lit, Aku secara alami akan meningkat. "
-
- 
+g"Itu karena aku bermain dengan Lit. Saat Aku memahami strategi di balik gerakan yang dilakukan Lit, Aku secara alami akan berkembang."
 
 Aku meletakkan batu dengan klak.
 
- 
-
-"Nhfufu, kalau begitu aku harus lebih memahami Red juga."
-
- 
+l"Nhfufu, kalau begitu aku harus lebih memahami Red juga."
 
 Kata Lit sambil tertawa.
 
@@ -166,19 +148,11 @@ Meskipun tubuh kami tidak bersentuhan, kami bermain dengan hati yang terhubung.
 
 Setelah beberapa saat.
 
- 
-
-【Karan】
-
- 
+Karan】
 
 Bel berbunyi dan pintu toko terbuka.
 
- 
-
 ""Selamat datang!""
-
- 
 
 Lit dan Aku menghentikan permainan kami dan menyapa pelanggan.
 
@@ -190,23 +164,15 @@ Matanya biru dan dia mengenakan pakaian perjalanan kokoh tenun Kiramin berwarna 
 
 Ciri yang paling mencolok adalah telinga panjangnya yang menjulur dari rambutnya.
 
- 
-
-"Eh !?"
-
- 
+l"Eh !?"
 
 Lit meninggikan suaranya karena terkejut.
 
-Aku juga terkejut dan proses berpikir Aku berhenti sejenak.
+Aku juga terkejut dan aku berhenti berpikir sejenak.
 
-Lagipula, kami berdua tahu High-Elf itu.
+kami berdua kenal High-Elf itu.
 
- 
-
-"Gideon! Akhirnya aku menemukanmu!"
-
- 
+y"Gideon! Akhirnya aku menemukanmu!"
 
 High-Elf itu menunjukkan senyum cerah yang bersinar seperti rambut peraknya dan melompat ke arahku.
 
@@ -214,130 +180,80 @@ Dia bahkan tidak keberatan dengan konter yang ada di antara kami.
 
 Dia dengan ringan melompat ke atas meja dan entah bagaimana aku berhasil menangkapnya.
 
- 
+y"Aku senang kamu baik-baik saja!"
 
-"Aku senang kamu baik-baik saja!"
-
-"Yarandorara !?"
-
- 
+g"Yarandorara !?"
 
 High-Elf bernama Yarandorara.
 
-Seorang 『Penyanyi Pohon』 yang pernah berada di party Hero denganku dan bertengkar dengan Sage Ares dan pergi setelah aku diusir dari party.
+Seorang 『Penyanyi Pohon』 yang pernah berada di tim pahlawan denganku dan bertengkar dengan Sage Ares dan pergi setelah aku diusir dari tim.
 
- 
-
-"Aku takut kamu dibunuh oleh Ares itu…!"
-
- 
+y"Aku takut kamu dibunuh oleh Ares !"
 
 Yarandorara memelukku erat.
 
 Dia memiliki aroma bunga yang lembut.
 
- 
-
-"Tenangkan Yarandorara! Pelanggan sedang menonton! "
-
- 
+g"tenanglah Yarandorara! Pelanggan sedang melihat kita!"
 
 Petualang Charles, yang biasa mengunjungi toko kami, memandang dengan mata lebar ketika dia masuk setelah Yarandorara.
 
-Tangannya terulur ke arah pedang di pinggangnya, jadi dia mungkin marah karena mengira aku curang… Bagaimanapun juga, Charles adalah penggemar berat Lit.
+Tangannya terulur ke arah pedang di pinggangnya, jadi dia mungkin marah karena mengira aku selingkuh... Bagaimanapun juga, Charles adalah penggemar berat Lit.
 
 Lit juga bingung harus berbuat apa.
 
- 
-
-"Untuk saat ini, lepaskan dan kita akan bicara."
-
- 
+g"Untuk saat ini, lepaskan dan kita akan bicara."
 
 Aku mengatakannya dengan putus asa tapi Yarandorara tidak melepaskan pelukannya.
 
- 
+y"Aku benar-benar... khawatir..."
 
-"Saya benar-benar… khawatir…"
-
-"… Aku rasa Kamu akan melakukannya. Aku minta maaf karena pergi tanpa mengatakan apa-apa. "
-
- 
+g"... kurasa kamu pasti mengkhawatirkanku. Aku minta maaf karena pergi tanpa mengatakan apa-apa."
 
 Aku menyerah dan santai.
 
 Suara Yarandorara bergetar.
 
- 
-
 ☆☆
-
- 
 
 "Umu umu, begitu."
 
- 
+Charles mengangguk.
 
-Charles mengangguk saat dia berbicara.
-
- 
-
-"Dengan kata lain, dia tidak puas karena Red diusir dan datang ke sini untuk mencarinya."
-
- 
+"Dengan kata lain, dia kecewa karena Red diusir dan datang ke sini untuk mencarinya."
 
 Charles melihat adegan itu jadi Aku harus menjelaskan situasinya kepadanya.
 
-Aku menjelaskan situasinya secara kasar sambil menambahkan beberapa kebohongan.
-
- 
+Aku menjelaskan situasinya secara garis besar sambil menambahkan beberapa kebohongan.
 
 "Kalau begitu, aku tidak boleh ikut campur."
 
- 
-
 Charles berdiri.
-
- 
 
 "Aku akan memotongmu menjadi dua jika kamu selingkuh."
 
-"Apakah kamu serius?"
+g"serius?"
 
-"Saya setengah bercanda. Untuk separuh lainnya, aku membawa Yarandorara ke sini jadi jika dia menyakiti Lit-san atau Red dengan cara apa pun, aku siap memberikan hidupku untuk menghentikannya. "
+"Aku setengah bercanda. Untuk Setengah lainnya, aku membawa Yarandorara ke sini jadi jika dia menyakiti Lit-san atau Red dengan cara apa pun, aku siap memberikan hidupku untuk menghentikannya."
 
-Tidak mungkin mencapai titik itu.
-
- 
+itu Tidak mungkin.
 
 Yarandorara memelototi Charles.
 
- 
+"Aku tidak mengenalmu dengan baik jadi kamu tidak bisa menyalahkanku untuk itu. Bagaimanapun juga, sebagai orang luar, Aku harus pergi secepat mungkin."
 
-"Aku tidak mengenalmu dengan baik jadi kamu tidak bisa menyalahkanku untuk itu. Bagaimanapun, sebagai orang luar, Aku harus pergi secepat mungkin. "
-
-"Ah, maaf sudah merepotkanmu."
-
- 
+g"Ah, maaf sudah merepotkanmu."
 
 Charles tertawa dan menggelengkan kepalanya karena kata-kataku.
 
- 
-
-"Jangan khawatir, Aku senang bisa membantu toko ini. Aku jadi suka toko ini. "
-
- 
+"Jangan khawatir, Aku senang bisa membantu toko ini. Aku jadi suka toko ini."
 
 Setelah itu, Charles dengan sopan menyapa Lit dan meninggalkan toko.
 
 Aku menahan diri untuk tidak menyeringai.
 
-Aku sangat senang mendengar pujian untuk Apoteker Merah & Lit.
+Aku sangat senang mendengar pujian untuk Apotek red & Lit.
 
- 
+y"Fuuu ~"
 
-"Fuuu ~"
-
- 
-
-Yarandorara menatapku sayang ketika dia melihat ekspresiku.
+Yarandorara menatapku dengan penuh sayang ketika dia melihat ekspresiku.
