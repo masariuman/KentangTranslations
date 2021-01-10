@@ -1,48 +1,34 @@
-Bab 159: Pemuda dan Yarandorara Bagian 1
+Bab 159: Pria Muda dan Yarandorara Bagian 1
 
-Penerjemah: Tseirp
+Aku berusia 9 tahun saat itu.
 
- 
+Aku baru saja memasuki Ksatria Ordo Bahamut dan Aku masih seorang pesuruh, peringkat terendah.
 
-Saya berusia 9 tahun saat itu.
+waktu itu, malam musim dingin.
 
-Saya baru saja memasuki Ordo Ksatria Bahamut dan saya masih satu halaman, peringkat terendah.
+Salju tebal turun dari langit.
 
-Itu selama malam musim dingin.
-
-Salju tebal turun dari langit kelabu.
-
-Masih ada sedikit kelonggaran untuk merasakan kegembiraan dari hujan salju lebat, tetapi sebagian besar orang Ibukota Kekaisaran basah kuyup oleh salju dan berjalan dengan semangat yang basah.
+Masih ada sedikit untuk merasakan kegembiraan dari hujan salju lebat, tetapi sebagian besar orang Ibukota Kekaisaran basah kuyup oleh salju dan berjalan dengan semangat yang tipis.
 
 Jalanan dipadati dengan orang-orang yang kembali dari pekerjaan sehingga ada lebih banyak ketidaknyamanan.
 
 Di hari yang suram itu, aku diminta oleh Flores-san yang merupakan ksatria yang aku layani untuk membeli sesuatu jadi aku berjalan melewati kerumunan sambil mengguncang jubahku.
 
- 
+(apakah ada yang benar-benar menjual bunga kosmos di tengah musim dingin?)
 
-(Adakah yang benar-benar menjual bunga kosmos di tengah musim dingin?)
+Dalam hati, Aku bertanya-tanya apakah kerja keras ini akan berakhir dengan usaha yang sia-sia dan sedikit tidak puas.
 
- 
+Tapi sebagai pesuruh, Aku tidak punya pilihan selain mematuhi perintah ksatria yang Aku layani.
 
-Dalam hati, saya bertanya-tanya apakah kerja keras ini akan berakhir dengan usaha yang sia-sia dan sedikit tidak puas.
-
-Tapi sebagai halaman, saya tidak punya pilihan selain mematuhi perintah ksatria yang saya layani.
-
-Paling tidak, saya mungkin harus mengunjungi setidaknya lima toko bunga dan menanggung kepingan salju besar sebelum dia bisa diyakinkan.
-
- 
+Paling tidak, Aku mungkin harus mengunjungi setidaknya lima toko bunga dengan tumpukan salju besar sebelum dia bisa diyakinkan.
 
 (Akan lebih baik jika dia setidaknya memberitahuku di pagi hari.)
 
- 
-
 Perut kosong dari tubuhku yang sedang tumbuh menggeram tapi makan malam kemungkinan besar akan terlambat.
 
- 
+Aku bergabung dengan Ksatria Ordo karena Aku ingin menjadi lebih kuat untuk melindungi Ruti tetapi jika Aku tidak menjadi pengawal, Aku tidak akan memiliki kesempatan untuk mengembangkan perlindungan ilahiku.
 
-Saya bergabung dengan Ordo Ksatria karena saya ingin menjadi lebih kuat untuk melindungi Ruti tetapi jika saya tidak mempromosikan menjadi pengawal, saya tidak akan memiliki kesempatan untuk menumbuhkan perlindungan ilahi saya.
-
-Sebagian besar halaman yang bekerja dengan saya tidak mau melakukan pekerjaan seperti ini.
+Sebagian besar pesuruh yang bekerja denganku tidak mau melakukan pekerjaan seperti ini.
 
 Secara khusus, putra tertua seorang Earl, Neville, sering memaksakan tugasnya kepada orang lain.
 
@@ -60,7 +46,7 @@ Kekuatan saja tidak cukup untuk melindungi Ruti.
 
 Kemampuan untuk bernegosiasi dengan orang-orang yang berkuasa, kemampuan untuk mempertahankan perjalanan sebuah party, kemampuan untuk memimpin dan bertarung sebagai seorang komandan… langkah pertama yang diperlukan untuk memperolehnya adalah mendapatkan tata krama dan cara berpikir yang tepat sebagai seorang kesatria.
 
-Karena itu, meskipun saya tidak puas, saya menerima posisi terendah dan menjalankan tugas saya dengan serius.
+Karena itu, meskipun Aku tidak puas, Aku menerima posisi terendah dan menjalankan tugas Aku dengan serius.
 
 Selain itu, atasan kami, Flores-san, adalah seorang ksatria elit dari Ordo Ksatria Bahamut Kerajaan Avalonia.
 
@@ -70,7 +56,7 @@ Dia melihat dengan cermat pekerjaan kami meskipun sepertinya dia melemparkan tug
 
 Tentang Neville.
 
-Kemarin, saya tidak sengaja mendengar Flores memberi tahu rekan ksatrianya bahwa dia akan mengeluarkan Neville dari Ordo Ksatria.
+Kemarin, Aku tidak sengaja mendengar Flores memberi tahu rekan ksatrianya bahwa dia akan mengeluarkan Neville dari Ordo Ksatria.
 
  
 
@@ -80,7 +66,7 @@ Kemarin, saya tidak sengaja mendengar Flores memberi tahu rekan ksatrianya bahwa
 
 Aku memikirkannya saat berjalan di antara salju dan kerumunan.
 
-Saya mendengar suara berderit dari atas kepala saya.
+Aku mendengar suara berderit dari atas kepala Aku.
 
  
 
@@ -88,19 +74,19 @@ Suara busur yang ditarik?
 
  
 
-Saya melompat ke bahu pria di depan saya dan melompat ke udara.
+Aku melompat ke bahu pria di depan Aku dan melompat ke udara.
 
  
 
-“Maaf tentang itu!”
+"Maaf tentang itu!"
 
-“Uwa !? Bocah ini! Apa yang sedang kamu lakukan!!"
+"Uwa !? Bocah ini! Apa yang sedang kamu lakukan!!"
 
  
 
-Dengan level +30 dari 『Guide』 yang membuat level saya jauh di atas level anak biasa, saya bisa melakukan prestasi seperti itu dengan tubuh ringan seorang anak kecil.
+Dengan level +30 dari 『Guide』 yang membuat level Aku jauh di atas level anak biasa, Aku bisa melakukan prestasi seperti itu dengan tubuh ringan seorang anak kecil.
 
-Sambil menginjak kepala orang yang saya lewati, saya menghunus pedang pendek di pinggang saya dan memotong panah yang ditembakkan.
+Sambil menginjak kepala orang yang Aku lewati, Aku menghunus pedang pendek di pinggang Aku dan memotong panah yang ditembakkan.
 
  
 
@@ -110,7 +96,7 @@ Sambil menginjak kepala orang yang saya lewati, saya menghunus pedang pendek di 
 
 Di lokasi di mana anak panah akan mengenai adalah seorang pria berpakaian sutra halus dengan tampilan terkejut dan bingung.
 
-Jika saya ingat dengan benar, dia seharusnya adalah pemilik perusahaan besar yang berurusan dengan garam dan merupakan eksekutif dari Guild Pedagang. Namanya harus Bran ・ Robinson.
+Jika Aku ingat dengan benar, dia seharusnya adalah pemilik perusahaan besar yang berurusan dengan garam dan merupakan eksekutif dari Guild Pedagang. Namanya harus Bran ・ Robinson.
 
 Seorang pria dengan kekayaan dan posisi yang cukup untuk menjadi sasaran.
 
@@ -136,7 +122,7 @@ Aku melompat tinggi dengan meminjamkan bahu seorang wanita Elf di dekatku.
 
  
 
-“…!?”
+"…!?"
 
  
 
@@ -150,9 +136,9 @@ Aku meraih ambang jendela, menendang dinding, melompat ke jendela, dan menebas d
 
  
 
-Erangan kesakitan datang dari saya.
+Erangan kesakitan datang dari Aku.
 
-Rasa sakit yang tajam menjalar di lengan kanan saya.
+Rasa sakit yang tajam menjalar di lengan kanan Aku.
 
 Itu seharusnya menjadi serangan mendadak tapi pedangku tidak terhubung dan mengikis baju rantai yang dikenakan lawan di bawah pakaiannya.
 
@@ -174,15 +160,15 @@ Aku memegang pedang dengan tangan kiriku dan mengontrol nafasku.
 
  
 
-“Serangan itu membuatku merinding. Itu tidak cocok dengan penampilanmu, Nak. Maaf tapi aku akan membunuhmu di sini. ”
+"Serangan itu membuatku merinding. Itu tidak cocok dengan penampilanmu, Nak. Maaf tapi aku akan membunuhmu di sini. "
 
-“Kamu juga, aku tidak berharap kamu menghindari pedangku dengan waktu itu. Aku akan menyerah untuk menangkapmu tanpa membunuhmu. "
+"Kamu juga, aku tidak berharap kamu menghindari pedangku dengan waktu itu. Aku akan menyerah untuk menangkapmu tanpa membunuhmu. "
 
-“Lambang itu seharusnya milik Ordo Kesatria Bahamut. Satu halaman huh ... Anda mungkin menjadi pahlawan yang meninggalkan nama mereka dalam sejarah jika Anda tumbuh dewasa tapi karena Anda terjebak dalam hal-hal yang tidak perlu ... anak yang menyedihkan. ”
+"Lambang itu seharusnya milik Ordo Kesatria Bahamut. Satu halaman huh ... Kamu mungkin menjadi pahlawan yang meninggalkan nama mereka dalam sejarah jika Kamu tumbuh dewasa tapi karena Kamu terjebak dalam hal-hal yang tidak perlu ... anak yang menyedihkan. "
 
 Niat membunuhnya juga kelas satu.
 
-Saya dilanda intimidasi yang tidak dapat dibandingkan dengan apa yang saya rasakan ketika saya bertarung melawan seekor Beruang Burung Hantu.
+Aku dilanda intimidasi yang tidak dapat dibandingkan dengan apa yang Aku rasakan ketika Aku bertarung melawan seekor Beruang Burung Hantu.
 
 Pria itu menarik busurnya dan membidik hatiku.
 
@@ -200,13 +186,13 @@ Dorongan mereka untuk menggunakan busur itu kuat tetapi itu masih harus jauh leb
 
 Akan sulit untuk bertahan hidup tanpa menderita luka apapun.
 
-Pikiran bahwa seandainya saja saya memiliki baju besi saya mengalir dalam pikiran saya tetapi saya menghilangkan pikiran itu karena itu tidak ada gunanya saat ini.
+Pikiran bahwa seandainya saja Aku memiliki baju besi Aku mengalir dalam pikiran Aku tetapi Aku menghilangkan pikiran itu karena itu tidak ada gunanya saat ini.
 
 Aku memutuskan sendiri saat aku menggunakan lengan kananku yang terluka untuk menutupi wajahku dan menarik satu kaki ke belakang untuk memutar tubuhku ke samping untuk melindungi hatiku dengan bahu kiriku.
 
  
 
-“Itu bukan strategi yang buruk. Anda akan memiliki kesempatan untuk menang jika Anda hidup meskipun Anda harus mengorbankan lengan Anda. "
+"Itu bukan strategi yang buruk. Kamu akan memiliki kesempatan untuk menang jika Kamu hidup meskipun Kamu harus mengorbankan lengan Kamu. "
 
  
 
@@ -214,7 +200,7 @@ Pria itu berkata tanpa mengubah ekspresinya… dia terlihat tenang.
 
 Dia mungkin memiliki kepercayaan diri untuk menembus lenganku untuk mencapai titik vitalku.
 
-Detak jantung saya bertambah cepat dengan kemungkinan kematian yang membayangi.
+Detak jantung Aku bertambah cepat dengan kemungkinan kematian yang membayangi.
 
 Pada saat itu, angin kencang dan hangat, angin seperti musim semi, bertiup melalui jendela.
 
@@ -234,7 +220,7 @@ Kelopak yang menghalangi mata pria itu jatuh ke tanah.
 
  
 
-“…. ! ”
+"…. ! "
 
  
 
@@ -250,33 +236,33 @@ Tubuh pria itu bergetar dan jatuh ke lantai seperti boneka dengan tali putus.
 
  
 
-“Haaa haaa…”
+"Haaa haaa…"
 
  
 
-Saya memverifikasi bahwa pria itu sudah mati dan duduk di lantai.
+Aku memverifikasi bahwa pria itu sudah mati dan duduk di lantai.
 
-Anak panah di bahu kanan saya ditusuk dengan tangan agar lukanya tidak dalam.
+Anak panah di bahu kanan Aku ditusuk dengan tangan agar lukanya tidak dalam.
 
 Aku menahan napas dan mengatupkan gigi sebelum mencabut panah itu.
 
 Panah berdarah itu bergemerincing di lantai.
 
-Bahu kanan saya sakit tetapi saya merasakan sensasi kesemutan yang datang dari perlindungan ilahi saya untuk pertama kalinya dalam waktu yang lama.
+Bahu kanan Aku sakit tetapi Aku merasakan sensasi kesemutan yang datang dari perlindungan ilahi Aku untuk pertama kalinya dalam waktu yang lama.
 
  
 
-(Saya naik level.)
+(Aku naik level.)
 
  
 
-Lahir dengan level 31, saya telah memusnahkan monster setiap hari dari saat saya berusia 6 tahun untuk naik level.
+Lahir dengan level 31, Aku telah memusnahkan monster setiap hari dari saat Aku berusia 6 tahun untuk naik level.
 
 Namun, mengalahkan lawan level rendah memiliki efisiensi yang sangat buruk untuk memelihara perlindungan dewa.
 
-Sampai kemarin saya hanya bisa menaikkan level saya dua, untuk mencapai tingkat perlindungan ilahi 33.
+Sampai kemarin Aku hanya bisa menaikkan level Aku dua, untuk mencapai tingkat perlindungan ilahi 33.
 
-Tapi hari ini, hanya satu pertempuran yang membuat level saya naik menjadi 34.
+Tapi hari ini, hanya satu pertempuran yang membuat level Aku naik menjadi 34.
 
  
 
@@ -286,7 +272,7 @@ Jadi ini Ibukota Kekaisaran.
 
 Aku khawatir meninggalkan pihak Ruti tapi itu adalah pilihan yang tepat untuk dibina oleh Ordo Kesatria untuk menjadi lebih kuat.
 
-Setelah duduk beberapa saat, saya mendengar suara gemerisik mengalir melalui gedung.
+Setelah duduk beberapa saat, Aku mendengar suara gemerisik mengalir melalui gedung.
 
 Aku segera meletakkan tanganku di gagang pedang yang telah kusarungkan.
 
@@ -314,13 +300,13 @@ Bunga beterbangan di sekitar luka dan lukanya menghilang tanpa bekas.
 
  
 
-“Terima kasih banyak, Onee-san High-Elf… erm, maaf tapi apakah kita pernah bertemu sebelumnya?”
+"Terima kasih banyak, Onee-san High-Elf… erm, maaf tapi apakah kita pernah bertemu sebelumnya?"
 
-“Tidak, ini pertama kalinya kita bertemu. Saya Yarandorara. "
+"Tidak, ini pertama kalinya kita bertemu. Aku Yarandorara. "
 
-“Ah, apakah kamu mungkin orang yang aku injak untuk mencapai lantai dua?”
+"Ah, apakah kamu mungkin orang yang aku injak untuk mencapai lantai dua?"
 
-“Ya, saya terkejut.”
+"Ya, Aku terkejut."
 
  
 
@@ -328,7 +314,7 @@ Yarandorara-san berkata dan tersenyum lembut.
 
  
 
-"Maaf, saya terburu-buru dan berpikir bahwa saya tidak punya pilihan lain."
+"Maaf, Aku terburu-buru dan berpikir bahwa Aku tidak punya pilihan lain."
 
 "Tidak apa-apa, seperti katamu, itu satu-satunya pilihan."
 
@@ -342,9 +328,9 @@ Sudah menjadi sifat ras High-Elf untuk tidak menyukai ras lain.
 
  
 
-“Hei, orang ini adalah Visha!”
+"Hei, orang ini adalah Visha!"
 
-“Visha, tentara bayaran Nusantara?”
+"Visha, tentara bayaran Nusantara?"
 
  
 
@@ -354,7 +340,7 @@ Penjaga itu memeriksa mayat pria itu dan menggumamkan sesuatu.
 
 "Aku pernah melihat Visha sebelumnya, aku yakin itu."
 
-“Mungkin seseorang yang mirip dengan Visha. Lagipula, itu adalah anak kecil yang membunuh orang ini jadi tidak mungkin Visha yang terkenal karena membunuh tiga raja. "
+"Mungkin seseorang yang mirip dengan Visha. Lagipula, itu adalah anak kecil yang membunuh orang ini jadi tidak mungkin Visha yang terkenal karena membunuh tiga raja. "
 
 " … Itu benar. Dia memang sangat mirip dengannya. "
 
@@ -374,19 +360,19 @@ Penjaga itu menatapku dan berkata.
 
  
 
-"Saya ingin mendapat penjelasan tentang apa yang terjadi di sini jadi bisakah Anda ikut dengan saya ke pangkalan militer?"
+"Aku ingin mendapat penjelasan tentang apa yang terjadi di sini jadi bisakah Kamu ikut dengan Aku ke pangkalan militer?"
 
-“Dimengerti.”
-
- 
-
-Tetapi sebelum saya bisa pergi ke penjaga, Yarandorara melangkah di depan saya dan menghentikan saya.
+"Dimengerti."
 
  
 
-“Tunggu, anak ini baru saja melalui pertarungan hidup dan mati. Dia sepertinya tidak tahu apa-apa selain pertempuran di sini jadi tidak apa-apa mendengar deskripsi acara besok. ”
+Tetapi sebelum Aku bisa pergi ke penjaga, Yarandorara melangkah di depan Aku dan menghentikan Aku.
 
-“Mu, tapi Yarandorara-san.”
+ 
+
+"Tunggu, anak ini baru saja melalui pertarungan hidup dan mati. Dia sepertinya tidak tahu apa-apa selain pertempuran di sini jadi tidak apa-apa mendengar deskripsi acara besok. "
+
+"Mu, tapi Yarandorara-san."
 
 Lihat pedang anak laki-laki itu.
 
@@ -396,7 +382,7 @@ Pedangku?
 
  
 
-" … Saya melihat. Maaf tentang tuan muda itu, saya akan mendengarkan uraian Anda besok. Tolong beritahu saya nama dan afiliasi Anda. "
+" … Aku melihat. Maaf tentang tuan muda itu, Aku akan mendengarkan uraian Kamu besok. Tolong beritahu Aku nama dan afiliasi Kamu. "
 
  
 
@@ -406,9 +392,9 @@ Aku memiringkan leher dalam kebingungan dalam pikiranku, tetapi aku lega bahwa a
 
  
 
-“Saya adalah halaman yang menyajikan Flores-dono, Gideon ・ Lugnason.”
+"Saya adalah halaman yang menyajikan Flores-dono, Gideon ・ Lugnason."
 
-“Lugnason-kun ya? Saya rasa Anda tinggal di kediaman Lord Flores. Saya akan berkunjung besok pagi. "
+"Lugnason-kun ya? Aku rasa Kamu tinggal di kediaman Lord Flores. Aku akan berkunjung besok pagi. "
 
  
 
