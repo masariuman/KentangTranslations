@@ -30,73 +30,49 @@ y"Ini tempat yang bagus seperti yang kubayangkan!"
 
 Yarandorara berseru gembira.
 
-Itu terletak tidak jauh dengan berjalan kaki dari pintu masuk hutan.
+Letaknya tidak jauh dengan berjalan kaki dari pintu masuk hutan.
 
 Kami duduk di atas kain tenun elf yang terhampar di atas tanah berlumut yang lembut.
 
-Tempat yang dipandu Yarandorara adalah tempat yang menyenangkan dengan angin sepoi-sepoi dan sinar matahari yang mengalir melalui kanopi pohon.
+Tempat yang dipandu Yarandorara adalah tempat yang tenang dengan angin sepoi-sepoi dan sinar matahari yang mengalir melalui kanopi pohon.
 
-Kotak makan siang diletakkan di atas lembaran dengan berbagai hidangan buatan Aku dikemas di dalamnya.
+Kotak makan siang diletakkan dengan berbagai hidangan buatanku yang dikemas di dalamnya.
 
- 
+g"Baiklah, waktunya sudah siang, haruskah kita makan?"
 
-"Baiklah, waktunya tengah hari, haruskah kita makan?"
-
-"Baiklah!"
-
- 
+l"Tentu Saja!"
 
 Lit dengan gembira menjawab kata-kataku.
 
 Yarandorara tersenyum saat melihat Lit berinisiatif menyiapkan peralatan makan untuk semua orang.
 
- 
+y"Begitu, Lit sudah berubah sebanyak ini."
 
-"Begitu, Lit berubah sebanyak ini."
+l"Ehehe."
 
-Ehehe.
+y"Aku telah membayangkan beberapa hal berbeda yang akan kamu lakukan di sekitar Red, tetapi semuanya salah."
 
-"Aku telah membayangkan berbagai cara berbeda yang akan kamu lakukan di sekitar Red, tetapi semuanya salah."
-
- 
-
-Harapan Yarandorara dari mengetahui Lit dari Logavia?
+ekspetasi Yarandorara dari mengetahui Lit dari Logavia?
 
 Itu menarik.
 
- 
-
-"Hei, ekspektasi macam apa yang kamu punya?"
-
- 
+g"Hei, ekspektasi macam apa yang kamu punya?"
 
 Tanyaku sambil menyajikan hidangan di piring.
 
- 
-
-"Hei Red, kamu tidak perlu menanyakan itu."
-
- 
+l"Hei Red, kamu tidak perlu menanyakan itu."
 
 Lit malu memikirkan apa yang akan dikatakan tetapi aku ingin mendengar jadi aku tidak berhenti.
 
- 
+y"Fufu, ekpetasi pertamaku adalah kepribadian penyendiri yang keras yang akan dikhususkan untuk red."
 
-"Fufu, biar kulihat, harapan pertama adalah kepribadian penyendiri yang keras yang akan dikhususkan Red untuk dilayani."
-
-"Eeh! Aku tidak seperti itu! "
-
- 
+l"Eeh! Aku tidak seperti itu!"
 
 Lit dengan cepat mengangkat suaranya sebagai protes.
 
 Protesnya begitu cepat sehingga Aku tidak bisa menahan tawa.
 
- 
-
-"Tentu saja itu bukan hanya sikap tegas tapi juga menunjukkan sekilas kecintaan kalian pada Red. Sebagai contoh."
-
- 
+y"Tentu saja itu bukan hanya sikap tegas tapi juga menunjukkan sekilas kecintaanmu pada Red. Sebagai contoh."
 
 Yarandorara melantunkan mantra seperti bernyanyi dan membentuk segel.
 
@@ -106,29 +82,21 @@ Yang satu memiliki kelopak bunga merah melilit lehernya, mungkin menandakan Lit.
 
 Yang lainnya dengan ranting di pinggangnya mungkin adalah aku.
 
-Golem Aku duduk sambil meletakkan dagu di tangannya sementara golem Lit memiliki kedua tangan di pinggang dan dadanya didorong ke depan dengan bangga.
-
- 
+Golemku duduk sambil meletakkan dagu di tangannya sementara golem Lit memiliki kedua tangan di pinggang dan dadanya didorong ke depan dengan bangga.
 
 "Hmm, jadi ini apotek yang kamu buat."
 
- 
-
-Ooo, itu berbicara. Apakah itu mantra Whisper?
+Ooo, itu berbicara. Apakah itu Sihir Bisikan?
 
 Bisikan adalah sejenis sihir Roh Angin yang mereproduksi suara.
 
-Itu bisa mereproduksi suara yang bisa didengar secara normal tetapi pengguna mahir bisa membuat suara dari gambar mental.
+Itu bisa mereproduksi suara yang bisa didengar secara normal tetapi pengguna mahir bisa membuat suara dari patung.
 
 Yarandorara mereproduksi suara Lit.
 
- 
+"Tapi tidak ada pelanggan yang datang sama sekali. Nah, toko yang dibuka oleh Knight yang tidak tahu apa-apa tentang bisnis tidak akan menjadi populer... hmph, sungguh menyedihkan. Aku akan membantumu jika Kamu memohon kepadaku seperti itu. Tapi jangan salah paham, aku tidak melakukan ini karena kamu. Aku hanya menemanimu karena aku memiliki banyak waktu luang!"
 
-"Tapi tidak ada pelanggan yang datang sama sekali. Nah, toko yang dibuka oleh Knight yang tidak tahu apa-apa tentang bisnis tidak akan menjadi populer… hmph, sungguh menyedihkan. Aku akan membantu Kamu jika Kamu memohon kepada Aku sebanyak itu. Tapi jangan salah paham, aku tidak melakukan ini karena kamu. Aku hanya menemanimu karena aku bebas!"
-
-"Aku tidak mengatakan hal seperti itu!"
-
- 
+l"Aku tidak mengatakan hal seperti itu!"
 
 Lit membuat segel dan membuat golem kecil.
 
@@ -136,137 +104,91 @@ Golem persegi yang dibuat oleh Lit menjabat kedua tangannya sebagai protes terha
 
 Kami semua tertawa terbahak-bahak saat melihat itu.
 
- 
+"Itu sangat Berlebihan."
 
-"Itu sangat dibesar-besarkan."
-
-"Tidak hanya sedikit, itu terlalu dilebih-lebihkan!"
-
- 
+"Tidak hanya sedikit, itu terlalu Berlebihan!"
 
 Ketiga golem itu mulai mengejar satu sama lain.
 
 Kami menyantap makanan kami sambil melihat dengan penuh kasih sayang pada tingkah laku mereka.
 
-Ah, golem yang dibuat setelah aku tersandung.
+Ah, golem yang dibuat dengan penampilanku tersandung.
 
 Ketika itu terjadi, kedua golem yang mengejar satu sama lain berhenti dan berlari ke arah golem yang jatuh untuk membantunya.
 
 Waktu damai berlanjut untuk sementara waktu.
 
- 
-
-"Yang lain akan."
-
- 
+y"ekpetasi lainnya..."
 
 Ketika kami hampir setengah makan, Yarandorara berbicara.
 
- 
+y"Kupikir mungkin ... Aku punya firasat buruk bahwa kalian berdua akan memiliki hubungan aneh bahkan untuk menjilat luka satu sama lain."
 
-"Kupikir mungkin ... Aku punya firasat buruk bahwa kalian berdua akan saling bergantung untuk menjilat luka satu sama lain."
-
-"Itu tidak benar."
+g"Itu tidak benar."
 
 Kali ini Aku menyangkalnya dengan jelas.
 
- 
+g"Lit adalah wanita yang kuat. Daripada mengalami depresi bersama, kami bisa memilih untuk maju bersama. Aku menghormati kekuatan yang dimiliki Lit. "
 
-"Lit adalah wanita yang kuat. Daripada mengalami depresi bersama, kita bisa memilih untuk maju bersama. Aku menghormati kekuatan yang dimiliki Lit. "
-
-"Merah, apa yang kamu katakan tiba-tiba .."
-
- 
+g"Red, apa yang kamu katakan tiba-tiba .."
 
 Lit memerah.
 
 Tapi Aku harus memperbaikinya dengan benar.
 
-Tidak peduli bagaimana kami bersatu kembali di Zoltan, Lit dan Aku tidak menjalani kehidupan yang lambat untuk melarikan diri tetapi menjalani kehidupan positif yang lambat yang dimaksudkan untuk menikmati hidup.
+Tidak peduli bagaimana kami bersatu kembali di Zoltan, Lit dan Aku tidak menjalani kehidupan yang santai untuk melarikan diri tetapi menjalani kehidupan positif yang santai yang dimaksudkan untuk menikmati hidup.
 
- 
-
-"Fufufu, maaf. Ehh, harapanku salah besar. Kalian berdua memiliki hubungan yang sehat selama ini. Aku sangat senang tentang itu. "
-
- 
+y"Fufufu, maaf. Ehh~~ ekpetasiku salah besar. Kalian berdua memiliki hubungan yang sehat selama ini. Aku sangat senang tentang itu."
 
 Kata Yarandorara dengan ekspresi tenang.
 
 Tapi bukan hal yang tidak terduga bagi Yarandorara untuk memprediksi situasi yang begitu buruk.
 
-Dari informasi yang bisa dilihat Yarandorara, aku diusir dari party dan Lit tidak punya pilihan selain meninggalkan tanah airnya.
+Dari informasi yang bisa dilihat Yarandorara, aku diusir dari tim dan Lit tidak punya pilihan selain meninggalkan negaranya.
 
 Itu normal baginya untuk berpikir bahwa kami akan disakiti dan dilemahkan.
 
- 
-
-"Onii Chan."
-
- 
+r"Onii Chan."
 
 Ruti memelukku.
 
- 
+r"Mu."
 
-Mu.
+Dia cemberut karena suatu alasan.
 
- 
+g"Ada apa, Ruti?"
 
-Dia merajuk karena suatu alasan.
+r"Apakah Kamu menghormatiku?"
 
- 
+g"Tentu saja, Ruti adalah adik perempuanku yang sangat kubanggakan."
 
-"Ada apa, Ruti?"
-
-"Apakah Kamu menghormati Aku?"
-
-"Tentu saja, Ruti adalah adik perempuan Aku yang membanggakan."
-
-"Aku melihat."
-
- 
+r"begitu."
 
 Ruti menunjukkan senyuman yang hanya bisa kukatakan.
 
 Imut.
 
- 
-
-Ngomong-ngomong tak terduga, aku kaget melihat Ruti.
-
- 
+y"Ngomong-ngomong tentang hal tak terduga, aku kaget melihat Ruti."
 
 Lanjut Yarandorara sambil melihat Ruti memelukku.
 
- 
-
-"Tidak peduli betapa indahnya Aku membayangkan masa depan, Aku tidak berpikir akan ada keajaiban seperti itu di mana Kamu bisa dibebaskan dari『 Hero 』dan hidup bahagia."
-
- 
+y"Tidak peduli betapa indahnya Aku membayangkan masa depan, Aku tidak berpikir akan ada keajaiban seperti itu di mana Kamu bisa dibebaskan dari『 Pahlawan 』dan hidup bahagia."
 
 Ruti memiringkan kepalanya sedikit saat mendengar Yarandorara.
 
- 
+r"aku tidak begitu tahu Yarandorara."
 
-"Saya tidak begitu tahu Yarandorara."
+g"Tepat sekali."
 
-"Tepat sekali."
-
- 
-
-Meskipun dia adalah rekan dari party 『Hero』, Ruti tidak bisa dikatakan dekat dengan siapapun selain aku.
+Meskipun dia adalah rekan dari tim 『Pahlawan』, Ruti tidak bisa dikatakan dekat dengan siapapun selain aku.
 
 Yarandorara tidak dikecualikan.
 
 Tapi.
 
- 
+r"Jadi Aku ingin bicara, Aku juga akan bicara."
 
-"Jadi Aku ingin bicara, Aku juga akan bicara."
-
-"Tentu saja, mari banyak bicara!"
-
- 
+y"Tentu saja, mari banyak bicara!"
 
 Keduanya berkata dan tersenyum bahagia.
 
@@ -274,4 +196,4 @@ Menatap ke langit, bunga-bunga putih yang indah bermekaran di cabang-cabang di a
 
 Aku tidak ingat bunga apa itu.
 
-Ah, hari ini adalah hari yang baik…
+Ah, hari ini adalah hari yang baik...
