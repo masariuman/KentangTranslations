@@ -140,6 +140,8 @@ Tidak peduli bagaimana kami bersatu kembali di Zoltan, Lit dan Aku tidak menjala
 
 y"Fufufu, maaf. Ehh~~ ekpetasiku salah besar. Kalian berdua memiliki hubungan yang sehat selama ini. Aku sangat senang tentang itu."
 
+<gambar> vol 6 9.jpg
+
 Kata Yarandorara dengan ekspresi tenang.
 
 Tapi bukan hal yang tidak terduga bagi Yarandorara untuk memprediksi situasi yang begitu buruk.
