@@ -178,9 +178,9 @@ y"Kapan toko libur?"
 
 g"Lusa."
 
-y"Lalu bisakah kita semua pergi berkemah pada hari itu?"
+y"Lalu bisakah kita semua pergi Piknik pada hari itu?"
 
-g"Berkemah?"
+g"Piknik?"
 
 y"Iya! Sepertinya ada tempat yang bagus di dekat Zoltan. Bunga padang rumput yang memberitahuku."
 
