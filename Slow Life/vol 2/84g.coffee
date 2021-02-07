@@ -1,6 +1,6 @@
 Bab 84: Hujan Salju di Zoltan
 
-Lima hari setelah pertempuran di reruntuhan Peri-Kuno.
+Lima hari setelah pertempuran di reruntuhan Ancient-Elf.
 
 l"red! Bangun!"
 
