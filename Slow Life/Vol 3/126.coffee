@@ -192,7 +192,7 @@ Itu adalah rutinitas biasa.
 
 ☆☆
 
-Sebelum tengah hari, Apotek Merah dan Lit.
+Sebelum tengah hari, Apotek red & Lit.
 
 g"Aku berangkat."
 
