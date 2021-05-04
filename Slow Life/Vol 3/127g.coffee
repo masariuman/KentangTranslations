@@ -50,6 +50,8 @@ g"Kaulah yang dengan sengaja menampakkan kehadiranmu agar aku mendeteksinya."
 
 High-Elf memukulku dengan tatapan tajam pada kata-kataku.
 
+<gambar> vol 7 7.jpg
+
 "Kamu sudah tahu sebanyak itu?"
 
 Aku bisa merasakan intimidasi dari seorang pejuang yang terampil bercampur dengan kewaspadaan dan semangat juang di kulitku.
