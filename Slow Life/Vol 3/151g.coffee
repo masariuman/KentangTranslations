@@ -42,7 +42,7 @@ Rasanya Lit dan aku tersenyum sepanjang piknik kecil ini.
 
 Lit tersenyum lembut dan berbicara.
 
-l"Ini adalah pemandangan yang lindungi Red."
+l"Ini adalah pemandangan yang Red lindungi."
 
 g"... Ya."
 
@@ -51,6 +51,8 @@ l"Jadi menurutku Ruti tidak menyadari apa yang dipikirkan Red."
 g"Ahaha... kamu menyadarinya?"
 
 l"Tentu saja, aku kan milik Red."
+
+<gambar> vol7 4.jpg
 
 Seperti yang dikatakan Lit, Aku agak cemas tentang Ruti.
 
