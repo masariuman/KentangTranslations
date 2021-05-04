@@ -56,6 +56,8 @@ Minumannya sederhana tapi enak dengan rasa manis dan penuh rasa. Itu mungkin sal
 
 Ruti menyesap kopi susu, matanya berbinar dan dia meminum setengahnya dalam sekali teguk. Dia perlahan menyesap sisa setengahnya dengan sedikit menyesal.
 
+<gambar> vol7 3.jpg
+
 Dia tidak berubah sejak kecil.
 
 g"Apakah kamu mau lagi?"
