@@ -98,7 +98,7 @@ Beberapa orang datang untuk mencari tahu apakah Lit akan kembali sebagai petuala
 
 Nah, untuk kasus Lit, sepertinya mereka benar-benar memintanya untuk bergabung dengan kongres daripada kembali sebagai petualang...
 
-l"aku benar-benar menolak! Aku tidak akan mempertimbangkan kehidupan Lit selain dari Apotek Merah & Lit! "
+l"aku benar-benar menolak! Aku tidak akan mempertimbangkan kehidupan Lit selain dari Apotek red & Lit! "
 
 Dia menolak mereka begitu saja.
 
