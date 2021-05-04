@@ -170,6 +170,8 @@ Di tengah keheningan, seseorang berteriak.
 
 "Menuju kemenangan!"
 
+<gambar> vol7 11.jpg
+
 Seolah-olah menanggapi teriakan itu, Lit menyebabkan angin kencang bertiup.
 
 Angin membawa suara Lit dan semua tentara mendengar suaranya dengan jelas.

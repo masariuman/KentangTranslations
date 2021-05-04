@@ -318,6 +318,8 @@ Leonor perlahan mundur ke belakang.
 
 Leonor berdiri di tepi kapal.
 
+<gambar> vol7 13.jpg
+
 "Leonor ..."
 
 "Bersukacitalah, inilah jalan keluar dari penjahat. Kejahatan dan dosaku adalah semua perbuatanku. Aku tidak akan membenarkannya menggunakan Tuhan sebagai alasan dan Aku juga tidak akan memiliki satu ons pun dari diriku untuk kembali kepada Tuhan. Aku bangga dengan kejahatan Aku lakukan dan akan menghilang. Selamat tinggal Onee-sama, selamat tinggal ... Aku harap kalian menemukan kebebasan dalam hidupmu."

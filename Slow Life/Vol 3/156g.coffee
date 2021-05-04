@@ -116,6 +116,8 @@ Ruti menghunus pedangnya dan menebas langit.
 
 Ayunannya dengan kekuatan penuh memotong atmosfir dan kejutan terpancar ke sekeliling.
 
+<gambar> 12.jpg
+
 g"Ru-ruti !?"
 
 Aku terkejut dan secara refleks melompat ke belakang sambil menyentuh gagang pedangku untuk menanggapi apapun yang bisa muncul.

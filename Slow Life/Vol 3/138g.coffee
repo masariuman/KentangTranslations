@@ -26,6 +26,8 @@ g"Jadi, biasanya kamu harus ada di sana memberi perintah dengan keringat di kepa
 
 Ririnrara berada di sudut pelabuhan agak jauh dari tentara Veronia yang sibuk melakukan pekerjaan mereka sementara dia santai dengan kail dan pancing... atau lebih tepatnya dia sedang memancing.
 
+<gambar> vol 7 10.jpg
+
 "Semua ilmu yang Aku miliki sebagai nakhoda kapal sudah terbawa ke Sarius. Dia bisa menjadi bajak laut hebat yang namanya tercatat dalam sejarah. Tidak akan ada masalah."
 
 g"Pangeran menjadi bajak laut? Geyserik adalah malah kebalikannya."
