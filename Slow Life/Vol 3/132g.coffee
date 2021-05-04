@@ -50,6 +50,8 @@ Dan itu terjadi dalam sekejap.
 
 "Ke-kenapa?"
 
+<gambar> vol7 8.jpg
+
 Pangeran Sarius memegangi pipinya dan tertegun. Ririnrara berdiri di depannya dengan amarah yang tak terkendali dan dia menghela napas dengan kasar.
 
 Mendengar perkataan Pangeran Sarius, Ririnrara tiba-tiba mendekat dan menghantam wajah Pangeran Sarius.
