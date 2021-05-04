@@ -1,4 +1,4 @@
-Bab SS3: Petualangan Muda Lit 'Langkah Pertama'
+Bab SS3: Petualangan Lit Muda 'Langkah Pertama'
 
 Seorang gadis berusia 9 tahun berlari melintasi kota Logavia, melarikan diri dari istana.
 
