@@ -24,6 +24,8 @@ Silverio dan Uzuki, kedua pangeran itu perlahan membuka mata mereka dan tertawa,
 
 "Begitu, kerja bagus."
 
+<gambar> vol7 9.jpg
+
 Leonor menyembunyikan senyumnya yang terdistorsi di balik kipas dan tertawa dengan anggun.
 
 Tentu saja, Leonor bukanlah seorang Elf. Usianya sudah melewati 60 dan seharusnya sudah memasuki usia tua.

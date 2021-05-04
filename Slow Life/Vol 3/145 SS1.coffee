@@ -223,3 +223,5 @@ l"Apakah kamu benci memiliki Putri Tomboy?"
 g"Tentu saja aku mencintainya."
 
 l"Ehehe."
+
+<gambar> vol7 6.jpg
