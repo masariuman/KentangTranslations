@@ -230,6 +230,8 @@ Semua makhluk hidup saling membunuh untuk meningkatkan perlindungan ilahi mereka
 
 Leonor jahat.
 
-Dia menyimpang dari hukum manusia, royalti dan Tuhan.
+Dia menyimpang dari hukum manusia, royalti dan Dewa.
 
 Tapi tangan dan perlindungan ilahi-nya tidak bersalah dan tidak kotor.
+
+<gambar> vol7 2.jpg
