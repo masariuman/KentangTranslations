@@ -176,7 +176,7 @@ Dan pria itu, selama kita tidak bertanya, dia tidak akan membicarakannya, kurasa
 
 Muu.
 
-Itu, ketika dia mengatakan 'Saya percaya pada oniichan!', bahkan aku tidak bisa mengatakan apa-apa lagi.
+Itu, ketika dia mengatakan 'Aku percaya pada oniichan!', bahkan aku tidak bisa mengatakan apa-apa lagi.
 
 aku yakin Aya akan membuat wajah yang sama juga. Apakah karena mereka adalah teman masa kecil, atau karena mereka berdua mempercayai Yamada-san dengan sepenuh hati?
 
